@@ -1,0 +1,4 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://funtoykingdom.com/sitemap-index.xml
