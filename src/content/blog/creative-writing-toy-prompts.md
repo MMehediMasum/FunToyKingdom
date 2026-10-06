@@ -1,10 +1,14 @@
 ---
-title: "Creative Writing Toy Prompts: Ignite Imagination and Fun"
-description: "Are you looking for a fun and simple way to boost your creativity? Creative writing toy prompts might be exactly what you need. These prompts turn everyday toys"
+title: 'Creative Writing Toy Prompts: Ignite Imagination and Fun'
+description: Are you looking for a fun and simple way to boost your creativity? Creative
+  writing toy prompts might be exactly what you need. These prompts turn everyday
+  toys
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=creative-writing-toy-prompts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=creative-writing-toy-prompts&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and simple way to boost your creativity? Creative writing toy prompts might be exactly what you need.**

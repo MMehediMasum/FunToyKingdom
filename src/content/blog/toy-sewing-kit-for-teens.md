@@ -1,10 +1,14 @@
 ---
-title: "Toy Sewing Kit for Teens: Creative Fun for Young Designers"
-description: "Looking for a fun and creative way to keep your teen engaged? A toy sewing kit for teens might be exactly what you need. It’s more than just a craft—it’s a chan"
+title: 'Toy Sewing Kit for Teens: Creative Fun for Young Designers'
+description: Looking for a fun and creative way to keep your teen engaged? A toy sewing
+  kit for teens might be exactly what you need. It’s more than just a craft—it’s a
+  chan
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-sewing-kit-for-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=toy-sewing-kit-for-teens&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative way to keep your teen engaged? A toy sewing kit for teens might be exactly what you need.**

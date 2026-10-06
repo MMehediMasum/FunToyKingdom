@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Abc Blocks for Preschoolers: Boost Learning Fun Today!"
-description: "Are you looking for a fun and educational toy that keeps your preschooler engaged while they learn? Toy Story ABC Blocks are a perfect choice for you and your l"
+title: 'Toy Story Abc Blocks for Preschoolers: Boost Learning Fun Today!'
+description: Are you looking for a fun and educational toy that keeps your preschooler
+  engaged while they learn? Toy Story ABC Blocks are a perfect choice for you and
+  your l
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-abc-blocks-for-preschoolers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-abc-blocks-for-preschoolers&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and educational toy that keeps your preschooler engaged while they learn? Toy Story ABC Blocks are a perfect choice for you and your little one.**

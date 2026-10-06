@@ -1,10 +1,14 @@
 ---
-title: "Spiderman Collectible Action Figures: Ultimate Guide for True Fans"
-description: "Are you a Spiderman fan looking to bring your favorite superhero to life? Spiderman collectible action figures are more than just toys—they’re a way to connect "
+title: 'Spiderman Collectible Action Figures: Ultimate Guide for True Fans'
+description: 'Are you a Spiderman fan looking to bring your favorite superhero to
+  life? Spiderman collectible action figures are more than just toys—they’re a way
+  to connect '
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=spiderman-collectible-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=spiderman-collectible-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Spiderman fan looking to bring your favorite superhero to life? Spiderman collectible action figures are more than just toys—they’re a way to connect with your passion and showcase your unique style.**

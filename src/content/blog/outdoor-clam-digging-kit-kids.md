@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Clam Digging Kit Kids: Ultimate Fun & Safe Adventure Gear"
-description: "Looking for a fun way to get your kids outside and exploring nature? An outdoor clam digging kit for kids is the perfect solution. It’s not just about digging i"
+title: 'Outdoor Clam Digging Kit Kids: Ultimate Fun & Safe Adventure Gear'
+description: Looking for a fun way to get your kids outside and exploring nature?
+  An outdoor clam digging kit for kids is the perfect solution. It’s not just about
+  digging i
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-clam-digging-kit-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-clam-digging-kit-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids outside and exploring nature? An outdoor clam digging kit for kids is the perfect solution.**

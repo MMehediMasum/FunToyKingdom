@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Superhero Masks: Create Epic Costumes Fast & Fun"
-description: "Are you ready to bring out your inner hero? Making your own superhero mask is not just fun—it’s a chance to unleash creativity and feel unstoppable. Imagine wea"
+title: 'Diy Toy Superhero Masks: Create Epic Costumes Fast & Fun'
+description: Are you ready to bring out your inner hero? Making your own superhero
+  mask is not just fun—it’s a chance to unleash creativity and feel unstoppable. Imagine
+  wea
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-superhero-masks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-superhero-masks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring out your inner hero? Making your own superhero mask is not just fun—it’s a chance to unleash creativity and feel unstoppable.**

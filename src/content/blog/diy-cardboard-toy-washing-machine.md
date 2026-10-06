@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Washing Machine: Easy, Fun, and Eco-Friendly Guide"
-description: "Are you looking for a fun and creative project that you can make with things around your house? Imagine building your very own cardboard toy washing machine tha"
+title: 'Diy Cardboard Toy Washing Machine: Easy, Fun, and Eco-Friendly Guide'
+description: Are you looking for a fun and creative project that you can make with
+  things around your house? Imagine building your very own cardboard toy washing machine
+  tha
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-washing-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-washing-machine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with things around your house? Imagine building your very own cardboard toy washing machine that looks just like the real thing!**

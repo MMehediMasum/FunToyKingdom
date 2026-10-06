@@ -1,10 +1,14 @@
 ---
-title: "Superhero Toys for 4 Year Old Kids: Top Action Figures and Costumes"
-description: "Superhero toys excite 4-year-olds and inspire imaginative play. Choosing the right toy boosts creativity and fun for young kids. Superhero toys come in many sty"
+title: 'Superhero Toys for 4 Year Old Kids: Top Action Figures and Costumes'
+description: Superhero toys excite 4-year-olds and inspire imaginative play. Choosing
+  the right toy boosts creativity and fun for young kids. Superhero toys come in many
+  sty
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=superhero-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=superhero-toys-for-4-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Superhero toys excite 4-year-olds and inspire imaginative play. Choosing the right toy boosts creativity and fun for young kids.**

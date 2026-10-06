@@ -1,10 +1,14 @@
 ---
-title: "Felt Toy Vegetables Crafting Kit: Creative Fun for All Ages"
-description: "Are you looking for a fun and creative way to spend your time? The Felt Toy Vegetables Crafting Kit is just what you need. Imagine making colorful, soft vegetab"
+title: 'Felt Toy Vegetables Crafting Kit: Creative Fun for All Ages'
+description: Are you looking for a fun and creative way to spend your time? The Felt
+  Toy Vegetables Crafting Kit is just what you need. Imagine making colorful, soft
+  vegetab
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=felt-toy-vegetables-crafting-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=felt-toy-vegetables-crafting-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to spend your time? The Felt Toy Vegetables Crafting Kit is just what you need.**

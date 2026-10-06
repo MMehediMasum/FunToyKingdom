@@ -1,10 +1,14 @@
 ---
-title: "Monopoly As a Math Learning Toy: Unlock Fun & Skills Fast"
-description: "Have you ever thought of turning game night into a powerful learning moment? Monopoly isn’t just about fun and competition—it’s a surprisingly effective math le"
+title: 'Monopoly As a Math Learning Toy: Unlock Fun & Skills Fast'
+description: Have you ever thought of turning game night into a powerful learning
+  moment? Monopoly isn’t just about fun and competition—it’s a surprisingly effective
+  math le
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-as-a-math-learning-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-as-a-math-learning-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever thought of turning game night into a powerful learning moment? Monopoly isn’t just about fun and competition—it’s a surprisingly effective math learning toy.**

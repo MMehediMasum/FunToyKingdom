@@ -1,10 +1,14 @@
 ---
-title: "Miniature Submarine Toy: Top Realistic and Fun Underwater Playsets"
-description: "Miniature submarine toys bring underwater adventure to kids of all ages. These small, detailed models inspire curiosity about the ocean world. Submarine toys co"
+title: 'Miniature Submarine Toy: Top Realistic and Fun Underwater Playsets'
+description: Miniature submarine toys bring underwater adventure to kids of all ages.
+  These small, detailed models inspire curiosity about the ocean world. Submarine
+  toys co
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-submarine-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-submarine-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature submarine toys bring underwater adventure to kids of all ages. These small, detailed models inspire curiosity about the ocean world.**

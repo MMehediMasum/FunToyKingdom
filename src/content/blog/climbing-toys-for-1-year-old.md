@@ -1,10 +1,14 @@
 ---
-title: "Climbing Toys for 1 Year Old: Safe, Fun, and Developmental Picks"
-description: "Looking for the perfect climbing toys for your 1-year-old? You want something safe, fun, and just right for those tiny hands and curious feet. Climbing helps yo"
+title: 'Climbing Toys for 1 Year Old: Safe, Fun, and Developmental Picks'
+description: Looking for the perfect climbing toys for your 1-year-old? You want something
+  safe, fun, and just right for those tiny hands and curious feet. Climbing helps
+  yo
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=climbing-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=climbing-toys-for-1-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect climbing toys for your 1-year-old? You want something safe, fun, and just right for those tiny hands and curious feet.**

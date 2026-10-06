@@ -1,10 +1,14 @@
 ---
-title: "What is the Oldest Toy: Uncovering Timeless Play History"
-description: "Have you ever wondered what the oldest toy in the world is? Imagine holding a piece of history that children played with thousands of years ago. This simple obj"
+title: 'What is the Oldest Toy: Uncovering Timeless Play History'
+description: Have you ever wondered what the oldest toy in the world is? Imagine holding
+  a piece of history that children played with thousands of years ago. This simple
+  obj
 pubDate: 2025-09-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-oldest-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-oldest-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wondered what the oldest toy in the world is? Imagine holding a piece of history that children played with thousands of years ago.**

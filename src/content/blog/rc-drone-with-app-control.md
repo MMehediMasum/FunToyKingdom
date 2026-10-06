@@ -1,10 +1,13 @@
 ---
-title: "Rc Drone With App Control: Ultimate Guide to Fun & Easy Flying"
-description: "Imagine controlling a high-flying drone right from your smartphone. With an RC drone with app control, you get that power in your hands. No complicated remotes,"
+title: 'Rc Drone With App Control: Ultimate Guide to Fun & Easy Flying'
+description: Imagine controlling a high-flying drone right from your smartphone. With
+  an RC drone with app control, you get that power in your hands. No complicated remotes,
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-app-control&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-app-control&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling a high-flying drone right from your smartphone. With an RC drone with app control, you get that power in your hands.**

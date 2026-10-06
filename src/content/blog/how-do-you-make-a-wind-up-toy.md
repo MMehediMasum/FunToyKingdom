@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Wind Up Toy: Easy DIY Steps for Beginners"
-description: "Have you ever wondered how a simple twist of a key can bring a toy to life? Making your own wind-up toy is easier and more fun than you might think. Imagine hol"
+title: 'How Do You Make a Wind Up Toy: Easy DIY Steps for Beginners'
+description: Have you ever wondered how a simple twist of a key can bring a toy to
+  life? Making your own wind-up toy is easier and more fun than you might think. Imagine
+  hol
 pubDate: 2025-09-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-wind-up-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-wind-up-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered how a simple twist of a key can bring a toy to life? Making your own wind-up toy is easier and more fun than you might think.**

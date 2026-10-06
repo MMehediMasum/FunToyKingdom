@@ -1,10 +1,14 @@
 ---
-title: "Toys to Encourage Rolling Over: Top Picks for Baby Development"
-description: "Watching your baby learn to roll over is a big milestone, and you want to support them every step of the way. But how can you make this process fun and engaging"
+title: 'Toys to Encourage Rolling Over: Top Picks for Baby Development'
+description: Watching your baby learn to roll over is a big milestone, and you want
+  to support them every step of the way. But how can you make this process fun and
+  engaging
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-to-encourage-rolling-over&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=toys-to-encourage-rolling-over&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Watching your baby learn to roll over is a big milestone, and you want to support them every step of the way. But how can you make this process fun and engaging?**

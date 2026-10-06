@@ -1,10 +1,13 @@
 ---
-title: "Miniature Vintage Toys: Timeless Collectibles for Dollhouses & Decor"
-description: "Miniature vintage toys capture the charm of bygone eras in a small, delightful form. These tiny treasures bring nostalgia and creativity to any collection. Expl"
+title: 'Miniature Vintage Toys: Timeless Collectibles for Dollhouses & Decor'
+description: Miniature vintage toys capture the charm of bygone eras in a small, delightful
+  form. These tiny treasures bring nostalgia and creativity to any collection. Expl
 pubDate: 2026-03-02
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-vintage-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-vintage-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature vintage toys capture the charm of bygone eras in a small, delightful form. These tiny treasures bring nostalgia and creativity to any collection.**

@@ -1,10 +1,14 @@
 ---
-title: "2000S Robot Toy: Top Remote Control & Programmable Robots for Kids"
-description: "Robot toys from the 2000s bring fun and learning together for kids. These toys combine lights, sounds, and movements to engage young minds. The 2000s robot toys"
+title: '2000S Robot Toy: Top Remote Control & Programmable Robots for Kids'
+description: Robot toys from the 2000s bring fun and learning together for kids. These
+  toys combine lights, sounds, and movements to engage young minds. The 2000s robot
+  toys
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=2000s-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=2000s-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot toys from the 2000s bring fun and learning together for kids. These toys combine lights, sounds, and movements to engage young minds.**

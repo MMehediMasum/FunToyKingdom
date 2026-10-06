@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane Beginner Kids: Easy Tips for Fun Flying Success"
-description: "Are you looking for a fun and exciting way to introduce your kids to the world of flying? RC airplanes are the perfect choice! They are easy to learn, safe, and"
+title: 'Rc Airplane Beginner Kids: Easy Tips for Fun Flying Success'
+description: Are you looking for a fun and exciting way to introduce your kids to
+  the world of flying? RC airplanes are the perfect choice! They are easy to learn,
+  safe, and
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-beginner-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-beginner-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting way to introduce your kids to the world of flying? RC airplanes are the perfect choice!**

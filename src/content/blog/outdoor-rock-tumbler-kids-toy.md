@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Rock Tumbler Kids Toy: Ultimate Fun and Learning Guide"
-description: "Are you looking for a fun and educational toy that keeps your kids entertained while sparking their curiosity? An outdoor rock tumbler kids toy might be exactly"
+title: 'Outdoor Rock Tumbler Kids Toy: Ultimate Fun and Learning Guide'
+description: Are you looking for a fun and educational toy that keeps your kids entertained
+  while sparking their curiosity? An outdoor rock tumbler kids toy might be exactly
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rock-tumbler-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rock-tumbler-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and educational toy that keeps your kids entertained while sparking their curiosity? An outdoor rock tumbler kids toy might be exactly what you need.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toyo Case: Durable Steel Tool Boxes for Organized Storage Solutions"
 description: "Toyo cases offer durable and reliable storage solutions for tools and accessories. These steel toolboxes come in various sizes and colors to fit different needs"
 pubDate: 2026-03-11

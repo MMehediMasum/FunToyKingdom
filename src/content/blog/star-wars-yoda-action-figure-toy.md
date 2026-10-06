@@ -1,10 +1,14 @@
 ---
-title: "Star Wars Yoda Action Figure Toy: Ultimate Collectible Guide 2025"
-description: "If you’re a Star Wars fan or a toy collector, the Star Wars Yoda Action Figure Toy is a must-have for your collection. This tiny Jedi Master brings the magic of"
+title: 'Star Wars Yoda Action Figure Toy: Ultimate Collectible Guide 2025'
+description: If you’re a Star Wars fan or a toy collector, the Star Wars Yoda Action
+  Figure Toy is a must-have for your collection. This tiny Jedi Master brings the
+  magic of
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=star-wars-yoda-action-figure-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=star-wars-yoda-action-figure-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a Star Wars fan or a toy collector, the Star Wars Yoda Action Figure Toy is a must-have for your collection. This tiny Jedi Master brings the magic of the galaxy right to your hands.**

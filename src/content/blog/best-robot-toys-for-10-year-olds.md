@@ -1,10 +1,14 @@
 ---
-title: "Best Robot Toys for 10 Year Olds: Top STEM Picks for Fun Learning"
-description: "Robot toys spark curiosity and creativity in 10-year-olds. They offer fun ways to learn science and technology. Choosing the best robot toy for a 10-year-old me"
+title: 'Best Robot Toys for 10 Year Olds: Top STEM Picks for Fun Learning'
+description: Robot toys spark curiosity and creativity in 10-year-olds. They offer
+  fun ways to learn science and technology. Choosing the best robot toy for a 10-year-old
+  me
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-robot-toys-for-10-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=best-robot-toys-for-10-year-olds&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot toys spark curiosity and creativity in 10-year-olds. They offer fun ways to learn science and technology.**

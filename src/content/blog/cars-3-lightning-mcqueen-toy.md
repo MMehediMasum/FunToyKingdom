@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Lightning Mcqueen Toy: Ultimate Collectible Racecar for Kids"
-description: "Lightning McQueen toys bring the excitement of the \"Cars\" movies to life for young fans. These toys offer diverse options for imaginative play. Lightning McQuee"
+title: 'Cars 3 Lightning Mcqueen Toy: Ultimate Collectible Racecar for Kids'
+description: Lightning McQueen toys bring the excitement of the "Cars" movies to life
+  for young fans. These toys offer diverse options for imaginative play. Lightning
+  McQuee
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-lightning-mcqueen-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-lightning-mcqueen-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Lightning McQueen toys bring the excitement of the "Cars" movies to life for young fans. These toys offer diverse options for imaginative play.**

@@ -1,10 +1,14 @@
 ---
-title: "Nissan Altima Toy Car: Ultimate Diecast Model with Sound and Light Features"
-description: "The Nissan Altima toy car brings the thrill of driving into a small, collectible form. These detailed models offer fun for kids and adults alike. Nissan Altima "
+title: 'Nissan Altima Toy Car: Ultimate Diecast Model with Sound and Light Features'
+description: 'The Nissan Altima toy car brings the thrill of driving into a small,
+  collectible form. These detailed models offer fun for kids and adults alike. Nissan
+  Altima '
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nissan-altima-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=nissan-altima-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Nissan Altima toy car brings the thrill of driving into a small, collectible form. These detailed models offer fun for kids and adults alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Soldier Battlefield Setup: Ultimate Guide for Epic Play"
-description: "Are you ready to bring your toy soldiers to life and create an epic battlefield right in your own space? Imagine the thrill of setting up your very own DIY toy "
+title: 'Diy Toy Soldier Battlefield Setup: Ultimate Guide for Epic Play'
+description: 'Are you ready to bring your toy soldiers to life and create an epic
+  battlefield right in your own space? Imagine the thrill of setting up your very
+  own DIY toy '
 pubDate: 2025-11-03
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-soldier-battlefield-setup&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-soldier-battlefield-setup&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to bring your toy soldiers to life and create an epic battlefield right in your own space? Imagine the thrill of setting up your very own DIY toy soldier battlefield, where every detail sparks excitement and imagination.**

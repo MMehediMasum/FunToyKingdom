@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Drop off Toys for Christmas: Top Local Donation Spots"
-description: "Are you wondering where you can drop off toys for Christmas this year? You’re not alone. Many people want to bring joy to children in need but aren’t sure where"
+title: 'Where Can I Drop off Toys for Christmas: Top Local Donation Spots'
+description: Are you wondering where you can drop off toys for Christmas this year?
+  You’re not alone. Many people want to bring joy to children in need but aren’t sure
+  where
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-drop-off-toys-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drop Off Toys For Christmas
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-drop-off-toys-for-christmas&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can drop off toys for Christmas this year? You’re not alone.**

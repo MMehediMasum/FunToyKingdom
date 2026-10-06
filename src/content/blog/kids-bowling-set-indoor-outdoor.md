@@ -1,10 +1,14 @@
 ---
-title: "Kids Bowling Set Indoor Outdoor: Ultimate Fun for All Ages"
-description: "Looking for a fun and active way to keep your kids entertained, whether inside the house or out in the yard? A kids bowling set indoor outdoor is exactly what y"
+title: 'Kids Bowling Set Indoor Outdoor: Ultimate Fun for All Ages'
+description: Looking for a fun and active way to keep your kids entertained, whether
+  inside the house or out in the yard? A kids bowling set indoor outdoor is exactly
+  what y
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-bowling-set-indoor-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=kids-bowling-set-indoor-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and active way to keep your kids entertained, whether inside the house or out in the yard? A kids bowling set indoor outdoor is exactly what you need.**

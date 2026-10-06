@@ -1,10 +1,14 @@
 ---
-title: "Vintage Barbie Doll Worth Money: Unlock Hidden Collector Riches"
-description: "Have you ever wondered if that old Barbie doll tucked away in your attic could be worth something? Vintage Barbie dolls aren’t just toys—they can be valuable tr"
+title: 'Vintage Barbie Doll Worth Money: Unlock Hidden Collector Riches'
+description: Have you ever wondered if that old Barbie doll tucked away in your attic
+  could be worth something? Vintage Barbie dolls aren’t just toys—they can be valuable
+  tr
 pubDate: 2025-09-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-barbie-doll-worth-money&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=vintage-barbie-doll-worth-money&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered if that old Barbie doll tucked away in your attic could be worth something? Vintage Barbie dolls aren’t just toys—they can be valuable treasures waiting to surprise you.**

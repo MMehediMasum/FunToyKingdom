@@ -1,10 +1,14 @@
 ---
-title: "Diy Felt Baby Cube Toy: Easy Steps for Adorable Handmade Fun"
-description: "Are you looking for a fun and simple project that brings joy to your little one? Making a DIY felt baby cube toy is the perfect way to create something special "
+title: 'Diy Felt Baby Cube Toy: Easy Steps for Adorable Handmade Fun'
+description: 'Are you looking for a fun and simple project that brings joy to your
+  little one? Making a DIY felt baby cube toy is the perfect way to create something
+  special '
 pubDate: 2026-07-23
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-felt-baby-cube-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=diy-felt-baby-cube-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and simple project that brings joy to your little one? Making a DIY felt baby cube toy is the perfect way to create something special with your own hands.**

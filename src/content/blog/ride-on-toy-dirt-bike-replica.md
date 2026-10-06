@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy Dirt Bike Replica: Ultimate Fun for Kids Outdoors"
-description: "Imagine the thrill of racing your very own dirt bike, right in your backyard. A Ride on Toy Dirt Bike Replica lets you experience that excitement safely and com"
+title: 'Ride on Toy Dirt Bike Replica: Ultimate Fun for Kids Outdoors'
+description: Imagine the thrill of racing your very own dirt bike, right in your backyard.
+  A Ride on Toy Dirt Bike Replica lets you experience that excitement safely and com
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-dirt-bike-replica&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-dirt-bike-replica&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the thrill of racing your very own dirt bike, right in your backyard. A Ride on Toy Dirt Bike Replica lets you experience that excitement safely and comfortably.**

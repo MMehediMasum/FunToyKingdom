@@ -1,10 +1,14 @@
 ---
-title: "What to Do With Completed Puzzles: Creative and Fun Ideas"
-description: "You’ve just finished a puzzle, and that satisfying click of the last piece fits perfectly. But what now? Do you stash it away, toss it, or find a new way to enj"
+title: 'What to Do With Completed Puzzles: Creative and Fun Ideas'
+description: You’ve just finished a puzzle, and that satisfying click of the last
+  piece fits perfectly. But what now? Do you stash it away, toss it, or find a new
+  way to enj
 pubDate: 2025-09-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-with-completed-puzzles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-with-completed-puzzles&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **You’ve just finished a puzzle, and that satisfying click of the last piece fits perfectly. But what now?**

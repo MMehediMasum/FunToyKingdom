@@ -1,10 +1,14 @@
 ---
-title: "Mini Tabletop Basketball Electronic Toy: Ultimate Fun for All Ages"
-description: "Are you looking for a fun way to bring excitement right to your desk or tabletop? The Mini Tabletop Basketball Electronic Toy is just what you need. It’s small,"
+title: 'Mini Tabletop Basketball Electronic Toy: Ultimate Fun for All Ages'
+description: Are you looking for a fun way to bring excitement right to your desk
+  or tabletop? The Mini Tabletop Basketball Electronic Toy is just what you need.
+  It’s small,
 pubDate: 2025-09-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-tabletop-basketball-electronic-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=mini-tabletop-basketball-electronic-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to bring excitement right to your desk or tabletop? The Mini Tabletop Basketball Electronic Toy is just what you need.**

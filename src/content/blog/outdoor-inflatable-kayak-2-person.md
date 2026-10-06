@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Inflatable Kayak 2 Person: Ultimate Adventure Guide"
-description: "Are you ready to enjoy the water with a friend, without the hassle of heavy gear? An outdoor inflatable kayak for 2 persons could be exactly what you need. It’s"
+title: 'Outdoor Inflatable Kayak 2 Person: Ultimate Adventure Guide'
+description: Are you ready to enjoy the water with a friend, without the hassle of
+  heavy gear? An outdoor inflatable kayak for 2 persons could be exactly what you
+  need. It’s
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-inflatable-kayak-2-person&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-inflatable-kayak-2-person&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to enjoy the water with a friend, without the hassle of heavy gear? An outdoor inflatable kayak for 2 persons could be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Ferrari Toy Car: Ultimate Guide to Speed and Realism"
-description: "Are you ready to bring the thrill of a Ferrari right into your hands? The RC Ferrari Toy Car lets you experience speed, style, and control like never before. Wh"
+title: 'Rc Ferrari Toy Car: Ultimate Guide to Speed and Realism'
+description: Are you ready to bring the thrill of a Ferrari right into your hands?
+  The RC Ferrari Toy Car lets you experience speed, style, and control like never
+  before. Wh
 pubDate: 2025-08-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-ferrari-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-ferrari-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to bring the thrill of a Ferrari right into your hands? The RC Ferrari Toy Car lets you experience speed, style, and control like never before.**

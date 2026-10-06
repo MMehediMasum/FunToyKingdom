@@ -1,10 +1,14 @@
 ---
-title: "Baby Alive Doll Strollers: Ultimate Guide for Fun & Safety"
-description: "Are you looking for the perfect stroller to pair with your Baby Alive doll? Choosing the right Baby Alive doll stroller can make playtime more fun and realistic"
+title: 'Baby Alive Doll Strollers: Ultimate Guide for Fun & Safety'
+description: Are you looking for the perfect stroller to pair with your Baby Alive
+  doll? Choosing the right Baby Alive doll stroller can make playtime more fun and
+  realistic
 pubDate: 2025-12-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=baby-alive-doll-strollers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=baby-alive-doll-strollers&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for the perfect stroller to pair with your Baby Alive doll? Choosing the right Baby Alive doll stroller can make playtime more fun and realistic for your child.**

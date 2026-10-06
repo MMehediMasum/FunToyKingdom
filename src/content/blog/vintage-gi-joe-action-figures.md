@@ -1,10 +1,14 @@
 ---
-title: "Vintage Gi Joe Action Figures: Ultimate Collector’s Guide 2025"
-description: "If you grew up in the ’80s or ’90s, chances are you remember the thrill of holding a Vintage GI Joe Action Figure in your hands. These tiny soldiers weren’t jus"
+title: 'Vintage Gi Joe Action Figures: Ultimate Collector’s Guide 2025'
+description: If you grew up in the ’80s or ’90s, chances are you remember the thrill
+  of holding a Vintage GI Joe Action Figure in your hands. These tiny soldiers weren’t
+  jus
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-gi-joe-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=vintage-gi-joe-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you grew up in the ’80s or ’90s, chances are you remember the thrill of holding a Vintage GI Joe Action Figure in your hands. These tiny soldiers weren’t just toys—they were your ticket to endless adventures and imagination.**

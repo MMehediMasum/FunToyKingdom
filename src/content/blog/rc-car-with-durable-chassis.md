@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Durable Chassis: Ultimate Strength for Thrilling Rides"
-description: "Looking for an RC car that can keep up with your adventures without falling apart? Your search ends here. A durable chassis is the backbone of any great RC car,"
+title: 'Rc Car With Durable Chassis: Ultimate Strength for Thrilling Rides'
+description: Looking for an RC car that can keep up with your adventures without falling
+  apart? Your search ends here. A durable chassis is the backbone of any great RC
+  car,
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-durable-chassis&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-durable-chassis&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for an RC car that can keep up with your adventures without falling apart? Your search ends here.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Puzzle Games for DS: Top Engaging Titles You Can’t Miss"
-description: "Puzzle games on the Nintendo DS offer fun and challenge for all ages. These games sharpen your mind while keeping you entertained. The Nintendo DS has many puzz"
+title: 'Best Puzzle Games for DS: Top Engaging Titles You Can’t Miss'
+description: Puzzle games on the Nintendo DS offer fun and challenge for all ages.
+  These games sharpen your mind while keeping you entertained. The Nintendo DS has
+  many puzz
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-puzzle-games-for-ds-top-engaging-titles-you-cant-miss&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-puzzle-games-for-ds-top-engaging-titles-you-cant-miss&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Puzzle games on the Nintendo DS offer fun and challenge for all ages. These games sharpen your mind while keeping you entertained.**

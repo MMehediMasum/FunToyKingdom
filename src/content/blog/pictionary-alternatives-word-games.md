@@ -1,10 +1,14 @@
 ---
-title: "Pictionary Alternatives Word Games: Fun & Creative Picks for All Ages"
-description: "Looking for a fresh twist on word games that can spark your creativity and bring your friends together? If you love the fun and challenge of Pictionary but want"
+title: 'Pictionary Alternatives Word Games: Fun & Creative Picks for All Ages'
+description: Looking for a fresh twist on word games that can spark your creativity
+  and bring your friends together? If you love the fun and challenge of Pictionary
+  but want
 pubDate: 2026-05-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=pictionary-alternatives-word-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=pictionary-alternatives-word-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Looking for a fresh twist on word games that can spark your creativity and bring your friends together? If you love the fun and challenge of Pictionary but want to try something new, you’re in the right place.**

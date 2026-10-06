@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Adult Toy Kits for Creative Fun: Build, Bond, and Explore Together"
 description: "Adult toy kits offer creative ways to build and enjoy unique projects. These kits range from miniature houses to mechanical engines and more. Crafting with adul"
 pubDate: 2026-03-07

@@ -1,10 +1,14 @@
 ---
-title: "Creature Cases Toys Netflix: Top Magnetic and Plush Toys Kids Love"
-description: "Creature Cases Toys on Netflix brings fun and adventure to young viewers. This collection features exciting toys inspired by popular shows. These toys include m"
+title: 'Creature Cases Toys Netflix: Top Magnetic and Plush Toys Kids Love'
+description: Creature Cases Toys on Netflix brings fun and adventure to young viewers.
+  This collection features exciting toys inspired by popular shows. These toys include
+  m
 pubDate: 2025-10-17
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=creature-cases-toys-netflix&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=creature-cases-toys-netflix&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Creature Cases Toys on Netflix brings fun and adventure to young viewers. This collection features exciting toys inspired by popular shows.**

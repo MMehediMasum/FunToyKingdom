@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Frog Inflatable Pool Float: Ultimate Summer Fun Guide"
-description: "Imagine lounging on your pool, feeling the warm sun on your skin, while a fun, quirky frog float gently rocks beneath you. An outdoor frog inflatable pool float"
+title: 'Outdoor Frog Inflatable Pool Float: Ultimate Summer Fun Guide'
+description: Imagine lounging on your pool, feeling the warm sun on your skin, while
+  a fun, quirky frog float gently rocks beneath you. An outdoor frog inflatable pool
+  float
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-frog-inflatable-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-frog-inflatable-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine lounging on your pool, feeling the warm sun on your skin, while a fun, quirky frog float gently rocks beneath you. An outdoor frog inflatable pool float isn’t just a cool accessory—it’s your ticket to turning any pool day into an unforgettable experience.**

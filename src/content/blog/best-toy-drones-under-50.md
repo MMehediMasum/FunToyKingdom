@@ -1,10 +1,14 @@
 ---
-title: "Best Toy Drones under 50: Top Affordable Picks for Fun Flights"
-description: "Looking for an exciting new way to have fun without breaking the bank? Toy drones under $50 are the perfect choice for you. Whether you’re a beginner or just wa"
+title: 'Best Toy Drones under 50: Top Affordable Picks for Fun Flights'
+description: Looking for an exciting new way to have fun without breaking the bank?
+  Toy drones under $50 are the perfect choice for you. Whether you’re a beginner or
+  just wa
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toy-drones-under-50&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Do Toy Drones Need
+heroImage: https://tse1.mm.bing.net/th?q=best-toy-drones-under-50&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for an exciting new way to have fun without breaking the bank? Toy drones under $50 are the perfect choice for you.**

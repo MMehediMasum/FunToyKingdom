@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Campfire: Creative Fun for Kids at Home"
-description: "Imagine bringing the magic of a campfire right into your home—without any smoke, sparks, or danger. With a DIY cardboard toy campfire, you can create a fun, saf"
+title: 'Diy Cardboard Toy Campfire: Creative Fun for Kids at Home'
+description: Imagine bringing the magic of a campfire right into your home—without
+  any smoke, sparks, or danger. With a DIY cardboard toy campfire, you can create
+  a fun, saf
 pubDate: 2025-11-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-campfire&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-campfire&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine bringing the magic of a campfire right into your home—without any smoke, sparks, or danger. With a DIY cardboard toy campfire, you can create a fun, safe, and creative project that sparks your imagination and keeps you entertained for hours.**

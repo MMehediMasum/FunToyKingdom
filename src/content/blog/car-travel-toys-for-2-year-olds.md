@@ -1,10 +1,14 @@
 ---
-title: "Car Travel Toys for 2 Year Olds: Top Magnetic & Sensory Picks"
-description: "Car trips with toddlers can be challenging without the right toys. Choosing engaging car travel toys for 2 year olds helps keep them happy and calm. Toddlers ne"
+title: 'Car Travel Toys for 2 Year Olds: Top Magnetic & Sensory Picks'
+description: Car trips with toddlers can be challenging without the right toys. Choosing
+  engaging car travel toys for 2 year olds helps keep them happy and calm. Toddlers
+  ne
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=car-travel-toys-for-2-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=car-travel-toys-for-2-year-olds&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Car trips with toddlers can be challenging without the right toys. Choosing engaging car travel toys for 2 year olds helps keep them happy and calm.**

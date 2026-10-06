@@ -1,10 +1,14 @@
 ---
-title: "Infrared Laser Battle Rc Tanks: Ultimate Combat Fun Unleashed"
-description: "Are you ready to take your RC tank battles to the next level? Infrared Laser Battle RC Tanks bring thrilling, real-time combat right to your fingertips. Imagine"
+title: 'Infrared Laser Battle Rc Tanks: Ultimate Combat Fun Unleashed'
+description: Are you ready to take your RC tank battles to the next level? Infrared
+  Laser Battle RC Tanks bring thrilling, real-time combat right to your fingertips.
+  Imagine
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=infrared-laser-battle-rc-tanks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=infrared-laser-battle-rc-tanks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC tank battles to the next level? Infrared Laser Battle RC Tanks bring thrilling, real-time combat right to your fingertips.**

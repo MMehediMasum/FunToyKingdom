@@ -1,10 +1,14 @@
 ---
-title: "Dolls for Kindergarteners: Best Picks to Boost Early Learning Fun"
-description: "Are you looking for the perfect dolls for kindergarteners that will spark your child’s imagination and help them learn? Choosing the right doll can make a big d"
+title: 'Dolls for Kindergarteners: Best Picks to Boost Early Learning Fun'
+description: Are you looking for the perfect dolls for kindergarteners that will spark
+  your child’s imagination and help them learn? Choosing the right doll can make a
+  big d
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-kindergarteners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-kindergarteners&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for the perfect dolls for kindergarteners that will spark your child’s imagination and help them learn? Choosing the right doll can make a big difference in your child’s playtime and development.**

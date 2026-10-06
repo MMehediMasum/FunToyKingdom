@@ -1,10 +1,14 @@
 ---
-title: "Best Car Toys for 5 Year Olds: Top Remote Control and Stunt Cars"
-description: "Choosing the best car toys for 5 year olds can be fun but tricky. Kids love cars that move, light up, and do cool stunts. Car toys help develop motor skills, cr"
+title: 'Best Car Toys for 5 Year Olds: Top Remote Control and Stunt Cars'
+description: Choosing the best car toys for 5 year olds can be fun but tricky. Kids
+  love cars that move, light up, and do cool stunts. Car toys help develop motor skills,
+  cr
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-car-toys-for-5-year-olds-top-remote-control-and-stunt-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-car-toys-for-5-year-olds-top-remote-control-and-stunt-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best car toys for 5 year olds can be fun but tricky. Kids love cars that move, light up, and do cool stunts.**

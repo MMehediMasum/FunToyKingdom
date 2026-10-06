@@ -1,10 +1,14 @@
 ---
-title: "Toy Doctors Case: Top Pretend Play Kits for Kids’ Healthy Fun"
-description: "Toy doctor cases offer fun, hands-on ways for kids to explore healthcare roles. These sets include tools that spark imagination and learning. Pretend play docto"
+title: 'Toy Doctors Case: Top Pretend Play Kits for Kids’ Healthy Fun'
+description: Toy doctor cases offer fun, hands-on ways for kids to explore healthcare
+  roles. These sets include tools that spark imagination and learning. Pretend play
+  docto
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-doctors-case&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=toy-doctors-case&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Toy doctor cases offer fun, hands-on ways for kids to explore healthcare roles. These sets include tools that spark imagination and learning.**

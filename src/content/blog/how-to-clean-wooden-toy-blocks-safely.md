@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Wooden Toy Blocks Safely: Easy & Effective Tips"
-description: "Wooden toy blocks are a favorite for many kids, sparking creativity and endless fun. But if you’re like most parents, you want to keep those blocks clean withou"
+title: 'How to Clean Wooden Toy Blocks Safely: Easy & Effective Tips'
+description: Wooden toy blocks are a favorite for many kids, sparking creativity and
+  endless fun. But if you’re like most parents, you want to keep those blocks clean
+  withou
 pubDate: 2025-08-26
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-wooden-toy-blocks-safely&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-wooden-toy-blocks-safely&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Wooden toy blocks are a favorite for many kids, sparking creativity and endless fun. But if you’re like most parents, you want to keep those blocks clean without damaging them or risking your child’s health.**

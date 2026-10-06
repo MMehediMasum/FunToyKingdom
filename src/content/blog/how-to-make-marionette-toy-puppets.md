@@ -1,10 +1,14 @@
 ---
-title: "How to Make Marionette Toy Puppets: Step-by-Step Crafting Guide"
-description: "Have you ever wanted to create your own marionette toy puppet? Imagine holding a puppet you made with your own hands, bringing it to life with every move. Makin"
+title: 'How to Make Marionette Toy Puppets: Step-by-Step Crafting Guide'
+description: Have you ever wanted to create your own marionette toy puppet? Imagine
+  holding a puppet you made with your own hands, bringing it to life with every move.
+  Makin
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-marionette-toy-puppets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-marionette-toy-puppets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to create your own marionette toy puppet? Imagine holding a puppet you made with your own hands, bringing it to life with every move.**

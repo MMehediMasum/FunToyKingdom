@@ -1,10 +1,13 @@
 ---
-title: "Counting Toys for 2 Year Olds: Top Montessori Learning Toys for Toddlers"
-description: "Counting toys for 2-year-olds offer fun learning experiences. They engage young minds in essential early math skills. These toys are more than just playthings. "
+title: 'Counting Toys for 2 Year Olds: Top Montessori Learning Toys for Toddlers'
+description: 'Counting toys for 2-year-olds offer fun learning experiences. They engage
+  young minds in essential early math skills. These toys are more than just playthings. '
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=counting-toys-for-2-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Motor Skill Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=counting-toys-for-2-year-olds&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Counting toys for 2-year-olds offer fun learning experiences. They engage young minds in essential early math skills.**

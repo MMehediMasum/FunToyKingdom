@@ -1,10 +1,14 @@
 ---
-title: "Cars Toon Moon Mater Toys: Ultimate Collectible Disney Pixar Vehicles Guide"
-description: "Cars Toon Moon Mater Toys bring the beloved Cars movie characters to life with fun and interactive features. These toys are perfect for young fans who want to r"
+title: 'Cars Toon Moon Mater Toys: Ultimate Collectible Disney Pixar Vehicles Guide'
+description: Cars Toon Moon Mater Toys bring the beloved Cars movie characters to
+  life with fun and interactive features. These toys are perfect for young fans who
+  want to r
 pubDate: 2026-03-02
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toon-moon-mater-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-toon-moon-mater-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toon Moon Mater Toys bring the beloved Cars movie characters to life with fun and interactive features. These toys are perfect for young fans who want to recreate exciting scenes from the animated series.**

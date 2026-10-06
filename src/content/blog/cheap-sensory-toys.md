@@ -1,10 +1,14 @@
 ---
-title: "Cheap Sensory Toys That Boost Calm and Focus for Kids and Adults"
-description: "Sensory toys help children and adults focus, calm down, and enjoy learning. Cheap sensory toys offer affordable options for stress relief and fun. Affordable se"
+title: Cheap Sensory Toys That Boost Calm and Focus for Kids and Adults
+description: Sensory toys help children and adults focus, calm down, and enjoy learning.
+  Cheap sensory toys offer affordable options for stress relief and fun. Affordable
+  se
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=cheap-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help children and adults focus, calm down, and enjoy learning. Cheap sensory toys offer affordable options for stress relief and fun.**

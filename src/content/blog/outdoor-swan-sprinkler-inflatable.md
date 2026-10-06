@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Swan Sprinkler Inflatable: Fun & Refreshing Summer Must-Have"
-description: "Imagine turning your garden or backyard into a magical oasis that instantly catches everyone’s eye. With an Outdoor Swan Sprinkler Inflatable, you can do just t"
+title: 'Outdoor Swan Sprinkler Inflatable: Fun & Refreshing Summer Must-Have'
+description: Imagine turning your garden or backyard into a magical oasis that instantly
+  catches everyone’s eye. With an Outdoor Swan Sprinkler Inflatable, you can do just
+  t
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-swan-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-swan-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your garden or backyard into a magical oasis that instantly catches everyone’s eye. With an Outdoor Swan Sprinkler Inflatable, you can do just that—and more.**

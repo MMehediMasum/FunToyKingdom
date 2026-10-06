@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Gloves Sewing Project: Create Cozy, Cute Gifts Fast"
-description: "Imagine creating something special with your own hands—something both fun and useful. Handmade toy gloves are not just cute; they bring joy and creativity into "
+title: 'Handmade Toy Gloves Sewing Project: Create Cozy, Cute Gifts Fast'
+description: 'Imagine creating something special with your own hands—something both
+  fun and useful. Handmade toy gloves are not just cute; they bring joy and creativity
+  into '
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-gloves-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-gloves-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating something special with your own hands—something both fun and useful. Handmade toy gloves are not just cute; they bring joy and creativity into your life.**

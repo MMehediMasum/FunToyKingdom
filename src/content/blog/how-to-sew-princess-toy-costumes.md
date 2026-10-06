@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Princess Toy Costumes: Easy Steps for Magical DIY Fun"
-description: "Do you want to create magical princess toy costumes that bring your child’s favorite characters to life? Sewing these costumes yourself can be easier and more f"
+title: 'How to Sew Princess Toy Costumes: Easy Steps for Magical DIY Fun'
+description: Do you want to create magical princess toy costumes that bring your child’s
+  favorite characters to life? Sewing these costumes yourself can be easier and more
+  f
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-princess-toy-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Wooden Pirate
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-princess-toy-costumes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to create magical princess toy costumes that bring your child’s favorite characters to life? Sewing these costumes yourself can be easier and more fun than you think.**

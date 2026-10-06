@@ -1,10 +1,13 @@
 ---
-title: "Robot Jellyfish Toy: Amazing Realistic Swimming Sea Creature for Kids"
-description: "Robot jellyfish toys bring ocean life right into your hands. These toys move and glow like real jellyfish, making playtime fun and educational. Robot jellyfish "
+title: 'Robot Jellyfish Toy: Amazing Realistic Swimming Sea Creature for Kids'
+description: 'Robot jellyfish toys bring ocean life right into your hands. These toys
+  move and glow like real jellyfish, making playtime fun and educational. Robot jellyfish '
 pubDate: 2026-08-28
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-jellyfish-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=robot-jellyfish-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot jellyfish toys bring ocean life right into your hands. These toys move and glow like real jellyfish, making playtime fun and educational.**

@@ -1,10 +1,14 @@
 ---
-title: "Infant Sloth Toy: Soft, Safe Teethers and Plush Rattles for Babies"
-description: "Infant sloth toys bring comfort and fun to babies from newborn age. These soft, cuddly toys often include rattles, teethers, and soothing sounds. Sloth toys for"
+title: 'Infant Sloth Toy: Soft, Safe Teethers and Plush Rattles for Babies'
+description: Infant sloth toys bring comfort and fun to babies from newborn age. These
+  soft, cuddly toys often include rattles, teethers, and soothing sounds. Sloth toys
+  for
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-sloth-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=infant-sloth-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant sloth toys bring comfort and fun to babies from newborn age. These soft, cuddly toys often include rattles, teethers, and soothing sounds.**

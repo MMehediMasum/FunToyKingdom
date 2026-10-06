@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Tractor Woodworking Guide: Easy Steps for Perfect Craftsmanship"
-description: "Are you ready to create something special with your own hands? Building a wooden toy tractor is a fun and rewarding woodworking project that you can proudly sho"
+title: 'Wooden Toy Tractor Woodworking Guide: Easy Steps for Perfect Craftsmanship'
+description: Are you ready to create something special with your own hands? Building
+  a wooden toy tractor is a fun and rewarding woodworking project that you can proudly
+  sho
 pubDate: 2026-07-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-tractor-woodworking-guide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-tractor-woodworking-guide&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something special with your own hands? Building a wooden toy tractor is a fun and rewarding woodworking project that you can proudly show off or gift to someone you care about.**

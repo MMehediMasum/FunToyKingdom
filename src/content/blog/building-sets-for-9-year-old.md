@@ -1,10 +1,14 @@
 ---
-title: "Building Sets for 9 Year Old: Top Creative Kits to Inspire Play"
-description: "Are you looking for the perfect building sets to spark your 9-year-old’s creativity and keep them happily engaged? Choosing the right set can make all the diffe"
+title: 'Building Sets for 9 Year Old: Top Creative Kits to Inspire Play'
+description: Are you looking for the perfect building sets to spark your 9-year-old’s
+  creativity and keep them happily engaged? Choosing the right set can make all the
+  diffe
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=building-sets-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=building-sets-for-9-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect building sets to spark your 9-year-old’s creativity and keep them happily engaged? Choosing the right set can make all the difference in how much fun they have and how much they learn.**

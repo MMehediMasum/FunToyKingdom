@@ -1,10 +1,13 @@
 ---
-title: "Toy Tractor Models: Top Collectible John Deere Replicas for Enthusiasts"
-description: "Toy tractor models capture the imagination of both children and collectors. These miniature machines offer fun and education. Explore a world of detailed replic"
+title: 'Toy Tractor Models: Top Collectible John Deere Replicas for Enthusiasts'
+description: Toy tractor models capture the imagination of both children and collectors.
+  These miniature machines offer fun and education. Explore a world of detailed replic
 pubDate: 2026-02-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-tractor-models&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=toy-tractor-models&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy tractor models capture the imagination of both children and collectors. These miniature machines offer fun and education.**

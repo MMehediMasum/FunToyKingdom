@@ -1,10 +1,14 @@
 ---
-title: "What are Adult Toys Made Out of: Top Materials Explained"
-description: "Have you ever wondered what adult toys are really made of? Knowing the materials behind these products can help you choose the safest, most comfortable options "
+title: 'What are Adult Toys Made Out of: Top Materials Explained'
+description: 'Have you ever wondered what adult toys are really made of? Knowing the
+  materials behind these products can help you choose the safest, most comfortable
+  options '
 pubDate: 2026-01-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-adult-toys-made-out-of&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing
+heroImage: https://tse1.mm.bing.net/th?q=what-are-adult-toys-made-out-of&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what adult toys are really made of? Knowing the materials behind these products can help you choose the safest, most comfortable options for your body.**

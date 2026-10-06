@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Number Blocks: Fun, Educational & Easy Craft Ideas"
-description: "Are you looking for a fun and creative way to help your child learn numbers? DIY Wooden Toy Number Blocks might be just what you need. These simple, handmade to"
+title: 'Diy Wooden Toy Number Blocks: Fun, Educational & Easy Craft Ideas'
+description: Are you looking for a fun and creative way to help your child learn numbers?
+  DIY Wooden Toy Number Blocks might be just what you need. These simple, handmade
+  to
 pubDate: 2025-11-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-number-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-number-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to help your child learn numbers? DIY Wooden Toy Number Blocks might be just what you need.**

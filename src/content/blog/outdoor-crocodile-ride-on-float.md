@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Crocodile Ride on Float: Ultimate Fun Adventure Guide"
-description: "Imagine yourself drifting gently on water, perched atop a fun and quirky crocodile float. This isn’t just any float — it’s an outdoor crocodile ride that brings"
+title: 'Outdoor Crocodile Ride on Float: Ultimate Fun Adventure Guide'
+description: Imagine yourself drifting gently on water, perched atop a fun and quirky
+  crocodile float. This isn’t just any float — it’s an outdoor crocodile ride that
+  brings
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crocodile-ride-on-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crocodile-ride-on-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself drifting gently on water, perched atop a fun and quirky crocodile float. This isn’t just any float — it’s an outdoor crocodile ride that brings excitement and relaxation together.**

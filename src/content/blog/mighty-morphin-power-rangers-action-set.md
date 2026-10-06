@@ -1,10 +1,14 @@
 ---
-title: "Mighty Morphin Power Rangers Action Set: Ultimate Collector’s Dream"
-description: "Are you ready to bring the excitement of the Mighty Morphin Power Rangers right into your hands? The Mighty Morphin Power Rangers Action Set offers everything y"
+title: 'Mighty Morphin Power Rangers Action Set: Ultimate Collector’s Dream'
+description: Are you ready to bring the excitement of the Mighty Morphin Power Rangers
+  right into your hands? The Mighty Morphin Power Rangers Action Set offers everything
+  y
 pubDate: 2025-10-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=mighty-morphin-power-rangers-action-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=mighty-morphin-power-rangers-action-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring the excitement of the Mighty Morphin Power Rangers right into your hands? The Mighty Morphin Power Rangers Action Set offers everything you need to relive epic battles and heroic moments.**

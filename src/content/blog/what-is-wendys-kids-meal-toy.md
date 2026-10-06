@@ -1,10 +1,14 @@
 ---
-title: "What is Wendy'S Kids Meal Toy: Fun Surprises for Every Child"
-description: "Have you ever wondered what makes Wendy’s Kids Meal Toy so special? If you’re a parent or someone curious about these little surprises, you’re in the right plac"
+title: 'What is Wendy''S Kids Meal Toy: Fun Surprises for Every Child'
+description: Have you ever wondered what makes Wendy’s Kids Meal Toy so special? If
+  you’re a parent or someone curious about these little surprises, you’re in the right
+  plac
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-wendys-kids-meal-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-wendys-kids-meal-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered what makes Wendy’s Kids Meal Toy so special? If you’re a parent or someone curious about these little surprises, you’re in the right place.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Helicopter Indoor Outdoor Use: Ultimate Guide for Fun & Safety"
-description: "Are you thinking about getting an RC helicopter but wondering if it’s better for indoor or outdoor use? Choosing the right place to fly your helicopter can make"
+title: 'Rc Helicopter Indoor Outdoor Use: Ultimate Guide for Fun & Safety'
+description: Are you thinking about getting an RC helicopter but wondering if it’s
+  better for indoor or outdoor use? Choosing the right place to fly your helicopter
+  can make
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-helicopter-indoor-outdoor-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-helicopter-indoor-outdoor-use&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you thinking about getting an RC helicopter but wondering if it’s better for indoor or outdoor use? Choosing the right place to fly your helicopter can make all the difference in how much fun you have.**

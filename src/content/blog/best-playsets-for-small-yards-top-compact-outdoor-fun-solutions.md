@@ -1,10 +1,14 @@
 ---
-title: "Best Playsets for Small Yards: Top Compact Outdoor Fun Solutions"
-description: "Choosing the best playsets for small yards can make outdoor play fun and safe. Space matters, but great playsets fit even tight areas. Small yards need playsets"
+title: 'Best Playsets for Small Yards: Top Compact Outdoor Fun Solutions'
+description: Choosing the best playsets for small yards can make outdoor play fun
+  and safe. Space matters, but great playsets fit even tight areas. Small yards need
+  playsets
 pubDate: 2025-09-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-playsets-for-small-yards-top-compact-outdoor-fun-solutions&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-playsets-for-small-yards-top-compact-outdoor-fun-solutions&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Choosing the best playsets for small yards can make outdoor play fun and safe. Space matters, but great playsets fit even tight areas.**

@@ -1,10 +1,14 @@
 ---
-title: "Infant Activity Center Toys: Ultimate Guide to Fun & Learning"
-description: "Are you looking for a fun and safe way to keep your little one entertained while helping them grow? Infant activity center toys could be just what you need. The"
+title: 'Infant Activity Center Toys: Ultimate Guide to Fun & Learning'
+description: Are you looking for a fun and safe way to keep your little one entertained
+  while helping them grow? Infant activity center toys could be just what you need.
+  The
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-activity-center-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Learning Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-activity-center-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe way to keep your little one entertained while helping them grow? Infant activity center toys could be just what you need.**

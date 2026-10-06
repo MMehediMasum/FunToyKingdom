@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Ostrich Inflatable Pool Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun and eye-catching way to enjoy your time by the pool? The Outdoor Ostrich Inflatable Pool Toy is exactly what you need. It’s big, colorful, and"
+title: 'Outdoor Ostrich Inflatable Pool Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun and eye-catching way to enjoy your time by the pool?
+  The Outdoor Ostrich Inflatable Pool Toy is exactly what you need. It’s big, colorful,
+  and
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ostrich-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ostrich-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and eye-catching way to enjoy your time by the pool? The Outdoor Ostrich Inflatable Pool Toy is exactly what you need.**

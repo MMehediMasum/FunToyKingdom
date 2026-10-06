@@ -1,10 +1,14 @@
 ---
-title: "Interactive Toys for 5 Year Old: Top Picks for Fun & Learning"
-description: "Are you looking for the perfect toys to keep your 5-year-old happy and engaged? Interactive toys are more than just fun—they help your child learn, explore, and"
+title: 'Interactive Toys for 5 Year Old: Top Picks for Fun & Learning'
+description: Are you looking for the perfect toys to keep your 5-year-old happy and
+  engaged? Interactive toys are more than just fun—they help your child learn, explore,
+  and
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Interactive Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=interactive-toys-for-5-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toys to keep your 5-year-old happy and engaged? Interactive toys are more than just fun—they help your child learn, explore, and grow.**

@@ -1,10 +1,14 @@
 ---
-title: "Alphabet Lore Toys: Ultimate Plush Set for Kids’ Learning and Fun"
-description: "Alphabet Lore Toys bring letters to life with fun and learning combined. These toys help kids know ABCs through play. Alphabet Lore Toys include plush sets, bui"
+title: 'Alphabet Lore Toys: Ultimate Plush Set for Kids’ Learning and Fun'
+description: Alphabet Lore Toys bring letters to life with fun and learning combined.
+  These toys help kids know ABCs through play. Alphabet Lore Toys include plush sets,
+  bui
 pubDate: 2026-03-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=alphabet-lore-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=alphabet-lore-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Alphabet Lore Toys bring letters to life with fun and learning combined. These toys help kids know ABCs through play.**

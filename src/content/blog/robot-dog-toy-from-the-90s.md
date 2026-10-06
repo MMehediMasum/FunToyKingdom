@@ -1,10 +1,14 @@
 ---
-title: "Robot Dog Toy from the 90S: Ultimate Interactive Robotic Pet Guide"
-description: "The 90s were a time of innovation in toys, with robot dog toys leading the charge. These toys captured the imagination of children and adults alike. Robot dog t"
+title: 'Robot Dog Toy from the 90S: Ultimate Interactive Robotic Pet Guide'
+description: The 90s were a time of innovation in toys, with robot dog toys leading
+  the charge. These toys captured the imagination of children and adults alike. Robot
+  dog t
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-dog-toy-from-the-90s&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=robot-dog-toy-from-the-90s&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The 90s were a time of innovation in toys, with robot dog toys leading the charge. These toys captured the imagination of children and adults alike.**

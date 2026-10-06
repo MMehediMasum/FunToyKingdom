@@ -1,10 +1,14 @@
 ---
-title: "Spongebob Squarepants Toy Sets: Ultimate Collectibles for Kids and Fans"
-description: "Spongebob Squarepants toy sets bring fun and creativity to children and fans of all ages. These toys include figures, playsets, puzzles, and more. Spongebob Squ"
+title: 'Spongebob Squarepants Toy Sets: Ultimate Collectibles for Kids and Fans'
+description: Spongebob Squarepants toy sets bring fun and creativity to children and
+  fans of all ages. These toys include figures, playsets, puzzles, and more. Spongebob
+  Squ
 pubDate: 2026-03-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=spongebob-squarepants-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=spongebob-squarepants-toy-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Spongebob Squarepants toy sets bring fun and creativity to children and fans of all ages. These toys include figures, playsets, puzzles, and more.**

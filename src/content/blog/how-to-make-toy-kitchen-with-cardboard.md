@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Kitchen With Cardboard: Easy DIY Guide"
-description: "Have you ever wanted to create a fun and safe toy kitchen for your child without spending a lot of money? Making a toy kitchen with cardboard is easier than you"
+title: 'How to Make Toy Kitchen With Cardboard: Easy DIY Guide'
+description: Have you ever wanted to create a fun and safe toy kitchen for your child
+  without spending a lot of money? Making a toy kitchen with cardboard is easier than
+  you
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-kitchen-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-kitchen-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a fun and safe toy kitchen for your child without spending a lot of money? Making a toy kitchen with cardboard is easier than you think, and it can be a rewarding project you’ll both enjoy.**

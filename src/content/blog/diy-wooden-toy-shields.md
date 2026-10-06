@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Shields: Creative Ideas for Fun & Safety"
-description: "Are you looking for a fun and creative project that you can make with your own hands? DIY wooden toy shields are the perfect way to bring imagination and advent"
+title: 'Diy Wooden Toy Shields: Creative Ideas for Fun & Safety'
+description: Are you looking for a fun and creative project that you can make with
+  your own hands? DIY wooden toy shields are the perfect way to bring imagination
+  and advent
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-shields&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-shields&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with your own hands? DIY wooden toy shields are the perfect way to bring imagination and adventure to life for you and your kids.**

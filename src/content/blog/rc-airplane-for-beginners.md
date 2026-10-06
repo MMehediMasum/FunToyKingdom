@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane for Beginners: Ultimate Guide to Easy Flying Fun"
-description: "Are you ready to take to the skies but don’t know where to start? Choosing the right RC airplane for beginners can feel overwhelming. You want something easy to"
+title: 'Rc Airplane for Beginners: Ultimate Guide to Easy Flying Fun'
+description: Are you ready to take to the skies but don’t know where to start? Choosing
+  the right RC airplane for beginners can feel overwhelming. You want something easy
+  to
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-for-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-for-beginners&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take to the skies but don’t know where to start? Choosing the right RC airplane for beginners can feel overwhelming.**

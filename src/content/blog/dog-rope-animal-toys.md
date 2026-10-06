@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Animal Toys: Durable Chew & Tug Solutions for Aggressive Dogs"
-description: "Dog rope toys offer endless fun and improve dental health. They are perfect for aggressive chewers and playful pets. These toys are essential for keeping your d"
+title: 'Dog Rope Animal Toys: Durable Chew & Tug Solutions for Aggressive Dogs'
+description: Dog rope toys offer endless fun and improve dental health. They are perfect
+  for aggressive chewers and playful pets. These toys are essential for keeping your
+  d
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-animal-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-animal-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toys offer endless fun and improve dental health. They are perfect for aggressive chewers and playful pets.**

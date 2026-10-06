@@ -1,10 +1,14 @@
 ---
-title: "Benefits of Board Games for Families: Strengthen Bonds & Have Fun"
-description: "Imagine a simple activity that brings your family closer, sparks laughter, and sharpens minds—all at once. Board games do just that. When you gather around the "
+title: 'Benefits of Board Games for Families: Strengthen Bonds & Have Fun'
+description: 'Imagine a simple activity that brings your family closer, sparks laughter,
+  and sharpens minds—all at once. Board games do just that. When you gather around
+  the '
 pubDate: 2025-09-29
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=benefits-of-board-games-for-families&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=benefits-of-board-games-for-families&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine a simple activity that brings your family closer, sparks laughter, and sharpens minds—all at once. Board games do just that.**

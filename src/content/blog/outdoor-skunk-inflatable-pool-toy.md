@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Skunk Inflatable Pool Toy: Ultimate Summer Fun Essential"
-description: "Looking for a fun and unique way to cool off this summer? The Outdoor Skunk Inflatable Pool Toy is just what you need to bring excitement to your backyard. Imag"
+title: 'Outdoor Skunk Inflatable Pool Toy: Ultimate Summer Fun Essential'
+description: Looking for a fun and unique way to cool off this summer? The Outdoor
+  Skunk Inflatable Pool Toy is just what you need to bring excitement to your backyard.
+  Imag
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-skunk-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-skunk-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to cool off this summer? The Outdoor Skunk Inflatable Pool Toy is just what you need to bring excitement to your backyard.**

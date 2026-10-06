@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Cheetah Inflatable Kids Float: Ultimate Summer Fun Guide"
-description: "Looking for a fun and safe way to keep your kids entertained in the water this summer? The Outdoor Cheetah Inflatable Kids Float might be just what you need. Im"
+title: 'Outdoor Cheetah Inflatable Kids Float: Ultimate Summer Fun Guide'
+description: Looking for a fun and safe way to keep your kids entertained in the water
+  this summer? The Outdoor Cheetah Inflatable Kids Float might be just what you need.
+  Im
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-cheetah-inflatable-kids-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-cheetah-inflatable-kids-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained in the water this summer? The Outdoor Cheetah Inflatable Kids Float might be just what you need.**

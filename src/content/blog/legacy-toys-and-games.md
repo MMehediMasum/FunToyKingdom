@@ -1,10 +1,14 @@
 ---
-title: "Legacy Toys And Games: Ultimate Transformers Action Figures for Kids"
-description: "Legacy Toys and Games offer a classic collection of Transformers action figures. These toys bring favorite characters to life for kids aged eight and up. Transf"
+title: 'Legacy Toys And Games: Ultimate Transformers Action Figures for Kids'
+description: Legacy Toys and Games offer a classic collection of Transformers action
+  figures. These toys bring favorite characters to life for kids aged eight and up.
+  Transf
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=legacy-toys-and-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=legacy-toys-and-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Legacy Toys and Games offer a classic collection of Transformers action figures. These toys bring favorite characters to life for kids aged eight and up.**

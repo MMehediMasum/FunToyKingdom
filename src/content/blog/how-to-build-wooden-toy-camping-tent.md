@@ -1,10 +1,14 @@
 ---
-title: "How to Build Wooden Toy Camping Tent: Easy DIY Guide for Kids"
-description: "Are you ready to create something fun and lasting for your kids or yourself? Building a wooden toy camping tent is a perfect project that combines creativity, h"
+title: 'How to Build Wooden Toy Camping Tent: Easy DIY Guide for Kids'
+description: Are you ready to create something fun and lasting for your kids or yourself?
+  Building a wooden toy camping tent is a perfect project that combines creativity,
+  h
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-camping-tent&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-camping-tent&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something fun and lasting for your kids or yourself? Building a wooden toy camping tent is a perfect project that combines creativity, hands-on work, and a little bit of adventure.**

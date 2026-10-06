@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Buzz Lightyear Plush: Ultimate Cuddly Companion for Kids"
-description: "Buzz Lightyear remains one of Toy Story’s most loved characters. Plush toys featuring Buzz offer comfort and fun for kids of all ages. This Buzz Lightyear plush"
+title: 'Toy Story Buzz Lightyear Plush: Ultimate Cuddly Companion for Kids'
+description: Buzz Lightyear remains one of Toy Story’s most loved characters. Plush
+  toys featuring Buzz offer comfort and fun for kids of all ages. This Buzz Lightyear
+  plush
 pubDate: 2026-02-05
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-buzz-lightyear-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-buzz-lightyear-plush&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Buzz Lightyear remains one of Toy Story’s most loved characters. Plush toys featuring Buzz offer comfort and fun for kids of all ages.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Rock Crawler for Climbing: Ultimate Guide to Master Tough Trails"
-description: "Are you ready to take your RC adventures to the next level? If you love challenges and want to conquer tough terrains, an RC rock crawler for climbing is exactl"
+title: 'Rc Rock Crawler for Climbing: Ultimate Guide to Master Tough Trails'
+description: Are you ready to take your RC adventures to the next level? If you love
+  challenges and want to conquer tough terrains, an RC rock crawler for climbing is
+  exactl
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-rock-crawler-for-climbing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-rock-crawler-for-climbing&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC adventures to the next level? If you love challenges and want to conquer tough terrains, an RC rock crawler for climbing is exactly what you need.**

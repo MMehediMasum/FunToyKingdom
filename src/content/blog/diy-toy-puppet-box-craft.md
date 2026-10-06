@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Puppet Box Craft: Fun & Easy Step-by-Step Guide"
-description: "Looking for a fun and creative project you can enjoy right at home? You’re about to discover how making a DIY toy puppet box craft can bring hours of joy for yo"
+title: 'Diy Toy Puppet Box Craft: Fun & Easy Step-by-Step Guide'
+description: Looking for a fun and creative project you can enjoy right at home? You’re
+  about to discover how making a DIY toy puppet box craft can bring hours of joy for
+  yo
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-puppet-box-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Puppet Box Craft
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-puppet-box-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative project you can enjoy right at home? You’re about to discover how making a DIY toy puppet box craft can bring hours of joy for you and your family.**

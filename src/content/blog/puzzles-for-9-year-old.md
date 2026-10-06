@@ -1,10 +1,14 @@
 ---
-title: "Puzzles for 9 Year Old: Fun and Brain-Boosting Challenges"
-description: "Are you looking for fun and challenging puzzles that are perfect for your 9-year-old? Finding the right puzzles can boost your child’s thinking skills, creativi"
+title: 'Puzzles for 9 Year Old: Fun and Brain-Boosting Challenges'
+description: Are you looking for fun and challenging puzzles that are perfect for
+  your 9-year-old? Finding the right puzzles can boost your child’s thinking skills,
+  creativi
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzles-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=puzzles-for-9-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for fun and challenging puzzles that are perfect for your 9-year-old? Finding the right puzzles can boost your child’s thinking skills, creativity, and confidence.**

@@ -1,10 +1,14 @@
 ---
-title: "Plastic Model Kit Toys: Top Tools and Kits for Hobby Building Fun"
-description: "Plastic model kit toys offer a fun way to build and learn. They come in many styles, from cars to airplanes and tanks. These kits include parts you snap or glue"
+title: 'Plastic Model Kit Toys: Top Tools and Kits for Hobby Building Fun'
+description: Plastic model kit toys offer a fun way to build and learn. They come
+  in many styles, from cars to airplanes and tanks. These kits include parts you snap
+  or glue
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=plastic-model-kit-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=plastic-model-kit-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Plastic model kit toys offer a fun way to build and learn. They come in many styles, from cars to airplanes and tanks.**

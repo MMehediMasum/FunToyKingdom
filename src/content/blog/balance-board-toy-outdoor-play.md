@@ -1,10 +1,14 @@
 ---
-title: "Balance Board Toy Outdoor Play: Ultimate Fun for Active Kids"
-description: "Are you looking for a fun way to get your kids moving and exploring outside? A balance board toy for outdoor play might be just what you need. It’s more than a "
+title: 'Balance Board Toy Outdoor Play: Ultimate Fun for Active Kids'
+description: 'Are you looking for a fun way to get your kids moving and exploring
+  outside? A balance board toy for outdoor play might be just what you need. It’s
+  more than a '
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=balance-board-toy-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=balance-board-toy-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids moving and exploring outside? A balance board toy for outdoor play might be just what you need.**

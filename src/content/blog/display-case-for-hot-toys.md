@@ -1,10 +1,14 @@
 ---
-title: "Display Case for Hot Toys: Showcase Your Collectibles with Style"
-description: "Display cases protect and showcase Hot Toys, keeping them safe and dust-free. They also enhance the look of your collection. A good display case offers clear vi"
+title: 'Display Case for Hot Toys: Showcase Your Collectibles with Style'
+description: Display cases protect and showcase Hot Toys, keeping them safe and dust-free.
+  They also enhance the look of your collection. A good display case offers clear
+  vi
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=display-case-for-hot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=display-case-for-hot-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Display cases protect and showcase Hot Toys, keeping them safe and dust-free. They also enhance the look of your collection.**

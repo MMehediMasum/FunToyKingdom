@@ -1,10 +1,13 @@
 ---
-title: "Handmade Cardboard Toy Hiking Gear: Creative, Eco-Friendly Fun"
-description: "Are you looking for a fun, creative way to spark your child’s imagination? Handmade cardboard toy hiking gear might be just what you need. These simple, eco-fri"
+title: 'Handmade Cardboard Toy Hiking Gear: Creative, Eco-Friendly Fun'
+description: Are you looking for a fun, creative way to spark your child’s imagination?
+  Handmade cardboard toy hiking gear might be just what you need. These simple, eco-fri
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-hiking-gear&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-hiking-gear&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun, creative way to spark your child’s imagination? Handmade cardboard toy hiking gear might be just what you need.**

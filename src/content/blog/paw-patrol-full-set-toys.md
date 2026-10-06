@@ -1,10 +1,14 @@
 ---
-title: "Paw Patrol Full Set Toys: Ultimate Collectible Action Figures & Vehicles Guide"
-description: "Paw Patrol fans have a delightful treat with the full set of Paw Patrol toys. These toys offer endless fun and adventure for children. The Paw Patrol Full Set T"
+title: 'Paw Patrol Full Set Toys: Ultimate Collectible Action Figures & Vehicles Guide'
+description: Paw Patrol fans have a delightful treat with the full set of Paw Patrol
+  toys. These toys offer endless fun and adventure for children. The Paw Patrol Full
+  Set T
 pubDate: 2026-02-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=paw-patrol-full-set-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=paw-patrol-full-set-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Paw Patrol fans have a delightful treat with the full set of Paw Patrol toys. These toys offer endless fun and adventure for children.**

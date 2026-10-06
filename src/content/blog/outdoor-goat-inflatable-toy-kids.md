@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Goat Inflatable Toy Kids: Ultimate Fun for Active Playtime"
-description: "Looking for a fun and exciting way to brighten up your kid’s outdoor playtime? An outdoor goat inflatable toy might be exactly what you need. Imagine your child"
+title: 'Outdoor Goat Inflatable Toy Kids: Ultimate Fun for Active Playtime'
+description: Looking for a fun and exciting way to brighten up your kid’s outdoor
+  playtime? An outdoor goat inflatable toy might be exactly what you need. Imagine
+  your child
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-goat-inflatable-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-goat-inflatable-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to brighten up your kid’s outdoor playtime? An outdoor goat inflatable toy might be exactly what you need.**

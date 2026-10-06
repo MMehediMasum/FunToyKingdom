@@ -1,10 +1,14 @@
 ---
-title: "Smart Cat Toy Ball: Ultimate Interactive Fun for Indoor Cats"
-description: "Smart cat toy balls bring fun and exercise to indoor cats. These toys move and chirp to keep cats active and curious. Interactive cat toy balls mimic prey, enco"
+title: 'Smart Cat Toy Ball: Ultimate Interactive Fun for Indoor Cats'
+description: Smart cat toy balls bring fun and exercise to indoor cats. These toys
+  move and chirp to keep cats active and curious. Interactive cat toy balls mimic
+  prey, enco
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=smart-cat-toy-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=smart-cat-toy-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Smart cat toy balls bring fun and exercise to indoor cats. These toys move and chirp to keep cats active and curious.**

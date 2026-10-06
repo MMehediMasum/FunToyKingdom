@@ -1,10 +1,14 @@
 ---
-title: "Pocahontas Disney Collectible Doll: Ultimate Guide to Rare Treasures"
-description: "Are you a fan of Disney magic and timeless treasures? The Pocahontas Disney Collectible Doll is more than just a toy—it’s a piece of art that brings your favori"
+title: 'Pocahontas Disney Collectible Doll: Ultimate Guide to Rare Treasures'
+description: Are you a fan of Disney magic and timeless treasures? The Pocahontas
+  Disney Collectible Doll is more than just a toy—it’s a piece of art that brings
+  your favori
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=pocahontas-disney-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=pocahontas-disney-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Disney magic and timeless treasures? The Pocahontas Disney Collectible Doll is more than just a toy—it’s a piece of art that brings your favorite story to life.**

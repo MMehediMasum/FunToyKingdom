@@ -1,10 +1,14 @@
 ---
-title: "Kids Bean Bag Toss Game: Ultimate Fun for Active Playtime"
-description: "Are you looking for a fun and simple game that your kids will love? The Kids Bean Bag Toss Game is perfect for keeping your children entertained for hours. It’s"
+title: 'Kids Bean Bag Toss Game: Ultimate Fun for Active Playtime'
+description: Are you looking for a fun and simple game that your kids will love? The
+  Kids Bean Bag Toss Game is perfect for keeping your children entertained for hours.
+  It’s
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-bean-bag-toss-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Car Rides Engaging
+heroImage: https://tse1.mm.bing.net/th?q=kids-bean-bag-toss-game&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and simple game that your kids will love? The Kids Bean Bag Toss Game is perfect for keeping your children entertained for hours.**

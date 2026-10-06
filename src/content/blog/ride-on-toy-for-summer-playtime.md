@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Summer Playtime: Ultimate Fun & Safety Guide"
-description: "Looking for the perfect way to keep your child active and happy this summer? A ride on toy could be just what you need. Imagine your little one zooming around, "
+title: 'Ride on Toy for Summer Playtime: Ultimate Fun & Safety Guide'
+description: 'Looking for the perfect way to keep your child active and happy this
+  summer? A ride on toy could be just what you need. Imagine your little one zooming
+  around, '
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-summer-playtime&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-summer-playtime&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect way to keep your child active and happy this summer? A ride on toy could be just what you need.**

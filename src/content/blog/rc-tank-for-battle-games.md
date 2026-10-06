@@ -1,10 +1,14 @@
 ---
-title: "Rc Tank for Battle Games: Ultimate Guide to Dominate the Battlefield"
-description: "Are you ready to take your battle games to the next level? An RC tank for battle games is exactly what you need to add real excitement and strategy to your play"
+title: 'Rc Tank for Battle Games: Ultimate Guide to Dominate the Battlefield'
+description: Are you ready to take your battle games to the next level? An RC tank
+  for battle games is exactly what you need to add real excitement and strategy to
+  your play
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-tank-for-battle-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-tank-for-battle-games&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your battle games to the next level? An RC tank for battle games is exactly what you need to add real excitement and strategy to your play.**

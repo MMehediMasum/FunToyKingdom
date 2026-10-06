@@ -1,10 +1,13 @@
 ---
-title: "Matchbox Toy Cars: Ultimate Die-Cast Vehicle Sets for Kids & Collectors"
-description: "Matchbox toy cars offer a fun and detailed way to enjoy miniature vehicles. These die-cast cars and trucks come in various sets and themes for all ages. Matchbo"
+title: 'Matchbox Toy Cars: Ultimate Die-Cast Vehicle Sets for Kids & Collectors'
+description: Matchbox toy cars offer a fun and detailed way to enjoy miniature vehicles.
+  These die-cast cars and trucks come in various sets and themes for all ages. Matchbo
 pubDate: 2026-01-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=matchbox-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=matchbox-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Matchbox toy cars offer a fun and detailed way to enjoy miniature vehicles. These die-cast cars and trucks come in various sets and themes for all ages.**

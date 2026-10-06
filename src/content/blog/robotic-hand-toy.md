@@ -1,10 +1,14 @@
 ---
-title: "Robotic Hand Toy: Build, Learn, and Play with STEM Hydraulic Kits"
-description: "Robotic hand toys combine fun and learning in one exciting package. They let kids build and control a mechanical hand using simple tools. These toys help childr"
+title: 'Robotic Hand Toy: Build, Learn, and Play with STEM Hydraulic Kits'
+description: Robotic hand toys combine fun and learning in one exciting package. They
+  let kids build and control a mechanical hand using simple tools. These toys help
+  childr
 pubDate: 2026-02-18
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robotic-hand-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=robotic-hand-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robotic hand toys combine fun and learning in one exciting package. They let kids build and control a mechanical hand using simple tools.**

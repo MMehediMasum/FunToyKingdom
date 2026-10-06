@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Dragon: Step-by-Step Crafting Guide"
-description: "Have you ever wanted to create something magical with your own hands? Carving a wooden toy dragon might sound tricky, but it’s easier than you think. Imagine ho"
+title: 'How to Carve Wooden Toy Dragon: Step-by-Step Crafting Guide'
+description: Have you ever wanted to create something magical with your own hands?
+  Carving a wooden toy dragon might sound tricky, but it’s easier than you think.
+  Imagine ho
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-dragon&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Carve Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-dragon&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something magical with your own hands? Carving a wooden toy dragon might sound tricky, but it’s easier than you think.**

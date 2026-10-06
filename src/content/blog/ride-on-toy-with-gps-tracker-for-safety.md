@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Gps Tracker for Safety: Ultimate Parent Peace"
-description: "Imagine giving your child the freedom to play and explore while you keep a close eye on their safety without hovering. A ride-on toy with a GPS tracker lets you"
+title: 'Ride on Toy With Gps Tracker for Safety: Ultimate Parent Peace'
+description: Imagine giving your child the freedom to play and explore while you keep
+  a close eye on their safety without hovering. A ride-on toy with a GPS tracker lets
+  you
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-gps-tracker-for-safety&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-gps-tracker-for-safety&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child the freedom to play and explore while you keep a close eye on their safety without hovering. A ride-on toy with a GPS tracker lets you do just that.**

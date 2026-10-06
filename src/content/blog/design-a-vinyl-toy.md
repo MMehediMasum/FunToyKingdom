@@ -1,10 +1,14 @@
 ---
-title: "Design a Vinyl Toy: Creative DIY Ideas for Fun Personalized Figures"
-description: "Designing a vinyl toy lets you create fun, colorful figures that reflect your style. It’s a simple, hands-on activity perfect for kids and collectors alike. Vin"
+title: 'Design a Vinyl Toy: Creative DIY Ideas for Fun Personalized Figures'
+description: Designing a vinyl toy lets you create fun, colorful figures that reflect
+  your style. It’s a simple, hands-on activity perfect for kids and collectors alike.
+  Vin
 pubDate: 2026-03-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=design-a-vinyl-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=design-a-vinyl-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Designing a vinyl toy lets you create fun, colorful figures that reflect your style. It’s a simple, hands-on activity perfect for kids and collectors alike.**

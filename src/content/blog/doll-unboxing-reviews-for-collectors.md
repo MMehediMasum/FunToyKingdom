@@ -1,10 +1,14 @@
 ---
-title: "Doll Unboxing Reviews for Collectors: Ultimate Guide & Top Picks"
-description: "Are you a doll collector looking for honest, detailed insights before adding a new piece to your collection? You know how exciting unboxing a new doll can be—bu"
+title: 'Doll Unboxing Reviews for Collectors: Ultimate Guide & Top Picks'
+description: Are you a doll collector looking for honest, detailed insights before
+  adding a new piece to your collection? You know how exciting unboxing a new doll
+  can be—bu
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=doll-unboxing-reviews-for-collectors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=doll-unboxing-reviews-for-collectors&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a doll collector looking for honest, detailed insights before adding a new piece to your collection? You know how exciting unboxing a new doll can be—but also how tricky it is to find reviews that really show what you’re getting.**

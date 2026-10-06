@@ -1,10 +1,14 @@
 ---
-title: "Kids Drone Beginner Outdoor Toy: Ultimate Fun for Active Playtime"
-description: "Looking for the perfect outdoor toy that sparks excitement and learning for your child? A kids drone beginner outdoor toy might be exactly what you need. Imagin"
+title: 'Kids Drone Beginner Outdoor Toy: Ultimate Fun for Active Playtime'
+description: Looking for the perfect outdoor toy that sparks excitement and learning
+  for your child? A kids drone beginner outdoor toy might be exactly what you need.
+  Imagin
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-drone-beginner-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=kids-drone-beginner-outdoor-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the perfect outdoor toy that sparks excitement and learning for your child? A kids drone beginner outdoor toy might be exactly what you need.**

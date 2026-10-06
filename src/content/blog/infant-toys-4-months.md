@@ -1,10 +1,13 @@
 ---
-title: "Infant Toys 4 Months: Top Sensory and Teething Toys for Baby Development"
-description: "Choosing the right toys for a 4-month-old can boost their development and provide endless fun. Discover perfect toys for infant growth and sensory exploration. "
+title: 'Infant Toys 4 Months: Top Sensory and Teething Toys for Baby Development'
+description: 'Choosing the right toys for a 4-month-old can boost their development
+  and provide endless fun. Discover perfect toys for infant growth and sensory exploration. '
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-4-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-4-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a 4-month-old can boost their development and provide endless fun. Discover perfect toys for infant growth and sensory exploration.**

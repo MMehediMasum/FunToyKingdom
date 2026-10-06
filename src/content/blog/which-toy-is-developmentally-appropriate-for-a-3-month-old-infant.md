@@ -1,10 +1,14 @@
 ---
-title: "Which Toy is Developmentally Appropriate for a 3-Month-Old Infant: Top Picks"
-description: "Choosing the right toy for your 3-month-old baby can feel overwhelming. You want something that’s safe, fun, and helps your little one grow. But how do you know"
+title: 'Which Toy is Developmentally Appropriate for a 3-Month-Old Infant: Top Picks'
+description: Choosing the right toy for your 3-month-old baby can feel overwhelming.
+  You want something that’s safe, fun, and helps your little one grow. But how do
+  you know
 pubDate: 2025-10-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-toy-is-developmentally-appropriate-for-a-3-month-old-infant&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Motor Skill Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=which-toy-is-developmentally-appropriate-for-a-3-month-old-infant&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toy for your 3-month-old baby can feel overwhelming. You want something that’s safe, fun, and helps your little one grow.**

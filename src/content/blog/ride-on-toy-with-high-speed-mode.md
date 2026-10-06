@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With High Speed Mode: Ultimate Fun for Kids"
-description: "Imagine the thrill your child will feel when they hop on a ride on toy that can zoom around with an exciting high speed mode. You want a toy that’s not just fun"
+title: 'Ride on Toy With High Speed Mode: Ultimate Fun for Kids'
+description: Imagine the thrill your child will feel when they hop on a ride on toy
+  that can zoom around with an exciting high speed mode. You want a toy that’s not
+  just fun
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-high-speed-mode&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-high-speed-mode&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the thrill your child will feel when they hop on a ride on toy that can zoom around with an exciting high speed mode. You want a toy that’s not just fun but also sparks confidence and joy every time your little one takes the driver’s seat.**

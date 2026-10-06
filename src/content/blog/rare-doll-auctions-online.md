@@ -1,10 +1,14 @@
 ---
-title: "Rare Doll Auctions Online: Unlock Hidden Treasures Today!"
-description: "Are you fascinated by rare dolls and wondering where to find the best collections? Imagine owning a unique doll that not only tells a story but also grows in va"
+title: 'Rare Doll Auctions Online: Unlock Hidden Treasures Today!'
+description: Are you fascinated by rare dolls and wondering where to find the best
+  collections? Imagine owning a unique doll that not only tells a story but also grows
+  in va
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-doll-auctions-online&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=rare-doll-auctions-online&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you fascinated by rare dolls and wondering where to find the best collections? Imagine owning a unique doll that not only tells a story but also grows in value over time.**

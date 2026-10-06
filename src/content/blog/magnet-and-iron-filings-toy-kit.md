@@ -1,10 +1,14 @@
 ---
-title: "Magnet And Iron Filings Toy Kit: Ultimate STEM Fun for Kids"
-description: "Have you ever wondered how magnets really work? Imagine being able to see invisible magnetic forces come to life right in front of your eyes. With the Magnet an"
+title: 'Magnet And Iron Filings Toy Kit: Ultimate STEM Fun for Kids'
+description: Have you ever wondered how magnets really work? Imagine being able to
+  see invisible magnetic forces come to life right in front of your eyes. With the
+  Magnet an
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=magnet-and-iron-filings-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=magnet-and-iron-filings-toy-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wondered how magnets really work? Imagine being able to see invisible magnetic forces come to life right in front of your eyes.**

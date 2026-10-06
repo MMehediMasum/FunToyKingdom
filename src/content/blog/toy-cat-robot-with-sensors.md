@@ -1,10 +1,14 @@
 ---
-title: "Toy Cat Robot With Sensors: Interactive Fun for Kids"
-description: "Imagine having a toy cat that feels almost alive—one that responds to your touch, moves on its own, and even senses obstacles in its way. A toy cat robot with s"
+title: 'Toy Cat Robot With Sensors: Interactive Fun for Kids'
+description: Imagine having a toy cat that feels almost alive—one that responds to
+  your touch, moves on its own, and even senses obstacles in its way. A toy cat robot
+  with s
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cat-robot-with-sensors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=toy-cat-robot-with-sensors&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having a toy cat that feels almost alive—one that responds to your touch, moves on its own, and even senses obstacles in its way. A toy cat robot with sensors brings this magic right into your hands.**

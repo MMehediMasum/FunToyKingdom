@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Bicycle for Older People: Top Comfortable and Stable Bikes Reviewed"
 description: "Choosing the best bicycle for older people means finding comfort, safety, and ease of use. The right bike supports health and independence without strain. Older"
 pubDate: 2025-12-30

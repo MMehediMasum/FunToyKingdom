@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for 5 Year Old: Top Fun & Educational Picks"
-description: "Finding the perfect indoor toys for your 5-year-old can feel overwhelming. You want something that sparks their imagination, keeps them active, and helps them l"
+title: 'Indoor Toys for 5 Year Old: Top Fun & Educational Picks'
+description: Finding the perfect indoor toys for your 5-year-old can feel overwhelming.
+  You want something that sparks their imagination, keeps them active, and helps them
+  l
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-5-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the perfect indoor toys for your 5-year-old can feel overwhelming. You want something that sparks their imagination, keeps them active, and helps them learn—all while fitting inside your home.**

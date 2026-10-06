@@ -1,10 +1,14 @@
 ---
-title: "Best Teething Toys for Newborns: Top Safe & Soothing Picks"
-description: "Teething can be tough—not just for your baby but for you too. You want to ease your little one’s discomfort quickly and safely. That’s where the right teething "
+title: 'Best Teething Toys for Newborns: Top Safe & Soothing Picks'
+description: 'Teething can be tough—not just for your baby but for you too. You want
+  to ease your little one’s discomfort quickly and safely. That’s where the right
+  teething '
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-teething-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=best-teething-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Teething can be tough—not just for your baby but for you too. You want to ease your little one’s discomfort quickly and safely.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Aquarium: Create a Stunning Eco-Friendly Craft!"
-description: "Imagine creating a colorful underwater world right in your own home—using just cardboard and a few simple materials. With a DIY cardboard toy aquarium, you can "
+title: 'Diy Cardboard Toy Aquarium: Create a Stunning Eco-Friendly Craft!'
+description: 'Imagine creating a colorful underwater world right in your own home—using
+  just cardboard and a few simple materials. With a DIY cardboard toy aquarium, you
+  can '
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-aquarium&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-aquarium&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a colorful underwater world right in your own home—using just cardboard and a few simple materials. With a DIY cardboard toy aquarium, you can bring your creativity to life while making a fun, hands-on project that’s perfect for kids and adults alike.**

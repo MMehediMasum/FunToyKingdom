@@ -1,10 +1,14 @@
 ---
-title: "Eco Friendly Science Toy Sets: Inspire Learning with Green Fun"
-description: "Are you looking for a fun way to spark your child’s curiosity while teaching them about the environment? Eco friendly science toy sets are the perfect choice fo"
+title: 'Eco Friendly Science Toy Sets: Inspire Learning with Green Fun'
+description: Are you looking for a fun way to spark your child’s curiosity while teaching
+  them about the environment? Eco friendly science toy sets are the perfect choice
+  fo
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=eco-friendly-science-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=eco-friendly-science-toy-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun way to spark your child’s curiosity while teaching them about the environment? Eco friendly science toy sets are the perfect choice for you.**

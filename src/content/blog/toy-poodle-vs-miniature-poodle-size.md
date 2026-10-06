@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Poodle Vs Miniature Poodle Size: Which Perfectly Fits Your Lifestyle?"
 description: "Toy Poodles and Miniature Poodles both make popular pets but differ mainly in size. Understanding their size helps choose the best fit for your home. Toy Poodle"
 pubDate: 2026-09-05

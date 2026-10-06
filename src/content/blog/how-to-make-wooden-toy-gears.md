@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Gears: Easy Steps for Perfect Crafting"
-description: "Have you ever wanted to create something both fun and educational with your own hands? Making wooden toy gears is a perfect project that lets you do just that. "
+title: 'How to Make Wooden Toy Gears: Easy Steps for Perfect Crafting'
+description: 'Have you ever wanted to create something both fun and educational with
+  your own hands? Making wooden toy gears is a perfect project that lets you do just
+  that. '
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-gears&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-gears&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something both fun and educational with your own hands? Making wooden toy gears is a perfect project that lets you do just that.**

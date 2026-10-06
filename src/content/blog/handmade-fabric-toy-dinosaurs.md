@@ -1,10 +1,13 @@
 ---
-title: "Handmade Fabric Toy Dinosaurs: Unique Gifts Kids Will Love"
-description: "Imagine giving your child a toy that is not only fun but also safe, unique, and full of charm. Handmade fabric toy dinosaurs do exactly that. These soft, colorf"
+title: 'Handmade Fabric Toy Dinosaurs: Unique Gifts Kids Will Love'
+description: Imagine giving your child a toy that is not only fun but also safe, unique,
+  and full of charm. Handmade fabric toy dinosaurs do exactly that. These soft, colorf
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-fabric-toy-dinosaurs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Fabric Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-fabric-toy-dinosaurs&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that is not only fun but also safe, unique, and full of charm. Handmade fabric toy dinosaurs do exactly that.**

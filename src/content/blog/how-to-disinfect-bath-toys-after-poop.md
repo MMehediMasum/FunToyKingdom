@@ -1,10 +1,14 @@
 ---
-title: "How to Disinfect Bath Toys After Poop: Easy & Safe Cleaning Tips"
-description: "You love seeing your little one enjoy bath time, but what happens when those fun toys get contaminated with poop? It’s a common worry that can quickly turn your"
+title: 'How to Disinfect Bath Toys After Poop: Easy & Safe Cleaning Tips'
+description: You love seeing your little one enjoy bath time, but what happens when
+  those fun toys get contaminated with poop? It’s a common worry that can quickly
+  turn your
 pubDate: 2025-10-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-disinfect-bath-toys-after-poop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-disinfect-bath-toys-after-poop&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **You love seeing your little one enjoy bath time, but what happens when those fun toys get contaminated with poop? It’s a common worry that can quickly turn your relaxing routine into a stressful cleanup.**

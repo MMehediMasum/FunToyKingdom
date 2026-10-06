@@ -1,10 +1,14 @@
 ---
-title: "Cat Toy Tower Ball Track: Ultimate Interactive Fun for Indoor Cats"
-description: "Cat Toy Tower Ball Track offers fun and exercise for indoor cats. It keeps cats active and entertained for hours. This interactive toy features multiple levels "
+title: 'Cat Toy Tower Ball Track: Ultimate Interactive Fun for Indoor Cats'
+description: 'Cat Toy Tower Ball Track offers fun and exercise for indoor cats. It
+  keeps cats active and entertained for hours. This interactive toy features multiple
+  levels '
 pubDate: 2026-03-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-tower-ball-track&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-tower-ball-track&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cat Toy Tower Ball Track offers fun and exercise for indoor cats. It keeps cats active and entertained for hours.**

@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Soldier Nutcracker Carving: Master the Art Today!"
-description: "Imagine holding a piece of tradition crafted just for you—a wooden toy soldier nutcracker that brings charm and history to your home. You might wonder what make"
+title: 'Wooden Toy Soldier Nutcracker Carving: Master the Art Today!'
+description: Imagine holding a piece of tradition crafted just for you—a wooden toy
+  soldier nutcracker that brings charm and history to your home. You might wonder
+  what make
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-soldier-nutcracker-carving&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-soldier-nutcracker-carving&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine holding a piece of tradition crafted just for you—a wooden toy soldier nutcracker that brings charm and history to your home. You might wonder what makes this carved figure so special.**

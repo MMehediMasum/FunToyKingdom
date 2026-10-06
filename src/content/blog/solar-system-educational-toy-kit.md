@@ -1,10 +1,14 @@
 ---
-title: "Solar System Educational Toy Kit: Inspire Learning & Fun Today"
-description: "Are you looking for a fun and exciting way to help your child learn about space? A Solar System Educational Toy Kit is the perfect tool to spark curiosity and m"
+title: 'Solar System Educational Toy Kit: Inspire Learning & Fun Today'
+description: Are you looking for a fun and exciting way to help your child learn about
+  space? A Solar System Educational Toy Kit is the perfect tool to spark curiosity
+  and m
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=solar-system-educational-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=solar-system-educational-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to help your child learn about space? A Solar System Educational Toy Kit is the perfect tool to spark curiosity and make learning hands-on.**

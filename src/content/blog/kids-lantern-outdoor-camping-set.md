@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Lantern Outdoor Camping Set: Brighten Adventures Safely"
 description: "Imagine your child’s face lighting up as they hold their very own lantern during a night under the stars. The right Kids Lantern Outdoor Camping Set can turn an"
 pubDate: 2025-09-04

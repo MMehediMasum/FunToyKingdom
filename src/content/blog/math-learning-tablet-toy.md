@@ -1,10 +1,14 @@
 ---
-title: "Math Learning Tablet Toy: Boost Kids’ Skills Fast"
-description: "Are you looking for a fun and effective way to boost your child’s math skills? A Math Learning Tablet Toy might be just what you need. It turns numbers and equa"
+title: 'Math Learning Tablet Toy: Boost Kids’ Skills Fast'
+description: Are you looking for a fun and effective way to boost your child’s math
+  skills? A Math Learning Tablet Toy might be just what you need. It turns numbers
+  and equa
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=math-learning-tablet-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=math-learning-tablet-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and effective way to boost your child’s math skills? A Math Learning Tablet Toy might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Cube Toy: Easy Steps for a Perfect DIY Craft"
-description: "Are you ready to create a fun and unique toy that you can proudly say you made yourself? Sewing a cube toy is easier than you might think, even if you’re new to"
+title: 'How to Sew Cube Toy: Easy Steps for a Perfect DIY Craft'
+description: Are you ready to create a fun and unique toy that you can proudly say
+  you made yourself? Sewing a cube toy is easier than you might think, even if you’re
+  new to
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-cube-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-cube-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you ready to create a fun and unique toy that you can proudly say you made yourself? Sewing a cube toy is easier than you might think, even if you’re new to sewing.**

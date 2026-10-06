@@ -1,10 +1,13 @@
 ---
-title: "Dragon Ball Z Mcdonalds Toys: Top Collectible Figures You Must Have"
-description: "Dragon Ball Z toys have delighted fans for decades. McDonald's exclusive Dragon Ball Z toy collections have a special place in fans' hearts. These limited-editi"
+title: 'Dragon Ball Z Mcdonalds Toys: Top Collectible Figures You Must Have'
+description: Dragon Ball Z toys have delighted fans for decades. McDonald's exclusive
+  Dragon Ball Z toy collections have a special place in fans' hearts. These limited-editi
 pubDate: 2026-08-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-mcdonalds-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-mcdonalds-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z toys have delighted fans for decades. McDonald's exclusive Dragon Ball Z toy collections have a special place in fans' hearts.**

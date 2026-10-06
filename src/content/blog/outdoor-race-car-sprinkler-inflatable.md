@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Race Car Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Are you ready to turn your backyard into the coolest summer spot? The Outdoor Race Car Sprinkler Inflatable is just what you need to make those hot days fun and"
+title: 'Outdoor Race Car Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Are you ready to turn your backyard into the coolest summer spot? The
+  Outdoor Race Car Sprinkler Inflatable is just what you need to make those hot days
+  fun and
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-race-car-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-race-car-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your backyard into the coolest summer spot? The Outdoor Race Car Sprinkler Inflatable is just what you need to make those hot days fun and refreshing.**

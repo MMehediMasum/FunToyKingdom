@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Travel Toys to Keep Your Baby Engaged and Happy"
-description: "Traveling with an infant can be challenging, especially when keeping them entertained. The right travel toys can make all the difference. Choosing the best infa"
+title: Best Infant Travel Toys to Keep Your Baby Engaged and Happy
+description: Traveling with an infant can be challenging, especially when keeping
+  them entertained. The right travel toys can make all the difference. Choosing the
+  best infa
 pubDate: 2026-01-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-travel-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toys For Airplane Travel
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-travel-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Traveling with an infant can be challenging, especially when keeping them entertained. The right travel toys can make all the difference.**

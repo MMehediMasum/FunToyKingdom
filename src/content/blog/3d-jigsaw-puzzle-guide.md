@@ -1,10 +1,14 @@
 ---
-title: "3D Jigsaw Puzzle Guide: Master Tips for Stunning Builds"
-description: "Are you ready to take your puzzle game to the next level? A 3D jigsaw puzzle offers more than just a challenge—it brings your favorite shapes and scenes to life"
+title: '3D Jigsaw Puzzle Guide: Master Tips for Stunning Builds'
+description: Are you ready to take your puzzle game to the next level? A 3D jigsaw
+  puzzle offers more than just a challenge—it brings your favorite shapes and scenes
+  to life
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=3d-jigsaw-puzzle-guide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Jigsaw Puzzle
+heroImage: https://tse1.mm.bing.net/th?q=3d-jigsaw-puzzle-guide&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to take your puzzle game to the next level? A 3D jigsaw puzzle offers more than just a challenge—it brings your favorite shapes and scenes to life right in your hands.**

@@ -1,10 +1,14 @@
 ---
-title: "Push Toys for 1 Year Old: Best Picks to Boost Toddler Playtime"
-description: "Are you looking for the perfect push toy for your 1-year-old? Choosing the right one can make a big difference in your child’s development and happiness. Push t"
+title: 'Push Toys for 1 Year Old: Best Picks to Boost Toddler Playtime'
+description: Are you looking for the perfect push toy for your 1-year-old? Choosing
+  the right one can make a big difference in your child’s development and happiness.
+  Push t
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=push-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=push-toys-for-1-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect push toy for your 1-year-old? Choosing the right one can make a big difference in your child’s development and happiness.**

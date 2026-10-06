@@ -1,10 +1,14 @@
 ---
-title: "Are Kong Toys Dishwasher Safe: Ultimate Cleaning Guide Revealed"
-description: "Are you wondering if your Kong toys can go straight into the dishwasher? Keeping your pet’s favorite toys clean is important for their health and happiness. But"
+title: 'Are Kong Toys Dishwasher Safe: Ultimate Cleaning Guide Revealed'
+description: Are you wondering if your Kong toys can go straight into the dishwasher?
+  Keeping your pet’s favorite toys clean is important for their health and happiness.
+  But
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-kong-toys-dishwasher-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=are-kong-toys-dishwasher-safe&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering if your Kong toys can go straight into the dishwasher? Keeping your pet’s favorite toys clean is important for their health and happiness.**

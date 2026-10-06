@@ -1,10 +1,14 @@
 ---
-title: "Gross Motor Toys for Infants: Top Picks to Boost Baby’s Movement Skills"
-description: "Gross motor toys help infants build strength and coordination through active play. These toys support crawling, climbing, and grasping skills. Infants need toys"
+title: 'Gross Motor Toys for Infants: Top Picks to Boost Baby’s Movement Skills'
+description: Gross motor toys help infants build strength and coordination through
+  active play. These toys support crawling, climbing, and grasping skills. Infants
+  need toys
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=gross-motor-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=gross-motor-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Gross motor toys help infants build strength and coordination through active play. These toys support crawling, climbing, and grasping skills.**

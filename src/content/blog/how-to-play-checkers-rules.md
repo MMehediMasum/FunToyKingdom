@@ -1,10 +1,14 @@
 ---
-title: "How to Play Checkers Rules: Ultimate Guide for Beginners"
-description: "Are you ready to master a game that’s simple to learn but exciting to play? Checkers is a classic board game that challenges your mind and sharpens your strateg"
+title: 'How to Play Checkers Rules: Ultimate Guide for Beginners'
+description: Are you ready to master a game that’s simple to learn but exciting to
+  play? Checkers is a classic board game that challenges your mind and sharpens your
+  strateg
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-play-checkers-rules&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=how-to-play-checkers-rules&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to master a game that’s simple to learn but exciting to play? Checkers is a classic board game that challenges your mind and sharpens your strategy.**

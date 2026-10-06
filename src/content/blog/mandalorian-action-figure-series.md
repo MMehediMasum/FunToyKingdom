@@ -1,10 +1,14 @@
 ---
-title: "Mandalorian Action Figure Series: Ultimate Collectors' Guide 2025"
-description: "Are you a fan of The Mandalorian or a collector of action figures? The Mandalorian Action Figure Series is made just for you. These figures bring your favorite "
+title: 'Mandalorian Action Figure Series: Ultimate Collectors'' Guide 2025'
+description: 'Are you a fan of The Mandalorian or a collector of action figures? The
+  Mandalorian Action Figure Series is made just for you. These figures bring your
+  favorite '
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=mandalorian-action-figure-series&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=mandalorian-action-figure-series&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of The Mandalorian or a collector of action figures? The Mandalorian Action Figure Series is made just for you.**

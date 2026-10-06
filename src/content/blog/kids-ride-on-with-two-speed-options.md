@@ -1,10 +1,14 @@
 ---
-title: "Kids Ride on With Two Speed Options: Ultimate Fun and Safety Guide"
-description: "Are you looking for a fun and safe way to keep your child entertained? A kids ride-on with two speed options might be exactly what you need. Imagine your little"
+title: 'Kids Ride on With Two Speed Options: Ultimate Fun and Safety Guide'
+description: Are you looking for a fun and safe way to keep your child entertained?
+  A kids ride-on with two speed options might be exactly what you need. Imagine your
+  little
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-ride-on-with-two-speed-options&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=kids-ride-on-with-two-speed-options&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to keep your child entertained? A kids ride-on with two speed options might be exactly what you need.**

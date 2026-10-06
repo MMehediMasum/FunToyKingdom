@@ -1,10 +1,14 @@
 ---
-title: "Are Lovevery Toys Non Toxic: Safe, Eco-Friendly Choices for Kids"
-description: "When it comes to your little one’s playtime, safety is probably your top concern. You want toys that are fun but also free from harmful chemicals that could put"
+title: 'Are Lovevery Toys Non Toxic: Safe, Eco-Friendly Choices for Kids'
+description: When it comes to your little one’s playtime, safety is probably your
+  top concern. You want toys that are fun but also free from harmful chemicals that
+  could put
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-lovevery-toys-non-toxic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=are-lovevery-toys-non-toxic&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **When it comes to your little one’s playtime, safety is probably your top concern. You want toys that are fun but also free from harmful chemicals that could put your child at risk.**

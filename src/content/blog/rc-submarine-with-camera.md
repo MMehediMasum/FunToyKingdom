@@ -1,10 +1,13 @@
 ---
-title: "Rc Submarine With Camera: Ultimate Guide to Underwater Exploration"
-description: "Have you ever wondered what it’s like to explore underwater worlds without getting wet? An RC submarine with a camera lets you do just that. Imagine controlling"
+title: 'Rc Submarine With Camera: Ultimate Guide to Underwater Exploration'
+description: Have you ever wondered what it’s like to explore underwater worlds without
+  getting wet? An RC submarine with a camera lets you do just that. Imagine controlling
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-submarine-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-submarine-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered what it’s like to explore underwater worlds without getting wet? An RC submarine with a camera lets you do just that.**

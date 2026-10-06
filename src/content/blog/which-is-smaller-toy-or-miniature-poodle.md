@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Which is Smaller Toy Or Miniature Poodle? Comparing Sizes and Features"
 description: "Toy and Miniature Poodles often confuse dog lovers with their small sizes. Which is truly smaller? Let’s explore. Toy Poodles and Miniature Poodles are popular "
 pubDate: 2026-07-31

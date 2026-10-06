@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 9 Month Old Babies to Boost Early Development"
-description: "Sensory toys help 9-month-old babies explore their world and develop important skills. These toys stimulate touch, sight, and sound in fun ways. At nine months,"
+title: Sensory Toys for 9 Month Old Babies to Boost Early Development
+description: Sensory toys help 9-month-old babies explore their world and develop
+  important skills. These toys stimulate touch, sight, and sound in fun ways. At nine
+  months,
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-9-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-9-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 9-month-old babies explore their world and develop important skills. These toys stimulate touch, sight, and sound in fun ways.**

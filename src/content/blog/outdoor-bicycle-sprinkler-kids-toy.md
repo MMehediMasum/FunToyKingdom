@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Bicycle Sprinkler Kids Toy: Ultimate Summer Fun Guide"
 description: "Imagine turning your child's ordinary bike into a fun, splashy water adventure right in your backyard. With an outdoor bicycle sprinkler kids toy, you can do ju"
 pubDate: 2026-05-15

@@ -1,10 +1,14 @@
 ---
-title: "Boxing Robot Toy: Ultimate Remote Control Battle Robots for Kids Fun"
-description: "Boxing robot toys bring fun and excitement to kids of all ages. These interactive robots combine play with simple technology for hours of entertainment. Boxing "
+title: 'Boxing Robot Toy: Ultimate Remote Control Battle Robots for Kids Fun'
+description: 'Boxing robot toys bring fun and excitement to kids of all ages. These
+  interactive robots combine play with simple technology for hours of entertainment.
+  Boxing '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=boxing-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=boxing-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Boxing robot toys bring fun and excitement to kids of all ages. These interactive robots combine play with simple technology for hours of entertainment.**

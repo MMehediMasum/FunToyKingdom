@@ -1,10 +1,13 @@
 ---
-title: "Collectible Vinyl Toys and Armor Coin: Unique Spiritual Keepsake Gift Ideas"
-description: "Collectible vinyl toys attract fans of all ages with their unique designs and limited editions. These small figures often become treasured keepsakes or valuable"
+title: 'Collectible Vinyl Toys and Armor Coin: Unique Spiritual Keepsake Gift Ideas'
+description: Collectible vinyl toys attract fans of all ages with their unique designs
+  and limited editions. These small figures often become treasured keepsakes or valuable
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=collectible-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Collectible vinyl toys attract fans of all ages with their unique designs and limited editions. These small figures often become treasured keepsakes or valuable investments.**

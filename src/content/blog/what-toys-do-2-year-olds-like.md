@@ -1,10 +1,14 @@
 ---
-title: "What Toys Do 2 Year Olds Like: Top Picks for Fun & Learning"
-description: "Are you wondering what toys your 2-year-old will love the most? Choosing the right toys can feel overwhelming, but finding the perfect ones can spark joy and le"
+title: 'What Toys Do 2 Year Olds Like: Top Picks for Fun & Learning'
+description: Are you wondering what toys your 2-year-old will love the most? Choosing
+  the right toys can feel overwhelming, but finding the perfect ones can spark joy
+  and le
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-do-2-year-olds-like&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-do-2-year-olds-like&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you wondering what toys your 2-year-old will love the most? Choosing the right toys can feel overwhelming, but finding the perfect ones can spark joy and learning in your little one.**

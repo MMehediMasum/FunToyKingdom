@@ -1,10 +1,14 @@
 ---
-title: "Light Up Car Seat Toys That Keep Babies Entertained and Calm"
-description: "Light up car seat toys keep babies entertained and calm during car rides. These toys combine lights, sounds, and textures to engage little ones. Traveling with "
+title: Light Up Car Seat Toys That Keep Babies Entertained and Calm
+description: 'Light up car seat toys keep babies entertained and calm during car rides.
+  These toys combine lights, sounds, and textures to engage little ones. Traveling
+  with '
 pubDate: 2026-08-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=light-up-car-seat-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Seat Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=light-up-car-seat-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Light up car seat toys keep babies entertained and calm during car rides. These toys combine lights, sounds, and textures to engage little ones.**

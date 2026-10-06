@@ -1,10 +1,14 @@
 ---
-title: "Hot Wheels Diecast Toy Cars: Ultimate Collection for Kids and Collectors"
-description: "Hot Wheels diecast toy cars capture the excitement of real racing in a small, collectible size. These detailed, 1:64 scale cars appeal to kids and collectors wo"
+title: 'Hot Wheels Diecast Toy Cars: Ultimate Collection for Kids and Collectors'
+description: Hot Wheels diecast toy cars capture the excitement of real racing in
+  a small, collectible size. These detailed, 1:64 scale cars appeal to kids and collectors
+  wo
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hot-wheels-diecast-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=hot-wheels-diecast-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Hot Wheels diecast toy cars capture the excitement of real racing in a small, collectible size. These detailed, 1:64 scale cars appeal to kids and collectors worldwide.**

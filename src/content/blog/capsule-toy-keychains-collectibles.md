@@ -1,10 +1,14 @@
 ---
-title: "Capsule Toy Keychains Collectibles: Ultimate Guide to Must-Have Gems"
-description: "Have you ever felt the thrill of discovering a tiny treasure that fits right in your hand? Capsule toy keychains collectibles offer exactly that—a fun and excit"
+title: 'Capsule Toy Keychains Collectibles: Ultimate Guide to Must-Have Gems'
+description: Have you ever felt the thrill of discovering a tiny treasure that fits
+  right in your hand? Capsule toy keychains collectibles offer exactly that—a fun
+  and excit
 pubDate: 2025-11-10
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=capsule-toy-keychains-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=capsule-toy-keychains-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever felt the thrill of discovering a tiny treasure that fits right in your hand? Capsule toy keychains collectibles offer exactly that—a fun and exciting way to add charm to your keys, bags, or even your collection shelf.**

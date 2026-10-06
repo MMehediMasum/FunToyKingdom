@@ -1,10 +1,14 @@
 ---
-title: "Kan Jam Frisbee Toss Game: Ultimate Outdoor Fun & Easy Setup"
-description: "Looking for a fun game that brings friends and family together outdoors? The Kan Jam Frisbee Toss Game is exactly what you need. It’s easy to learn, fast to set"
+title: 'Kan Jam Frisbee Toss Game: Ultimate Outdoor Fun & Easy Setup'
+description: Looking for a fun game that brings friends and family together outdoors?
+  The Kan Jam Frisbee Toss Game is exactly what you need. It’s easy to learn, fast
+  to set
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kan-jam-frisbee-toss-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Frisbee Kids Play
+heroImage: https://tse1.mm.bing.net/th?q=kan-jam-frisbee-toss-game&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun game that brings friends and family together outdoors? The Kan Jam Frisbee Toss Game is exactly what you need.**

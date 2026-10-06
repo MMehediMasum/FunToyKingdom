@@ -1,10 +1,13 @@
 ---
-title: "Handmade Wooden Toy Robots: Unique, Eco-Friendly Fun for Kids"
-description: "Imagine giving your child a toy that sparks creativity, encourages imagination, and lasts for years. Handmade wooden toy robots do just that. These charming toy"
+title: 'Handmade Wooden Toy Robots: Unique, Eco-Friendly Fun for Kids'
+description: Imagine giving your child a toy that sparks creativity, encourages imagination,
+  and lasts for years. Handmade wooden toy robots do just that. These charming toy
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-robots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-robots&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages imagination, and lasts for years. Handmade wooden toy robots do just that.**

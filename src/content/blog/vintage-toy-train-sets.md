@@ -1,10 +1,14 @@
 ---
-title: "Vintage Toy Train Sets: Top Classic Magnetic and Wooden Trains for Kids"
-description: "Vintage toy train sets capture the charm and fun of classic railways. These timeless toys bring joy to children and collectors alike. Toy trains have fascinated"
+title: 'Vintage Toy Train Sets: Top Classic Magnetic and Wooden Trains for Kids'
+description: Vintage toy train sets capture the charm and fun of classic railways.
+  These timeless toys bring joy to children and collectors alike. Toy trains have
+  fascinated
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-toy-train-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Train Sets For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=vintage-toy-train-sets&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Vintage toy train sets capture the charm and fun of classic railways. These timeless toys bring joy to children and collectors alike.**

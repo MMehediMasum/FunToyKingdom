@@ -1,10 +1,14 @@
 ---
-title: "Pixar Cars Toy Guide: Top Collectible Mini Racers and Playsets Reviewed"
-description: "Pixar Cars toys bring the magic of the movies to life with exciting vehicle sets and playsets. Kids can enjoy racing and collecting their favorite characters fr"
+title: 'Pixar Cars Toy Guide: Top Collectible Mini Racers and Playsets Reviewed'
+description: Pixar Cars toys bring the magic of the movies to life with exciting vehicle
+  sets and playsets. Kids can enjoy racing and collecting their favorite characters
+  fr
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=pixar-cars-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=pixar-cars-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Pixar Cars toys bring the magic of the movies to life with exciting vehicle sets and playsets. Kids can enjoy racing and collecting their favorite characters from the Cars series.**

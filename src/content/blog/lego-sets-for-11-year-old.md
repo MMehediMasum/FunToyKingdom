@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for 11 Year Old: Top Picks for Creative Playtime"
-description: "Are you searching for the perfect Lego sets for your 11-year-old? You want something that sparks creativity, challenges their mind, and keeps them happily engag"
+title: 'Lego Sets for 11 Year Old: Top Picks for Creative Playtime'
+description: Are you searching for the perfect Lego sets for your 11-year-old? You
+  want something that sparks creativity, challenges their mind, and keeps them happily
+  engag
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-11-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you searching for the perfect Lego sets for your 11-year-old? You want something that sparks creativity, challenges their mind, and keeps them happily engaged for hours.**

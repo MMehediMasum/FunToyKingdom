@@ -1,10 +1,14 @@
 ---
-title: "Ride on Motorcycle for Kids: Ultimate Fun & Safety Guide 2025"
-description: "Are you looking for a fun and exciting way to keep your child entertained? A ride on motorcycle for kids could be just what you need. Imagine your little one zo"
+title: 'Ride on Motorcycle for Kids: Ultimate Fun & Safety Guide 2025'
+description: Are you looking for a fun and exciting way to keep your child entertained?
+  A ride on motorcycle for kids could be just what you need. Imagine your little one
+  zo
 pubDate: 2025-09-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-motorcycle-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-motorcycle-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your child entertained? A ride on motorcycle for kids could be just what you need.**

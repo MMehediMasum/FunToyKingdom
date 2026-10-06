@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 8 Year Old: Top Fun and Safe Picks for Kids"
-description: "Are you searching for the perfect doll for your 8-year-old? Finding a doll that sparks joy and creativity can be tricky. You want something safe, fun, and just "
+title: 'Dolls for 8 Year Old: Top Fun and Safe Picks for Kids'
+description: 'Are you searching for the perfect doll for your 8-year-old? Finding
+  a doll that sparks joy and creativity can be tricky. You want something safe, fun,
+  and just '
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-8-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-8-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you searching for the perfect doll for your 8-year-old? Finding a doll that sparks joy and creativity can be tricky.**

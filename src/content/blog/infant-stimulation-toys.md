@@ -1,10 +1,14 @@
 ---
-title: "Infant Stimulation Toys for Sensory Development and Tummy Time Fun"
-description: "Infant stimulation toys help babies learn and grow through play. These toys support sensory, motor, and brain development from newborn to toddler. Choosing the "
+title: Infant Stimulation Toys for Sensory Development and Tummy Time Fun
+description: 'Infant stimulation toys help babies learn and grow through play. These
+  toys support sensory, motor, and brain development from newborn to toddler. Choosing
+  the '
 pubDate: 2026-02-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-stimulation-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=infant-stimulation-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant stimulation toys help babies learn and grow through play. These toys support sensory, motor, and brain development from newborn to toddler.**

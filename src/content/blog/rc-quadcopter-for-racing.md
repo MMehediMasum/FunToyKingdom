@@ -1,10 +1,13 @@
 ---
-title: "Rc Quadcopter for Racing: Ultimate Speed and Agility Guide"
-description: "Are you ready to take your racing skills to the next level? An RC quadcopter for racing is your ticket to thrilling speed and unmatched control. Imagine zooming"
+title: 'Rc Quadcopter for Racing: Ultimate Speed and Agility Guide'
+description: Are you ready to take your racing skills to the next level? An RC quadcopter
+  for racing is your ticket to thrilling speed and unmatched control. Imagine zooming
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-quadcopter-for-racing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-quadcopter-for-racing&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your racing skills to the next level? An RC quadcopter for racing is your ticket to thrilling speed and unmatched control.**

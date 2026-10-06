@@ -1,10 +1,14 @@
 ---
-title: "Make Your Own Toy Car: Fun DIY Kits for Kids’ Creative Play"
-description: "Making your own toy car brings fun and learning together. Kids enjoy building and painting cars with simple kits. DIY toy car kits let children create cool wood"
+title: 'Make Your Own Toy Car: Fun DIY Kits for Kids’ Creative Play'
+description: Making your own toy car brings fun and learning together. Kids enjoy
+  building and painting cars with simple kits. DIY toy car kits let children create
+  cool wood
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=make-your-own-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=make-your-own-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Making your own toy car brings fun and learning together. Kids enjoy building and painting cars with simple kits.**

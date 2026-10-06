@@ -1,10 +1,13 @@
 ---
-title: "Cars And Trucks for 6 Year Old: Best Picks for Endless Fun"
-description: "Are you searching for the perfect cars and trucks for your 6-year-old? Choosing toys that are fun, safe, and spark your child’s imagination can feel overwhelmin"
+title: 'Cars And Trucks for 6 Year Old: Best Picks for Endless Fun'
+description: Are you searching for the perfect cars and trucks for your 6-year-old?
+  Choosing toys that are fun, safe, and spark your child’s imagination can feel overwhelmin
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-and-trucks-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-and-trucks-for-6-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you searching for the perfect cars and trucks for your 6-year-old? Choosing toys that are fun, safe, and spark your child’s imagination can feel overwhelming.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Bow And Arrow Set: Ultimate LED Archery Fun for Kids Outdoors"
-description: "Toy bow and arrow sets provide fun and safe archery play for kids. These sets include suction cup arrows, targets, and quivers for easy use. Bow and arrow toys "
+title: 'Toy Bow And Arrow Set: Ultimate LED Archery Fun for Kids Outdoors'
+description: 'Toy bow and arrow sets provide fun and safe archery play for kids. These
+  sets include suction cup arrows, targets, and quivers for easy use. Bow and arrow
+  toys '
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-bow-and-arrow-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=toy-bow-and-arrow-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy bow and arrow sets provide fun and safe archery play for kids. These sets include suction cup arrows, targets, and quivers for easy use.**

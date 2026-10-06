@@ -1,10 +1,14 @@
 ---
-title: "Nee Doh Sensory Toys: Ultimate Stress Relief and Fun for All Ages"
-description: "Nee Doh sensory toys offer a fun way to reduce stress and improve focus. These squeeze toys come in many shapes and sizes for all ages. Nee Doh toys provide a s"
+title: 'Nee Doh Sensory Toys: Ultimate Stress Relief and Fun for All Ages'
+description: Nee Doh sensory toys offer a fun way to reduce stress and improve focus.
+  These squeeze toys come in many shapes and sizes for all ages. Nee Doh toys provide
+  a s
 pubDate: 2026-08-02
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nee-doh-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=nee-doh-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Nee Doh sensory toys offer a fun way to reduce stress and improve focus. These squeeze toys come in many shapes and sizes for all ages.**

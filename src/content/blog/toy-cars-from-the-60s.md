@@ -1,10 +1,14 @@
 ---
-title: "Toy Cars from the 60s: Classic Diecast Models for Collectors and Kids"
-description: "Toy cars from the 1960s hold a special charm and nostalgia. These miniature vehicles evoke memories and spark curiosity. Collectors and enthusiasts treasure the"
+title: 'Toy Cars from the 60s: Classic Diecast Models for Collectors and Kids'
+description: Toy cars from the 1960s hold a special charm and nostalgia. These miniature
+  vehicles evoke memories and spark curiosity. Collectors and enthusiasts treasure
+  the
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cars-from-the-60s&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toy-cars-from-the-60s&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy cars from the 1960s hold a special charm and nostalgia. These miniature vehicles evoke memories and spark curiosity.**

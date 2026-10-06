@@ -1,10 +1,14 @@
 ---
-title: "Rc Truggy Outdoor Toy for Teens: Ultimate Fun and Adventure Guide"
-description: "Are you looking for an exciting outdoor toy that keeps teens active and entertained? The RC Truggy is the perfect choice for you. It combines speed, power, and "
+title: 'Rc Truggy Outdoor Toy for Teens: Ultimate Fun and Adventure Guide'
+description: 'Are you looking for an exciting outdoor toy that keeps teens active
+  and entertained? The RC Truggy is the perfect choice for you. It combines speed,
+  power, and '
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truggy-outdoor-toy-for-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-truggy-outdoor-toy-for-teens&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for an exciting outdoor toy that keeps teens active and entertained? The RC Truggy is the perfect choice for you.**

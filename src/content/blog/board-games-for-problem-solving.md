@@ -1,10 +1,14 @@
 ---
-title: "Board Games for Problem Solving: Boost Skills with Fun Challenges"
-description: "Are you looking for a fun way to boost your problem-solving skills? Board games might be the perfect answer. They challenge your mind, sharpen your thinking, an"
+title: 'Board Games for Problem Solving: Boost Skills with Fun Challenges'
+description: Are you looking for a fun way to boost your problem-solving skills? Board
+  games might be the perfect answer. They challenge your mind, sharpen your thinking,
+  an
 pubDate: 2025-10-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-problem-solving&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-problem-solving&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to boost your problem-solving skills? Board games might be the perfect answer.**

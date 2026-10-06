@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Puzzles: Top Adjustable Lamps for Eye-Caring Brightness"
-description: "Choosing the best lighting for puzzles improves focus and reduces eye strain. Proper light helps you see colors and details clearly. Puzzles need bright, even l"
+title: 'Best Lighting for Puzzles: Top Adjustable Lamps for Eye-Caring Brightness'
+description: Choosing the best lighting for puzzles improves focus and reduces eye
+  strain. Proper light helps you see colors and details clearly. Puzzles need bright,
+  even l
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-puzzles-top-adjustable-lamps-for-eye-caring-brightness&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Care & Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-puzzles-top-adjustable-lamps-for-eye-caring-brightness&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best lighting for puzzles improves focus and reduces eye strain. Proper light helps you see colors and details clearly.**

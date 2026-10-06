@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Aerial Silks Kids Play: Fun, Fitness & Creativity Unleashed"
-description: "Imagine your kids laughing and swinging high above the ground, their bodies twisting and turning with joy. Outdoor aerial silks kids play is not just fun—it’s a"
+title: 'Outdoor Aerial Silks Kids Play: Fun, Fitness & Creativity Unleashed'
+description: Imagine your kids laughing and swinging high above the ground, their
+  bodies twisting and turning with joy. Outdoor aerial silks kids play is not just
+  fun—it’s a
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-aerial-silks-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-aerial-silks-kids-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids laughing and swinging high above the ground, their bodies twisting and turning with joy. Outdoor aerial silks kids play is not just fun—it’s a fantastic way to boost their strength, balance, and confidence.**

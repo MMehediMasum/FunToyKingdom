@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Pedal Boat Inflatable: Ultimate Fun on Water Adventures"
-description: "Imagine yourself gliding smoothly across a calm lake, the sun warming your face, and the gentle splash of water beneath your pedal boat. An outdoor pedal boat i"
+title: 'Outdoor Pedal Boat Inflatable: Ultimate Fun on Water Adventures'
+description: Imagine yourself gliding smoothly across a calm lake, the sun warming
+  your face, and the gentle splash of water beneath your pedal boat. An outdoor pedal
+  boat i
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-pedal-boat-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-pedal-boat-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself gliding smoothly across a calm lake, the sun warming your face, and the gentle splash of water beneath your pedal boat. An outdoor pedal boat inflatable is your ticket to this simple, joyful escape.**

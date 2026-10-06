@@ -1,10 +1,14 @@
 ---
-title: "Toys for Older Infants: Top Montessori and Sensory Picks for Learning"
-description: "Choosing the right toys for older infants supports their growth and keeps them happy. Toys that encourage movement, senses, and learning work best. Older infant"
+title: 'Toys for Older Infants: Top Montessori and Sensory Picks for Learning'
+description: Choosing the right toys for older infants supports their growth and keeps
+  them happy. Toys that encourage movement, senses, and learning work best. Older
+  infant
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-older-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-older-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for older infants supports their growth and keeps them happy. Toys that encourage movement, senses, and learning work best.**

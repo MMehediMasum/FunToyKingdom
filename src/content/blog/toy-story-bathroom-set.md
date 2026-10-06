@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Bathroom Set: Fun, Functional Décor for Kids’ Bathrooms"
-description: "The Toy Story bathroom set brings fun and color to kids' spaces. It includes practical items featuring favorite characters like Woody and Buzz Lightyear. This c"
+title: 'Toy Story Bathroom Set: Fun, Functional Décor for Kids’ Bathrooms'
+description: The Toy Story bathroom set brings fun and color to kids' spaces. It includes
+  practical items featuring favorite characters like Woody and Buzz Lightyear. This
+  c
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-bathroom-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-bathroom-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story bathroom set brings fun and color to kids' spaces. It includes practical items featuring favorite characters like Woody and Buzz Lightyear.**

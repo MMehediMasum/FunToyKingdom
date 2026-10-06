@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Poodle Vs Toy Poodle Lifespan: Which Breed Lives Longer?"
 description: "Miniature Poodles and Toy Poodles are popular small dog breeds loved by many. Their lifespan varies slightly, which matters to pet owners. Both breeds come from"
 pubDate: 2026-08-13

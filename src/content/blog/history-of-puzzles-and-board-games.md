@@ -1,10 +1,14 @@
 ---
-title: "History of Puzzles And Board Games: Unraveling Timeless Fun"
-description: "Have you ever wondered how puzzles and board games became a part of your life? These simple yet fascinating pastimes have a rich history that stretches back tho"
+title: 'History of Puzzles And Board Games: Unraveling Timeless Fun'
+description: Have you ever wondered how puzzles and board games became a part of your
+  life? These simple yet fascinating pastimes have a rich history that stretches back
+  tho
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-puzzles-and-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=history-of-puzzles-and-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how puzzles and board games became a part of your life? These simple yet fascinating pastimes have a rich history that stretches back thousands of years.**

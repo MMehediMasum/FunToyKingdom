@@ -1,10 +1,14 @@
 ---
-title: "Kids Survival Bracelet Outdoor Toy: Ultimate Adventure Gear for Kids"
-description: "Imagine giving your child a fun outdoor toy that not only sparks their imagination but also teaches them valuable survival skills. A Kids Survival Bracelet Outd"
+title: 'Kids Survival Bracelet Outdoor Toy: Ultimate Adventure Gear for Kids'
+description: Imagine giving your child a fun outdoor toy that not only sparks their
+  imagination but also teaches them valuable survival skills. A Kids Survival Bracelet
+  Outd
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-survival-bracelet-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=kids-survival-bracelet-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a fun outdoor toy that not only sparks their imagination but also teaches them valuable survival skills. A Kids Survival Bracelet Outdoor Toy does exactly that.**

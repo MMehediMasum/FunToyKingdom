@@ -1,10 +1,14 @@
 ---
-title: "Johnny Lightning Toy Cars: Ultimate Guide to Collectible Diecast Models"
-description: "Johnny Lightning toy cars capture the thrill of classic and rare vehicles in detailed 1/64 scale models. Collectors and fans enjoy their realistic designs and u"
+title: 'Johnny Lightning Toy Cars: Ultimate Guide to Collectible Diecast Models'
+description: Johnny Lightning toy cars capture the thrill of classic and rare vehicles
+  in detailed 1/64 scale models. Collectors and fans enjoy their realistic designs
+  and u
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=johnny-lightning-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=johnny-lightning-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Johnny Lightning toy cars capture the thrill of classic and rare vehicles in detailed 1/64 scale models. Collectors and fans enjoy their realistic designs and unique editions.**

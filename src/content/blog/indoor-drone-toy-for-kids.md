@@ -1,10 +1,14 @@
 ---
-title: "Indoor Drone Toy for Kids: Ultimate Fun and Safe Flying Guide"
-description: "Looking for a fun and safe way to keep your kids entertained indoors? An indoor drone toy might be exactly what you need. Imagine your child’s excitement as the"
+title: 'Indoor Drone Toy for Kids: Ultimate Fun and Safe Flying Guide'
+description: Looking for a fun and safe way to keep your kids entertained indoors?
+  An indoor drone toy might be exactly what you need. Imagine your child’s excitement
+  as the
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-drone-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=indoor-drone-toy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained indoors? An indoor drone toy might be exactly what you need.**

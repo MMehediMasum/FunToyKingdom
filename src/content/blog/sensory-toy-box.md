@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toy Box: Ultimate Fidget Set for Stress Relief and Focus"
-description: "A sensory toy box offers a treasure trove of tactile delights for children and adults alike. It's a perfect tool for stress relief and sensory exploration. Sens"
+title: 'Sensory Toy Box: Ultimate Fidget Set for Stress Relief and Focus'
+description: A sensory toy box offers a treasure trove of tactile delights for children
+  and adults alike. It's a perfect tool for stress relief and sensory exploration.
+  Sens
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toy-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toy-box&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **A sensory toy box offers a treasure trove of tactile delights for children and adults alike. It's a perfect tool for stress relief and sensory exploration.**

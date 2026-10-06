@@ -1,10 +1,13 @@
 ---
-title: "Best Toys for Infants 6 9 Months to Boost Sensory and Motor Skills"
-description: "Choosing the right toys for infants aged 6 to 9 months can enhance their development. This stage is crucial for sensory and motor skills growth. Babies between "
+title: Best Toys for Infants 6 9 Months to Boost Sensory and Motor Skills
+description: 'Choosing the right toys for infants aged 6 to 9 months can enhance their
+  development. This stage is crucial for sensory and motor skills growth. Babies between '
 pubDate: 2026-02-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-infants-6-9-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-infants-6-9-months&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the right toys for infants aged 6 to 9 months can enhance their development. This stage is crucial for sensory and motor skills growth.**

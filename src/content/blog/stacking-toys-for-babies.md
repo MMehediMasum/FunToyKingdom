@@ -1,10 +1,14 @@
 ---
-title: "Stacking Toys for Babies: Top Picks for Learning and Fun Playtime"
-description: "Stacking toys for babies help develop hand-eye coordination and fine motor skills. These colorful toys offer fun and learning for infants from six months old. S"
+title: 'Stacking Toys for Babies: Top Picks for Learning and Fun Playtime'
+description: Stacking toys for babies help develop hand-eye coordination and fine
+  motor skills. These colorful toys offer fun and learning for infants from six months
+  old. S
 pubDate: 2026-02-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-toys-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Stacking Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stacking-toys-for-babies&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Stacking toys for babies help develop hand-eye coordination and fine motor skills. These colorful toys offer fun and learning for infants from six months old.**

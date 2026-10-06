@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Metal Detector Toy for Kids: Ultimate Adventure & Fun Guide"
-description: "Are you looking for a fun way to get your kids outside and active? An outdoor metal detector toy for kids could be just what you need. Imagine the excitement yo"
+title: 'Outdoor Metal Detector Toy for Kids: Ultimate Adventure & Fun Guide'
+description: Are you looking for a fun way to get your kids outside and active? An
+  outdoor metal detector toy for kids could be just what you need. Imagine the excitement
+  yo
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-metal-detector-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-metal-detector-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids outside and active? An outdoor metal detector toy for kids could be just what you need.**

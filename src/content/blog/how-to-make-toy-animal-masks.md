@@ -1,10 +1,13 @@
 ---
-title: "How to Make Toy Animal Masks: Easy DIY Craft Ideas for Kids"
-description: "Do you want to bring fun and creativity to your next playtime or party? Making toy animal masks is a simple and exciting way to do just that. Imagine transformi"
+title: 'How to Make Toy Animal Masks: Easy DIY Craft Ideas for Kids'
+description: Do you want to bring fun and creativity to your next playtime or party?
+  Making toy animal masks is a simple and exciting way to do just that. Imagine transformi
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-animal-masks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-animal-masks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to bring fun and creativity to your next playtime or party? Making toy animal masks is a simple and exciting way to do just that.**

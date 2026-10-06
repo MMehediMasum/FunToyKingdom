@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Toddlers: Top Picks for Fun and Learning"
-description: "Board games for toddlers offer fun and learning. They help improve skills like counting, colors, and teamwork. Choosing the right board game can make a big diff"
+title: 'Best Board Games for Toddlers: Top Picks for Fun and Learning'
+description: Board games for toddlers offer fun and learning. They help improve skills
+  like counting, colors, and teamwork. Choosing the right board game can make a big
+  diff
 pubDate: 2026-02-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-toddlers&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games for toddlers offer fun and learning. They help improve skills like counting, colors, and teamwork.**

@@ -1,10 +1,14 @@
 ---
-title: "Epic Games Toys: Top Strategy Board Games for Ultimate Family Fun"
-description: "Epic Games Toys bring the thrill of your favorite games into the world of play. These toys make gaming more tangible and exciting. Epic Games Toys offer a range"
+title: 'Epic Games Toys: Top Strategy Board Games for Ultimate Family Fun'
+description: Epic Games Toys bring the thrill of your favorite games into the world
+  of play. These toys make gaming more tangible and exciting. Epic Games Toys offer
+  a range
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=epic-games-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=epic-games-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Epic Games Toys bring the thrill of your favorite games into the world of play. These toys make gaming more tangible and exciting.**

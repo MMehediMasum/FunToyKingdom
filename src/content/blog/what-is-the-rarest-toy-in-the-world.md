@@ -1,10 +1,14 @@
 ---
-title: "What is the Rarest Toy in the World: Uncover Hidden Treasures"
-description: "Have you ever wondered what the rarest toy in the world is? Imagine owning something so unique that only a handful of people in the entire world have it. This t"
+title: 'What is the Rarest Toy in the World: Uncover Hidden Treasures'
+description: Have you ever wondered what the rarest toy in the world is? Imagine owning
+  something so unique that only a handful of people in the entire world have it. This
+  t
 pubDate: 2025-09-03
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-rarest-toy-in-the-world&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy World Records
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-rarest-toy-in-the-world&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what the rarest toy in the world is? Imagine owning something so unique that only a handful of people in the entire world have it.**

@@ -1,10 +1,14 @@
 ---
-title: "Superhero Childrens Costumes: Ultimate Dress-Up Sets for Imaginative Play"
-description: "Children love transforming into their favorite superheroes. It's a magical experience that sparks creativity and joy. Superhero costumes for kids bring an excit"
+title: 'Superhero Childrens Costumes: Ultimate Dress-Up Sets for Imaginative Play'
+description: Children love transforming into their favorite superheroes. It's a magical
+  experience that sparks creativity and joy. Superhero costumes for kids bring an
+  excit
 pubDate: 2026-02-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=superhero-childrens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=superhero-childrens&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Children love transforming into their favorite superheroes. It's a magical experience that sparks creativity and joy.**

@@ -1,10 +1,14 @@
 ---
-title: "Fine Motor Toys for 2 Year Old: Top Picks to Boost Skills Fast"
-description: "Are you looking for the perfect toys to help your 2-year-old grow and learn? Choosing the right fine motor toys can make a big difference in your child’s develo"
+title: 'Fine Motor Toys for 2 Year Old: Top Picks to Boost Skills Fast'
+description: Are you looking for the perfect toys to help your 2-year-old grow and
+  learn? Choosing the right fine motor toys can make a big difference in your child’s
+  develo
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=fine-motor-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=fine-motor-toys-for-2-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect toys to help your 2-year-old grow and learn? Choosing the right fine motor toys can make a big difference in your child’s development.**

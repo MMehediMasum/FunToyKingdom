@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Toys for Airplane Travel: Top Picks for Happy Toddlers"
-description: "Traveling with infants can be challenging, especially on airplanes. Choosing the right toys helps keep your baby calm and entertained during the flight. Infant "
+title: 'Best Infant Toys for Airplane Travel: Top Picks for Happy Toddlers'
+description: 'Traveling with infants can be challenging, especially on airplanes.
+  Choosing the right toys helps keep your baby calm and entertained during the flight.
+  Infant '
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-toys-for-airplane-travel-top-picks-for-happy-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toys For Airplane Travel
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-toys-for-airplane-travel-top-picks-for-happy-toddlers&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Traveling with infants can be challenging, especially on airplanes. Choosing the right toys helps keep your baby calm and entertained during the flight.**

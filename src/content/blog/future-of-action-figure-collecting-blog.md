@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Future of Action Figure Collecting Blog: Trends Shaping Tomorrow"
 description: "Are you ready to discover where action figure collecting is headed next? Whether you're a seasoned collector or just starting out, understanding the future of t"
 pubDate: 2025-12-10

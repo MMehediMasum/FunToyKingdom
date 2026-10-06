@@ -1,10 +1,14 @@
 ---
-title: "Capsule Toy Figurines from Japan: Ultimate Collectors’ Guide 2025"
-description: "Are you curious about the tiny treasures that have taken the world by storm? Capsule toy figurines from Japan are more than just small collectibles—they hold a "
+title: 'Capsule Toy Figurines from Japan: Ultimate Collectors’ Guide 2025'
+description: 'Are you curious about the tiny treasures that have taken the world by
+  storm? Capsule toy figurines from Japan are more than just small collectibles—they
+  hold a '
 pubDate: 2026-09-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=capsule-toy-figurines-from-japan&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=capsule-toy-figurines-from-japan&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about the tiny treasures that have taken the world by storm? Capsule toy figurines from Japan are more than just small collectibles—they hold a special charm that can spark joy and nostalgia instantly.**

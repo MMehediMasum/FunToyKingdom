@@ -1,10 +1,14 @@
 ---
-title: "Social Skills Role Play Toys: Boost Confidence & Communication Skills"
-description: "Have you ever wished your child could practice making friends, sharing, or handling tricky social moments—all in a fun and safe way? Social skills role play toy"
+title: 'Social Skills Role Play Toys: Boost Confidence & Communication Skills'
+description: Have you ever wished your child could practice making friends, sharing,
+  or handling tricky social moments—all in a fun and safe way? Social skills role
+  play toy
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=social-skills-role-play-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=social-skills-role-play-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wished your child could practice making friends, sharing, or handling tricky social moments—all in a fun and safe way? Social skills role play toys are designed just for that.**

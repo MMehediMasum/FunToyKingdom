@@ -1,10 +1,13 @@
 ---
-title: "Bluetooth Karaoke Toy Machine: Ultimate Fun for Kids & Families"
-description: "Looking for a fun way to bring your music and parties to life? The Bluetooth Karaoke Toy Machine is just what you need. Imagine singing your favorite songs anyt"
+title: 'Bluetooth Karaoke Toy Machine: Ultimate Fun for Kids & Families'
+description: Looking for a fun way to bring your music and parties to life? The Bluetooth
+  Karaoke Toy Machine is just what you need. Imagine singing your favorite songs anyt
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=bluetooth-karaoke-toy-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=bluetooth-karaoke-toy-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Looking for a fun way to bring your music and parties to life? The Bluetooth Karaoke Toy Machine is just what you need.**

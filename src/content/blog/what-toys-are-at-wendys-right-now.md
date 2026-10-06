@@ -1,10 +1,14 @@
 ---
-title: "What Toys are at Wendy'S Right Now: Must-Have Collectibles Revealed"
-description: "Are you curious about the latest toys you can grab at Wendy’s right now? Whether you’re planning a fun meal for your kids or just want to add a little surprise "
+title: 'What Toys are at Wendy''S Right Now: Must-Have Collectibles Revealed'
+description: 'Are you curious about the latest toys you can grab at Wendy’s right
+  now? Whether you’re planning a fun meal for your kids or just want to add a little
+  surprise '
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-are-at-wendys-right-now&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Burger King Toy Promotions
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-are-at-wendys-right-now&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you curious about the latest toys you can grab at Wendy’s right now? Whether you’re planning a fun meal for your kids or just want to add a little surprise to your order, knowing what’s available can make your visit more exciting.**

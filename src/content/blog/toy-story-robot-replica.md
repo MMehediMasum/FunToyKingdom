@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Robot Replica: Ultimate Collectible Action Figure Review & Guide"
-description: "The Toy Story Robot Replica brings beloved characters to life with detailed design and fun features. These toys offer interactive play and collectible value for"
+title: 'Toy Story Robot Replica: Ultimate Collectible Action Figure Review & Guide'
+description: The Toy Story Robot Replica brings beloved characters to life with detailed
+  design and fun features. These toys offer interactive play and collectible value
+  for
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-robot-replica&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-robot-replica&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Toy Story Robot Replica brings beloved characters to life with detailed design and fun features. These toys offer interactive play and collectible value for fans of all ages.**

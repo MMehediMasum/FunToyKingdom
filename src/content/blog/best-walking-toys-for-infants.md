@@ -1,10 +1,14 @@
 ---
-title: "Best Walking Toys for Infants to Boost Early Learning and Fun"
-description: "Choosing the best walking toys for infants helps support early walking and learning skills. These toys encourage movement, balance, and curiosity in babies. Wal"
+title: Best Walking Toys for Infants to Boost Early Learning and Fun
+description: Choosing the best walking toys for infants helps support early walking
+  and learning skills. These toys encourage movement, balance, and curiosity in babies.
+  Wal
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-walking-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-walking-toys-for-infants&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best walking toys for infants helps support early walking and learning skills. These toys encourage movement, balance, and curiosity in babies.**

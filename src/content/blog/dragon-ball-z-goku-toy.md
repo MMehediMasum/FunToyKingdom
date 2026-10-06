@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Goku Toy: Ultimate Collectible Action Figures and Models Guide"
-description: "Dragon Ball Z Goku toys bring the famous hero from the anime to life. These action figures capture Goku’s power and iconic look perfectly. Fans enjoy collecting"
+title: 'Dragon Ball Z Goku Toy: Ultimate Collectible Action Figures and Models Guide'
+description: Dragon Ball Z Goku toys bring the famous hero from the anime to life.
+  These action figures capture Goku’s power and iconic look perfectly. Fans enjoy
+  collecting
 pubDate: 2026-08-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-goku-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-goku-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z Goku toys bring the famous hero from the anime to life. These action figures capture Goku’s power and iconic look perfectly.**

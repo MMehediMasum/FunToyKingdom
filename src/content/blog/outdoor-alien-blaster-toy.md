@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Alien Blaster Toy: Ultimate Fun for Kids Outdoors"
-description: "Are you ready to take your outdoor play to a whole new level? The Outdoor Alien Blaster Toy is designed to bring excitement and adventure right to your backyard"
+title: 'Outdoor Alien Blaster Toy: Ultimate Fun for Kids Outdoors'
+description: Are you ready to take your outdoor play to a whole new level? The Outdoor
+  Alien Blaster Toy is designed to bring excitement and adventure right to your backyard
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-alien-blaster-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-alien-blaster-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your outdoor play to a whole new level? The Outdoor Alien Blaster Toy is designed to bring excitement and adventure right to your backyard.**

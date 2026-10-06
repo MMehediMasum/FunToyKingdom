@@ -1,10 +1,15 @@
 ---
-title: "Best Card Games for 8-10 Year Olds: Fun, Educational, and Family-Friendly Picks"
-description: "Choosing the best card games for 8-10 year olds can make playtime fun and educational. Great card games help kids develop skills and enjoy time with family and "
+title: 'Best Card Games for 8-10 Year Olds: Fun, Educational, and Family-Friendly
+  Picks'
+description: 'Choosing the best card games for 8-10 year olds can make playtime fun
+  and educational. Great card games help kids develop skills and enjoy time with family
+  and '
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-8-10-year-olds-fun-educational-and-family-friendly-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-8-10-year-olds-fun-educational-and-family-friendly-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best card games for 8-10 year olds can make playtime fun and educational. Great card games help kids develop skills and enjoy time with family and friends.**

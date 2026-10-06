@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Finn McMissile Toy Review: Ultimate Collectible for Kids and Fans"
-description: "Finn McMissile, the suave British spy car from \"Cars 2,\" captivates fans young and old. These toys bring his adventures to life. Children and collectors alike a"
+title: 'Cars 2 Finn McMissile Toy Review: Ultimate Collectible for Kids and Fans'
+description: Finn McMissile, the suave British spy car from "Cars 2," captivates fans
+  young and old. These toys bring his adventures to life. Children and collectors
+  alike a
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-finn-mcmissile-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-finn-mcmissile-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finn McMissile, the suave British spy car from "Cars 2," captivates fans young and old. These toys bring his adventures to life.**

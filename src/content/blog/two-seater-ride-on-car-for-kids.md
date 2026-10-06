@@ -1,10 +1,14 @@
 ---
-title: "Two Seater Ride on Car for Kids: Ultimate Fun & Safety Guide"
-description: "Looking for the perfect ride-on car that your kids can enjoy together? A two seater ride on car for kids might be just what you need. Imagine your children shar"
+title: 'Two Seater Ride on Car for Kids: Ultimate Fun & Safety Guide'
+description: Looking for the perfect ride-on car that your kids can enjoy together?
+  A two seater ride on car for kids might be just what you need. Imagine your children
+  shar
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=two-seater-ride-on-car-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=two-seater-ride-on-car-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect ride-on car that your kids can enjoy together? A two seater ride on car for kids might be just what you need.**

@@ -1,10 +1,13 @@
 ---
-title: "Sensory Play Gym for Infants: Boost Growth with Fun Activities"
-description: "Are you looking for a fun and effective way to boost your infant’s development? A sensory play gym for infants might be exactly what you need. These colorful, i"
+title: 'Sensory Play Gym for Infants: Boost Growth with Fun Activities'
+description: Are you looking for a fun and effective way to boost your infant’s development?
+  A sensory play gym for infants might be exactly what you need. These colorful, i
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-play-gym-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=sensory-play-gym-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and effective way to boost your infant’s development? A sensory play gym for infants might be exactly what you need.**

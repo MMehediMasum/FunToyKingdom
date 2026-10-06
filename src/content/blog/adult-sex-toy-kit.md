@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Adult Sex Toy Kit: Ultimate BDSM Bondage Set for Couples' Pleasure"
 description: "An adult sex toy kit offers a variety of tools designed to enhance intimacy and pleasure. These kits include restraints, vibrators, plugs, and other accessories"
 pubDate: 2026-08-04

@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Gremlin Toy Review: Ultimate Collectible for Disney Pixar Fans"
-description: "The Cars 2 Gremlin Toy brings excitement from the movie to your hands. This die-cast model captures the character’s unique look and style perfectly. Fans of Dis"
+title: 'Cars 2 Gremlin Toy Review: Ultimate Collectible for Disney Pixar Fans'
+description: The Cars 2 Gremlin Toy brings excitement from the movie to your hands.
+  This die-cast model captures the character’s unique look and style perfectly. Fans
+  of Dis
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-gremlin-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-gremlin-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 Gremlin Toy brings excitement from the movie to your hands. This die-cast model captures the character’s unique look and style perfectly.**

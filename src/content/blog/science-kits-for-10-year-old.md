@@ -1,10 +1,14 @@
 ---
-title: "Science Kits for 10 Year Old: Top Engaging STEM Picks 2025"
-description: "Are you looking for a way to spark your 10-year-old’s curiosity and make learning fun? Science kits for 10 year olds are the perfect solution. They turn complex"
+title: 'Science Kits for 10 Year Old: Top Engaging STEM Picks 2025'
+description: Are you looking for a way to spark your 10-year-old’s curiosity and make
+  learning fun? Science kits for 10 year olds are the perfect solution. They turn
+  complex
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kits-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kits-for-10-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a way to spark your 10-year-old’s curiosity and make learning fun? Science kits for 10 year olds are the perfect solution.**

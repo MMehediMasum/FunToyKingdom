@@ -1,10 +1,14 @@
 ---
-title: "How Do You Get Free Toys: Ultimate Guide to Score Big Deals"
-description: "Are you looking for ways to get free toys without spending a dime? Imagine surprising your kids or adding to your collection without opening your wallet. You mi"
+title: 'How Do You Get Free Toys: Ultimate Guide to Score Big Deals'
+description: Are you looking for ways to get free toys without spending a dime? Imagine
+  surprising your kids or adding to your collection without opening your wallet. You
+  mi
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-get-free-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-get-free-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for ways to get free toys without spending a dime? Imagine surprising your kids or adding to your collection without opening your wallet.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Dinosaur Craft: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and creative project that you can make with things around your home? Imagine turning simple cardboard into a cool toy dinosaur that yo"
+title: 'Diy Cardboard Toy Dinosaur Craft: Easy Steps for Creative Fun'
+description: Are you looking for a fun and creative project that you can make with
+  things around your home? Imagine turning simple cardboard into a cool toy dinosaur
+  that yo
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-dinosaur-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-dinosaur-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with things around your home? Imagine turning simple cardboard into a cool toy dinosaur that you can play with or display proudly.**

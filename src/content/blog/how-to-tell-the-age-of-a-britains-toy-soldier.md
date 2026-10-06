@@ -1,10 +1,14 @@
 ---
-title: "How to Tell the Age of a Britains Toy Soldier: Expert Guide"
-description: "Have you ever held a Britains toy soldier and wondered just how old it really is? Knowing the age of your toy soldier can unlock stories from the past and add r"
+title: 'How to Tell the Age of a Britains Toy Soldier: Expert Guide'
+description: Have you ever held a Britains toy soldier and wondered just how old it
+  really is? Knowing the age of your toy soldier can unlock stories from the past
+  and add r
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-the-age-of-a-britains-toy-soldier&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-the-age-of-a-britains-toy-soldier&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever held a Britains toy soldier and wondered just how old it really is? Knowing the age of your toy soldier can unlock stories from the past and add real value to your collection.**

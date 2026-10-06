@@ -1,10 +1,14 @@
 ---
-title: "Three Legged Race Bands for Kids: Fun, Safety & Easy Setup"
-description: "Are you planning a fun day outdoors with your kids? Imagine the laughter and excitement as your little ones team up for a three-legged race. But to make it safe"
+title: 'Three Legged Race Bands for Kids: Fun, Safety & Easy Setup'
+description: Are you planning a fun day outdoors with your kids? Imagine the laughter
+  and excitement as your little ones team up for a three-legged race. But to make
+  it safe
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=three-legged-race-bands-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=three-legged-race-bands-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you planning a fun day outdoors with your kids? Imagine the laughter and excitement as your little ones team up for a three-legged race.**

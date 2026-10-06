@@ -1,10 +1,14 @@
 ---
-title: "Big Wheel Trike for Kids: Ultimate Fun and Safety Guide"
-description: "Looking for a fun and safe way to get your child moving outdoors? A big wheel trike for kids might be just what you need. These colorful, sturdy rides aren’t ju"
+title: 'Big Wheel Trike for Kids: Ultimate Fun and Safety Guide'
+description: Looking for a fun and safe way to get your child moving outdoors? A big
+  wheel trike for kids might be just what you need. These colorful, sturdy rides aren’t
+  ju
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=big-wheel-trike-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Car Rides Engaging
+heroImage: https://tse1.mm.bing.net/th?q=big-wheel-trike-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a fun and safe way to get your child moving outdoors? A big wheel trike for kids might be just what you need.**

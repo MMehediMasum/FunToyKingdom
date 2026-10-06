@@ -1,10 +1,14 @@
 ---
-title: "Baby Yoda Grogu Collectible Doll: Must-Have Fan Treasure!"
-description: "If you’re a fan of Star Wars or just love adorable collectibles, the Baby Yoda Grogu Collectible Doll is something you don’t want to miss. Imagine having a tiny"
+title: 'Baby Yoda Grogu Collectible Doll: Must-Have Fan Treasure!'
+description: If you’re a fan of Star Wars or just love adorable collectibles, the
+  Baby Yoda Grogu Collectible Doll is something you don’t want to miss. Imagine having
+  a tiny
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=baby-yoda-grogu-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=baby-yoda-grogu-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Star Wars or just love adorable collectibles, the Baby Yoda Grogu Collectible Doll is something you don’t want to miss. Imagine having a tiny, lifelike version of this beloved character right on your shelf—ready to bring a smile to your face every time you see it.**

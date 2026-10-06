@@ -1,10 +1,14 @@
 ---
-title: "How Many Cards in Uno Deck: Ultimate Guide to Uno Cards Count"
-description: "Have you ever wondered how many cards are in an Uno deck? Whether you’re a casual player or someone who loves winning every game, knowing the exact number can g"
+title: 'How Many Cards in Uno Deck: Ultimate Guide to Uno Cards Count'
+description: Have you ever wondered how many cards are in an Uno deck? Whether you’re
+  a casual player or someone who loves winning every game, knowing the exact number
+  can g
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-cards-in-uno-deck&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=how-many-cards-in-uno-deck&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how many cards are in an Uno deck? Whether you’re a casual player or someone who loves winning every game, knowing the exact number can give you an edge.**

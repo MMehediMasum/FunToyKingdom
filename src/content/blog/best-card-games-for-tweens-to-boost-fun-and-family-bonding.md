@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for Tweens to Boost Fun and Family Bonding"
-description: "Card games offer great fun and learning for tweens. They help develop thinking, social skills, and keep kids entertained. Choosing the best card games for tween"
+title: Best Card Games for Tweens to Boost Fun and Family Bonding
+description: Card games offer great fun and learning for tweens. They help develop
+  thinking, social skills, and keep kids entertained. Choosing the best card games
+  for tween
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-tweens-to-boost-fun-and-family-bonding&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-tweens-to-boost-fun-and-family-bonding&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Card games offer great fun and learning for tweens. They help develop thinking, social skills, and keep kids entertained.**

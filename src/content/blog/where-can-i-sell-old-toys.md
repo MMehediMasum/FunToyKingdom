@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sell Old Toys: Top Places to Get Cash Fast"
-description: "Do you have old toys gathering dust in your attic or closet? You might be surprised to learn that those toys could be worth more than you think. Selling your ol"
+title: 'Where Can I Sell Old Toys: Top Places to Get Cash Fast'
+description: Do you have old toys gathering dust in your attic or closet? You might
+  be surprised to learn that those toys could be worth more than you think. Selling
+  your ol
 pubDate: 2025-09-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sell-old-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sell-old-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have old toys gathering dust in your attic or closet? You might be surprised to learn that those toys could be worth more than you think.**

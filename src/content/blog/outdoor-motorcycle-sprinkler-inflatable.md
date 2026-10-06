@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Motorcycle Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into the ultimate fun zone where your motorcycle meets refreshing water play. With an outdoor motorcycle sprinkler inflatable, you"
+title: 'Outdoor Motorcycle Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into the ultimate fun zone where your motorcycle
+  meets refreshing water play. With an outdoor motorcycle sprinkler inflatable, you
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-motorcycle-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-motorcycle-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where your motorcycle meets refreshing water play. With an outdoor motorcycle sprinkler inflatable, you get the best of both worlds—exciting riding fun and cool, splashy relief on hot days.**

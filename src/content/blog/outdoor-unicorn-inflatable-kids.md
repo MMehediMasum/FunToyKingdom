@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Unicorn Inflatable Kids: Magical Fun for Active Playtime"
-description: "Imagine your kids’ faces lighting up with pure joy as they run around and play with a magical outdoor unicorn inflatable. You want to give your children a fun, "
+title: 'Outdoor Unicorn Inflatable Kids: Magical Fun for Active Playtime'
+description: 'Imagine your kids’ faces lighting up with pure joy as they run around
+  and play with a magical outdoor unicorn inflatable. You want to give your children
+  a fun, '
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-unicorn-inflatable-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Unicorn Pool Float
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-unicorn-inflatable-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids’ faces lighting up with pure joy as they run around and play with a magical outdoor unicorn inflatable. You want to give your children a fun, safe, and colorful way to enjoy the outdoors, and this is exactly what an outdoor unicorn inflatable can offer.**

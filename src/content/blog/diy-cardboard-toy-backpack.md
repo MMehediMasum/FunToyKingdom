@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Backpack: Easy, Fun, and Eco-Friendly Craft Ideas"
-description: "Looking for a fun and creative project that you and your kids can enjoy together? A DIY cardboard toy backpack is the perfect way to turn simple materials into "
+title: 'Diy Cardboard Toy Backpack: Easy, Fun, and Eco-Friendly Craft Ideas'
+description: 'Looking for a fun and creative project that you and your kids can enjoy
+  together? A DIY cardboard toy backpack is the perfect way to turn simple materials
+  into '
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-backpack&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-backpack&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative project that you and your kids can enjoy together? A DIY cardboard toy backpack is the perfect way to turn simple materials into something exciting and useful.**

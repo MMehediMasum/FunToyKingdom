@@ -1,10 +1,14 @@
 ---
-title: "Best 3D Prints for Board Games: Top Custom Accessories and Tokens"
-description: "3D prints add fun and function to board games. They enhance gameplay with unique, custom accessories. Board game lovers enjoy using 3D printed pieces to replace"
+title: 'Best 3D Prints for Board Games: Top Custom Accessories and Tokens'
+description: 3D prints add fun and function to board games. They enhance gameplay
+  with unique, custom accessories. Board game lovers enjoy using 3D printed pieces
+  to replace
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-3d-prints-for-board-games-top-custom-accessories-and-tokens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-3d-prints-for-board-games-top-custom-accessories-and-tokens&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **3D prints add fun and function to board games. They enhance gameplay with unique, custom accessories.**

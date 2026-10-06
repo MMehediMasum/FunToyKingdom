@@ -1,10 +1,14 @@
 ---
-title: "Climbing Toys for 18 Month Old: Safe, Fun & Developmental Picks"
-description: "Are you looking for the perfect climbing toys for your 18-month-old? At this age, your little one is bursting with energy and curiosity. They want to explore, c"
+title: 'Climbing Toys for 18 Month Old: Safe, Fun & Developmental Picks'
+description: Are you looking for the perfect climbing toys for your 18-month-old?
+  At this age, your little one is bursting with energy and curiosity. They want to
+  explore, c
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=climbing-toys-for-18-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=climbing-toys-for-18-month-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect climbing toys for your 18-month-old? At this age, your little one is bursting with energy and curiosity.**

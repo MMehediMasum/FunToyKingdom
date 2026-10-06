@@ -1,10 +1,13 @@
 ---
-title: "Ron Weasley Action Figure: Ultimate Collectible for Harry Potter Fans"
-description: "Are you a fan of the magical world of Harry Potter? Imagine holding your very own Ron Weasley action figure—detailed, lifelike, and ready to bring your favorite"
+title: 'Ron Weasley Action Figure: Ultimate Collectible for Harry Potter Fans'
+description: Are you a fan of the magical world of Harry Potter? Imagine holding your
+  very own Ron Weasley action figure—detailed, lifelike, and ready to bring your favorite
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=ron-weasley-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=ron-weasley-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of the magical world of Harry Potter? Imagine holding your very own Ron Weasley action figure—detailed, lifelike, and ready to bring your favorite scenes to life.**

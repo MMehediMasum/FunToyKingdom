@@ -1,10 +1,13 @@
 ---
-title: "Diy Toy Kitchen from Wood: Easy Steps for a Stunning Build"
-description: "Imagine giving your child a toy that sparks creativity, encourages learning, and lasts for years—all made by you. A DIY toy kitchen from wood is more than just "
+title: 'Diy Toy Kitchen from Wood: Easy Steps for a Stunning Build'
+description: 'Imagine giving your child a toy that sparks creativity, encourages learning,
+  and lasts for years—all made by you. A DIY toy kitchen from wood is more than just '
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-kitchen-from-wood&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-kitchen-from-wood&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages learning, and lasts for years—all made by you. A DIY toy kitchen from wood is more than just a playset; it’s a chance to build something special with your own hands.**

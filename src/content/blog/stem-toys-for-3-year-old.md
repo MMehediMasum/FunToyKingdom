@@ -1,10 +1,14 @@
 ---
-title: "Stem Toys for 3 Year Old: Top Picks to Boost Early Learning"
-description: "Are you looking for the perfect way to boost your 3-year-old’s learning while keeping playtime fun? Stem toys for 3 year olds are designed to spark curiosity an"
+title: 'Stem Toys for 3 Year Old: Top Picks to Boost Early Learning'
+description: Are you looking for the perfect way to boost your 3-year-old’s learning
+  while keeping playtime fun? Stem toys for 3 year olds are designed to spark curiosity
+  an
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-toys-for-3-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect way to boost your 3-year-old’s learning while keeping playtime fun? Stem toys for 3 year olds are designed to spark curiosity and build essential skills from an early age.**

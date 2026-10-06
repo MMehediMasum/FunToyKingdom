@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Cat Inflatable Pool Toy: Ultimate Summer Fun for Pets"
-description: "Imagine your outdoor space turning into a fun and refreshing playground for your cat. An outdoor cat inflatable pool toy isn’t just a cool accessory—it’s a way "
+title: 'Outdoor Cat Inflatable Pool Toy: Ultimate Summer Fun for Pets'
+description: 'Imagine your outdoor space turning into a fun and refreshing playground
+  for your cat. An outdoor cat inflatable pool toy isn’t just a cool accessory—it’s
+  a way '
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-cat-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-cat-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your outdoor space turning into a fun and refreshing playground for your cat. An outdoor cat inflatable pool toy isn’t just a cool accessory—it’s a way to keep your furry friend entertained and comfortable during warm days.**

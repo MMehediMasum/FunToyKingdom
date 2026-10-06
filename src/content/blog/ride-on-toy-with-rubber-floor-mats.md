@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Rubber Floor Mats: Ultimate Safety & Comfort Guide"
-description: "Looking for the perfect ride on toy that keeps your child safe and your floors protected? You’ve come to the right place. Ride on toys bring endless fun and exc"
+title: 'Ride on Toy With Rubber Floor Mats: Ultimate Safety & Comfort Guide'
+description: Looking for the perfect ride on toy that keeps your child safe and your
+  floors protected? You’ve come to the right place. Ride on toys bring endless fun
+  and exc
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-rubber-floor-mats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-rubber-floor-mats&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect ride on toy that keeps your child safe and your floors protected? You’ve come to the right place.**

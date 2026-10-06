@@ -1,10 +1,14 @@
 ---
-title: "Classic Infant Toys: Top Picks for Engaging and Safe Baby Playtime"
-description: "Classic infant toys have stood the test of time for good reason. They help babies learn while having fun. These toys focus on simple shapes, bright colors, and "
+title: 'Classic Infant Toys: Top Picks for Engaging and Safe Baby Playtime'
+description: 'Classic infant toys have stood the test of time for good reason. They
+  help babies learn while having fun. These toys focus on simple shapes, bright colors,
+  and '
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=classic-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=classic-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Classic infant toys have stood the test of time for good reason. They help babies learn while having fun.**

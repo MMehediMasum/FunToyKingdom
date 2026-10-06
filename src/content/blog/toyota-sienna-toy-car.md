@@ -1,10 +1,14 @@
 ---
-title: "Toyota Sienna Toy Car: Realistic Diecast Model with Lights and Sound"
-description: "The Toyota Sienna toy car offers a fun and detailed replica for kids and collectors. It features sound, lights, and realistic design in various colors. This 1:2"
+title: 'Toyota Sienna Toy Car: Realistic Diecast Model with Lights and Sound'
+description: The Toyota Sienna toy car offers a fun and detailed replica for kids
+  and collectors. It features sound, lights, and realistic design in various colors.
+  This 1:2
 pubDate: 2026-02-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyota-sienna-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toyota-sienna-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **The Toyota Sienna toy car offers a fun and detailed replica for kids and collectors. It features sound, lights, and realistic design in various colors.**

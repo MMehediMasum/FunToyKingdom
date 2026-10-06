@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Telescope Beginner Kids: Fun Tips for Stargazing Success"
-description: "Are you looking for a fun and exciting way to spark your child’s curiosity about the stars? An outdoor telescope for beginner kids is the perfect tool to open u"
+title: 'Outdoor Telescope Beginner Kids: Fun Tips for Stargazing Success'
+description: Are you looking for a fun and exciting way to spark your child’s curiosity
+  about the stars? An outdoor telescope for beginner kids is the perfect tool to open
+  u
 pubDate: 2026-06-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-telescope-beginner-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-telescope-beginner-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s curiosity about the stars? An outdoor telescope for beginner kids is the perfect tool to open up a whole new world right in your backyard.**

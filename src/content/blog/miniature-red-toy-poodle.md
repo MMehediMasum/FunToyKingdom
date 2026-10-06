@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Red Toy Poodle: Best Durable and Fun Chew Toys for Small Dogs"
 description: "The Miniature Red Toy Poodle is a small, lively dog with a beautiful red coat. This breed is known for its intelligence and playful nature. Miniature Red Toy Po"
 pubDate: 2026-02-10

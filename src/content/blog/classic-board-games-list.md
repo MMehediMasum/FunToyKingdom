@@ -1,10 +1,14 @@
 ---
-title: "Classic Board Games List: Ultimate Must-Have Favorites Reviewed"
-description: "Are you looking for the perfect way to bring fun and excitement back to your game nights? Classic board games never go out of style, and they have a special way"
+title: 'Classic Board Games List: Ultimate Must-Have Favorites Reviewed'
+description: Are you looking for the perfect way to bring fun and excitement back
+  to your game nights? Classic board games never go out of style, and they have a
+  special way
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=classic-board-games-list&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=classic-board-games-list&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for the perfect way to bring fun and excitement back to your game nights? Classic board games never go out of style, and they have a special way of bringing people closer.**

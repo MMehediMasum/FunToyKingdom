@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Unicorn Craft: Easy Steps for Magical Fun"
-description: "Are you looking for a fun and creative project that brings magic to life? Making your own wooden toy unicorn is easier than you think, and it’s a perfect way to"
+title: 'Diy Wooden Toy Unicorn Craft: Easy Steps for Magical Fun'
+description: Are you looking for a fun and creative project that brings magic to life?
+  Making your own wooden toy unicorn is easier than you think, and it’s a perfect
+  way to
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-unicorn-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-unicorn-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings magic to life? Making your own wooden toy unicorn is easier than you think, and it’s a perfect way to add a personal touch to your child's playtime or your home decor.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sell My Vintage Toys: Top Places to Get Cash Fast"
-description: "Do you have vintage toys gathering dust and wonder, “Where can I sell my vintage toys?” You’re not alone. These treasures hold more than just memories—they can "
+title: 'Where Can I Sell My Vintage Toys: Top Places to Get Cash Fast'
+description: 'Do you have vintage toys gathering dust and wonder, “Where can I sell
+  my vintage toys?” You’re not alone. These treasures hold more than just memories—they
+  can '
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sell-my-vintage-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sell-my-vintage-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Do you have vintage toys gathering dust and wonder, “Where can I sell my vintage toys?” You’re not alone. These treasures hold more than just memories—they can be valuable.**

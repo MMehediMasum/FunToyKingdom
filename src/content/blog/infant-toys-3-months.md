@@ -1,10 +1,13 @@
 ---
-title: "Infant Toys 3 Months: Top Must-Have Playtime Essentials for Babies"
-description: "Infant toys for 3 months help babies grow and explore their world safely. These toys support muscle strength, sensory skills, and hand-eye coordination. Choosin"
+title: 'Infant Toys 3 Months: Top Must-Have Playtime Essentials for Babies'
+description: Infant toys for 3 months help babies grow and explore their world safely.
+  These toys support muscle strength, sensory skills, and hand-eye coordination. Choosin
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-3-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-3-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant toys for 3 months help babies grow and explore their world safely. These toys support muscle strength, sensory skills, and hand-eye coordination.**

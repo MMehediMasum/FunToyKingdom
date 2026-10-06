@@ -1,10 +1,14 @@
 ---
-title: "Kids Boomerang Outdoor Toy: Ultimate Fun for Active Playtime"
-description: "Looking for a fun way to get your kids outside and moving? A kids boomerang outdoor toy might be just what you need. It’s simple, exciting, and perfect for kids"
+title: 'Kids Boomerang Outdoor Toy: Ultimate Fun for Active Playtime'
+description: Looking for a fun way to get your kids outside and moving? A kids boomerang
+  outdoor toy might be just what you need. It’s simple, exciting, and perfect for
+  kids
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-boomerang-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=kids-boomerang-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids outside and moving? A kids boomerang outdoor toy might be just what you need.**

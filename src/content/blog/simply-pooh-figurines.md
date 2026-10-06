@@ -1,10 +1,14 @@
 ---
-title: "Simply Pooh Figurines: Charming Collectibles for Every Winnie the Pooh Fan"
-description: "Simply Pooh Figurines capture the timeless charm of Winnie the Pooh and his friends. Perfect for collectors and fans alike. These delightful figurines bring to "
+title: 'Simply Pooh Figurines: Charming Collectibles for Every Winnie the Pooh Fan'
+description: 'Simply Pooh Figurines capture the timeless charm of Winnie the Pooh
+  and his friends. Perfect for collectors and fans alike. These delightful figurines
+  bring to '
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=simply-pooh-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=simply-pooh-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Simply Pooh Figurines capture the timeless charm of Winnie the Pooh and his friends. Perfect for collectors and fans alike.**

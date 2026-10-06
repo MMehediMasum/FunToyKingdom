@@ -1,10 +1,14 @@
 ---
-title: "Nissan Toy Car: Top Diecast Models with Sound, Light, and Pull Back Features"
-description: "Nissan toy cars bring excitement to collectors and kids alike. These detailed models capture the spirit of Nissan’s iconic vehicles. Nissan toy cars come in man"
+title: 'Nissan Toy Car: Top Diecast Models with Sound, Light, and Pull Back Features'
+description: Nissan toy cars bring excitement to collectors and kids alike. These
+  detailed models capture the spirit of Nissan’s iconic vehicles. Nissan toy cars
+  come in man
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nissan-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=nissan-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Nissan toy cars bring excitement to collectors and kids alike. These detailed models capture the spirit of Nissan’s iconic vehicles.**

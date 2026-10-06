@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Glider Kite Airplane: Ultimate Fun for All Ages!"
-description: "Imagine holding a sleek glider kite airplane in your hands, ready to soar through the open sky. You can feel the rush of excitement as it catches the wind and g"
+title: 'Outdoor Glider Kite Airplane: Ultimate Fun for All Ages!'
+description: Imagine holding a sleek glider kite airplane in your hands, ready to
+  soar through the open sky. You can feel the rush of excitement as it catches the
+  wind and g
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-glider-kite-airplane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Frisbee Kids Play
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-glider-kite-airplane&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine holding a sleek glider kite airplane in your hands, ready to soar through the open sky. You can feel the rush of excitement as it catches the wind and glides smoothly above you.**

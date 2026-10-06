@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Puzzles DIY: Creative Ideas for Fun & Learning"
-description: "Are you looking for a fun and creative way to make something special with your own hands? Wooden toy puzzles DIY projects are the perfect way to combine playtim"
+title: 'Wooden Toy Puzzles DIY: Creative Ideas for Fun & Learning'
+description: Are you looking for a fun and creative way to make something special
+  with your own hands? Wooden toy puzzles DIY projects are the perfect way to combine
+  playtim
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-puzzles-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Puzzles For Toddlers Top
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-puzzles-diy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and creative way to make something special with your own hands? Wooden toy puzzles DIY projects are the perfect way to combine playtime with crafting.**

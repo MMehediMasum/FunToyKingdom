@@ -1,10 +1,14 @@
 ---
-title: "Best Bath Toys for Newborns: Safe, Fun, and Engaging Picks"
-description: "Bath time becomes fun and safe with the best bath toys for newborns. These toys help babies enjoy water while developing skills. Choosing the right bath toys ma"
+title: 'Best Bath Toys for Newborns: Safe, Fun, and Engaging Picks'
+description: Bath time becomes fun and safe with the best bath toys for newborns.
+  These toys help babies enjoy water while developing skills. Choosing the right bath
+  toys ma
 pubDate: 2025-10-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bath-toys-for-newborns-safe-fun-and-engaging-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-bath-toys-for-newborns-safe-fun-and-engaging-picks&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Bath time becomes fun and safe with the best bath toys for newborns. These toys help babies enjoy water while developing skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Horn And Siren Sounds: Ultimate Fun for Kids!"
-description: "Looking for a fun and exciting toy that will keep your child entertained for hours? A ride on toy with horn and siren sounds is just what you need! Imagine your"
+title: 'Ride on Toy With Horn And Siren Sounds: Ultimate Fun for Kids!'
+description: Looking for a fun and exciting toy that will keep your child entertained
+  for hours? A ride on toy with horn and siren sounds is just what you need! Imagine
+  your
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-horn-and-siren-sounds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-horn-and-siren-sounds&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting toy that will keep your child entertained for hours? A ride on toy with horn and siren sounds is just what you need!**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 10Th Anniversary Edition DVD: Ultimate Collector’s Must-Have Guide"
 description: "\"Toy Story - 10th Anniversary Edition [DVD]\" celebrates a decade of animated magic. Released in 2005, it brings nostalgia and joy. This special edition DVD capt"
 pubDate: 2026-03-10

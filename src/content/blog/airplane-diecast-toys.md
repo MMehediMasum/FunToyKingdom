@@ -1,10 +1,14 @@
 ---
-title: "Airplane Diecast Toys: Top Military & Airline Models for Kids"
-description: "Airplane diecast toys capture the excitement of flight in small, detailed models. Kids and collectors enjoy these sturdy, realistic miniature airplanes. These t"
+title: 'Airplane Diecast Toys: Top Military & Airline Models for Kids'
+description: Airplane diecast toys capture the excitement of flight in small, detailed
+  models. Kids and collectors enjoy these sturdy, realistic miniature airplanes. These
+  t
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=airplane-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=airplane-diecast-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Airplane diecast toys capture the excitement of flight in small, detailed models. Kids and collectors enjoy these sturdy, realistic miniature airplanes.**

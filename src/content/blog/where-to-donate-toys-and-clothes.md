@@ -1,10 +1,14 @@
 ---
-title: "Where to Donate Toys And Clothes: Top Charities That Truly Help"
-description: "Are you wondering where to donate toys and clothes so they truly make a difference? You have items that could bring joy and comfort to someone else, but finding"
+title: 'Where to Donate Toys And Clothes: Top Charities That Truly Help'
+description: Are you wondering where to donate toys and clothes so they truly make
+  a difference? You have items that could bring joy and comfort to someone else, but
+  finding
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-donate-toys-and-clothes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-to-donate-toys-and-clothes&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where to donate toys and clothes so they truly make a difference? You have items that could bring joy and comfort to someone else, but finding the right place can feel overwhelming.**

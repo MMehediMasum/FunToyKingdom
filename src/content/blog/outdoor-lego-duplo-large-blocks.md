@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Lego Duplo Large Blocks: Ultimate Fun for Active Kids"
-description: "Are you looking for a fun and safe way to keep your little ones entertained outside? Outdoor Lego Duplo Large Blocks might be just what you need. These colorful"
+title: 'Outdoor Lego Duplo Large Blocks: Ultimate Fun for Active Kids'
+description: Are you looking for a fun and safe way to keep your little ones entertained
+  outside? Outdoor Lego Duplo Large Blocks might be just what you need. These colorful
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-lego-duplo-large-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-lego-duplo-large-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and safe way to keep your little ones entertained outside? Outdoor Lego Duplo Large Blocks might be just what you need.**

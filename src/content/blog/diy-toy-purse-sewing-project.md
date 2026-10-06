@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Purse Sewing Project: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and creative project that you can finish in just a few hours? A DIY toy purse sewing project is the perfect way to bring your imaginat"
+title: 'Diy Toy Purse Sewing Project: Easy Steps for Creative Fun'
+description: Are you looking for a fun and creative project that you can finish in
+  just a few hours? A DIY toy purse sewing project is the perfect way to bring your
+  imaginat
 pubDate: 2026-07-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-purse-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-purse-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can finish in just a few hours? A DIY toy purse sewing project is the perfect way to bring your imagination to life while making something cute and useful.**

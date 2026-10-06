@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Play Toys for Preschoolers: Top Fun and Educational Picks"
-description: "Outdoor play toys for preschoolers boost physical skills and spark creativity. These toys keep kids active and entertained outside. Choosing the right outdoor t"
+title: 'Outdoor Play Toys for Preschoolers: Top Fun and Educational Picks'
+description: Outdoor play toys for preschoolers boost physical skills and spark creativity.
+  These toys keep kids active and entertained outside. Choosing the right outdoor
+  t
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-play-toys-for-preschoolers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Preschoolers
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-play-toys-for-preschoolers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Outdoor play toys for preschoolers boost physical skills and spark creativity. These toys keep kids active and entertained outside.**

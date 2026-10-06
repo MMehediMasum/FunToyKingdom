@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Investing in Collectible Toy Figurines: Profitable Tips & Trends"
 description: "Have you ever held a small toy figurine and wondered if it could be more than just a keepsake? Investing in collectible toy figurines might be the hidden opport"
 pubDate: 2025-10-10

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Car Booster Seat: Top Safe and Fun Booster Seats for Kids"
 description: "Choosing the right car booster seat ensures your child's safety and comfort during every ride. Toy Story car booster seats combine fun designs with reliable pro"
 pubDate: 2026-03-02

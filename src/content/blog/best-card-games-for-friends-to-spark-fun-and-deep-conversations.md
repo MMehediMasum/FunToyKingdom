@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for Friends to Spark Fun and Deep Conversations"
-description: "Card games bring friends together for fun and laughter. They create great memories and spark interesting conversations. Playing card games with friends can turn"
+title: Best Card Games for Friends to Spark Fun and Deep Conversations
+description: Card games bring friends together for fun and laughter. They create great
+  memories and spark interesting conversations. Playing card games with friends can
+  turn
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-friends-to-spark-fun-and-deep-conversations&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-friends-to-spark-fun-and-deep-conversations&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Card games bring friends together for fun and laughter. They create great memories and spark interesting conversations.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Buggy With Durable Frame: Ultimate Strength for Rough Trails"
-description: "Are you tired of RC buggies that break just when the fun is getting started? Imagine having a buggy with a durable frame that can handle every jump, bump, and c"
+title: 'Rc Buggy With Durable Frame: Ultimate Strength for Rough Trails'
+description: Are you tired of RC buggies that break just when the fun is getting started?
+  Imagine having a buggy with a durable frame that can handle every jump, bump, and
+  c
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-buggy-with-durable-frame&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-buggy-with-durable-frame&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of RC buggies that break just when the fun is getting started? Imagine having a buggy with a durable frame that can handle every jump, bump, and crash without missing a beat.**

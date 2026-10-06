@@ -1,10 +1,14 @@
 ---
-title: "Diecast Construction Toys: Top Mini Trucks for Kids’ Outdoor Fun"
-description: "Diecast construction toys captivate both children and collectors alike. Their realistic designs and durable materials offer endless imaginative play. Diecast co"
+title: 'Diecast Construction Toys: Top Mini Trucks for Kids’ Outdoor Fun'
+description: Diecast construction toys captivate both children and collectors alike.
+  Their realistic designs and durable materials offer endless imaginative play. Diecast
+  co
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-construction-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-construction-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast construction toys captivate both children and collectors alike. Their realistic designs and durable materials offer endless imaginative play.**

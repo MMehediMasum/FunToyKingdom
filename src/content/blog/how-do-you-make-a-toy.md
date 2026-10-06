@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Toy: Easy Steps to Craft Fun Creations"
-description: "Have you ever wondered how you can make a toy yourself? Imagine holding a unique toy that you created with your own hands—something special that no one else has"
+title: 'How Do You Make a Toy: Easy Steps to Craft Fun Creations'
+description: Have you ever wondered how you can make a toy yourself? Imagine holding
+  a unique toy that you created with your own hands—something special that no one
+  else has
 pubDate: 2025-09-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how you can make a toy yourself? Imagine holding a unique toy that you created with your own hands—something special that no one else has.**

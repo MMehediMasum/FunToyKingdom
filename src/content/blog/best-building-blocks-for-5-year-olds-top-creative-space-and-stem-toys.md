@@ -1,10 +1,13 @@
 ---
-title: "Best Building Blocks for 5 Year Olds: Top Creative Space and STEM Toys"
-description: "Choosing the best building blocks for 5 year olds helps boost creativity and fine motor skills. Blocks that match their interests keep playtime fun and engaging"
+title: 'Best Building Blocks for 5 Year Olds: Top Creative Space and STEM Toys'
+description: Choosing the best building blocks for 5 year olds helps boost creativity
+  and fine motor skills. Blocks that match their interests keep playtime fun and engaging
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-building-blocks-for-5-year-olds-top-creative-space-and-stem-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Blocks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-building-blocks-for-5-year-olds-top-creative-space-and-stem-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Choosing the best building blocks for 5 year olds helps boost creativity and fine motor skills. Blocks that match their interests keep playtime fun and engaging.**

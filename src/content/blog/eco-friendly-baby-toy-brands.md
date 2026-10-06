@@ -1,10 +1,14 @@
 ---
-title: "Eco-Friendly Baby Toy Brands: Top Safe & Sustainable Picks"
-description: "Choosing the right toys for your baby is more than just picking something fun. It’s about keeping your little one safe and protecting the planet they’ll grow up"
+title: 'Eco-Friendly Baby Toy Brands: Top Safe & Sustainable Picks'
+description: Choosing the right toys for your baby is more than just picking something
+  fun. It’s about keeping your little one safe and protecting the planet they’ll grow
+  up
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=eco-friendly-baby-toy-brands&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=eco-friendly-baby-toy-brands&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for your baby is more than just picking something fun. It’s about keeping your little one safe and protecting the planet they’ll grow up in.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Set: Ultimate Action Figures and Playsets for Kids"
-description: "The Toy Story Set brings favorite characters to life for hours of fun. Kids can play with Woody, Buzz Lightyear, and many others. This collection includes actio"
+title: 'Toy Story Set: Ultimate Action Figures and Playsets for Kids'
+description: The Toy Story Set brings favorite characters to life for hours of fun.
+  Kids can play with Woody, Buzz Lightyear, and many others. This collection includes
+  actio
 pubDate: 2026-02-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Set brings favorite characters to life for hours of fun. Kids can play with Woody, Buzz Lightyear, and many others.**

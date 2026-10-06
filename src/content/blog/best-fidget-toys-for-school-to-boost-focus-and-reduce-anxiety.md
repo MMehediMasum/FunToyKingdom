@@ -1,10 +1,14 @@
 ---
-title: "Best Fidget Toys for School to Boost Focus and Reduce Anxiety"
-description: "Fidget toys help students focus and reduce stress during school hours. These small tools improve attention and calm nerves in classrooms. Choosing the best fidg"
+title: Best Fidget Toys for School to Boost Focus and Reduce Anxiety
+description: Fidget toys help students focus and reduce stress during school hours.
+  These small tools improve attention and calm nerves in classrooms. Choosing the
+  best fidg
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fidget-toys-for-school-to-boost-focus-and-reduce-anxiety&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Fidget Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=best-fidget-toys-for-school-to-boost-focus-and-reduce-anxiety&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Fidget toys help students focus and reduce stress during school hours. These small tools improve attention and calm nerves in classrooms.**

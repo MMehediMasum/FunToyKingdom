@@ -1,10 +1,14 @@
 ---
-title: "Slackline Trickline Kit for Teens: Ultimate Fun & Skill Booster"
-description: "Are you looking for a fun and exciting way to challenge your balance and coordination? The Slackline Trickline Kit for Teens is exactly what you need to take yo"
+title: 'Slackline Trickline Kit for Teens: Ultimate Fun & Skill Booster'
+description: Are you looking for a fun and exciting way to challenge your balance
+  and coordination? The Slackline Trickline Kit for Teens is exactly what you need
+  to take yo
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=slackline-trickline-kit-for-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=slackline-trickline-kit-for-teens&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and exciting way to challenge your balance and coordination? The Slackline Trickline Kit for Teens is exactly what you need to take your outdoor play to the next level.**

@@ -1,10 +1,14 @@
 ---
-title: "Autistic Sensory Toys: Top Fidget Sets for Stress Relief and Focus"
-description: "Autistic sensory toys help children and adults manage sensory needs and reduce stress. These toys offer calming effects through touch, sound, and movement. Sens"
+title: 'Autistic Sensory Toys: Top Fidget Sets for Stress Relief and Focus'
+description: Autistic sensory toys help children and adults manage sensory needs and
+  reduce stress. These toys offer calming effects through touch, sound, and movement.
+  Sens
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=autistic-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=autistic-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Autistic sensory toys help children and adults manage sensory needs and reduce stress. These toys offer calming effects through touch, sound, and movement.**

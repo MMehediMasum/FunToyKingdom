@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Kiteboarding Trainer Kite: Master Skills Fast & Safe"
-description: "Are you ready to take your kiteboarding skills to the next level? An outdoor kiteboarding trainer kite could be exactly what you need to build confidence and ma"
+title: 'Outdoor Kiteboarding Trainer Kite: Master Skills Fast & Safe'
+description: Are you ready to take your kiteboarding skills to the next level? An
+  outdoor kiteboarding trainer kite could be exactly what you need to build confidence
+  and ma
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-kiteboarding-trainer-kite&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-kiteboarding-trainer-kite&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your kiteboarding skills to the next level? An outdoor kiteboarding trainer kite could be exactly what you need to build confidence and master the basics safely.**

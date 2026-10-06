@@ -1,10 +1,14 @@
 ---
-title: "Large Outdoor Toy Soldier Decorations: Stunning Holiday Yard Ideas"
-description: "Are you looking to add a bold and playful touch to your outdoor space? Large outdoor toy soldier decorations might be exactly what your yard needs. These eye-ca"
+title: 'Large Outdoor Toy Soldier Decorations: Stunning Holiday Yard Ideas'
+description: Are you looking to add a bold and playful touch to your outdoor space?
+  Large outdoor toy soldier decorations might be exactly what your yard needs. These
+  eye-ca
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=large-outdoor-toy-soldier-decorations&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=large-outdoor-toy-soldier-decorations&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking to add a bold and playful touch to your outdoor space? Large outdoor toy soldier decorations might be exactly what your yard needs.**

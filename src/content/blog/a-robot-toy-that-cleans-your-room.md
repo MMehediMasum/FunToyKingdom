@@ -1,10 +1,14 @@
 ---
-title: "A Robot Toy That Cleans Your Room: Ultimate Fun & Tidy Space"
-description: "Imagine coming home to a spotless room without lifting a finger. What if a little robot toy could do all the cleaning for you? Yes, a smart, fun gadget that tid"
+title: 'A Robot Toy That Cleans Your Room: Ultimate Fun & Tidy Space'
+description: Imagine coming home to a spotless room without lifting a finger. What
+  if a little robot toy could do all the cleaning for you? Yes, a smart, fun gadget
+  that tid
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-robot-toy-that-cleans-your-room&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=a-robot-toy-that-cleans-your-room&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine coming home to a spotless room without lifting a finger. What if a little robot toy could do all the cleaning for you?**

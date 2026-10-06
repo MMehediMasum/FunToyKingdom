@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Long Range Controller: Ultimate Guide for Maximum Fun"
-description: "Are you tired of your RC car losing connection just when the fun starts? Imagine having full control, even when your car races far beyond the usual limits. A lo"
+title: 'Rc Car With Long Range Controller: Ultimate Guide for Maximum Fun'
+description: Are you tired of your RC car losing connection just when the fun starts?
+  Imagine having full control, even when your car races far beyond the usual limits.
+  A lo
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-long-range-controller&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-long-range-controller&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of your RC car losing connection just when the fun starts? Imagine having full control, even when your car races far beyond the usual limits.**

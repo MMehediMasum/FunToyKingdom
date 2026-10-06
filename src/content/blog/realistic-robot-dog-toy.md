@@ -1,10 +1,14 @@
 ---
-title: "Realistic Robot Dog Toy: Interactive Puppy That Walks and Barks"
-description: "Robot dog toys are captivating pet lovers and tech enthusiasts alike. These lifelike companions mimic real dogs, providing endless amusement. In recent years, r"
+title: 'Realistic Robot Dog Toy: Interactive Puppy That Walks and Barks'
+description: Robot dog toys are captivating pet lovers and tech enthusiasts alike.
+  These lifelike companions mimic real dogs, providing endless amusement. In recent
+  years, r
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=realistic-robot-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=realistic-robot-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot dog toys are captivating pet lovers and tech enthusiasts alike. These lifelike companions mimic real dogs, providing endless amusement.**

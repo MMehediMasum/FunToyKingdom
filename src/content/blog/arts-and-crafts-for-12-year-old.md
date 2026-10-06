@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 12 Year Old: Fun, Creative, and Easy Projects"
-description: "Are you looking for fun and creative ways to keep your 12-year-old busy and inspired? Arts and crafts are perfect for sparking imagination and building new skil"
+title: 'Arts And Crafts for 12 Year Old: Fun, Creative, and Easy Projects'
+description: Are you looking for fun and creative ways to keep your 12-year-old busy
+  and inspired? Arts and crafts are perfect for sparking imagination and building
+  new skil
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-12-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and creative ways to keep your 12-year-old busy and inspired? Arts and crafts are perfect for sparking imagination and building new skills.**

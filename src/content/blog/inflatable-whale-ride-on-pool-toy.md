@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Whale Ride on Pool Toy: Ultimate Summer Splash Fun!"
-description: "Looking for the perfect way to make your pool time unforgettable? The Inflatable Whale Ride on Pool Toy might just be what you need. Imagine yourself floating o"
+title: 'Inflatable Whale Ride on Pool Toy: Ultimate Summer Splash Fun!'
+description: Looking for the perfect way to make your pool time unforgettable? The
+  Inflatable Whale Ride on Pool Toy might just be what you need. Imagine yourself
+  floating o
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-whale-ride-on-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-whale-ride-on-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect way to make your pool time unforgettable? The Inflatable Whale Ride on Pool Toy might just be what you need.**

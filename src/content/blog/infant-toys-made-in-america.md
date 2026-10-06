@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys Made in America: Safe, Sensory, and Perfect for Baby Playtime"
-description: "Choosing the right toys for infants can be daunting, especially with so many options available. Many parents prefer toys made in America for quality and safety."
+title: 'Infant Toys Made in America: Safe, Sensory, and Perfect for Baby Playtime'
+description: Choosing the right toys for infants can be daunting, especially with
+  so many options available. Many parents prefer toys made in America for quality
+  and safety.
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-made-in-america&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-made-in-america&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for infants can be daunting, especially with so many options available. Many parents prefer toys made in America for quality and safety.**

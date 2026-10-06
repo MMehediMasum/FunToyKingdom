@@ -1,10 +1,13 @@
 ---
-title: "Wooden Toy Puzzle Box Craft: Creative Fun for Kids and Adults"
-description: "Imagine a toy that sparks creativity, sharpens the mind, and brings joy—all wrapped in a beautiful wooden box. That’s exactly what a Wooden Toy Puzzle Box Craft"
+title: 'Wooden Toy Puzzle Box Craft: Creative Fun for Kids and Adults'
+description: Imagine a toy that sparks creativity, sharpens the mind, and brings joy—all
+  wrapped in a beautiful wooden box. That’s exactly what a Wooden Toy Puzzle Box Craft
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-puzzle-box-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-puzzle-box-craft&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine a toy that sparks creativity, sharpens the mind, and brings joy—all wrapped in a beautiful wooden box. That’s exactly what a Wooden Toy Puzzle Box Craft offers you.**

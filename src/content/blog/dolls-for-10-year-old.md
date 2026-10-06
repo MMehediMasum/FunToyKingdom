@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 10 Year Old: Top Picks for Fun and Creativity"
-description: "Looking for the perfect doll for a 10-year-old can feel overwhelming. You want something that sparks joy, encourages creativity, and feels just right for their "
+title: 'Dolls for 10 Year Old: Top Picks for Fun and Creativity'
+description: 'Looking for the perfect doll for a 10-year-old can feel overwhelming.
+  You want something that sparks joy, encourages creativity, and feels just right
+  for their '
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-10-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Looking for the perfect doll for a 10-year-old can feel overwhelming. You want something that sparks joy, encourages creativity, and feels just right for their age.**

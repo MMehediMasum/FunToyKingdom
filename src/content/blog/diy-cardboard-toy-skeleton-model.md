@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Skeleton Model: Creative Fun for All Ages"
-description: "Are you looking for a fun and creative project that you can easily do at home? Building your own DIY cardboard toy skeleton model is a perfect way to bring a co"
+title: 'Diy Cardboard Toy Skeleton Model: Creative Fun for All Ages'
+description: Are you looking for a fun and creative project that you can easily do
+  at home? Building your own DIY cardboard toy skeleton model is a perfect way to
+  bring a co
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-skeleton-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-skeleton-model&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can easily do at home? Building your own DIY cardboard toy skeleton model is a perfect way to bring a cool, hands-on experience to your day.**

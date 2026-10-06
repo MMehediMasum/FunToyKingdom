@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Figurines: Easy Steps for Stunning Creations"
-description: "Have you ever wanted to create your own toy figurines that truly reflect your style and imagination? Making toy figurines is not only fun but also a rewarding w"
+title: 'How to Make Toy Figurines: Easy Steps for Stunning Creations'
+description: Have you ever wanted to create your own toy figurines that truly reflect
+  your style and imagination? Making toy figurines is not only fun but also a rewarding
+  w
 pubDate: 2025-10-12
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wanted to create your own toy figurines that truly reflect your style and imagination? Making toy figurines is not only fun but also a rewarding way to bring your ideas to life.**

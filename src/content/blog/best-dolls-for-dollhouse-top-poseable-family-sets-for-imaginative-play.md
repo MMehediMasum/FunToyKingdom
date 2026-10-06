@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for Dollhouse: Top Poseable Family Sets for Imaginative Play"
-description: "Choosing the best dolls for a dollhouse can make playtime more fun and creative. Small, poseable dolls bring the dollhouse to life with family members and pets."
+title: 'Best Dolls for Dollhouse: Top Poseable Family Sets for Imaginative Play'
+description: Choosing the best dolls for a dollhouse can make playtime more fun and
+  creative. Small, poseable dolls bring the dollhouse to life with family members
+  and pets.
 pubDate: 2025-09-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-dollhouse-top-poseable-family-sets-for-imaginative-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-dollhouse-top-poseable-family-sets-for-imaginative-play&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for a dollhouse can make playtime more fun and creative. Small, poseable dolls bring the dollhouse to life with family members and pets.**

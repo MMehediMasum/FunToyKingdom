@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for OT: Top Tools to Boost Kids’ Focus and Calm"
-description: "Sensory toys support occupational therapy by helping children improve focus, motor skills, and calm their minds. These tools offer fun and practical ways to aid"
+title: 'Sensory Toys for OT: Top Tools to Boost Kids’ Focus and Calm'
+description: Sensory toys support occupational therapy by helping children improve
+  focus, motor skills, and calm their minds. These tools offer fun and practical ways
+  to aid
 pubDate: 2026-08-02
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-ot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-ot&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys support occupational therapy by helping children improve focus, motor skills, and calm their minds. These tools offer fun and practical ways to aid kids with autism, ADHD, and anxiety.**

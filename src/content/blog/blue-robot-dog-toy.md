@@ -1,10 +1,14 @@
 ---
-title: "Blue Robot Dog Toy: Interactive Fun and Smart Playtime for Dogs"
-description: "Blue robot dog toys bring fun and activity to your pet’s playtime. These smart toys keep dogs busy and entertained for hours. Interactive blue robot dog toys co"
+title: 'Blue Robot Dog Toy: Interactive Fun and Smart Playtime for Dogs'
+description: Blue robot dog toys bring fun and activity to your pet’s playtime. These
+  smart toys keep dogs busy and entertained for hours. Interactive blue robot dog
+  toys co
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=blue-robot-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=blue-robot-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Blue robot dog toys bring fun and activity to your pet’s playtime. These smart toys keep dogs busy and entertained for hours.**

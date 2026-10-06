@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dump Truck Sprinkler Toy: Ultimate Summer Fun for Kids"
-description: "Imagine turning your backyard into a fun, splash-filled playground where your kids can play and cool off at the same time. The Outdoor Dump Truck Sprinkler Toy "
+title: 'Outdoor Dump Truck Sprinkler Toy: Ultimate Summer Fun for Kids'
+description: 'Imagine turning your backyard into a fun, splash-filled playground where
+  your kids can play and cool off at the same time. The Outdoor Dump Truck Sprinkler
+  Toy '
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dump-truck-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dump-truck-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun, splash-filled playground where your kids can play and cool off at the same time. The Outdoor Dump Truck Sprinkler Toy is designed to make that happen.**

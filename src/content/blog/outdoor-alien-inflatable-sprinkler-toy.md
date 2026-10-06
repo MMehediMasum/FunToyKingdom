@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Alien Inflatable Sprinkler Toy: Fun Water Play for Kids"
-description: "Looking for a fun and unique way to keep your kids cool this summer? The Outdoor Alien Inflatable Sprinkler Toy is just what you need. Imagine your backyard tur"
+title: 'Outdoor Alien Inflatable Sprinkler Toy: Fun Water Play for Kids'
+description: Looking for a fun and unique way to keep your kids cool this summer?
+  The Outdoor Alien Inflatable Sprinkler Toy is just what you need. Imagine your backyard
+  tur
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-alien-inflatable-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-alien-inflatable-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to keep your kids cool this summer? The Outdoor Alien Inflatable Sprinkler Toy is just what you need.**

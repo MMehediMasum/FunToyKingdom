@@ -1,10 +1,13 @@
 ---
-title: "Baby Walker Toy With Lights: Brighten Playtime and Boost Steps"
-description: "Are you looking for a fun and safe way to help your little one take their first steps? A baby walker toy with lights might be just what you need. These colorful"
+title: 'Baby Walker Toy With Lights: Brighten Playtime and Boost Steps'
+description: Are you looking for a fun and safe way to help your little one take their
+  first steps? A baby walker toy with lights might be just what you need. These colorful
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=baby-walker-toy-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=baby-walker-toy-with-lights&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe way to help your little one take their first steps? A baby walker toy with lights might be just what you need.**

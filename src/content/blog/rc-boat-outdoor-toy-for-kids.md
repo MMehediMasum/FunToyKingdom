@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat Outdoor Toy for Kids: Ultimate Fun and Adventure Guide"
-description: "Looking for a fun way to get your kids outside and active? An RC boat outdoor toy is the perfect choice. It’s exciting, easy to use, and brings hours of joy by "
+title: 'Rc Boat Outdoor Toy for Kids: Ultimate Fun and Adventure Guide'
+description: 'Looking for a fun way to get your kids outside and active? An RC boat
+  outdoor toy is the perfect choice. It’s exciting, easy to use, and brings hours
+  of joy by '
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-outdoor-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-outdoor-toy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a fun way to get your kids outside and active? An RC boat outdoor toy is the perfect choice.**

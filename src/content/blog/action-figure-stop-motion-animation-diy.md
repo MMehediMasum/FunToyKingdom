@@ -1,10 +1,14 @@
 ---
-title: "Action Figure Stop Motion Animation Diy: Ultimate Guide to Create Magic"
-description: "Have you ever wanted to bring your action figures to life and create your own mini-movies? With action figure stop motion animation, you can do just that—right "
+title: 'Action Figure Stop Motion Animation Diy: Ultimate Guide to Create Magic'
+description: 'Have you ever wanted to bring your action figures to life and create
+  your own mini-movies? With action figure stop motion animation, you can do just
+  that—right '
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=action-figure-stop-motion-animation-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=action-figure-stop-motion-animation-diy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wanted to bring your action figures to life and create your own mini-movies? With action figure stop motion animation, you can do just that—right at home, using simple tools and your creativity.**

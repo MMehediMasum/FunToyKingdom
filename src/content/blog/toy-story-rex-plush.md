@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Rex Plush: The Ultimate Cuddly Dinosaur for Fans"
-description: "The Toy Story Rex Plush is a soft, cuddly dinosaur loved by kids and collectors alike. This iconic character from Disney Pixar’s Toy Story brings fun and comfor"
+title: 'Toy Story Rex Plush: The Ultimate Cuddly Dinosaur for Fans'
+description: The Toy Story Rex Plush is a soft, cuddly dinosaur loved by kids and
+  collectors alike. This iconic character from Disney Pixar’s Toy Story brings fun
+  and comfor
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-rex-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Ball
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-rex-plush&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Rex Plush is a soft, cuddly dinosaur loved by kids and collectors alike. This iconic character from Disney Pixar’s Toy Story brings fun and comfort in every hug.**

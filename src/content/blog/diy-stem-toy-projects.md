@@ -1,10 +1,14 @@
 ---
-title: "Diy Stem Toy Projects: Fun, Easy, and Educational Ideas for Kids"
-description: "Looking for fun and creative ways to spark your child's curiosity? DIY STEM toy projects are the perfect way to do just that. You can build exciting toys that t"
+title: 'Diy Stem Toy Projects: Fun, Easy, and Educational Ideas for Kids'
+description: Looking for fun and creative ways to spark your child's curiosity? DIY
+  STEM toy projects are the perfect way to do just that. You can build exciting toys
+  that t
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-stem-toy-projects&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=diy-stem-toy-projects&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for fun and creative ways to spark your child's curiosity? DIY STEM toy projects are the perfect way to do just that.**

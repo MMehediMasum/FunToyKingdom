@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Costume Making Kit: Unleash Creativity with Fun Designs"
-description: "Are you looking for a fun and creative way to bring your child's favorite toy to life? A DIY Toy Costume Making Kit is exactly what you need. Imagine turning si"
+title: 'Diy Toy Costume Making Kit: Unleash Creativity with Fun Designs'
+description: Are you looking for a fun and creative way to bring your child's favorite
+  toy to life? A DIY Toy Costume Making Kit is exactly what you need. Imagine turning
+  si
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-costume-making-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-costume-making-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to bring your child's favorite toy to life? A DIY Toy Costume Making Kit is exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Truck Models: Top Diecast Picks for Collectors and Kids"
-description: "Toy truck models captivate both young and old enthusiasts. These miniature replicas offer a glimpse into automotive history and design. Exploring the world of t"
+title: 'Toy Truck Models: Top Diecast Picks for Collectors and Kids'
+description: Toy truck models captivate both young and old enthusiasts. These miniature
+  replicas offer a glimpse into automotive history and design. Exploring the world
+  of t
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-truck-models&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toy-truck-models&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy truck models captivate both young and old enthusiasts. These miniature replicas offer a glimpse into automotive history and design.**

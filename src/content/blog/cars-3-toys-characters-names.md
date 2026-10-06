@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Toys Characters Names: Ultimate Guide to Collectible Die-Cast Cars"
-description: "Explore the exciting world of Cars 3 toys and discover your favorite characters. From Lightning McQueen to Mater, these toys bring the movie magic to life. Cars"
+title: 'Cars 3 Toys Characters Names: Ultimate Guide to Collectible Die-Cast Cars'
+description: Explore the exciting world of Cars 3 toys and discover your favorite
+  characters. From Lightning McQueen to Mater, these toys bring the movie magic to
+  life. Cars
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-toys-characters-names&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-toys-characters-names&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Explore the exciting world of Cars 3 toys and discover your favorite characters. From Lightning McQueen to Mater, these toys bring the movie magic to life.**

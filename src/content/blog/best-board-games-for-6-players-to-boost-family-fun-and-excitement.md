@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games for 6 Players to Boost Family Fun and Excitement"
-description: "Finding the best board games for six players can make group game nights more fun and exciting. Games that fit six players keep everyone involved and entertained"
+title: Best Board Games for 6 Players to Boost Family Fun and Excitement
+description: Finding the best board games for six players can make group game nights
+  more fun and exciting. Games that fit six players keep everyone involved and entertained
 pubDate: 2025-12-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-6-players-to-boost-family-fun-and-excitement&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-6-players-to-boost-family-fun-and-excitement&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for six players can make group game nights more fun and exciting. Games that fit six players keep everyone involved and entertained.**

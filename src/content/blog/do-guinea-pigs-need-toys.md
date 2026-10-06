@@ -1,10 +1,14 @@
 ---
-title: "Do Guinea Pigs Need Toys: Essential Tips for Happy Pets"
-description: "Are you wondering if your guinea pig really needs toys? You might think they’re happy just munching on hay and nibbling pellets. But what if adding a few simple"
+title: 'Do Guinea Pigs Need Toys: Essential Tips for Happy Pets'
+description: Are you wondering if your guinea pig really needs toys? You might think
+  they’re happy just munching on hay and nibbling pellets. But what if adding a few
+  simple
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-guinea-pigs-need-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=do-guinea-pigs-need-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering if your guinea pig really needs toys? You might think they’re happy just munching on hay and nibbling pellets.**

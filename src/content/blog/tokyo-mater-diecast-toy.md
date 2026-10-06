@@ -1,10 +1,14 @@
 ---
-title: "Tokyo Mater Diecast Toy: Ultimate Collector’s Guide and Playtime Fun"
-description: "Tokyo Mater Diecast Toys bring the fun of Disney Pixar Cars to life in detailed miniature form. Fans and collectors enjoy these small, durable vehicles inspired"
+title: 'Tokyo Mater Diecast Toy: Ultimate Collector’s Guide and Playtime Fun'
+description: Tokyo Mater Diecast Toys bring the fun of Disney Pixar Cars to life in
+  detailed miniature form. Fans and collectors enjoy these small, durable vehicles
+  inspired
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tokyo-mater-diecast-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=tokyo-mater-diecast-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Tokyo Mater Diecast Toys bring the fun of Disney Pixar Cars to life in detailed miniature form. Fans and collectors enjoy these small, durable vehicles inspired by Mater’s adventures.**

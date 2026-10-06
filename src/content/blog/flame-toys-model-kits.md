@@ -1,10 +1,15 @@
 ---
-title: "Flame Toys Model Kits: Ultimate Collectible Transformers and Mecha Figures Guide"
-description: "Flame Toys model kits offer detailed and fun building experiences for collectors and hobbyists. These kits include popular figures like Transformers, Mechas, an"
+title: 'Flame Toys Model Kits: Ultimate Collectible Transformers and Mecha Figures
+  Guide'
+description: Flame Toys model kits offer detailed and fun building experiences for
+  collectors and hobbyists. These kits include popular figures like Transformers,
+  Mechas, an
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=flame-toys-model-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=flame-toys-model-kits&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Flame Toys model kits offer detailed and fun building experiences for collectors and hobbyists. These kits include popular figures like Transformers, Mechas, and more.**

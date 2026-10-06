@@ -1,10 +1,14 @@
 ---
-title: "Floorball Set for Kids Outdoor Play: Ultimate Fun & Active Adventure"
-description: "Are you looking for a fun and active way to get your kids playing outside? A floorball set for kids outdoor play might be just what you need. It’s easy to learn"
+title: 'Floorball Set for Kids Outdoor Play: Ultimate Fun & Active Adventure'
+description: Are you looking for a fun and active way to get your kids playing outside?
+  A floorball set for kids outdoor play might be just what you need. It’s easy to
+  learn
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=floorball-set-for-kids-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=floorball-set-for-kids-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and active way to get your kids playing outside? A floorball set for kids outdoor play might be just what you need.**

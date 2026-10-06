@@ -1,10 +1,13 @@
 ---
-title: "Lamborghini Toy Car Hot Wheels: Ultimate Diecast Collectible Guide"
-description: "Lamborghini Toy Car Hot Wheels brings iconic sports cars to your fingertips. These detailed, small-scale models offer fun and collectibility. Hot Wheels feature"
+title: 'Lamborghini Toy Car Hot Wheels: Ultimate Diecast Collectible Guide'
+description: Lamborghini Toy Car Hot Wheels brings iconic sports cars to your fingertips.
+  These detailed, small-scale models offer fun and collectibility. Hot Wheels feature
 pubDate: 2026-08-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lamborghini-toy-car-hot-wheels&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=lamborghini-toy-car-hot-wheels&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Lamborghini Toy Car Hot Wheels brings iconic sports cars to your fingertips. These detailed, small-scale models offer fun and collectibility.**

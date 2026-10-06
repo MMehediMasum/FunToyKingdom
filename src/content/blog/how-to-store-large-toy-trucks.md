@@ -1,10 +1,14 @@
 ---
-title: "How to Store Large Toy Trucks: Ultimate Space-Saving Hacks"
-description: "Do you have large toy trucks taking up space and creating clutter? Finding the right way to store them can be a real challenge. You want to keep your trucks saf"
+title: 'How to Store Large Toy Trucks: Ultimate Space-Saving Hacks'
+description: Do you have large toy trucks taking up space and creating clutter? Finding
+  the right way to store them can be a real challenge. You want to keep your trucks
+  saf
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-store-large-toy-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=how-to-store-large-toy-trucks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you have large toy trucks taking up space and creating clutter? Finding the right way to store them can be a real challenge.**

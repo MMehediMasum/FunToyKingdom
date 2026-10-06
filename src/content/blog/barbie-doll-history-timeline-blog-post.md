@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Barbie Doll History Timeline Blog Post: Iconic Evolution Unveiled"
 description: "Have you ever wondered how the Barbie doll became the iconic figure it is today? Your Barbie collection, or even just a single doll, holds a story that spans de"
 pubDate: 2025-12-16

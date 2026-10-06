@@ -1,10 +1,14 @@
 ---
-title: "Case Skid Steer Toy: Top Picks for Fun and Durable Construction Play"
-description: "Case skid steer toys bring construction fun to kids of all ages. These models mimic real machines, sparking imagination and play. Skid steer toys come in many s"
+title: 'Case Skid Steer Toy: Top Picks for Fun and Durable Construction Play'
+description: Case skid steer toys bring construction fun to kids of all ages. These
+  models mimic real machines, sparking imagination and play. Skid steer toys come
+  in many s
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=case-skid-steer-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=case-skid-steer-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Case skid steer toys bring construction fun to kids of all ages. These models mimic real machines, sparking imagination and play.**

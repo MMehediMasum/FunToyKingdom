@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat With Dual Motors: Ultimate Speed and Control Guide"
-description: "Are you ready to take your RC boating experience to the next level? An RC boat with dual motors offers more power, speed, and control than you might expect. Whe"
+title: 'Rc Boat With Dual Motors: Ultimate Speed and Control Guide'
+description: Are you ready to take your RC boating experience to the next level? An
+  RC boat with dual motors offers more power, speed, and control than you might expect.
+  Whe
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-with-dual-motors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-with-dual-motors&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC boating experience to the next level? An RC boat with dual motors offers more power, speed, and control than you might expect.**

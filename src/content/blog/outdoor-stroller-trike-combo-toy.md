@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Stroller Trike Combo Toy: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun and practical way to keep your little one entertained while enjoying the outdoors? An Outdoor Stroller Trike Combo Toy might be exactl"
+title: 'Outdoor Stroller Trike Combo Toy: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun and practical way to keep your little one entertained
+  while enjoying the outdoors? An Outdoor Stroller Trike Combo Toy might be exactl
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-stroller-trike-combo-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-stroller-trike-combo-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and practical way to keep your little one entertained while enjoying the outdoors? An Outdoor Stroller Trike Combo Toy might be exactly what you need.**

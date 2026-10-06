@@ -1,10 +1,13 @@
 ---
-title: "Motion Sensor Target Shooting Toy: Ultimate Fun and Precision Game"
-description: "Are you looking for a fun way to boost your focus and hand-eye coordination? A motion sensor target shooting toy might be exactly what you need. Imagine a game "
+title: 'Motion Sensor Target Shooting Toy: Ultimate Fun and Precision Game'
+description: 'Are you looking for a fun way to boost your focus and hand-eye coordination?
+  A motion sensor target shooting toy might be exactly what you need. Imagine a game '
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=motion-sensor-target-shooting-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=motion-sensor-target-shooting-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a fun way to boost your focus and hand-eye coordination? A motion sensor target shooting toy might be exactly what you need.**

@@ -1,10 +1,13 @@
 ---
-title: "Slackline Kit With Training Line: Ultimate Balance & Fun Guide"
-description: "Are you ready to master balance and boost your confidence in a fun, exciting way? A Slackline Kit With Training Line is exactly what you need to start your slac"
+title: 'Slackline Kit With Training Line: Ultimate Balance & Fun Guide'
+description: Are you ready to master balance and boost your confidence in a fun, exciting
+  way? A Slackline Kit With Training Line is exactly what you need to start your slac
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=slackline-kit-with-training-line&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=slackline-kit-with-training-line&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to master balance and boost your confidence in a fun, exciting way? A Slackline Kit With Training Line is exactly what you need to start your slacklining adventure safely and effectively.**

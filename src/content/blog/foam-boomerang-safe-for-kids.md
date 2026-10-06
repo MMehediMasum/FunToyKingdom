@@ -1,10 +1,14 @@
 ---
-title: "Foam Boomerang Safe for Kids: Ultimate Fun Without Worry"
-description: "Are you looking for a fun and safe toy that your kids can enjoy without worry? Foam boomerangs might be exactly what you need. They bring hours of outdoor play,"
+title: 'Foam Boomerang Safe for Kids: Ultimate Fun Without Worry'
+description: Are you looking for a fun and safe toy that your kids can enjoy without
+  worry? Foam boomerangs might be exactly what you need. They bring hours of outdoor
+  play,
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=foam-boomerang-safe-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=foam-boomerang-safe-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe toy that your kids can enjoy without worry? Foam boomerangs might be exactly what you need.**

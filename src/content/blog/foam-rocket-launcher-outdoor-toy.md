@@ -1,10 +1,14 @@
 ---
-title: "Foam Rocket Launcher Outdoor Toy: Ultimate Fun for Kids & Families"
-description: "Are you looking for a fun, safe way to bring excitement to your outdoor playtime? The Foam Rocket Launcher Outdoor Toy is just what you need. It’s easy to use, "
+title: 'Foam Rocket Launcher Outdoor Toy: Ultimate Fun for Kids & Families'
+description: 'Are you looking for a fun, safe way to bring excitement to your outdoor
+  playtime? The Foam Rocket Launcher Outdoor Toy is just what you need. It’s easy
+  to use, '
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=foam-rocket-launcher-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=foam-rocket-launcher-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun, safe way to bring excitement to your outdoor playtime? The Foam Rocket Launcher Outdoor Toy is just what you need.**

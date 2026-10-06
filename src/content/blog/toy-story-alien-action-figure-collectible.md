@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Alien Action Figure Collectible: Must-Have Toy Treasure"
-description: "Are you a fan of Toy Story or a passionate collector of unique action figures? Imagine holding a Toy Story Alien Action Figure Collectible right in your hands—a"
+title: 'Toy Story Alien Action Figure Collectible: Must-Have Toy Treasure'
+description: Are you a fan of Toy Story or a passionate collector of unique action
+  figures? Imagine holding a Toy Story Alien Action Figure Collectible right in your
+  hands—a
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-alien-action-figure-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-alien-action-figure-collectible&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you a fan of Toy Story or a passionate collector of unique action figures? Imagine holding a Toy Story Alien Action Figure Collectible right in your hands—a small treasure that brings your favorite movie moments to life.**

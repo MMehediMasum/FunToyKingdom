@@ -1,10 +1,14 @@
 ---
-title: "Pretend Play Toys for 4 Year Old: Top Picks to Inspire Creativity"
-description: "Looking for the perfect pretend play toys for your 4-year-old? You want something that sparks imagination, builds skills, and keeps your little one happily enga"
+title: 'Pretend Play Toys for 4 Year Old: Top Picks to Inspire Creativity'
+description: Looking for the perfect pretend play toys for your 4-year-old? You want
+  something that sparks imagination, builds skills, and keeps your little one happily
+  enga
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=pretend-play-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=pretend-play-toys-for-4-year-old&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Looking for the perfect pretend play toys for your 4-year-old? You want something that sparks imagination, builds skills, and keeps your little one happily engaged.**

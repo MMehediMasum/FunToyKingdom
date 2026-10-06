@@ -1,10 +1,14 @@
 ---
-title: "Debate Practice Toy Games: Boost Skills with Fun Challenges"
-description: "Are you looking for a fun and effective way to sharpen your debating skills? Debate practice toy games might be exactly what you need. These games turn serious "
+title: 'Debate Practice Toy Games: Boost Skills with Fun Challenges'
+description: 'Are you looking for a fun and effective way to sharpen your debating
+  skills? Debate practice toy games might be exactly what you need. These games turn
+  serious '
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=debate-practice-toy-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=debate-practice-toy-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a fun and effective way to sharpen your debating skills? Debate practice toy games might be exactly what you need.**

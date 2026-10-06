@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Special Edition VHS: Must-Have Collectible for Fans"
 description: "Toy Story Special Edition VHS holds a special place in the hearts of many. This classic animated film captures the magic of childhood imagination. Released duri"
 pubDate: 2026-03-16

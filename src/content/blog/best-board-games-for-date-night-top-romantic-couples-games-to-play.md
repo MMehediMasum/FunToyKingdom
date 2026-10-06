@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Date Night: Top Romantic Couples Games to Play"
-description: "Board games can make date nights more fun and memorable. They bring couples closer through laughter, conversation, and play. Choosing the best board games for d"
+title: 'Best Board Games for Date Night: Top Romantic Couples Games to Play'
+description: Board games can make date nights more fun and memorable. They bring couples
+  closer through laughter, conversation, and play. Choosing the best board games for
+  d
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-date-night-top-romantic-couples-games-to-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-date-night-top-romantic-couples-games-to-play&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games can make date nights more fun and memorable. They bring couples closer through laughter, conversation, and play.**

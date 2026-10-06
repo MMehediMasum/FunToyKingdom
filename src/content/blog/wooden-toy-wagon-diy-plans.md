@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Wagon DIY Plans: Easy Step-by-Step Guide"
-description: "Are you looking for a fun and rewarding project that adds charm and function to your home? Building your own wooden toy wagon is easier than you think. With sim"
+title: 'Wooden Toy Wagon DIY Plans: Easy Step-by-Step Guide'
+description: Are you looking for a fun and rewarding project that adds charm and function
+  to your home? Building your own wooden toy wagon is easier than you think. With
+  sim
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-wagon-diy-plans&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-wagon-diy-plans&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and rewarding project that adds charm and function to your home? Building your own wooden toy wagon is easier than you think.**

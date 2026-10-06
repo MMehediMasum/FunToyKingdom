@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Fire Truck Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into an exciting water wonderland that kids will never want to leave. With an outdoor fire truck sprinkler inflatable, you can do "
+title: 'Outdoor Fire Truck Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: 'Imagine turning your backyard into an exciting water wonderland that
+  kids will never want to leave. With an outdoor fire truck sprinkler inflatable,
+  you can do '
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-fire-truck-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-fire-truck-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into an exciting water wonderland that kids will never want to leave. With an outdoor fire truck sprinkler inflatable, you can do just that!**

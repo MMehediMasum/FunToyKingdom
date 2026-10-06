@@ -1,10 +1,14 @@
 ---
-title: "Toy Garden Set: Top Durable Kids Gardening Tools & Wagon Play"
-description: "A toy garden set lets children explore nature through fun, hands-on play. It combines tools, building blocks, and sensory activities for learning. These sets in"
+title: 'Toy Garden Set: Top Durable Kids Gardening Tools & Wagon Play'
+description: A toy garden set lets children explore nature through fun, hands-on play.
+  It combines tools, building blocks, and sensory activities for learning. These sets
+  in
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-garden-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=toy-garden-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A toy garden set lets children explore nature through fun, hands-on play. It combines tools, building blocks, and sensory activities for learning.**

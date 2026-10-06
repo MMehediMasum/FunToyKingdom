@@ -1,10 +1,13 @@
 ---
-title: "Educational Toys for 3 Year Old: Top Picks to Boost Learning Fun"
-description: "Choosing the right toys for your 3-year-old can feel overwhelming. You want something fun, but also something that helps your child learn and grow. Educational "
+title: 'Educational Toys for 3 Year Old: Top Picks to Boost Learning Fun'
+description: 'Choosing the right toys for your 3-year-old can feel overwhelming. You
+  want something fun, but also something that helps your child learn and grow. Educational '
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-3-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toys for your 3-year-old can feel overwhelming. You want something fun, but also something that helps your child learn and grow.**

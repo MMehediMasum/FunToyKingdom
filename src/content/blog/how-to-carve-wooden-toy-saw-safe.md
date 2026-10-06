@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Saw Safe: Expert Tips for Perfect Crafting"
-description: "Are you ready to create a fun, wooden toy saw that’s safe for kids to use? Carving your own wooden toy saw can be a rewarding project, but safety is key. You wa"
+title: 'How to Carve Wooden Toy Saw Safe: Expert Tips for Perfect Crafting'
+description: Are you ready to create a fun, wooden toy saw that’s safe for kids to
+  use? Carving your own wooden toy saw can be a rewarding project, but safety is key.
+  You wa
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-saw-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Carve Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-saw-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create a fun, wooden toy saw that’s safe for kids to use? Carving your own wooden toy saw can be a rewarding project, but safety is key.**

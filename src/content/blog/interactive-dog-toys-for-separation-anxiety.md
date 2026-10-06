@@ -1,10 +1,13 @@
 ---
-title: "Interactive Dog Toys for Separation Anxiety: Top Picks to Soothe and Stimulate"
-description: "Dogs often struggle with separation anxiety, leading to stress and destructive behavior. Interactive dog toys offer a solution by keeping them engaged and enter"
+title: 'Interactive Dog Toys for Separation Anxiety: Top Picks to Soothe and Stimulate'
+description: Dogs often struggle with separation anxiety, leading to stress and destructive
+  behavior. Interactive dog toys offer a solution by keeping them engaged and enter
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-dog-toys-for-separation-anxiety&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=interactive-dog-toys-for-separation-anxiety&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dogs often struggle with separation anxiety, leading to stress and destructive behavior. Interactive dog toys offer a solution by keeping them engaged and entertained.**

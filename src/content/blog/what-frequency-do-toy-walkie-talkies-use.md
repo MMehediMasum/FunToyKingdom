@@ -1,10 +1,14 @@
 ---
-title: "What Frequency Do Toy Walkie Talkies Use: Ultimate Guide Revealed"
-description: "Have you ever wondered how toy walkie talkies actually work? Or what frequency they use to let you chat with your friends or family across the room or even the "
+title: 'What Frequency Do Toy Walkie Talkies Use: Ultimate Guide Revealed'
+description: 'Have you ever wondered how toy walkie talkies actually work? Or what
+  frequency they use to let you chat with your friends or family across the room or
+  even the '
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-frequency-do-toy-walkie-talkies-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=what-frequency-do-toy-walkie-talkies-use&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how toy walkie talkies actually work? Or what frequency they use to let you chat with your friends or family across the room or even the backyard?**

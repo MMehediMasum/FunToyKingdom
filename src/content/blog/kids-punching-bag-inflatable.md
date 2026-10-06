@@ -1,10 +1,14 @@
 ---
-title: "Kids Punching Bag Inflatable: Fun, Safe, and Active Playtime"
-description: "Looking for a fun and safe way to help your kids burn off energy? A kids punching bag inflatable might be just what you need. It’s not only a great way to keep "
+title: 'Kids Punching Bag Inflatable: Fun, Safe, and Active Playtime'
+description: 'Looking for a fun and safe way to help your kids burn off energy? A
+  kids punching bag inflatable might be just what you need. It’s not only a great
+  way to keep '
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-punching-bag-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=kids-punching-bag-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to help your kids burn off energy? A kids punching bag inflatable might be just what you need.**

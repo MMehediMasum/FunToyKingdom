@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 2 Month Old Baby: Top Picks for Early Development"
-description: "Choosing the best toys for your 2-month-old baby can feel overwhelming. You want something safe, engaging, and perfect for their tiny developing senses. But how"
+title: 'Best Toys for 2 Month Old Baby: Top Picks for Early Development'
+description: Choosing the best toys for your 2-month-old baby can feel overwhelming.
+  You want something safe, engaging, and perfect for their tiny developing senses.
+  But how
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-2-month-old-baby&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toys For Airplane Travel
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-2-month-old-baby&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for your 2-month-old baby can feel overwhelming. You want something safe, engaging, and perfect for their tiny developing senses.**

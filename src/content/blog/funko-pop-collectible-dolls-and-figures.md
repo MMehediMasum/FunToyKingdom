@@ -1,10 +1,14 @@
 ---
-title: "Funko Pop Collectible Dolls And Figures: Ultimate Fan Guide 2025"
-description: "If you’re a fan of movies, TV shows, comics, or video games, Funko Pop collectible dolls and figures are made just for you. These small, charming toys capture y"
+title: 'Funko Pop Collectible Dolls And Figures: Ultimate Fan Guide 2025'
+description: If you’re a fan of movies, TV shows, comics, or video games, Funko Pop
+  collectible dolls and figures are made just for you. These small, charming toys
+  capture y
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=funko-pop-collectible-dolls-and-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=funko-pop-collectible-dolls-and-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of movies, TV shows, comics, or video games, Funko Pop collectible dolls and figures are made just for you. These small, charming toys capture your favorite characters in a unique and fun way.**

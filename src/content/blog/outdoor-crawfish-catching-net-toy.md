@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Crawfish Catching Net Toy: Ultimate Fun for Kids Outdoors"
-description: "Are you ready to add a splash of fun to your outdoor adventures? The Outdoor Crawfish Catching Net Toy is just what you need to turn a simple day by the water i"
+title: 'Outdoor Crawfish Catching Net Toy: Ultimate Fun for Kids Outdoors'
+description: Are you ready to add a splash of fun to your outdoor adventures? The
+  Outdoor Crawfish Catching Net Toy is just what you need to turn a simple day by
+  the water i
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crawfish-catching-net-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crawfish-catching-net-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to add a splash of fun to your outdoor adventures? The Outdoor Crawfish Catching Net Toy is just what you need to turn a simple day by the water into an exciting experience.**

@@ -1,10 +1,14 @@
 ---
-title: "Handheld Toys for Newborns: Safe, Stimulating, and Fun Picks"
-description: "Choosing the right toys for your newborn can feel overwhelming. You want something safe, simple, and engaging—something your baby can hold and explore with tiny"
+title: 'Handheld Toys for Newborns: Safe, Stimulating, and Fun Picks'
+description: Choosing the right toys for your newborn can feel overwhelming. You want
+  something safe, simple, and engaging—something your baby can hold and explore with
+  tiny
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=handheld-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=handheld-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for your newborn can feel overwhelming. You want something safe, simple, and engaging—something your baby can hold and explore with tiny hands.**

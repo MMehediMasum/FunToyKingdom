@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Eight Year Olds That Boost Fun and Learning"
-description: "Finding the best board games for eight year olds can make family time fun and educational. These games suit kids’ growing skills and keep them engaged. Choosing"
+title: Best Board Games for Eight Year Olds That Boost Fun and Learning
+description: Finding the best board games for eight year olds can make family time
+  fun and educational. These games suit kids’ growing skills and keep them engaged.
+  Choosing
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-eight-year-olds-that-boost-fun-and-learning&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-eight-year-olds-that-boost-fun-and-learning&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for eight year olds can make family time fun and educational. These games suit kids’ growing skills and keep them engaged.**

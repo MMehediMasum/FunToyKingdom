@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Iguana Inflatable Ride on Kids: Fun, Safe, and Durable!"
-description: "Imagine your child’s face lighting up with joy as they bounce and ride on a colorful, inflatable iguana right in your backyard. The Outdoor Iguana Inflatable Ri"
+title: 'Outdoor Iguana Inflatable Ride on Kids: Fun, Safe, and Durable!'
+description: Imagine your child’s face lighting up with joy as they bounce and ride
+  on a colorful, inflatable iguana right in your backyard. The Outdoor Iguana Inflatable
+  Ri
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-iguana-inflatable-ride-on-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-iguana-inflatable-ride-on-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with joy as they bounce and ride on a colorful, inflatable iguana right in your backyard. The Outdoor Iguana Inflatable Ride On for Kids isn’t just a toy—it’s a ticket to hours of active fun and imaginative play.**

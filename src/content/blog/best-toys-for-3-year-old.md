@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 3 Year Old: Top Picks to Spark Joy & Learning"
-description: "Finding the best toys for your 3-year-old can feel overwhelming. You want something that sparks their imagination, helps them learn, and keeps them happily enga"
+title: 'Best Toys for 3 Year Old: Top Picks to Spark Joy & Learning'
+description: Finding the best toys for your 3-year-old can feel overwhelming. You
+  want something that sparks their imagination, helps them learn, and keeps them happily
+  enga
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-3-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best toys for your 3-year-old can feel overwhelming. You want something that sparks their imagination, helps them learn, and keeps them happily engaged.**

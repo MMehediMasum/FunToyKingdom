@@ -1,10 +1,14 @@
 ---
-title: "Cars And Trucks for 4 Year Old: Ultimate Fun & Learning Guide"
-description: "Are you looking for the perfect cars and trucks that will keep your 4-year-old entertained for hours? Choosing the right toys can be overwhelming, but finding o"
+title: 'Cars And Trucks for 4 Year Old: Ultimate Fun & Learning Guide'
+description: Are you looking for the perfect cars and trucks that will keep your 4-year-old
+  entertained for hours? Choosing the right toys can be overwhelming, but finding
+  o
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-and-trucks-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-and-trucks-for-4-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect cars and trucks that will keep your 4-year-old entertained for hours? Choosing the right toys can be overwhelming, but finding ones that spark imagination and help develop skills is easier than you think.**

@@ -1,10 +1,14 @@
 ---
-title: "Continent Learning Toy Puzzles: Fun Educational Brain Boosters"
-description: "Are you looking for a fun way to boost your child’s learning and curiosity? Continent Learning Toy Puzzles could be exactly what you need. These puzzles do more"
+title: 'Continent Learning Toy Puzzles: Fun Educational Brain Boosters'
+description: Are you looking for a fun way to boost your child’s learning and curiosity?
+  Continent Learning Toy Puzzles could be exactly what you need. These puzzles do
+  more
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=continent-learning-toy-puzzles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=continent-learning-toy-puzzles&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to boost your child’s learning and curiosity? Continent Learning Toy Puzzles could be exactly what you need.**

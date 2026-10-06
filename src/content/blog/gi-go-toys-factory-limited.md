@@ -1,10 +1,14 @@
 ---
-title: "Gi Go Toys Factory Limited Dream Collection: Ultimate Baby Doll Playsets Reviewed"
-description: "Gi Go Toys Factory Limited creates lifelike baby dolls and playsets for young children. Their products blend fun and learning through realistic accessories and "
+title: 'Gi Go Toys Factory Limited Dream Collection: Ultimate Baby Doll Playsets Reviewed'
+description: 'Gi Go Toys Factory Limited creates lifelike baby dolls and playsets
+  for young children. Their products blend fun and learning through realistic accessories
+  and '
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=gi-go-toys-factory-limited&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=gi-go-toys-factory-limited&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Gi Go Toys Factory Limited creates lifelike baby dolls and playsets for young children. Their products blend fun and learning through realistic accessories and soft designs.**

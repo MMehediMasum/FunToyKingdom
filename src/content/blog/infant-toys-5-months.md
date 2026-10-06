@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys 5 Months: Top Montessori Sensory and Teething Picks"
-description: "Choosing the right toys for a 5-month-old can support their growth and keep them entertained. At this age, babies are curious and eager to explore their world. "
+title: 'Infant Toys 5 Months: Top Montessori Sensory and Teething Picks'
+description: 'Choosing the right toys for a 5-month-old can support their growth and
+  keep them entertained. At this age, babies are curious and eager to explore their
+  world. '
 pubDate: 2026-01-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-5-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-5-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a 5-month-old can support their growth and keep them entertained. At this age, babies are curious and eager to explore their world.**

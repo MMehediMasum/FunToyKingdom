@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Lemonade Stand Toy: Fun, Safe, and Perfect for Kids"
-description: "Imagine your child’s face lighting up as they set up their very own outdoor lemonade stand toy. It’s more than just play—it’s a chance for your little one to le"
+title: 'Outdoor Lemonade Stand Toy: Fun, Safe, and Perfect for Kids'
+description: Imagine your child’s face lighting up as they set up their very own outdoor
+  lemonade stand toy. It’s more than just play—it’s a chance for your little one to
+  le
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-lemonade-stand-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-lemonade-stand-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they set up their very own outdoor lemonade stand toy. It’s more than just play—it’s a chance for your little one to learn, create, and have fun all at the same time.**

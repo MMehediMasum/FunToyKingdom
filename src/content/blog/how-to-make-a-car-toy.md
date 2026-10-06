@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Car Toy: Easy Steps for Fun DIY Projects"
-description: "Have you ever wanted to create something fun and exciting with your own hands? Making a car toy is easier than you think, and it’s a great way to bring your cre"
+title: 'How to Make a Car Toy: Easy Steps for Fun DIY Projects'
+description: Have you ever wanted to create something fun and exciting with your own
+  hands? Making a car toy is easier than you think, and it’s a great way to bring
+  your cre
 pubDate: 2025-09-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-car-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-car-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever wanted to create something fun and exciting with your own hands? Making a car toy is easier than you think, and it’s a great way to bring your creativity to life.**

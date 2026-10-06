@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Diving Rings Kids: Ultimate Fun for Pool Playtime"
-description: "Looking for a fun and exciting way to keep your kids entertained outdoors? Outdoor diving rings for kids are the perfect solution. These colorful rings add a sp"
+title: 'Outdoor Diving Rings Kids: Ultimate Fun for Pool Playtime'
+description: Looking for a fun and exciting way to keep your kids entertained outdoors?
+  Outdoor diving rings for kids are the perfect solution. These colorful rings add
+  a sp
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-diving-rings-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-diving-rings-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids entertained outdoors? Outdoor diving rings for kids are the perfect solution.**

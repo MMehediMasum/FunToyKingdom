@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Disney Doll Collecting Trend Blog Post: Ultimate Guide to Must-Have Picks"
 description: "Are you ready to discover a fun and exciting hobby that’s capturing the hearts of collectors everywhere? Disney doll collecting is more than just a pastime—it’s"
 pubDate: 2025-12-07

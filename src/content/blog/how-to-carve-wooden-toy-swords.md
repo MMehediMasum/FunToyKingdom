@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Swords: Easy Steps for Stunning Results"
-description: "Imagine holding a wooden sword you made with your own hands—smooth, sturdy, and just the right size. You can create that! Carving wooden toy swords is a fun and"
+title: 'How to Carve Wooden Toy Swords: Easy Steps for Stunning Results'
+description: Imagine holding a wooden sword you made with your own hands—smooth, sturdy,
+  and just the right size. You can create that! Carving wooden toy swords is a fun
+  and
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-swords&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-swords&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a wooden sword you made with your own hands—smooth, sturdy, and just the right size. You can create that!**

@@ -1,10 +1,14 @@
 ---
-title: "Logic Puzzle Board Games: Ultimate Mind-Bending Challenges"
-description: "Are you ready to challenge your mind while having fun? Logic puzzle board games are the perfect way to do just that. These games push your thinking skills, impr"
+title: 'Logic Puzzle Board Games: Ultimate Mind-Bending Challenges'
+description: Are you ready to challenge your mind while having fun? Logic puzzle board
+  games are the perfect way to do just that. These games push your thinking skills,
+  impr
 pubDate: 2025-10-11
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=logic-puzzle-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=logic-puzzle-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind while having fun? Logic puzzle board games are the perfect way to do just that.**

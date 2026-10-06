@@ -1,10 +1,13 @@
 ---
-title: "Diy Wooden Toy Dog Figurine: Creative Steps for Stunning Crafts"
-description: "Imagine creating a charming wooden toy dog figurine with your own hands. You don’t need fancy tools or skills—just a few simple materials and a little patience."
+title: 'Diy Wooden Toy Dog Figurine: Creative Steps for Stunning Crafts'
+description: Imagine creating a charming wooden toy dog figurine with your own hands.
+  You don’t need fancy tools or skills—just a few simple materials and a little patience.
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-dog-figurine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Figurine
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-dog-figurine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a charming wooden toy dog figurine with your own hands. You don’t need fancy tools or skills—just a few simple materials and a little patience.**

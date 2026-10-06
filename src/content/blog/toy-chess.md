@@ -1,10 +1,14 @@
 ---
-title: "Toy Chess Sets: Fun, Portable, and Perfect for Kids and Adults"
-description: "Toy chess brings fun and learning together through small, portable chess sets for all ages. These sets include creative themes and travel-friendly designs to en"
+title: 'Toy Chess Sets: Fun, Portable, and Perfect for Kids and Adults'
+description: Toy chess brings fun and learning together through small, portable chess
+  sets for all ages. These sets include creative themes and travel-friendly designs
+  to en
 pubDate: 2026-08-02
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-chess&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=toy-chess&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Toy chess brings fun and learning together through small, portable chess sets for all ages. These sets include creative themes and travel-friendly designs to enjoy chess anywhere.**

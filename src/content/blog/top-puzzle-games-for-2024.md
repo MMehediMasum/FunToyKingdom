@@ -1,10 +1,13 @@
 ---
-title: "Top Puzzle Games for 2025: Ultimate Brain-Teasers to Play Now"
-description: "Are you ready to challenge your mind and have fun at the same time? Puzzle games are the perfect way to boost your brainpower while enjoying hours of entertainm"
+title: 'Top Puzzle Games for 2025: Ultimate Brain-Teasers to Play Now'
+description: Are you ready to challenge your mind and have fun at the same time? Puzzle
+  games are the perfect way to boost your brainpower while enjoying hours of entertainm
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=top-puzzle-games-for-2024&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=top-puzzle-games-for-2024&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind and have fun at the same time? Puzzle games are the perfect way to boost your brainpower while enjoying hours of entertainment.**

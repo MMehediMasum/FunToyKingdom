@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Mcqueen Toy: Ultimate Racing Fun with Lightning McQueen Playset"
-description: "The Cars 2 McQueen toy collection brings excitement from the movie right into your home. Kids can race, play, and imagine with their favorite characters. These "
+title: 'Cars 2 Mcqueen Toy: Ultimate Racing Fun with Lightning McQueen Playset'
+description: 'The Cars 2 McQueen toy collection brings excitement from the movie right
+  into your home. Kids can race, play, and imagine with their favorite characters.
+  These '
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-mcqueen-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-mcqueen-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 McQueen toy collection brings excitement from the movie right into your home. Kids can race, play, and imagine with their favorite characters.**

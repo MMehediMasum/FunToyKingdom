@@ -1,10 +1,14 @@
 ---
-title: "Giant Inflatable Water Slide: Ultimate Summer Fun for Everyone"
-description: "Are you ready to turn your backyard into the ultimate summer fun zone? A giant inflatable water slide is exactly what you need to create unforgettable memories "
+title: 'Giant Inflatable Water Slide: Ultimate Summer Fun for Everyone'
+description: 'Are you ready to turn your backyard into the ultimate summer fun zone?
+  A giant inflatable water slide is exactly what you need to create unforgettable
+  memories '
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-inflatable-water-slide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Unicorn Pool Float
+heroImage: https://tse1.mm.bing.net/th?q=giant-inflatable-water-slide&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your backyard into the ultimate summer fun zone? A giant inflatable water slide is exactly what you need to create unforgettable memories with your family and friends.**

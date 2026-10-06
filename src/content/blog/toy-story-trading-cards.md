@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Trading Cards: Ultimate Guide to Collecting Beloved Pixar Heroes"
-description: "Toy Story trading cards bring your favorite Pixar characters to life in fun and collectible ways. From Woody to Buzz Lightyear, these cards capture the magic of"
+title: 'Toy Story Trading Cards: Ultimate Guide to Collecting Beloved Pixar Heroes'
+description: Toy Story trading cards bring your favorite Pixar characters to life
+  in fun and collectible ways. From Woody to Buzz Lightyear, these cards capture the
+  magic of
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-trading-cards&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-trading-cards&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story trading cards bring your favorite Pixar characters to life in fun and collectible ways. From Woody to Buzz Lightyear, these cards capture the magic of the Toy Story movies.**

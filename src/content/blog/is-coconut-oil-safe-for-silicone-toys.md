@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Coconut Oil Safe for Silicone Toys: Essential Safety Guide"
 description: "If you use silicone toys, you probably want to keep them safe and in great condition. But what about coconut oil? You might have heard it's a natural, gentle op"
 pubDate: 2026-01-05

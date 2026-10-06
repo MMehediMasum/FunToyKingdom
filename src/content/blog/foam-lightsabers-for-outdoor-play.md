@@ -1,10 +1,14 @@
 ---
-title: "Foam Lightsabers for Outdoor Play: Ultimate Fun and Safe Battles"
-description: "Imagine your next outdoor adventure filled with thrilling lightsaber battles that are safe, fun, and perfect for all ages. Foam lightsabers bring the excitement"
+title: 'Foam Lightsabers for Outdoor Play: Ultimate Fun and Safe Battles'
+description: Imagine your next outdoor adventure filled with thrilling lightsaber
+  battles that are safe, fun, and perfect for all ages. Foam lightsabers bring the
+  excitement
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=foam-lightsabers-for-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=foam-lightsabers-for-outdoor-play&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine your next outdoor adventure filled with thrilling lightsaber battles that are safe, fun, and perfect for all ages. Foam lightsabers bring the excitement of epic duels right to your backyard, park, or playground without worrying about injuries or damage.**

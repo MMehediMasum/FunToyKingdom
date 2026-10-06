@@ -1,10 +1,14 @@
 ---
-title: "Cars Mcdonald'S Toys 2006: Top Collectible Disney Pixar Cars Toys Review"
-description: "In 2006, McDonald's delighted fans with a special collection of Cars-themed toys. These toys captured the magic of Pixar's Cars movie. The McDonald's 2006 Cars "
+title: 'Cars Mcdonald''S Toys 2006: Top Collectible Disney Pixar Cars Toys Review'
+description: 'In 2006, McDonald''s delighted fans with a special collection of Cars-themed
+  toys. These toys captured the magic of Pixar''s Cars movie. The McDonald''s 2006
+  Cars '
 pubDate: 2026-02-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mcdonalds-toys-2006&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-mcdonalds-toys-2006&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **In 2006, McDonald's delighted fans with a special collection of Cars-themed toys. These toys captured the magic of Pixar's Cars movie.**

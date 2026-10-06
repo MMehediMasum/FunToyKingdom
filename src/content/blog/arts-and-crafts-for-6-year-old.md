@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 6 Year Old: Fun, Easy, and Creative Ideas"
-description: "Are you looking for fun and simple ways to keep your 6-year-old busy and creative? Arts and crafts are the perfect answer. They not only spark imagination but a"
+title: 'Arts And Crafts for 6 Year Old: Fun, Easy, and Creative Ideas'
+description: Are you looking for fun and simple ways to keep your 6-year-old busy
+  and creative? Arts and crafts are the perfect answer. They not only spark imagination
+  but a
 pubDate: 2026-05-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-6-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and simple ways to keep your 6-year-old busy and creative? Arts and crafts are the perfect answer.**

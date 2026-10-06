@@ -1,10 +1,14 @@
 ---
-title: "Miniature Gun Toy: Top Military Weapon Sets for Building Block Fans"
-description: "Miniature gun toys offer fun and creativity for kids and collectors alike. These small-scale weapons fit perfectly with building blocks and action figures. Mini"
+title: 'Miniature Gun Toy: Top Military Weapon Sets for Building Block Fans'
+description: Miniature gun toys offer fun and creativity for kids and collectors alike.
+  These small-scale weapons fit perfectly with building blocks and action figures.
+  Mini
 pubDate: 2026-08-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-gun-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-gun-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature gun toys offer fun and creativity for kids and collectors alike. These small-scale weapons fit perfectly with building blocks and action figures.**

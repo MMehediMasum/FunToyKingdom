@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Led Light Bar: Ultimate Fun & Safety Upgrade"
-description: "Imagine your child’s face lighting up as they zoom around on a ride-on toy that glows with bright LED lights. You want a toy that’s not just fun but also safe a"
+title: 'Ride on Toy With Led Light Bar: Ultimate Fun & Safety Upgrade'
+description: Imagine your child’s face lighting up as they zoom around on a ride-on
+  toy that glows with bright LED lights. You want a toy that’s not just fun but also
+  safe a
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-led-light-bar&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-led-light-bar&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they zoom around on a ride-on toy that glows with bright LED lights. You want a toy that’s not just fun but also safe and eye-catching.**

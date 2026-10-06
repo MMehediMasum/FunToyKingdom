@@ -1,10 +1,14 @@
 ---
-title: "Wiggle Car Outdoor Toy: Ultimate Fun for Active Kids"
-description: "Looking for a fun way to keep your kids active and entertained outdoors? The Wiggle Car Outdoor Toy might be just what you need. This unique ride-on toy offers "
+title: 'Wiggle Car Outdoor Toy: Ultimate Fun for Active Kids'
+description: 'Looking for a fun way to keep your kids active and entertained outdoors?
+  The Wiggle Car Outdoor Toy might be just what you need. This unique ride-on toy
+  offers '
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wiggle-car-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=wiggle-car-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids active and entertained outdoors? The Wiggle Car Outdoor Toy might be just what you need.**

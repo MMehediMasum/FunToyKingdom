@@ -1,10 +1,14 @@
 ---
-title: "Rc Submarine for Aquarium Use: Ultimate Guide to Underwater Fun"
-description: "Have you ever wished to bring a touch of adventure right inside your aquarium? An RC submarine for aquarium use lets you do just that. Imagine controlling a tin"
+title: 'Rc Submarine for Aquarium Use: Ultimate Guide to Underwater Fun'
+description: Have you ever wished to bring a touch of adventure right inside your
+  aquarium? An RC submarine for aquarium use lets you do just that. Imagine controlling
+  a tin
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-submarine-for-aquarium-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-submarine-for-aquarium-use&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wished to bring a touch of adventure right inside your aquarium? An RC submarine for aquarium use lets you do just that.**

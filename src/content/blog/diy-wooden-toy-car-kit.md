@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Car Kit: Build Fun, Learn Skills, Save Money"
-description: "Are you looking for a fun and creative way to spend your time? A DIY Wooden Toy Car Kit might be just what you need. Imagine building your own toy car with your"
+title: 'Diy Wooden Toy Car Kit: Build Fun, Learn Skills, Save Money'
+description: Are you looking for a fun and creative way to spend your time? A DIY
+  Wooden Toy Car Kit might be just what you need. Imagine building your own toy car
+  with your
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-car-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-car-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to spend your time? A DIY Wooden Toy Car Kit might be just what you need.**

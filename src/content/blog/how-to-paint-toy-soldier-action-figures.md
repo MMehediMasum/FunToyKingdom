@@ -1,10 +1,14 @@
 ---
-title: "How to Paint Toy Soldier Action Figures: Easy Steps for Stunning Results"
-description: "Are you ready to bring your toy soldier action figures to life with vibrant colors and fine details? Painting your own figures can transform plain plastic into "
+title: 'How to Paint Toy Soldier Action Figures: Easy Steps for Stunning Results'
+description: 'Are you ready to bring your toy soldier action figures to life with
+  vibrant colors and fine details? Painting your own figures can transform plain plastic
+  into '
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-toy-soldier-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-toy-soldier-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring your toy soldier action figures to life with vibrant colors and fine details? Painting your own figures can transform plain plastic into stunning miniatures that tell a story.**

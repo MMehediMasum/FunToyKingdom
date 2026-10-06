@@ -1,10 +1,14 @@
 ---
-title: "Best Sensory Toys for 3 Year Olds: Top Fidget & Educational Picks"
-description: "Sensory toys help 3-year-olds explore and learn using their senses. These toys support focus, calmness, and fine motor skills. Choosing the best sensory toys fo"
+title: 'Best Sensory Toys for 3 Year Olds: Top Fidget & Educational Picks'
+description: Sensory toys help 3-year-olds explore and learn using their senses. These
+  toys support focus, calmness, and fine motor skills. Choosing the best sensory toys
+  fo
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sensory-toys-for-3-year-olds-top-fidget-educational-picks-2&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-sensory-toys-for-3-year-olds-top-fidget-educational-picks-2&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 3-year-olds explore and learn using their senses. These toys support focus, calmness, and fine motor skills.**

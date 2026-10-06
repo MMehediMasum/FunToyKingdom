@@ -1,10 +1,14 @@
 ---
-title: "Educational Toys for 2 Year Old: Top Picks to Boost Learning Fast"
-description: "Choosing the right toys for your 2-year-old can feel overwhelming. You want something that’s fun, but also helps your child learn and grow. What if you could fi"
+title: 'Educational Toys for 2 Year Old: Top Picks to Boost Learning Fast'
+description: Choosing the right toys for your 2-year-old can feel overwhelming. You
+  want something that’s fun, but also helps your child learn and grow. What if you
+  could fi
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-2-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toys for your 2-year-old can feel overwhelming. You want something that’s fun, but also helps your child learn and grow.**

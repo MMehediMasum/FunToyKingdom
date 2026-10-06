@@ -1,10 +1,14 @@
 ---
-title: "Mickey Mouse Clubhouse Toy Set: Ultimate Interactive Playtime for Kids"
-description: "The Mickey Mouse Clubhouse Toy Set brings fun and learning together in one exciting package. Kids enjoy playing with their favorite Disney characters and intera"
+title: 'Mickey Mouse Clubhouse Toy Set: Ultimate Interactive Playtime for Kids'
+description: The Mickey Mouse Clubhouse Toy Set brings fun and learning together in
+  one exciting package. Kids enjoy playing with their favorite Disney characters and
+  intera
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mickey-mouse-clubhouse-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=mickey-mouse-clubhouse-toy-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Mickey Mouse Clubhouse Toy Set brings fun and learning together in one exciting package. Kids enjoy playing with their favorite Disney characters and interactive features.**

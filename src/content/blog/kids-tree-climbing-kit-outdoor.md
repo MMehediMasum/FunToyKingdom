@@ -1,10 +1,14 @@
 ---
-title: "Kids Tree Climbing Kit Outdoor: Ultimate Fun & Safety Guide"
-description: "Imagine your child’s eyes lighting up with excitement as they climb higher and higher, feeling the thrill of adventure right in your backyard. You want to give "
+title: 'Kids Tree Climbing Kit Outdoor: Ultimate Fun & Safety Guide'
+description: 'Imagine your child’s eyes lighting up with excitement as they climb
+  higher and higher, feeling the thrill of adventure right in your backyard. You want
+  to give '
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-tree-climbing-kit-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=kids-tree-climbing-kit-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up with excitement as they climb higher and higher, feeling the thrill of adventure right in your backyard. You want to give your kids a safe way to explore nature and build confidence, but you also worry about their safety.**

@@ -1,10 +1,13 @@
 ---
-title: "Toy Board Games for Classroom Learning: Boost Engagement & Fun"
-description: "Are you looking for a fun way to boost learning in your classroom? Toy board games might be the secret tool you need. They turn lessons into exciting challenges"
+title: 'Toy Board Games for Classroom Learning: Boost Engagement & Fun'
+description: Are you looking for a fun way to boost learning in your classroom? Toy
+  board games might be the secret tool you need. They turn lessons into exciting challenges
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-board-games-for-classroom-learning&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=toy-board-games-for-classroom-learning&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to boost learning in your classroom? Toy board games might be the secret tool you need.**

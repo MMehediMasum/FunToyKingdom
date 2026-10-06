@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Villain Action Figures: Ultimate Collectibles Unveiled!"
-description: "Are you a fan of Toy Story and love collecting action figures? Then you’re in for a treat. Toy Story villain action figures bring a thrilling twist to your coll"
+title: 'Toy Story Villain Action Figures: Ultimate Collectibles Unveiled!'
+description: Are you a fan of Toy Story and love collecting action figures? Then you’re
+  in for a treat. Toy Story villain action figures bring a thrilling twist to your
+  coll
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-villain-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-villain-action-figures&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you a fan of Toy Story and love collecting action figures? Then you’re in for a treat.**

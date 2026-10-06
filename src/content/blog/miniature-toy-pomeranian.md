@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Toy Pomeranian: Perfect Collectible Figurines and Playset Ideas"
 description: "Miniature Toy Pomeranians capture hearts with their charming and lifelike designs. These toys are perfect for collectors and kids alike. These tiny figures and "
 pubDate: 2026-03-17

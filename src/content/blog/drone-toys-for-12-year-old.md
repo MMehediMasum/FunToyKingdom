@@ -1,10 +1,14 @@
 ---
-title: "Drone Toys for 12 Year Old: Top Fun & Safe Picks in 2025"
-description: "Looking for the perfect drone toy for a 12-year-old? You want something fun, easy to use, and safe. But with so many options out there, it’s hard to know where "
+title: 'Drone Toys for 12 Year Old: Top Fun & Safe Picks in 2025'
+description: 'Looking for the perfect drone toy for a 12-year-old? You want something
+  fun, easy to use, and safe. But with so many options out there, it’s hard to know
+  where '
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=drone-toys-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=drone-toys-for-12-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the perfect drone toy for a 12-year-old? You want something fun, easy to use, and safe.**

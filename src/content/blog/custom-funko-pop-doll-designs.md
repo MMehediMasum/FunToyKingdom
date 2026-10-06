@@ -1,10 +1,14 @@
 ---
-title: "Custom Funko Pop Doll Designs: Unique Collectibles to Treasure"
-description: "Are you a huge fan of Funko Pop dolls? Imagine having a unique figure that looks just like you, your favorite character, or someone special. Custom Funko Pop do"
+title: 'Custom Funko Pop Doll Designs: Unique Collectibles to Treasure'
+description: Are you a huge fan of Funko Pop dolls? Imagine having a unique figure
+  that looks just like you, your favorite character, or someone special. Custom Funko
+  Pop do
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=custom-funko-pop-doll-designs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=custom-funko-pop-doll-designs&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a huge fan of Funko Pop dolls? Imagine having a unique figure that looks just like you, your favorite character, or someone special.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Glider Plane Foam Toy: Ultimate Fun for Kids & Families"
-description: "Looking for a fun and simple way to enjoy the outdoors? The Outdoor Glider Plane Foam Toy is just what you need. It’s lightweight, easy to throw, and perfect fo"
+title: 'Outdoor Glider Plane Foam Toy: Ultimate Fun for Kids & Families'
+description: Looking for a fun and simple way to enjoy the outdoors? The Outdoor Glider
+  Plane Foam Toy is just what you need. It’s lightweight, easy to throw, and perfect
+  fo
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-glider-plane-foam-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-glider-plane-foam-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and simple way to enjoy the outdoors? The Outdoor Glider Plane Foam Toy is just what you need.**

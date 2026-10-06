@@ -1,10 +1,14 @@
 ---
-title: "Gesture Controlled Flying Orb Toy: Ultimate Fun and Innovation Guide"
-description: "Imagine holding a toy that floats effortlessly in the air, responding instantly to your every move. The Gesture Controlled Flying Orb Toy is not just any gadget"
+title: 'Gesture Controlled Flying Orb Toy: Ultimate Fun and Innovation Guide'
+description: Imagine holding a toy that floats effortlessly in the air, responding
+  instantly to your every move. The Gesture Controlled Flying Orb Toy is not just
+  any gadget
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=gesture-controlled-flying-orb-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=gesture-controlled-flying-orb-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a toy that floats effortlessly in the air, responding instantly to your every move. The Gesture Controlled Flying Orb Toy is not just any gadget—it’s your new interactive companion that turns your hand gestures into magical flight commands.**

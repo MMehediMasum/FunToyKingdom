@@ -1,10 +1,14 @@
 ---
-title: "Crib Toy With Projector Lights: Magical Soothing for Baby's Sleep"
-description: "Looking for a way to make your baby’s crib more fun and soothing? A crib toy with projector lights might be exactly what you need. Imagine your little one’s eye"
+title: 'Crib Toy With Projector Lights: Magical Soothing for Baby''s Sleep'
+description: Looking for a way to make your baby’s crib more fun and soothing? A crib
+  toy with projector lights might be exactly what you need. Imagine your little one’s
+  eye
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=crib-toy-with-projector-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Learning Toys
+heroImage: https://tse1.mm.bing.net/th?q=crib-toy-with-projector-lights&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a way to make your baby’s crib more fun and soothing? A crib toy with projector lights might be exactly what you need.**

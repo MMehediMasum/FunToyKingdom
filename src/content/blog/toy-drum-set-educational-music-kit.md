@@ -1,10 +1,14 @@
 ---
-title: "Toy Drum Set Educational Music Kit: Boost Creativity & Learning"
-description: "Are you looking for a fun way to boost your child’s creativity and learning? A Toy Drum Set Educational Music Kit might be just what you need. This kit isn’t ju"
+title: 'Toy Drum Set Educational Music Kit: Boost Creativity & Learning'
+description: Are you looking for a fun way to boost your child’s creativity and learning?
+  A Toy Drum Set Educational Music Kit might be just what you need. This kit isn’t
+  ju
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-drum-set-educational-music-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=toy-drum-set-educational-music-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to boost your child’s creativity and learning? A Toy Drum Set Educational Music Kit might be just what you need.**

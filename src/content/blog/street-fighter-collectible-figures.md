@@ -1,10 +1,14 @@
 ---
-title: "Street Fighter Collectible Figures: Ultimate Guide for Fans & Collectors"
-description: "Are you a fan of Street Fighter and love collecting unique items? Street Fighter collectible figures bring your favorite characters to life in a way that’s exci"
+title: 'Street Fighter Collectible Figures: Ultimate Guide for Fans & Collectors'
+description: Are you a fan of Street Fighter and love collecting unique items? Street
+  Fighter collectible figures bring your favorite characters to life in a way that’s
+  exci
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=street-fighter-collectible-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=street-fighter-collectible-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Street Fighter and love collecting unique items? Street Fighter collectible figures bring your favorite characters to life in a way that’s exciting and tangible.**

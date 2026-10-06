@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 9 Year Olds: Top Picks with Accessories for Endless Fun"
-description: "Finding the best dolls for 9 year olds can make playtime more fun and creative. Dolls help children develop imagination and social skills. Dolls come in many st"
+title: 'Best Dolls for 9 Year Olds: Top Picks with Accessories for Endless Fun'
+description: Finding the best dolls for 9 year olds can make playtime more fun and
+  creative. Dolls help children develop imagination and social skills. Dolls come
+  in many st
 pubDate: 2025-10-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-9-year-olds-top-picks-with-accessories-for-endless-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-9-year-olds-top-picks-with-accessories-for-endless-fun&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finding the best dolls for 9 year olds can make playtime more fun and creative. Dolls help children develop imagination and social skills.**

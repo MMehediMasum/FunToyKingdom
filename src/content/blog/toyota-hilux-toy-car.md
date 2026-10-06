@@ -1,10 +1,13 @@
 ---
-title: "Toyota Hilux Toy Car: Ultimate Diecast Models for Collectors and Kids"
-description: "The Toyota Hilux toy car collection captures the essence of a beloved vehicle in miniature form. This lineup offers a variety of detailed models for enthusiasts"
+title: 'Toyota Hilux Toy Car: Ultimate Diecast Models for Collectors and Kids'
+description: The Toyota Hilux toy car collection captures the essence of a beloved
+  vehicle in miniature form. This lineup offers a variety of detailed models for enthusiasts
 pubDate: 2026-09-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyota-hilux-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toyota-hilux-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **The Toyota Hilux toy car collection captures the essence of a beloved vehicle in miniature form. This lineup offers a variety of detailed models for enthusiasts and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Sophie the Giraffe Teething Toy: Easy, Safe Tips"
-description: "If you have Sophie the Giraffe as your baby’s favorite teething toy, you already know how much comfort it brings. But keeping it clean is super important for yo"
+title: 'How to Clean Sophie the Giraffe Teething Toy: Easy, Safe Tips'
+description: If you have Sophie the Giraffe as your baby’s favorite teething toy,
+  you already know how much comfort it brings. But keeping it clean is super important
+  for yo
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-sophie-the-giraffe-teething-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-sophie-the-giraffe-teething-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you have Sophie the Giraffe as your baby’s favorite teething toy, you already know how much comfort it brings. But keeping it clean is super important for your little one’s health.**

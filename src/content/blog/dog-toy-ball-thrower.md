@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Ball Thrower: Ultimate Guide to Fetch Fun and Exercise"
-description: "Dogs love to play fetch, and a ball thrower makes it more fun and less tiring for you. This blog explores top dog toy ball throwers, perfect for keeping your fu"
+title: 'Dog Toy Ball Thrower: Ultimate Guide to Fetch Fun and Exercise'
+description: Dogs love to play fetch, and a ball thrower makes it more fun and less
+  tiring for you. This blog explores top dog toy ball throwers, perfect for keeping
+  your fu
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-ball-thrower&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-ball-thrower&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dogs love to play fetch, and a ball thrower makes it more fun and less tiring for you. This blog explores top dog toy ball throwers, perfect for keeping your furry friend active and entertained.**

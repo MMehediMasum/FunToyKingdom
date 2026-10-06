@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Halloween Costumes: Creative Ideas for Spooky Fun"
-description: "Are you looking for fun and creative ways to dress up your little ones this Halloween without breaking the bank? DIY toy Halloween costumes are the perfect solu"
+title: 'Diy Toy Halloween Costumes: Creative Ideas for Spooky Fun'
+description: Are you looking for fun and creative ways to dress up your little ones
+  this Halloween without breaking the bank? DIY toy Halloween costumes are the perfect
+  solu
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-halloween-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-halloween-costumes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and creative ways to dress up your little ones this Halloween without breaking the bank? DIY toy Halloween costumes are the perfect solution!**

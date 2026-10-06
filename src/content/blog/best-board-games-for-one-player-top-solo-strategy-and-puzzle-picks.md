@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for One Player: Top Solo Strategy and Puzzle Picks"
-description: "Playing board games solo offers fun and a great way to challenge your mind anytime. Many games now suit one player perfectly. Solo board games combine strategy,"
+title: 'Best Board Games for One Player: Top Solo Strategy and Puzzle Picks'
+description: Playing board games solo offers fun and a great way to challenge your
+  mind anytime. Many games now suit one player perfectly. Solo board games combine
+  strategy,
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-one-player-top-solo-strategy-and-puzzle-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-one-player-top-solo-strategy-and-puzzle-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Playing board games solo offers fun and a great way to challenge your mind anytime. Many games now suit one player perfectly.**

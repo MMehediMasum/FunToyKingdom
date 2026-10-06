@@ -1,10 +1,14 @@
 ---
-title: "Top 10 Board Games of All Time: Ultimate Classics You Must Play"
-description: "Are you ready to discover the best board games that have stood the test of time? Whether you’re looking to spice up your game nights or find the perfect game fo"
+title: 'Top 10 Board Games of All Time: Ultimate Classics You Must Play'
+description: Are you ready to discover the best board games that have stood the test
+  of time? Whether you’re looking to spice up your game nights or find the perfect
+  game fo
 pubDate: 2026-05-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=top-10-board-games-of-all-time&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=top-10-board-games-of-all-time&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to discover the best board games that have stood the test of time? Whether you’re looking to spice up your game nights or find the perfect game for your next gathering, this list has something for you.**

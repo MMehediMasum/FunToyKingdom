@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Castle Kit: Build Creativity with Fun Crafting"
-description: "Are you looking for a fun and creative project that brings joy to both kids and adults? The DIY Wooden Toy Castle Kit is exactly what you need. Imagine building"
+title: 'Diy Wooden Toy Castle Kit: Build Creativity with Fun Crafting'
+description: Are you looking for a fun and creative project that brings joy to both
+  kids and adults? The DIY Wooden Toy Castle Kit is exactly what you need. Imagine
+  building
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-castle-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-castle-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to both kids and adults? The DIY Wooden Toy Castle Kit is exactly what you need.**

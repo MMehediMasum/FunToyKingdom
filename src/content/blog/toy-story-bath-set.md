@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Bath Set: Fun and Safe Bath Time for Kids"
-description: "The Toy Story Bath Set makes bath time fun and exciting for kids. It combines favorite characters with playful water activities. This set includes colorful toys"
+title: 'Toy Story Bath Set: Fun and Safe Bath Time for Kids'
+description: The Toy Story Bath Set makes bath time fun and exciting for kids. It
+  combines favorite characters with playful water activities. This set includes colorful
+  toys
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-bath-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-bath-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Bath Set makes bath time fun and exciting for kids. It combines favorite characters with playful water activities.**

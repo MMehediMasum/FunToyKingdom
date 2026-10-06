@@ -1,10 +1,14 @@
 ---
-title: "Cars Screamin Banshee Toy: Ultimate Diecast Pull Back Car for Kids"
-description: "The Screamin Banshee toy car captures the thrill of classic racing in a small package. Kids and collectors enjoy its detailed design and easy play features. Thi"
+title: 'Cars Screamin Banshee Toy: Ultimate Diecast Pull Back Car for Kids'
+description: The Screamin Banshee toy car captures the thrill of classic racing in
+  a small package. Kids and collectors enjoy its detailed design and easy play features.
+  Thi
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-screamin-banshee-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-screamin-banshee-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Screamin Banshee toy car captures the thrill of classic racing in a small package. Kids and collectors enjoy its detailed design and easy play features.**

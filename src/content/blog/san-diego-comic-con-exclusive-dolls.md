@@ -1,10 +1,14 @@
 ---
-title: "San Diego Comic Con Exclusive Dolls: Must-Have Collectors' Treasures"
-description: "Are you a fan of unique collectibles that stand out from the crowd? San Diego Comic Con Exclusive Dolls are exactly what you need to add something special to yo"
+title: 'San Diego Comic Con Exclusive Dolls: Must-Have Collectors'' Treasures'
+description: Are you a fan of unique collectibles that stand out from the crowd? San
+  Diego Comic Con Exclusive Dolls are exactly what you need to add something special
+  to yo
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=san-diego-comic-con-exclusive-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=san-diego-comic-con-exclusive-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of unique collectibles that stand out from the crowd? San Diego Comic Con Exclusive Dolls are exactly what you need to add something special to your collection.**

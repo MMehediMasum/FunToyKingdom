@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Teeter Totter Toy: Ultimate Fun for Kids’ Playtime"
-description: "Looking for a fun way to bring laughter and excitement to your backyard? An outdoor teeter totter toy might be just what you need. It’s not only a great way for"
+title: 'Outdoor Teeter Totter Toy: Ultimate Fun for Kids’ Playtime'
+description: Looking for a fun way to bring laughter and excitement to your backyard?
+  An outdoor teeter totter toy might be just what you need. It’s not only a great
+  way for
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-teeter-totter-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-teeter-totter-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring laughter and excitement to your backyard? An outdoor teeter totter toy might be just what you need.**

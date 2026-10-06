@@ -1,10 +1,14 @@
 ---
-title: "Best Doll Houses for 3 Year Olds: Top Playhouses with Furniture Sets"
-description: "Finding the best doll houses for 3 year olds helps develop creativity and fine motor skills. These toys offer hours of imaginative play and learning. Doll house"
+title: 'Best Doll Houses for 3 Year Olds: Top Playhouses with Furniture Sets'
+description: Finding the best doll houses for 3 year olds helps develop creativity
+  and fine motor skills. These toys offer hours of imaginative play and learning.
+  Doll house
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-doll-houses-for-3-year-olds-top-playhouses-with-furniture-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-doll-houses-for-3-year-olds-top-playhouses-with-furniture-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finding the best doll houses for 3 year olds helps develop creativity and fine motor skills. These toys offer hours of imaginative play and learning.**

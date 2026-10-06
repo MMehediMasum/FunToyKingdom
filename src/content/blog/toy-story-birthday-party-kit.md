@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Birthday Party Kit: Ultimate Decorations for Kids’ Celebration"
 description: "Celebrate your child’s special day with the perfect Toy Story Birthday Party Kit. This kit includes colorful decorations that bring the Toy Story theme to life."
 pubDate: 2026-03-02

@@ -1,10 +1,13 @@
 ---
-title: "Johnny Sokko Giant Robot Toy: Ultimate Collectible for Robot Fans"
-description: "The Johnny Sokko Giant Robot toy captures the excitement of classic Japanese sci-fi. Fans of giant robots and vintage shows will enjoy its detailed design. John"
+title: 'Johnny Sokko Giant Robot Toy: Ultimate Collectible for Robot Fans'
+description: The Johnny Sokko Giant Robot toy captures the excitement of classic Japanese
+  sci-fi. Fans of giant robots and vintage shows will enjoy its detailed design. John
 pubDate: 2026-08-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=johnny-sokko-giant-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=johnny-sokko-giant-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Johnny Sokko Giant Robot toy captures the excitement of classic Japanese sci-fi. Fans of giant robots and vintage shows will enjoy its detailed design.**

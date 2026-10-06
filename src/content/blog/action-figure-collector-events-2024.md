@@ -1,10 +1,14 @@
 ---
-title: "Action Figure Collector Events 2025: Must-Attend Shows & Tips"
-description: "Are you ready to dive into the most exciting action figure collector events of 2024? Whether you’re hunting for rare finds or looking to meet fellow fans, this "
+title: 'Action Figure Collector Events 2025: Must-Attend Shows & Tips'
+description: 'Are you ready to dive into the most exciting action figure collector
+  events of 2024? Whether you’re hunting for rare finds or looking to meet fellow
+  fans, this '
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=action-figure-collector-events-2024&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=action-figure-collector-events-2024&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to dive into the most exciting action figure collector events of 2024? Whether you’re hunting for rare finds or looking to meet fellow fans, this year’s lineup has something special for you.**

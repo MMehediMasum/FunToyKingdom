@@ -1,10 +1,14 @@
 ---
-title: "Programmable Robot Toy: Top Interactive STEM Kits for Kids’ Learning Fun"
-description: "Programmable robot toys offer endless learning opportunities for children. These toys combine fun with education, sparking creativity and curiosity. Children lo"
+title: 'Programmable Robot Toy: Top Interactive STEM Kits for Kids’ Learning Fun'
+description: Programmable robot toys offer endless learning opportunities for children.
+  These toys combine fun with education, sparking creativity and curiosity. Children
+  lo
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=programmable-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=programmable-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Programmable robot toys offer endless learning opportunities for children. These toys combine fun with education, sparking creativity and curiosity.**

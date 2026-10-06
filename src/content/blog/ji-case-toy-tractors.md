@@ -1,10 +1,13 @@
 ---
-title: "Ji Case Toy Tractors: Top Durable Farm Tractor Sets for Kids Playtime"
-description: "Ji Case toy tractors bring classic farm machinery to life in fun, collectible models. These toys offer realistic details and durable design for kids and collect"
+title: 'Ji Case Toy Tractors: Top Durable Farm Tractor Sets for Kids Playtime'
+description: Ji Case toy tractors bring classic farm machinery to life in fun, collectible
+  models. These toys offer realistic details and durable design for kids and collect
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ji-case-toy-tractors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=ji-case-toy-tractors&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Ji Case toy tractors bring classic farm machinery to life in fun, collectible models. These toys offer realistic details and durable design for kids and collectors alike.**

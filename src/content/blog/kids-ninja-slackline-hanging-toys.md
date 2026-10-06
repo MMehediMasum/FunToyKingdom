@@ -1,10 +1,14 @@
 ---
-title: "Kids Ninja Slackline Hanging Toys: Ultimate Fun & Active Play Guide"
-description: "Are you looking for a fun and exciting way to keep your kids active and entertained? Kids Ninja Slackline Hanging Toys might be just what you need. These toys c"
+title: 'Kids Ninja Slackline Hanging Toys: Ultimate Fun & Active Play Guide'
+description: Are you looking for a fun and exciting way to keep your kids active and
+  entertained? Kids Ninja Slackline Hanging Toys might be just what you need. These
+  toys c
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-ninja-slackline-hanging-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=kids-ninja-slackline-hanging-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active and entertained? Kids Ninja Slackline Hanging Toys might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Kids Nerf Battle Vest Gear: Ultimate Protection for Epic Playtime"
-description: "Are you ready to take your Nerf battles to the next level? Imagine your kids gearing up with the coolest Nerf battle vest gear that not only looks awesome but a"
+title: 'Kids Nerf Battle Vest Gear: Ultimate Protection for Epic Playtime'
+description: Are you ready to take your Nerf battles to the next level? Imagine your
+  kids gearing up with the coolest Nerf battle vest gear that not only looks awesome
+  but a
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-nerf-battle-vest-gear&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Car Rides Engaging
+heroImage: https://tse1.mm.bing.net/th?q=kids-nerf-battle-vest-gear&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you ready to take your Nerf battles to the next level? Imagine your kids gearing up with the coolest Nerf battle vest gear that not only looks awesome but also keeps all their darts and accessories right at their fingertips.**

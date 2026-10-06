@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Wirelessly Driven Toy for Short Crossword: Ultimate Brain Game Solution"
 description: "The wirelessly driven toy for short crossword puzzles offers a fun and easy way to solve word games. It helps users enjoy puzzles without any tangled wires or c"
 pubDate: 2026-08-04

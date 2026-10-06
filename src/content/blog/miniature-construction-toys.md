@@ -1,10 +1,14 @@
 ---
-title: "Miniature Construction Toys: Top Picks for Kids’ Imaginative Play Sets"
-description: "Miniature construction toys captivate young minds, sparking imagination and creativity. These tiny replicas bring the construction world to life. Kids love the "
+title: 'Miniature Construction Toys: Top Picks for Kids’ Imaginative Play Sets'
+description: 'Miniature construction toys captivate young minds, sparking imagination
+  and creativity. These tiny replicas bring the construction world to life. Kids love
+  the '
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-construction-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Benefits Of Building Block Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-construction-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Miniature construction toys captivate young minds, sparking imagination and creativity. These tiny replicas bring the construction world to life.**

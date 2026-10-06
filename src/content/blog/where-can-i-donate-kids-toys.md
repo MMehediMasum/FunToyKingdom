@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate Kids Toys: Top Places That Make a Difference"
-description: "Have you ever looked at your child’s old toys and wondered, “Where can I donate kids toys?” You’re not alone. Those toys, once filled with joy, can bring happin"
+title: 'Where Can I Donate Kids Toys: Top Places That Make a Difference'
+description: Have you ever looked at your child’s old toys and wondered, “Where can
+  I donate kids toys?” You’re not alone. Those toys, once filled with joy, can bring
+  happin
 pubDate: 2025-09-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-kids-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-kids-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever looked at your child’s old toys and wondered, “Where can I donate kids toys?” You’re not alone. Those toys, once filled with joy, can bring happiness to other children who need them.**

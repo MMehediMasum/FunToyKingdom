@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Patio Fence Kit: Easy Installation and Durable Outdoor Accessory"
 description: "A Toy Hauler Patio Fence Kit adds safety and comfort to your outdoor space. It creates a secure area on your patio for family and pets. This kit includes a conv"
 pubDate: 2026-08-25

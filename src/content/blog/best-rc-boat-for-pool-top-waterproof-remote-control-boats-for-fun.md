@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Boat for Pool: Top Waterproof Remote Control Boats for Fun"
-description: "Finding the best RC boat for pool fun can be tricky with many options available. Choosing the right boat ensures hours of safe and exciting water play. RC boats"
+title: 'Best Rc Boat for Pool: Top Waterproof Remote Control Boats for Fun'
+description: Finding the best RC boat for pool fun can be tricky with many options
+  available. Choosing the right boat ensures hours of safe and exciting water play.
+  RC boats
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-boat-for-pool-top-waterproof-remote-control-boats-for-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-boat-for-pool-top-waterproof-remote-control-boats-for-fun&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best RC boat for pool fun can be tricky with many options available. Choosing the right boat ensures hours of safe and exciting water play.**

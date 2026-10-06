@@ -1,10 +1,14 @@
 ---
-title: "Travel Size Board Games: Ultimate Fun for On-the-Go Adventures"
-description: "Looking for fun that fits right in your bag? Travel size board games are your perfect companion. Whether you’re waiting at the airport, sitting on a long train "
+title: 'Travel Size Board Games: Ultimate Fun for On-the-Go Adventures'
+description: 'Looking for fun that fits right in your bag? Travel size board games
+  are your perfect companion. Whether you’re waiting at the airport, sitting on a
+  long train '
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=travel-size-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=travel-size-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for fun that fits right in your bag? Travel size board games are your perfect companion.**

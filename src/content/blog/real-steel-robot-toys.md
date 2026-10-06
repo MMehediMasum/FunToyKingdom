@@ -1,10 +1,14 @@
 ---
-title: "Real Steel Robot Toys: Ultimate Collectible Action Figures and Fun Gifts"
-description: "Real Steel robot toys bring exciting battles and cool designs to life. These action figures and collectibles attract kids and fans alike. This collection featur"
+title: 'Real Steel Robot Toys: Ultimate Collectible Action Figures and Fun Gifts'
+description: Real Steel robot toys bring exciting battles and cool designs to life.
+  These action figures and collectibles attract kids and fans alike. This collection
+  featur
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=real-steel-robot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=real-steel-robot-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Real Steel robot toys bring exciting battles and cool designs to life. These action figures and collectibles attract kids and fans alike.**

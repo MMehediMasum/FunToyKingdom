@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for Kindergarteners: Fun, Educational, and Safe Picks"
-description: "Finding the perfect indoor toys for your kindergartener can feel overwhelming. You want something that keeps your little one engaged, sparks their creativity, a"
+title: 'Indoor Toys for Kindergarteners: Fun, Educational, and Safe Picks'
+description: Finding the perfect indoor toys for your kindergartener can feel overwhelming.
+  You want something that keeps your little one engaged, sparks their creativity,
+  a
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-kindergarteners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-kindergarteners&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Finding the perfect indoor toys for your kindergartener can feel overwhelming. You want something that keeps your little one engaged, sparks their creativity, and helps them learn—all while having fun.**

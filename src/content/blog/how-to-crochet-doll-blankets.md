@@ -1,10 +1,14 @@
 ---
-title: "How to Crochet Doll Blankets: Easy Steps for Cozy Creations"
-description: "Are you looking for a simple, fun way to make something special for your doll or a loved one? Crocheting doll blankets is a perfect project for you. Whether you"
+title: 'How to Crochet Doll Blankets: Easy Steps for Cozy Creations'
+description: Are you looking for a simple, fun way to make something special for your
+  doll or a loved one? Crocheting doll blankets is a perfect project for you. Whether
+  you
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-crochet-doll-blankets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=how-to-crochet-doll-blankets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for a simple, fun way to make something special for your doll or a loved one? Crocheting doll blankets is a perfect project for you.**

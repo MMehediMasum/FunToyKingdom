@@ -1,10 +1,15 @@
 ---
-title: "Transformers Robots in Disguise Grimlock Toy: Ultimate Dino Mode Action Figure Guide"
-description: "Grimlock, the iconic Dinobot leader, captivates fans young and old with diverse, engaging action figures. These toys offer exciting transformations and bring th"
+title: 'Transformers Robots in Disguise Grimlock Toy: Ultimate Dino Mode Action Figure
+  Guide'
+description: Grimlock, the iconic Dinobot leader, captivates fans young and old with
+  diverse, engaging action figures. These toys offer exciting transformations and
+  bring th
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-grimlock-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-grimlock-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Grimlock, the iconic Dinobot leader, captivates fans young and old with diverse, engaging action figures. These toys offer exciting transformations and bring the Transformers universe to life.**

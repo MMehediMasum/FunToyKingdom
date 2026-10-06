@@ -1,10 +1,13 @@
 ---
-title: "Fat Brain Toys for Infants: Best Sensory and Developmental Picks"
-description: "Fat Brain Toys offer a variety of engaging toys for infants that support early learning and sensory development. These toys encourage babies to explore shapes, "
+title: 'Fat Brain Toys for Infants: Best Sensory and Developmental Picks'
+description: 'Fat Brain Toys offer a variety of engaging toys for infants that support
+  early learning and sensory development. These toys encourage babies to explore shapes, '
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=fat-brain-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=fat-brain-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Fat Brain Toys offer a variety of engaging toys for infants that support early learning and sensory development. These toys encourage babies to explore shapes, colors, and textures while having fun.**

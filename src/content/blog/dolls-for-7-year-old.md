@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 7 Year Old: Top Fun and Educational Picks"
-description: "Finding the perfect doll for your 7-year-old can feel overwhelming. You want something that sparks their imagination, fits their interests, and is just the righ"
+title: 'Dolls for 7 Year Old: Top Fun and Educational Picks'
+description: Finding the perfect doll for your 7-year-old can feel overwhelming. You
+  want something that sparks their imagination, fits their interests, and is just
+  the righ
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-7-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finding the perfect doll for your 7-year-old can feel overwhelming. You want something that sparks their imagination, fits their interests, and is just the right size for hours of play.**

@@ -1,10 +1,14 @@
 ---
-title: "Electronic Dragon Toy That Breathes Fire: Ultimate Kid’s Fantasy Delight"
-description: "Imagine holding a toy that brings ancient legends to life right in your hands. The electronic dragon toy that breathes fire isn’t just a plaything—it’s an exper"
+title: 'Electronic Dragon Toy That Breathes Fire: Ultimate Kid’s Fantasy Delight'
+description: Imagine holding a toy that brings ancient legends to life right in your
+  hands. The electronic dragon toy that breathes fire isn’t just a plaything—it’s
+  an exper
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-dragon-toy-that-breathes-fire&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=electronic-dragon-toy-that-breathes-fire&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine holding a toy that brings ancient legends to life right in your hands. The electronic dragon toy that breathes fire isn’t just a plaything—it’s an experience that sparks your imagination and excitement like never before.**

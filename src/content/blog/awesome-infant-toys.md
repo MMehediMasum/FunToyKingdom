@@ -1,10 +1,14 @@
 ---
-title: "Awesome Infant Toys That Boost Development and Sensory Play Delight"
-description: "Exploring the world of infant toys? Discover the best options to keep your baby engaged and happy. Choosing the right toys for infants is crucial for their deve"
+title: Awesome Infant Toys That Boost Development and Sensory Play Delight
+description: Exploring the world of infant toys? Discover the best options to keep
+  your baby engaged and happy. Choosing the right toys for infants is crucial for
+  their deve
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=awesome-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=awesome-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Exploring the world of infant toys? Discover the best options to keep your baby engaged and happy.**

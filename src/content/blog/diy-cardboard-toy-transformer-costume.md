@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Transformer Costume: Ultimate Guide to Build Yours"
-description: "Are you ready to turn heads at your next costume party or playtime adventure? Imagine creating your very own Transformer costume using just cardboard and a litt"
+title: 'Diy Cardboard Toy Transformer Costume: Ultimate Guide to Build Yours'
+description: Are you ready to turn heads at your next costume party or playtime adventure?
+  Imagine creating your very own Transformer costume using just cardboard and a litt
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-transformer-costume&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-transformer-costume&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to turn heads at your next costume party or playtime adventure? Imagine creating your very own Transformer costume using just cardboard and a little creativity.**

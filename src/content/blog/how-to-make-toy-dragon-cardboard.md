@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Dragon Cardboard: Easy Step-by-Step Guide"
-description: "Are you ready to create a toy that sparks imagination and fun? Making a toy dragon out of cardboard is easier than you think, and it’s a fantastic way to bring "
+title: 'How to Make Toy Dragon Cardboard: Easy Step-by-Step Guide'
+description: 'Are you ready to create a toy that sparks imagination and fun? Making
+  a toy dragon out of cardboard is easier than you think, and it’s a fantastic way
+  to bring '
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-dragon-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-dragon-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create a toy that sparks imagination and fun? Making a toy dragon out of cardboard is easier than you think, and it’s a fantastic way to bring your creativity to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for Tweens: Top Fun and Engaging Picks"
-description: "Looking for the perfect indoor toys for tweens can feel overwhelming. You want something that sparks their creativity, keeps them entertained, and maybe even ch"
+title: 'Indoor Toys for Tweens: Top Fun and Engaging Picks'
+description: Looking for the perfect indoor toys for tweens can feel overwhelming.
+  You want something that sparks their creativity, keeps them entertained, and maybe
+  even ch
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-tweens&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect indoor toys for tweens can feel overwhelming. You want something that sparks their creativity, keeps them entertained, and maybe even challenges their minds.**

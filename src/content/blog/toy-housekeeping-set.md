@@ -1,10 +1,14 @@
 ---
-title: "Toy Housekeeping Set: Top Wooden Cleaning Toys for Kids’ Pretend Play"
-description: "Toy housekeeping sets offer children a fun and educational way to engage in pretend play. These sets inspire creativity while teaching responsibility. Toy house"
+title: 'Toy Housekeeping Set: Top Wooden Cleaning Toys for Kids’ Pretend Play'
+description: Toy housekeeping sets offer children a fun and educational way to engage
+  in pretend play. These sets inspire creativity while teaching responsibility. Toy
+  house
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-housekeeping-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-housekeeping-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy housekeeping sets offer children a fun and educational way to engage in pretend play. These sets inspire creativity while teaching responsibility.**

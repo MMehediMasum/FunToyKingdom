@@ -1,10 +1,14 @@
 ---
-title: "Kids Snow Shovel Toy Set: Ultimate Fun for Winter Playtime!"
-description: "Imagine your child playing outside, fully engaged and having fun while staying active. A Kids Snow Shovel Toy Set can turn a simple snowy day into an exciting a"
+title: 'Kids Snow Shovel Toy Set: Ultimate Fun for Winter Playtime!'
+description: Imagine your child playing outside, fully engaged and having fun while
+  staying active. A Kids Snow Shovel Toy Set can turn a simple snowy day into an exciting
+  a
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-snow-shovel-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=kids-snow-shovel-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child playing outside, fully engaged and having fun while staying active. A Kids Snow Shovel Toy Set can turn a simple snowy day into an exciting adventure.**

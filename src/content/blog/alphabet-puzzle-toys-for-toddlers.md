@@ -1,10 +1,14 @@
 ---
-title: "Alphabet Puzzle Toys for Toddlers: Boost Learning & Fun Fast"
-description: "Are you looking for a fun and effective way to help your toddler learn their ABCs? Alphabet puzzle toys are the perfect solution to turn learning into playtime."
+title: 'Alphabet Puzzle Toys for Toddlers: Boost Learning & Fun Fast'
+description: Are you looking for a fun and effective way to help your toddler learn
+  their ABCs? Alphabet puzzle toys are the perfect solution to turn learning into
+  playtime.
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=alphabet-puzzle-toys-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=alphabet-puzzle-toys-for-toddlers&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and effective way to help your toddler learn their ABCs? Alphabet puzzle toys are the perfect solution to turn learning into playtime.**

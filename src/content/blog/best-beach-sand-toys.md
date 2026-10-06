@@ -1,10 +1,14 @@
 ---
-title: "Best Beach Sand Toys for Kids: Ultimate Fun and Creative Sets"
-description: "Finding the best beach sand toys helps kids enjoy hours of creative play in the sand. Choosing safe, durable, and fun toys makes beach trips more memorable. San"
+title: 'Best Beach Sand Toys for Kids: Ultimate Fun and Creative Sets'
+description: Finding the best beach sand toys helps kids enjoy hours of creative play
+  in the sand. Choosing safe, durable, and fun toys makes beach trips more memorable.
+  San
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-beach-sand-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-beach-sand-toys&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Finding the best beach sand toys helps kids enjoy hours of creative play in the sand. Choosing safe, durable, and fun toys makes beach trips more memorable.**

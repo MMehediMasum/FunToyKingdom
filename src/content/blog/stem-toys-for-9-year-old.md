@@ -1,10 +1,13 @@
 ---
-title: "Stem Toys for 9 Year Old: Top Engaging Picks for Smart Play"
-description: "Are you looking for the perfect toy that will keep your 9-year-old entertained and learning at the same time? Stem toys are designed to spark curiosity and boos"
+title: 'Stem Toys for 9 Year Old: Top Engaging Picks for Smart Play'
+description: Are you looking for the perfect toy that will keep your 9-year-old entertained
+  and learning at the same time? Stem toys are designed to spark curiosity and boos
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-toys-for-9-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toy that will keep your 9-year-old entertained and learning at the same time? Stem toys are designed to spark curiosity and boost skills like problem-solving, creativity, and critical thinking.**

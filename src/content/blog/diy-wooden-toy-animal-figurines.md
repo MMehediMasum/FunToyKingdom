@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Animal Figurines: Easy Steps for Charming Creations"
-description: "Are you looking for a fun and creative way to bring a touch of nature into your home or gift something truly special? DIY wooden toy animal figurines are the pe"
+title: 'Diy Wooden Toy Animal Figurines: Easy Steps for Charming Creations'
+description: Are you looking for a fun and creative way to bring a touch of nature
+  into your home or gift something truly special? DIY wooden toy animal figurines
+  are the pe
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-animal-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-animal-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for a fun and creative way to bring a touch of nature into your home or gift something truly special? DIY wooden toy animal figurines are the perfect project for you.**

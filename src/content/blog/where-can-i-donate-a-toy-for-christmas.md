@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate a Toy for Christmas: Top Places to Spread Joy"
-description: "Are you wondering where you can donate a toy for Christmas this year? Giving a toy to a child in need is one of the simplest ways to spread joy during the holid"
+title: 'Where Can I Donate a Toy for Christmas: Top Places to Spread Joy'
+description: Are you wondering where you can donate a toy for Christmas this year?
+  Giving a toy to a child in need is one of the simplest ways to spread joy during
+  the holid
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-a-toy-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-a-toy-for-christmas&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can donate a toy for Christmas this year? Giving a toy to a child in need is one of the simplest ways to spread joy during the holiday season.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars Sheriff Toy: Top Diecast Collectibles for Kids’ Playtime Fun"
-description: "The Cars Sheriff toy is a favorite among children who enjoy the popular Cars movie series. This toy represents the brave sheriff character, loved for his role i"
+title: 'Cars Sheriff Toy: Top Diecast Collectibles for Kids’ Playtime Fun'
+description: The Cars Sheriff toy is a favorite among children who enjoy the popular
+  Cars movie series. This toy represents the brave sheriff character, loved for his
+  role i
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-sheriff-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-sheriff-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Cars Sheriff toy is a favorite among children who enjoy the popular Cars movie series. This toy represents the brave sheriff character, loved for his role in the stories.**

@@ -1,10 +1,14 @@
 ---
-title: "Barbie Holiday Edition Dolls Value: Ultimate Guide to Top Prices"
-description: "Are you curious about how much your Barbie Holiday Edition dolls are worth? Whether you’re a collector or just want to know if your special dolls could be valua"
+title: 'Barbie Holiday Edition Dolls Value: Ultimate Guide to Top Prices'
+description: Are you curious about how much your Barbie Holiday Edition dolls are
+  worth? Whether you’re a collector or just want to know if your special dolls could
+  be valua
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-holiday-edition-dolls-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=barbie-holiday-edition-dolls-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about how much your Barbie Holiday Edition dolls are worth? Whether you’re a collector or just want to know if your special dolls could be valuable, this guide will help you.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Buzz Robot: Ultimate Interactive Buzz Lightyear Playset Review"
-description: "The Toy Story Buzz Robot brings the beloved space ranger to life for kids. This collection includes action figures, playsets, and interactive toys that inspire "
+title: 'Toy Story Buzz Robot: Ultimate Interactive Buzz Lightyear Playset Review'
+description: 'The Toy Story Buzz Robot brings the beloved space ranger to life for
+  kids. This collection includes action figures, playsets, and interactive toys that
+  inspire '
 pubDate: 2026-02-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-buzz-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-buzz-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Toy Story Buzz Robot brings the beloved space ranger to life for kids. This collection includes action figures, playsets, and interactive toys that inspire imagination.**

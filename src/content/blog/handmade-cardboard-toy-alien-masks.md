@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Alien Masks: Creative Fun for Kids"
-description: "Are you looking for a fun and creative way to spark your imagination? Handmade cardboard toy alien masks might be just what you need. These unique masks are per"
+title: 'Handmade Cardboard Toy Alien Masks: Creative Fun for Kids'
+description: Are you looking for a fun and creative way to spark your imagination?
+  Handmade cardboard toy alien masks might be just what you need. These unique masks
+  are per
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-alien-masks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-alien-masks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to spark your imagination? Handmade cardboard toy alien masks might be just what you need.**

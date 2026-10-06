@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Dinosaur Theme: Ultimate Fun for Kids!"
-description: "Imagine your child’s face lighting up with pure joy every time they hop on their ride-on toy. Now, picture that toy transformed into a thrilling dinosaur advent"
+title: 'Ride on Toy With Dinosaur Theme: Ultimate Fun for Kids!'
+description: Imagine your child’s face lighting up with pure joy every time they hop
+  on their ride-on toy. Now, picture that toy transformed into a thrilling dinosaur
+  advent
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-dinosaur-theme&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy With Police
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-dinosaur-theme&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with pure joy every time they hop on their ride-on toy. Now, picture that toy transformed into a thrilling dinosaur adventure right in your own home or backyard.**

@@ -1,10 +1,13 @@
 ---
-title: "Electronic Circuit Learning Toy Kits: Boost STEM Skills Fast"
-description: "Are you curious about how electronic devices work? Imagine building your own gadgets while having fun and learning at the same time. Electronic circuit learning"
+title: 'Electronic Circuit Learning Toy Kits: Boost STEM Skills Fast'
+description: Are you curious about how electronic devices work? Imagine building your
+  own gadgets while having fun and learning at the same time. Electronic circuit learning
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-circuit-learning-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Montessori Toys For 3 4
+heroImage: https://tse1.mm.bing.net/th?q=electronic-circuit-learning-toy-kits&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you curious about how electronic devices work? Imagine building your own gadgets while having fun and learning at the same time.**

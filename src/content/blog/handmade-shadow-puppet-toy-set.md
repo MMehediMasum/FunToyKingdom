@@ -1,10 +1,14 @@
 ---
-title: "Handmade Shadow Puppet Toy Set: Magical Fun for Kids & Families"
-description: "Imagine a toy that sparks your child's imagination while bringing your family closer together. The Handmade Shadow Puppet Toy Set does exactly that. It’s more t"
+title: 'Handmade Shadow Puppet Toy Set: Magical Fun for Kids & Families'
+description: Imagine a toy that sparks your child's imagination while bringing your
+  family closer together. The Handmade Shadow Puppet Toy Set does exactly that. It’s
+  more t
 pubDate: 2026-07-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-shadow-puppet-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=handmade-shadow-puppet-toy-set&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Imagine a toy that sparks your child's imagination while bringing your family closer together. The Handmade Shadow Puppet Toy Set does exactly that.**

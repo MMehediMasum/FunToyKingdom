@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Police Car Sprinkler Inflatable: Ultimate Summer Fun!"
-description: "Imagine having a fun and eye-catching way to cool off your kids during hot summer days while also keeping your yard lively and exciting. The Outdoor Police Car "
+title: 'Outdoor Police Car Sprinkler Inflatable: Ultimate Summer Fun!'
+description: 'Imagine having a fun and eye-catching way to cool off your kids during
+  hot summer days while also keeping your yard lively and exciting. The Outdoor Police
+  Car '
 pubDate: 2025-10-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-police-car-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-police-car-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine having a fun and eye-catching way to cool off your kids during hot summer days while also keeping your yard lively and exciting. The Outdoor Police Car Sprinkler Inflatable is exactly what you need to turn your outdoor space into an instant playground.**

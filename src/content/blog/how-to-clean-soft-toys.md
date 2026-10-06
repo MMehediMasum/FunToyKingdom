@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Soft Toys: Easy Steps for a Fresh, Safe Toy"
-description: "Your soft toys are more than just playthings—they’re your comfort buddies, bedtime companions, and sometimes even your best friends. But over time, they can gat"
+title: 'How to Clean Soft Toys: Easy Steps for a Fresh, Safe Toy'
+description: Your soft toys are more than just playthings—they’re your comfort buddies,
+  bedtime companions, and sometimes even your best friends. But over time, they can
+  gat
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-soft-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-soft-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Your soft toys are more than just playthings—they’re your comfort buddies, bedtime companions, and sometimes even your best friends. But over time, they can gather dust, dirt, and germs that you don’t want lurking around.**

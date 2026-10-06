@@ -1,10 +1,14 @@
 ---
-title: "Baby Sensory Play Balls: Boost Development with Fun & Safety"
-description: "If you want to give your baby a fun way to learn and grow, baby sensory play balls are just what you need. These colorful, soft balls aren’t just toys—they help"
+title: 'Baby Sensory Play Balls: Boost Development with Fun & Safety'
+description: If you want to give your baby a fun way to learn and grow, baby sensory
+  play balls are just what you need. These colorful, soft balls aren’t just toys—they
+  help
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=baby-sensory-play-balls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=baby-sensory-play-balls&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you want to give your baby a fun way to learn and grow, baby sensory play balls are just what you need. These colorful, soft balls aren’t just toys—they help your little one explore new textures, sounds, and shapes.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Demo Derby Toys: Ultimate Diecast Crash and Race Experience"
-description: "Cars 3 Demo Derby Toys bring exciting crash action to kids’ playtime. These diecast vehicles capture thrilling demolition derby scenes from the Cars 3 movie. Ch"
+title: 'Cars 3 Demo Derby Toys: Ultimate Diecast Crash and Race Experience'
+description: Cars 3 Demo Derby Toys bring exciting crash action to kids’ playtime.
+  These diecast vehicles capture thrilling demolition derby scenes from the Cars 3
+  movie. Ch
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-demo-derby-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-demo-derby-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 3 Demo Derby Toys bring exciting crash action to kids’ playtime. These diecast vehicles capture thrilling demolition derby scenes from the Cars 3 movie.**

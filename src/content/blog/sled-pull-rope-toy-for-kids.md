@@ -1,10 +1,14 @@
 ---
-title: "Sled Pull Rope Toy for Kids: Ultimate Fun and Active Play Guide"
-description: "Are you looking for a fun and simple way to keep your kids active and entertained? The sled pull rope toy is just what you need. It’s more than a toy—it’s a too"
+title: 'Sled Pull Rope Toy for Kids: Ultimate Fun and Active Play Guide'
+description: Are you looking for a fun and simple way to keep your kids active and
+  entertained? The sled pull rope toy is just what you need. It’s more than a toy—it’s
+  a too
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sled-pull-rope-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=sled-pull-rope-toy-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and simple way to keep your kids active and entertained? The sled pull rope toy is just what you need.**

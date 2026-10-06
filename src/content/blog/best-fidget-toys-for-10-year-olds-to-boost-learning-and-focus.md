@@ -1,10 +1,14 @@
 ---
-title: "Best Fidget Toys for 10 Year Olds to Boost Learning and Focus"
-description: "Choosing the best fidget toys for 10 year olds can help improve focus and reduce anxiety. These toys offer fun and learning through hands-on play. Fidget toys c"
+title: Best Fidget Toys for 10 Year Olds to Boost Learning and Focus
+description: Choosing the best fidget toys for 10 year olds can help improve focus
+  and reduce anxiety. These toys offer fun and learning through hands-on play. Fidget
+  toys c
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fidget-toys-for-10-year-olds-to-boost-learning-and-focus&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Fidget Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=best-fidget-toys-for-10-year-olds-to-boost-learning-and-focus&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Choosing the best fidget toys for 10 year olds can help improve focus and reduce anxiety. These toys offer fun and learning through hands-on play.**

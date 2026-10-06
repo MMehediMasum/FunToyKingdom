@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Cradle: Easy Steps to Craft a Charming Heirloom"
-description: "Are you looking for a special project that brings warmth and charm to your home? Building your own wooden toy cradle is a wonderful way to create something mean"
+title: 'Diy Wooden Toy Cradle: Easy Steps to Craft a Charming Heirloom'
+description: Are you looking for a special project that brings warmth and charm to
+  your home? Building your own wooden toy cradle is a wonderful way to create something
+  mean
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-cradle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-cradle&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a special project that brings warmth and charm to your home? Building your own wooden toy cradle is a wonderful way to create something meaningful with your own hands.**

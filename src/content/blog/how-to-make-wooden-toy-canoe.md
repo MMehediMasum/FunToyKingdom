@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Canoe: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something special with your own hands? Making a wooden toy canoe is a fun and rewarding project that anyone can try. Whether you’"
+title: 'How to Make Wooden Toy Canoe: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something special with your own hands?
+  Making a wooden toy canoe is a fun and rewarding project that anyone can try. Whether
+  you’
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-canoe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-canoe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Making a wooden toy canoe is a fun and rewarding project that anyone can try.**

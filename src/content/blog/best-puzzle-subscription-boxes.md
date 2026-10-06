@@ -1,10 +1,14 @@
 ---
-title: "Best Puzzle Subscription Boxes: Top Picks for Endless Fun"
-description: "Are you ready to challenge your mind and have fun at the same time? Puzzle subscription boxes are the perfect way to keep your brain sharp while enjoying a new "
+title: 'Best Puzzle Subscription Boxes: Top Picks for Endless Fun'
+description: 'Are you ready to challenge your mind and have fun at the same time?
+  Puzzle subscription boxes are the perfect way to keep your brain sharp while enjoying
+  a new '
 pubDate: 2025-11-11
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-puzzle-subscription-boxes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Puzzle For Framing
+heroImage: https://tse1.mm.bing.net/th?q=best-puzzle-subscription-boxes&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind and have fun at the same time? Puzzle subscription boxes are the perfect way to keep your brain sharp while enjoying a new surprise every month.**

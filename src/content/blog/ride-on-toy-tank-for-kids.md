@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Tank for Kids: Ultimate Fun and Adventure Guide"
-description: "Looking for a fun and exciting way to keep your child entertained? A ride on toy tank for kids might be exactly what you need. Imagine your little one zooming a"
+title: 'Ride on Toy Tank for Kids: Ultimate Fun and Adventure Guide'
+description: Looking for a fun and exciting way to keep your child entertained? A
+  ride on toy tank for kids might be exactly what you need. Imagine your little one
+  zooming a
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-tank-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-tank-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your child entertained? A ride on toy tank for kids might be exactly what you need.**

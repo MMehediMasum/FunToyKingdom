@@ -1,10 +1,14 @@
 ---
-title: "Toyan L400 Engine Kit Review: Ultimate Starter Kit for SEMTO Engines"
-description: "The Toyan L400 Engine Kit offers a fascinating hands-on experience for engine enthusiasts. This kit combines quality parts with educational value. The Toyan L40"
+title: 'Toyan L400 Engine Kit Review: Ultimate Starter Kit for SEMTO Engines'
+description: The Toyan L400 Engine Kit offers a fascinating hands-on experience for
+  engine enthusiasts. This kit combines quality parts with educational value. The
+  Toyan L40
 pubDate: 2026-08-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyan-l400-engine-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=toyan-l400-engine-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Toyan L400 Engine Kit offers a fascinating hands-on experience for engine enthusiasts. This kit combines quality parts with educational value.**

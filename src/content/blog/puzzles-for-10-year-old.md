@@ -1,10 +1,14 @@
 ---
-title: "Puzzles for 10 Year Old: Fun and Brain-Boosting Challenges"
-description: "Are you looking for fun and challenging puzzles that are just right for a 10-year-old? Finding the perfect puzzle can boost your child's thinking skills, creati"
+title: 'Puzzles for 10 Year Old: Fun and Brain-Boosting Challenges'
+description: Are you looking for fun and challenging puzzles that are just right for
+  a 10-year-old? Finding the perfect puzzle can boost your child's thinking skills,
+  creati
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzles-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Puzzles For Toddlers Top
+heroImage: https://tse1.mm.bing.net/th?q=puzzles-for-10-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for fun and challenging puzzles that are just right for a 10-year-old? Finding the perfect puzzle can boost your child's thinking skills, creativity, and confidence.**

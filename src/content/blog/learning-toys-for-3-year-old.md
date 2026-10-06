@@ -1,10 +1,14 @@
 ---
-title: "Learning Toys for 3 Year Old: Top Picks to Boost Early Skills"
-description: "Finding the right learning toys for your 3-year-old can be both exciting and overwhelming. You want something that sparks curiosity, boosts skills, and keeps yo"
+title: 'Learning Toys for 3 Year Old: Top Picks to Boost Early Skills'
+description: Finding the right learning toys for your 3-year-old can be both exciting
+  and overwhelming. You want something that sparks curiosity, boosts skills, and keeps
+  yo
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=learning-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=learning-toys-for-3-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Finding the right learning toys for your 3-year-old can be both exciting and overwhelming. You want something that sparks curiosity, boosts skills, and keeps your little one happily engaged.**

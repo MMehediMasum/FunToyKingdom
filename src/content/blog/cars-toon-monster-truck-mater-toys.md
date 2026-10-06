@@ -1,10 +1,14 @@
 ---
-title: "Cars Toon Monster Truck Mater Toys: Ultimate Pixar Die-Cast Collectible Guide"
-description: "Cars Toon Monster Truck Mater toys bring the fun of Pixar’s Cars to life. These toys feature Mater and other characters in exciting monster truck styles. Fans o"
+title: 'Cars Toon Monster Truck Mater Toys: Ultimate Pixar Die-Cast Collectible Guide'
+description: Cars Toon Monster Truck Mater toys bring the fun of Pixar’s Cars to life.
+  These toys feature Mater and other characters in exciting monster truck styles.
+  Fans o
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toon-monster-truck-mater-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-toon-monster-truck-mater-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toon Monster Truck Mater toys bring the fun of Pixar’s Cars to life. These toys feature Mater and other characters in exciting monster truck styles.**

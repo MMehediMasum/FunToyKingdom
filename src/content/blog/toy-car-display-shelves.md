@@ -1,10 +1,14 @@
 ---
-title: "Toy Car Display Shelves: Best Storage Solutions for Collectors and Kids"
-description: "Toy car display shelves keep your collection neat and easy to see. They protect your cars while showing them off beautifully. Organizing toy cars can be tricky "
+title: 'Toy Car Display Shelves: Best Storage Solutions for Collectors and Kids'
+description: 'Toy car display shelves keep your collection neat and easy to see. They
+  protect your cars while showing them off beautifully. Organizing toy cars can be
+  tricky '
 pubDate: 2026-01-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-display-shelves&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-display-shelves&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy car display shelves keep your collection neat and easy to see. They protect your cars while showing them off beautifully.**

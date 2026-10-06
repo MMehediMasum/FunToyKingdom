@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Popular Miniature Dogs: Top Nutrition, Care, and Toys for Tiny Breeds"
 description: "Miniature dogs are charming companions, perfect for small spaces and families. They bring joy and lively energy to any home. Miniature dogs have captured the he"
 pubDate: 2026-03-02

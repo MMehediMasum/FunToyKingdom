@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Shop Display Diy: Creative Ideas to Boost Sales"
-description: "Are you looking to create a charming and eye-catching display for your wooden toy shop? A well-designed DIY display can make your toys stand out, attract more c"
+title: 'Wooden Toy Shop Display Diy: Creative Ideas to Boost Sales'
+description: Are you looking to create a charming and eye-catching display for your
+  wooden toy shop? A well-designed DIY display can make your toys stand out, attract
+  more c
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-shop-display-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-shop-display-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking to create a charming and eye-catching display for your wooden toy shop? A well-designed DIY display can make your toys stand out, attract more customers, and boost your sales.**

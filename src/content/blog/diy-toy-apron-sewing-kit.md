@@ -1,10 +1,13 @@
 ---
-title: "Diy Toy Apron Sewing Kit: Easy Steps for Creative Fun!"
-description: "Are you looking for a fun and creative way to keep your little one entertained? A DIY Toy Apron Sewing Kit might be exactly what you need. This simple project l"
+title: 'Diy Toy Apron Sewing Kit: Easy Steps for Creative Fun!'
+description: Are you looking for a fun and creative way to keep your little one entertained?
+  A DIY Toy Apron Sewing Kit might be exactly what you need. This simple project l
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-apron-sewing-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-apron-sewing-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to keep your little one entertained? A DIY Toy Apron Sewing Kit might be exactly what you need.**

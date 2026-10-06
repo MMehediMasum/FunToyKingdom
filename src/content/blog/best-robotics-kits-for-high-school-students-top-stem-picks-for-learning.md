@@ -1,10 +1,14 @@
 ---
-title: "Best Robotics Kits for High School Students: Top STEM Picks for Learning"
-description: "Robotics kits help high school students learn coding, engineering, and science hands-on. These kits make STEM subjects fun and easy to understand. Robotics kits"
+title: 'Best Robotics Kits for High School Students: Top STEM Picks for Learning'
+description: Robotics kits help high school students learn coding, engineering, and
+  science hands-on. These kits make STEM subjects fun and easy to understand. Robotics
+  kits
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-robotics-kits-for-high-school-students-top-stem-picks-for-learning&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=best-robotics-kits-for-high-school-students-top-stem-picks-for-learning&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robotics kits help high school students learn coding, engineering, and science hands-on. These kits make STEM subjects fun and easy to understand.**

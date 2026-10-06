@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With Foldable Arms: Ultimate Portability & Performance Guide"
-description: "Are you ready to take your flying experience to the next level? An RC drone with foldable arms gives you the perfect mix of power and portability. Imagine havin"
+title: 'Rc Drone With Foldable Arms: Ultimate Portability & Performance Guide'
+description: Are you ready to take your flying experience to the next level? An RC
+  drone with foldable arms gives you the perfect mix of power and portability. Imagine
+  havin
 pubDate: 2025-11-10
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-foldable-arms&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-foldable-arms&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your flying experience to the next level? An RC drone with foldable arms gives you the perfect mix of power and portability.**

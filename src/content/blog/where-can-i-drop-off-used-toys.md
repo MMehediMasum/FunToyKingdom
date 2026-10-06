@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Drop off Used Toys: Top Places to Donate Today"
-description: "Have you ever wondered where you can drop off used toys so they bring joy to others instead of gathering dust? You’re not alone. Finding the right place to dona"
+title: 'Where Can I Drop off Used Toys: Top Places to Donate Today'
+description: Have you ever wondered where you can drop off used toys so they bring
+  joy to others instead of gathering dust? You’re not alone. Finding the right place
+  to dona
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-drop-off-used-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drop Off Toys For Christmas
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-drop-off-used-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered where you can drop off used toys so they bring joy to others instead of gathering dust? You’re not alone.**

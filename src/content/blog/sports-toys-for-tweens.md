@@ -1,10 +1,14 @@
 ---
-title: "Sports Toys for Tweens: Top Picks for Active Fun and Fitness"
-description: "Looking for the perfect sports toys that keep your tween active and excited? You want something fun, safe, and that helps your child develop new skills. Sports "
+title: 'Sports Toys for Tweens: Top Picks for Active Fun and Fitness'
+description: 'Looking for the perfect sports toys that keep your tween active and
+  excited? You want something fun, safe, and that helps your child develop new skills.
+  Sports '
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sports-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sports Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sports-toys-for-tweens&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect sports toys that keep your tween active and excited? You want something fun, safe, and that helps your child develop new skills.**

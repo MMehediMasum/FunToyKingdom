@@ -1,10 +1,14 @@
 ---
-title: "Emotional Intelligence Toy Sets: Boost Kids' Social Skills Fast"
-description: "Have you ever wished there was an easy way to help your child understand their feelings better? Emotional Intelligence Toy Sets might be just what you need. The"
+title: 'Emotional Intelligence Toy Sets: Boost Kids'' Social Skills Fast'
+description: Have you ever wished there was an easy way to help your child understand
+  their feelings better? Emotional Intelligence Toy Sets might be just what you need.
+  The
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=emotional-intelligence-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=emotional-intelligence-toy-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wished there was an easy way to help your child understand their feelings better? Emotional Intelligence Toy Sets might be just what you need.**

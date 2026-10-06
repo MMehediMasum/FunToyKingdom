@@ -1,10 +1,14 @@
 ---
-title: "Kaplan Early Learning Company Toys: Top Educational Picks for Toddlers"
-description: "Kaplan Early Learning Company offers a wide range of educational toys designed to inspire young minds. These toys foster creativity, learning, and development i"
+title: 'Kaplan Early Learning Company Toys: Top Educational Picks for Toddlers'
+description: Kaplan Early Learning Company offers a wide range of educational toys
+  designed to inspire young minds. These toys foster creativity, learning, and development
+  i
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=kaplan-early-learning-company-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=kaplan-early-learning-company-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Kaplan Early Learning Company offers a wide range of educational toys designed to inspire young minds. These toys foster creativity, learning, and development in children from infancy to preschool age.**

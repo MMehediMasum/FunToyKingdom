@@ -1,10 +1,14 @@
 ---
-title: "Addition Toy Math Cubes: Boost Kids’ Learning Fun Instantly"
-description: "Are you looking for a fun and effective way to help your child master addition? Addition Toy Math Cubes might be just what you need. These colorful cubes turn l"
+title: 'Addition Toy Math Cubes: Boost Kids’ Learning Fun Instantly'
+description: Are you looking for a fun and effective way to help your child master
+  addition? Addition Toy Math Cubes might be just what you need. These colorful cubes
+  turn l
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=addition-toy-math-cubes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=addition-toy-math-cubes&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and effective way to help your child master addition? Addition Toy Math Cubes might be just what you need.**

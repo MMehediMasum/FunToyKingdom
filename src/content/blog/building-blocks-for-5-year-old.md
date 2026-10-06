@@ -1,10 +1,14 @@
 ---
-title: "Building Blocks for 5 Year Old: Fun Learning and Creativity Boosters"
-description: "Are you looking for the perfect way to boost your 5-year-old’s learning and creativity? Building blocks can be a game-changer for your child’s development. They"
+title: 'Building Blocks for 5 Year Old: Fun Learning and Creativity Boosters'
+description: Are you looking for the perfect way to boost your 5-year-old’s learning
+  and creativity? Building blocks can be a game-changer for your child’s development.
+  They
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=building-blocks-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Blocks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=building-blocks-for-5-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect way to boost your 5-year-old’s learning and creativity? Building blocks can be a game-changer for your child’s development.**

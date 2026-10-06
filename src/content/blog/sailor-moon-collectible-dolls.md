@@ -1,10 +1,14 @@
 ---
-title: "Sailor Moon Collectible Dolls: Ultimate Guide to Rare Treasures"
-description: "If you’re a fan of Sailor Moon, you know how special these characters are. Now, imagine having your very own Sailor Moon collectible dolls to bring that magic i"
+title: 'Sailor Moon Collectible Dolls: Ultimate Guide to Rare Treasures'
+description: If you’re a fan of Sailor Moon, you know how special these characters
+  are. Now, imagine having your very own Sailor Moon collectible dolls to bring that
+  magic i
 pubDate: 2025-09-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=sailor-moon-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=sailor-moon-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Sailor Moon, you know how special these characters are. Now, imagine having your very own Sailor Moon collectible dolls to bring that magic into your home.**

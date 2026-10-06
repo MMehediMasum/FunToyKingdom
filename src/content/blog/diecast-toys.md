@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toys: Top Collectible Model Cars and Trucks for Kids"
-description: "Diecast toys captivate collectors and kids alike with their detailed designs and sturdy build. Perfect miniatures of iconic vehicles. These miniature marvels ar"
+title: 'Diecast Toys: Top Collectible Model Cars and Trucks for Kids'
+description: Diecast toys captivate collectors and kids alike with their detailed
+  designs and sturdy build. Perfect miniatures of iconic vehicles. These miniature
+  marvels ar
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toys captivate collectors and kids alike with their detailed designs and sturdy build. Perfect miniatures of iconic vehicles.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Unicorn Sprinkler Toy Kids: Ultimate Summer Fun Guide"
-description: "Are you looking for a fun and magical way to keep your kids cool during hot days? The Outdoor Unicorn Sprinkler Toy is just what you need. Imagine your children"
+title: 'Outdoor Unicorn Sprinkler Toy Kids: Ultimate Summer Fun Guide'
+description: Are you looking for a fun and magical way to keep your kids cool during
+  hot days? The Outdoor Unicorn Sprinkler Toy is just what you need. Imagine your
+  children
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-unicorn-sprinkler-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-unicorn-sprinkler-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and magical way to keep your kids cool during hot days? The Outdoor Unicorn Sprinkler Toy is just what you need.**

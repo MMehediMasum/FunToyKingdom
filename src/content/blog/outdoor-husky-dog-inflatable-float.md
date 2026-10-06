@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Husky Dog Inflatable Float: Fun, Durable & Perfect!"
-description: "Imagine your Husky enjoying the water safely while you relax nearby. An outdoor Husky dog inflatable float is just what you need to make this happen. It offers "
+title: 'Outdoor Husky Dog Inflatable Float: Fun, Durable & Perfect!'
+description: 'Imagine your Husky enjoying the water safely while you relax nearby.
+  An outdoor Husky dog inflatable float is just what you need to make this happen.
+  It offers '
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-husky-dog-inflatable-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-husky-dog-inflatable-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your Husky enjoying the water safely while you relax nearby. An outdoor Husky dog inflatable float is just what you need to make this happen.**

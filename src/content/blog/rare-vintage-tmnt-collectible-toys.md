@@ -1,10 +1,14 @@
 ---
-title: "Rare Vintage Tmnt Collectible Toys: Ultimate Guide for Enthusiasts"
-description: "Are you a fan of Teenage Mutant Ninja Turtles or a passionate toy collector? Imagine holding a rare vintage TMNT collectible toy in your hands—something that no"
+title: 'Rare Vintage Tmnt Collectible Toys: Ultimate Guide for Enthusiasts'
+description: Are you a fan of Teenage Mutant Ninja Turtles or a passionate toy collector?
+  Imagine holding a rare vintage TMNT collectible toy in your hands—something that
+  no
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-vintage-tmnt-collectible-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=rare-vintage-tmnt-collectible-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Teenage Mutant Ninja Turtles or a passionate toy collector? Imagine holding a rare vintage TMNT collectible toy in your hands—something that not only brings back childhood memories but could also be a valuable treasure.**

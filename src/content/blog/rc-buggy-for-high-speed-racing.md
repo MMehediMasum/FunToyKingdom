@@ -1,10 +1,14 @@
 ---
-title: "Rc Buggy for High Speed Racing: Ultimate Guide to Maximum Speed"
-description: "Are you ready to take your racing skills to the next level? An RC buggy for high speed racing is exactly what you need to feel the thrill of speed and control i"
+title: 'Rc Buggy for High Speed Racing: Ultimate Guide to Maximum Speed'
+description: Are you ready to take your racing skills to the next level? An RC buggy
+  for high speed racing is exactly what you need to feel the thrill of speed and control
+  i
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-buggy-for-high-speed-racing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-buggy-for-high-speed-racing&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your racing skills to the next level? An RC buggy for high speed racing is exactly what you need to feel the thrill of speed and control in your hands.**

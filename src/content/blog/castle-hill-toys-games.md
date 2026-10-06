@@ -1,10 +1,14 @@
 ---
-title: "Castle Hill Toys & Games: Ultimate Medieval Castle Playsets for Kids"
-description: "Castle Hill Toys & Games offers a wide range of medieval castle playsets and knight figures. These toys inspire creativity and hours of imaginative play for chi"
+title: 'Castle Hill Toys & Games: Ultimate Medieval Castle Playsets for Kids'
+description: Castle Hill Toys & Games offers a wide range of medieval castle playsets
+  and knight figures. These toys inspire creativity and hours of imaginative play
+  for chi
 pubDate: 2026-02-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=castle-hill-toys-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=castle-hill-toys-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Castle Hill Toys & Games offers a wide range of medieval castle playsets and knight figures. These toys inspire creativity and hours of imaginative play for children.**

@@ -1,10 +1,14 @@
 ---
-title: "Super Robot Toy: Transforming Action Figures with Lights and Sounds"
-description: "Super robot toys bring imagination to life with action, lights, and sounds. Kids enjoy transforming these figures from robots to vehicles and back. Super robot "
+title: 'Super Robot Toy: Transforming Action Figures with Lights and Sounds'
+description: 'Super robot toys bring imagination to life with action, lights, and
+  sounds. Kids enjoy transforming these figures from robots to vehicles and back.
+  Super robot '
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=super-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=super-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Super robot toys bring imagination to life with action, lights, and sounds. Kids enjoy transforming these figures from robots to vehicles and back.**

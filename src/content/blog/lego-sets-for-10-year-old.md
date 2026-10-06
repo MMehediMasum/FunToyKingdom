@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for 10 Year Old: Top Creative Picks for Endless Fun"
-description: "Are you looking for the perfect Lego sets that will keep your 10-year-old busy, creative, and excited? Finding the right Lego set can be tricky, especially when"
+title: 'Lego Sets for 10 Year Old: Top Creative Picks for Endless Fun'
+description: Are you looking for the perfect Lego sets that will keep your 10-year-old
+  busy, creative, and excited? Finding the right Lego set can be tricky, especially
+  when
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-10-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect Lego sets that will keep your 10-year-old busy, creative, and excited? Finding the right Lego set can be tricky, especially when you want something that matches their interests and skill level.**

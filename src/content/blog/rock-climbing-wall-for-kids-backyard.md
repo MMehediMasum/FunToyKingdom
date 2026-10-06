@@ -1,10 +1,14 @@
 ---
-title: "Rock Climbing Wall for Kids Backyard: Ultimate Fun & Safety Guide"
-description: "Imagine turning your backyard into a fun and exciting adventure spot where your kids can climb, play, and build confidence every day. A rock climbing wall for k"
+title: 'Rock Climbing Wall for Kids Backyard: Ultimate Fun & Safety Guide'
+description: Imagine turning your backyard into a fun and exciting adventure spot
+  where your kids can climb, play, and build confidence every day. A rock climbing
+  wall for k
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rock-climbing-wall-for-kids-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=rock-climbing-wall-for-kids-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun and exciting adventure spot where your kids can climb, play, and build confidence every day. A rock climbing wall for kids in your backyard is more than just play—it’s a way to boost their strength, focus, and creativity while keeping them active and entertained.**

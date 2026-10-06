@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 2 Book: Magical Adventures for Kids and Collectors Alike"
 description: "\"Toy Story 2\" books capture the charm and adventure of the beloved movie. These books offer engaging stories for young readers. The \"Toy Story 2\" book collectio"
 pubDate: 2026-09-01

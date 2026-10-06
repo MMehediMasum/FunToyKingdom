@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Watch: Fun, Durable Timepieces for Kids and Fans"
-description: "Toy Story watches delight young fans with vibrant designs and favorite characters. These timepieces capture the magic of beloved movies. Toy Story watches are a"
+title: 'Toy Story Watch: Fun, Durable Timepieces for Kids and Fans'
+description: Toy Story watches delight young fans with vibrant designs and favorite
+  characters. These timepieces capture the magic of beloved movies. Toy Story watches
+  are a
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-watch&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-watch&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story watches delight young fans with vibrant designs and favorite characters. These timepieces capture the magic of beloved movies.**

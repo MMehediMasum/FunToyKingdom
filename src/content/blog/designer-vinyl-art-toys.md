@@ -1,10 +1,15 @@
 ---
-title: "Designer Vinyl Art Toys Display Cases: Protect and Showcase Your Collection Perfectly"
-description: "Designer vinyl art toys captivate collectors and enthusiasts with their unique charm and creativity. These collectible figures blend art and play, making them a"
+title: 'Designer Vinyl Art Toys Display Cases: Protect and Showcase Your Collection
+  Perfectly'
+description: Designer vinyl art toys captivate collectors and enthusiasts with their
+  unique charm and creativity. These collectible figures blend art and play, making
+  them a
 pubDate: 2026-03-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=designer-vinyl-art-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=designer-vinyl-art-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Designer vinyl art toys captivate collectors and enthusiasts with their unique charm and creativity. These collectible figures blend art and play, making them a favorite among diverse audiences.**

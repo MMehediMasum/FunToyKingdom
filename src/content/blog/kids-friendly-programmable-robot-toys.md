@@ -1,10 +1,13 @@
 ---
-title: "Kids Friendly Programmable Robot Toys: Top Picks for Fun Learning"
-description: "Are you looking for a fun way to spark your child’s creativity and learning? Kids friendly programmable robot toys might be just what you need. These toys don’t"
+title: 'Kids Friendly Programmable Robot Toys: Top Picks for Fun Learning'
+description: Are you looking for a fun way to spark your child’s creativity and learning?
+  Kids friendly programmable robot toys might be just what you need. These toys don’t
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-friendly-programmable-robot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=kids-friendly-programmable-robot-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to spark your child’s creativity and learning? Kids friendly programmable robot toys might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Friends to Elevate Your Ultimate Game Night"
-description: "Board games bring friends together for fun and laughter. They create memories and spark great conversations. Playing games based on the popular TV show Friends "
+title: Best Board Games for Friends to Elevate Your Ultimate Game Night
+description: 'Board games bring friends together for fun and laughter. They create
+  memories and spark great conversations. Playing games based on the popular TV show
+  Friends '
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-friends-to-elevate-your-ultimate-game-night&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-friends-to-elevate-your-ultimate-game-night&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games bring friends together for fun and laughter. They create memories and spark great conversations.**

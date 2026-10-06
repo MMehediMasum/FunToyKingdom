@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat With Led Lights: Ultimate Guide to Stunning Night Rides"
-description: "Are you ready to take your RC boat experience to the next level? Imagine cruising across the water as vibrant LED lights glow, turning heads and making your boa"
+title: 'Rc Boat With Led Lights: Ultimate Guide to Stunning Night Rides'
+description: Are you ready to take your RC boat experience to the next level? Imagine
+  cruising across the water as vibrant LED lights glow, turning heads and making your
+  boa
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-with-led-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-with-led-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC boat experience to the next level? Imagine cruising across the water as vibrant LED lights glow, turning heads and making your boat stand out like never before.**

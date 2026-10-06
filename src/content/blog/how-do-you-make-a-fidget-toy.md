@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Fidget Toy: Easy DIY Steps for Stress Relief"
-description: "Have you ever felt restless or distracted and wished for something simple to keep your hands busy? Making your own fidget toy might be the perfect solution. Not"
+title: 'How Do You Make a Fidget Toy: Easy DIY Steps for Stress Relief'
+description: Have you ever felt restless or distracted and wished for something simple
+  to keep your hands busy? Making your own fidget toy might be the perfect solution.
+  Not
 pubDate: 2025-09-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-fidget-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Fidget Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-fidget-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever felt restless or distracted and wished for something simple to keep your hands busy? Making your own fidget toy might be the perfect solution.**

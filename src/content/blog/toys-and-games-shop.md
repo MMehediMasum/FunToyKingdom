@@ -1,10 +1,14 @@
 ---
-title: "Toys And Games Shop: Top Magnetic Blocks & Interactive Kids Games"
-description: "Welcome to our Toys and Games Shop blog, where fun meets learning for kids of all ages! Discover engaging toys that spark creativity and enhance skills. Our sho"
+title: 'Toys And Games Shop: Top Magnetic Blocks & Interactive Kids Games'
+description: Welcome to our Toys and Games Shop blog, where fun meets learning for
+  kids of all ages! Discover engaging toys that spark creativity and enhance skills.
+  Our sho
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-and-games-shop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=toys-and-games-shop&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Welcome to our Toys and Games Shop blog, where fun meets learning for kids of all ages! Discover engaging toys that spark creativity and enhance skills.**

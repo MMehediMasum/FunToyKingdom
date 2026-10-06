@@ -1,10 +1,14 @@
 ---
-title: "Barbie Doll Car Playset: Ultimate Fun for Kids’ Imaginative Play"
-description: "Imagine the excitement your child will feel when they get their hands on the Barbie Doll Car Playset. This isn’t just any toy—it’s a gateway to endless adventur"
+title: 'Barbie Doll Car Playset: Ultimate Fun for Kids’ Imaginative Play'
+description: Imagine the excitement your child will feel when they get their hands
+  on the Barbie Doll Car Playset. This isn’t just any toy—it’s a gateway to endless
+  adventur
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-doll-car-playset&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-doll-car-playset&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine the excitement your child will feel when they get their hands on the Barbie Doll Car Playset. This isn’t just any toy—it’s a gateway to endless adventures, creativity, and fun.**

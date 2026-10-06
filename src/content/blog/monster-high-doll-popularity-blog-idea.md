@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Monster High Doll Popularity Blog Idea: Unveiling Top Trends"
 description: "Are you curious why Monster High dolls have captured the hearts of so many fans around the world? Whether you’re a collector, a parent, or just someone intrigue"
 pubDate: 2025-12-12

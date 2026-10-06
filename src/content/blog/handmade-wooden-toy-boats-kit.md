@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Boats Kit: Craft Your Perfect Nautical Adventure"
-description: "Are you looking for a fun and creative way to spend time with your kids or even enjoy a relaxing solo project? A Handmade Wooden Toy Boats Kit is exactly what y"
+title: 'Handmade Wooden Toy Boats Kit: Craft Your Perfect Nautical Adventure'
+description: Are you looking for a fun and creative way to spend time with your kids
+  or even enjoy a relaxing solo project? A Handmade Wooden Toy Boats Kit is exactly
+  what y
 pubDate: 2026-07-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-boats-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-boats-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to spend time with your kids or even enjoy a relaxing solo project? A Handmade Wooden Toy Boats Kit is exactly what you need.**

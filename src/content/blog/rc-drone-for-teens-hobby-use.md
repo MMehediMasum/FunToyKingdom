@@ -1,10 +1,13 @@
 ---
-title: "Rc Drone for Teens Hobby Use: Ultimate Fun and Skill Builder"
-description: "Are you looking for a fun and exciting hobby that can keep your teen engaged for hours? An RC drone might be just what you need. These small, remote-controlled "
+title: 'Rc Drone for Teens Hobby Use: Ultimate Fun and Skill Builder'
+description: 'Are you looking for a fun and exciting hobby that can keep your teen
+  engaged for hours? An RC drone might be just what you need. These small, remote-controlled '
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-for-teens-hobby-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-for-teens-hobby-use&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting hobby that can keep your teen engaged for hours? An RC drone might be just what you need.**

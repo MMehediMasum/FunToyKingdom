@@ -1,10 +1,14 @@
 ---
-title: "Despicable Me Bratt Robot Toy: Must-Have Collectible for Minions Fans"
-description: "The Despicable Me Bratt Robot Toy brings fun and action to any playtime. Kids will enjoy its cool design and interactive features. This toy captures the mischie"
+title: 'Despicable Me Bratt Robot Toy: Must-Have Collectible for Minions Fans'
+description: The Despicable Me Bratt Robot Toy brings fun and action to any playtime.
+  Kids will enjoy its cool design and interactive features. This toy captures the
+  mischie
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=despicable-me-bratt-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=despicable-me-bratt-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Despicable Me Bratt Robot Toy brings fun and action to any playtime. Kids will enjoy its cool design and interactive features.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Video Game for Kids: Ultimate Fun & Adventure Guide"
 description: "Are you looking for a fun and exciting game that your kids will love? The Toy Story video game for kids is just what you need. It brings the magic of your favor"
 pubDate: 2026-07-17

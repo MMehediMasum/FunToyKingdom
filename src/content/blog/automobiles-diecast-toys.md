@@ -1,10 +1,14 @@
 ---
-title: "Automobiles Diecast Toys: Top Classic and Muscle Cars for Collectors"
-description: "Automobiles diecast toys bring classic and modern cars to life in miniature form. These detailed models offer fun and collectible value for all ages. Diecast to"
+title: 'Automobiles Diecast Toys: Top Classic and Muscle Cars for Collectors'
+description: Automobiles diecast toys bring classic and modern cars to life in miniature
+  form. These detailed models offer fun and collectible value for all ages. Diecast
+  to
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=automobiles-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=automobiles-diecast-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Automobiles diecast toys bring classic and modern cars to life in miniature form. These detailed models offer fun and collectible value for all ages.**

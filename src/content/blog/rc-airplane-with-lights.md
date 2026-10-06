@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane With Lights: Ultimate Night Flying Experience Guide"
-description: "Imagine flying your RC airplane not just by day, but lighting up the night sky with vibrant, glowing colors. An RC airplane with lights adds a thrilling new dim"
+title: 'Rc Airplane With Lights: Ultimate Night Flying Experience Guide'
+description: Imagine flying your RC airplane not just by day, but lighting up the
+  night sky with vibrant, glowing colors. An RC airplane with lights adds a thrilling
+  new dim
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine flying your RC airplane not just by day, but lighting up the night sky with vibrant, glowing colors. An RC airplane with lights adds a thrilling new dimension to your flying experience.**

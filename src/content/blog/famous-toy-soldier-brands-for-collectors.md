@@ -1,10 +1,14 @@
 ---
-title: "Famous Toy Soldier Brands for Collectors: Top Picks Revealed"
-description: "Are you passionate about toy soldiers and looking to build a collection that stands out? Choosing the right brand can make all the difference in the quality and"
+title: 'Famous Toy Soldier Brands for Collectors: Top Picks Revealed'
+description: Are you passionate about toy soldiers and looking to build a collection
+  that stands out? Choosing the right brand can make all the difference in the quality
+  and
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=famous-toy-soldier-brands-for-collectors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=famous-toy-soldier-brands-for-collectors&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you passionate about toy soldiers and looking to build a collection that stands out? Choosing the right brand can make all the difference in the quality and value of your figures.**

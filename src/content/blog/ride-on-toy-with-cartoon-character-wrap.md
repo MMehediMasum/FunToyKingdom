@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Cartoon Character Wrap: Fun, Safe & Durable Delight"
-description: "Imagine your child’s eyes lighting up as they zoom around on a ride-on toy that features their favorite cartoon character. A ride-on toy with a cartoon characte"
+title: 'Ride on Toy With Cartoon Character Wrap: Fun, Safe & Durable Delight'
+description: Imagine your child’s eyes lighting up as they zoom around on a ride-on
+  toy that features their favorite cartoon character. A ride-on toy with a cartoon
+  characte
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-cartoon-character-wrap&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-cartoon-character-wrap&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they zoom around on a ride-on toy that features their favorite cartoon character. A ride-on toy with a cartoon character wrap isn't just a fun plaything—it’s a way to bring stories and imagination to life right in your home or backyard.**

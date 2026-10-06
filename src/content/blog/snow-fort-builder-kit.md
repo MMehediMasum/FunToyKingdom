@@ -1,10 +1,14 @@
 ---
-title: "Snow Fort Builder Kit: Ultimate Guide to Epic Winter Fun"
-description: "Imagine turning your backyard into a winter wonderland where you and your family can build amazing snow forts with ease. With a Snow Fort Builder Kit, you don’t"
+title: 'Snow Fort Builder Kit: Ultimate Guide to Epic Winter Fun'
+description: Imagine turning your backyard into a winter wonderland where you and
+  your family can build amazing snow forts with ease. With a Snow Fort Builder Kit,
+  you don’t
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=snow-fort-builder-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=snow-fort-builder-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a winter wonderland where you and your family can build amazing snow forts with ease. With a Snow Fort Builder Kit, you don’t have to struggle with messy snow or guesswork.**

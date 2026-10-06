@@ -1,10 +1,14 @@
 ---
-title: "Augmented Reality Planet Exploration Toy: Discover, Learn & Play"
-description: "Imagine holding the entire solar system right in your hands. What if you could explore distant planets, learn fascinating facts, and watch amazing space visuals"
+title: 'Augmented Reality Planet Exploration Toy: Discover, Learn & Play'
+description: Imagine holding the entire solar system right in your hands. What if
+  you could explore distant planets, learn fascinating facts, and watch amazing space
+  visuals
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=augmented-reality-planet-exploration-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=augmented-reality-planet-exploration-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine holding the entire solar system right in your hands. What if you could explore distant planets, learn fascinating facts, and watch amazing space visuals come to life—all from your own room?**

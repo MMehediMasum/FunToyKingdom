@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Water Sprinkler Toy: Ultimate Fun for Kids This Summer"
-description: "Looking for a fun way to keep your kids cool and active this summer? An outdoor water sprinkler toy might be just what you need. Imagine your backyard turning i"
+title: 'Outdoor Water Sprinkler Toy: Ultimate Fun for Kids This Summer'
+description: Looking for a fun way to keep your kids cool and active this summer?
+  An outdoor water sprinkler toy might be just what you need. Imagine your backyard
+  turning i
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-water-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-water-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids cool and active this summer? An outdoor water sprinkler toy might be just what you need.**

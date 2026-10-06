@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Fort Building Kit for Kids: Ultimate Fun & Creativity Guide"
-description: "Imagine giving your kids a chance to turn your backyard into a magical adventure land. With an Outdoor Fort Building Kit for Kids, you’re not just offering a to"
+title: 'Outdoor Fort Building Kit for Kids: Ultimate Fun & Creativity Guide'
+description: Imagine giving your kids a chance to turn your backyard into a magical
+  adventure land. With an Outdoor Fort Building Kit for Kids, you’re not just offering
+  a to
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-fort-building-kit-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-fort-building-kit-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids a chance to turn your backyard into a magical adventure land. With an Outdoor Fort Building Kit for Kids, you’re not just offering a toy—you’re opening the door to endless creativity, fun, and fresh air.**

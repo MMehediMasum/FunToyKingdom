@@ -1,10 +1,14 @@
 ---
-title: "Nissan Rogue Toy Car: Ultimate Diecast Model for Collectors and Kids"
-description: "Nissan Rogue toy cars offer detailed, fun models for collectors and kids alike. These diecast cars come in various scales and designs, perfect for display or pl"
+title: 'Nissan Rogue Toy Car: Ultimate Diecast Model for Collectors and Kids'
+description: Nissan Rogue toy cars offer detailed, fun models for collectors and kids
+  alike. These diecast cars come in various scales and designs, perfect for display
+  or pl
 pubDate: 2026-02-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nissan-rogue-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=nissan-rogue-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Nissan Rogue toy cars offer detailed, fun models for collectors and kids alike. These diecast cars come in various scales and designs, perfect for display or play.**

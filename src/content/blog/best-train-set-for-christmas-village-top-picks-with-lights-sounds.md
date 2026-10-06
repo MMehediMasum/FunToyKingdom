@@ -1,10 +1,14 @@
 ---
-title: "Best Train Set for Christmas Village: Top Picks with Lights & Sounds"
-description: "Choosing the best train set for your Christmas village adds charm and joy to holiday decor. A good set brings lights, sounds, and movement that delight all ages"
+title: 'Best Train Set for Christmas Village: Top Picks with Lights & Sounds'
+description: Choosing the best train set for your Christmas village adds charm and
+  joy to holiday decor. A good set brings lights, sounds, and movement that delight
+  all ages
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-train-set-for-christmas-village-top-picks-with-lights-sounds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-train-set-for-christmas-village-top-picks-with-lights-sounds&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best train set for your Christmas village adds charm and joy to holiday decor. A good set brings lights, sounds, and movement that delight all ages.**

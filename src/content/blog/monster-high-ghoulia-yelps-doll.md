@@ -1,10 +1,14 @@
 ---
-title: "Monster High Ghoulia Yelps Doll: Ultimate Collector’s Must-Have!"
-description: "Are you ready to meet a doll that’s as smart as she is stylish? The Monster High Ghoulia Yelps Doll brings a unique mix of brains and coolness that makes her st"
+title: 'Monster High Ghoulia Yelps Doll: Ultimate Collector’s Must-Have!'
+description: Are you ready to meet a doll that’s as smart as she is stylish? The Monster
+  High Ghoulia Yelps Doll brings a unique mix of brains and coolness that makes her
+  st
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-ghoulia-yelps-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-ghoulia-yelps-doll&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to meet a doll that’s as smart as she is stylish? The Monster High Ghoulia Yelps Doll brings a unique mix of brains and coolness that makes her stand out from the rest.**

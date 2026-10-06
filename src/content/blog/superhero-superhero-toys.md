@@ -1,10 +1,14 @@
 ---
-title: "Superhero Superhero Toys: Top Marvel and DC Action Figures for Kids"
-description: "Superhero toys bring excitement and creativity to children's playtime. These action figures and sets inspire imagination and fun for all ages. Superhero toys of"
+title: 'Superhero Superhero Toys: Top Marvel and DC Action Figures for Kids'
+description: Superhero toys bring excitement and creativity to children's playtime.
+  These action figures and sets inspire imagination and fun for all ages. Superhero
+  toys of
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=superhero-superhero-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=superhero-superhero-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Superhero toys bring excitement and creativity to children's playtime. These action figures and sets inspire imagination and fun for all ages.**

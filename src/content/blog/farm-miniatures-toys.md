@@ -1,10 +1,14 @@
 ---
-title: "Farm Miniatures Toys: Top Realistic Animal Sets for Educational Play"
-description: "Farm miniatures toys bring the charm of farm life right into children’s hands. These small, detailed animal and vehicle figurines encourage fun and learning. Mi"
+title: 'Farm Miniatures Toys: Top Realistic Animal Sets for Educational Play'
+description: Farm miniatures toys bring the charm of farm life right into children’s
+  hands. These small, detailed animal and vehicle figurines encourage fun and learning.
+  Mi
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=farm-miniatures-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=farm-miniatures-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Farm miniatures toys bring the charm of farm life right into children’s hands. These small, detailed animal and vehicle figurines encourage fun and learning.**

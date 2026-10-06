@@ -1,10 +1,14 @@
 ---
-title: "Cooling Teething Toy Refrigerator Safe: Soothing Relief for Babies"
-description: "Teething can be tough for both you and your little one. When your baby’s gums feel sore and swollen, finding quick relief is a top priority. That’s where a cool"
+title: 'Cooling Teething Toy Refrigerator Safe: Soothing Relief for Babies'
+description: Teething can be tough for both you and your little one. When your baby’s
+  gums feel sore and swollen, finding quick relief is a top priority. That’s where
+  a cool
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cooling-teething-toy-refrigerator-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=cooling-teething-toy-refrigerator-safe&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Teething can be tough for both you and your little one. When your baby’s gums feel sore and swollen, finding quick relief is a top priority.**

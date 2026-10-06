@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Lobster Sprinkler Kids Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Lobster Sprinkler Kids Toy might be just what you need. Imagine your child"
+title: 'Outdoor Lobster Sprinkler Kids Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun way to keep your kids cool and entertained this summer?
+  The Outdoor Lobster Sprinkler Kids Toy might be just what you need. Imagine your
+  child
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-lobster-sprinkler-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-lobster-sprinkler-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Lobster Sprinkler Kids Toy might be just what you need.**

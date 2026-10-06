@@ -1,10 +1,14 @@
 ---
-title: "Captain America Toy Soldier Style Action Figure: Ultimate Collectible Guide"
-description: "Imagine holding a piece of heroism right in your hands. The Captain America Toy Soldier Style Action Figure isn’t just a toy—it’s a gateway to your favorite adv"
+title: 'Captain America Toy Soldier Style Action Figure: Ultimate Collectible Guide'
+description: Imagine holding a piece of heroism right in your hands. The Captain America
+  Toy Soldier Style Action Figure isn’t just a toy—it’s a gateway to your favorite
+  adv
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=captain-america-toy-soldier-style-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=captain-america-toy-soldier-style-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine holding a piece of heroism right in your hands. The Captain America Toy Soldier Style Action Figure isn’t just a toy—it’s a gateway to your favorite adventures and heroic battles.**

@@ -1,10 +1,13 @@
 ---
-title: "Thomas & Friends Toy Trains & Train Sets Perfect for Preschool Playtime"
-description: "Thomas & Friends toy trains and train sets bring fun and learning together for young kids. These sets include motorized engines, tracks, and interactive feature"
+title: Thomas & Friends Toy Trains & Train Sets Perfect for Preschool Playtime
+description: Thomas & Friends toy trains and train sets bring fun and learning together
+  for young kids. These sets include motorized engines, tracks, and interactive feature
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=thomas-friends-toy-trains-train-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Train Sets For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=thomas-friends-toy-trains-train-sets&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Thomas & Friends toy trains and train sets bring fun and learning together for young kids. These sets include motorized engines, tracks, and interactive features.**

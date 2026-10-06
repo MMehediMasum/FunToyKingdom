@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Drinking Games for Two People: Fun, Challenging, and Perfect for Date Nights"
 description: "Drinking games for two people add fun and excitement to any night. They help break the ice and create lasting memories. Playing drinking games with a partner or"
 pubDate: 2025-10-27

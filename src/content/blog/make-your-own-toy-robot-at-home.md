@@ -1,10 +1,14 @@
 ---
-title: "Make Your Own Toy Robot at Home: Easy Steps for Fun DIY Robots"
-description: "Have you ever wanted to build your own toy robot right at home? Imagine holding a little robot that you created with your own hands. It’s not just fun—it’s a ch"
+title: 'Make Your Own Toy Robot at Home: Easy Steps for Fun DIY Robots'
+description: Have you ever wanted to build your own toy robot right at home? Imagine
+  holding a little robot that you created with your own hands. It’s not just fun—it’s
+  a ch
 pubDate: 2025-11-03
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=make-your-own-toy-robot-at-home&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=make-your-own-toy-robot-at-home&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to build your own toy robot right at home? Imagine holding a little robot that you created with your own hands.**

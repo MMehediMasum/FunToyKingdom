@@ -1,10 +1,14 @@
 ---
-title: "Climbing Toys for 3 Year Old: Top Safe & Fun Picks"
-description: "Are you looking for the perfect climbing toys for your 3-year-old? Choosing the right toy can boost your child’s confidence, improve their motor skills, and kee"
+title: 'Climbing Toys for 3 Year Old: Top Safe & Fun Picks'
+description: Are you looking for the perfect climbing toys for your 3-year-old? Choosing
+  the right toy can boost your child’s confidence, improve their motor skills, and
+  kee
 pubDate: 2026-05-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=climbing-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=climbing-toys-for-3-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect climbing toys for your 3-year-old? Choosing the right toy can boost your child’s confidence, improve their motor skills, and keep them happily active.**

@@ -1,10 +1,14 @@
 ---
-title: "Kids Pirate Ship Outdoor Playhouse: Ultimate Adventure for Kids"
-description: "Imagine giving your child a special place where their imagination can sail freely, where every day feels like a new adventure. A Kids Pirate Ship Outdoor Playho"
+title: 'Kids Pirate Ship Outdoor Playhouse: Ultimate Adventure for Kids'
+description: Imagine giving your child a special place where their imagination can
+  sail freely, where every day feels like a new adventure. A Kids Pirate Ship Outdoor
+  Playho
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-pirate-ship-outdoor-playhouse&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=kids-pirate-ship-outdoor-playhouse&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a special place where their imagination can sail freely, where every day feels like a new adventure. A Kids Pirate Ship Outdoor Playhouse can turn your backyard into a thrilling pirate hideout.**

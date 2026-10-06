@@ -1,10 +1,14 @@
 ---
-title: "Escape Room Puzzle Games for Home: Ultimate Fun & Brain Teasers"
-description: "Have you ever wanted to bring the excitement of an escape room right into your own home? Escape room puzzle games for home are the perfect way to challenge your"
+title: 'Escape Room Puzzle Games for Home: Ultimate Fun & Brain Teasers'
+description: Have you ever wanted to bring the excitement of an escape room right
+  into your own home? Escape room puzzle games for home are the perfect way to challenge
+  your
 pubDate: 2025-10-19
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=escape-room-puzzle-games-for-home&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=escape-room-puzzle-games-for-home&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wanted to bring the excitement of an escape room right into your own home? Escape room puzzle games for home are the perfect way to challenge your mind, have fun with friends or family, and create unforgettable memories without leaving your living room.**

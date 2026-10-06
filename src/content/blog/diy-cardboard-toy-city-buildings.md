@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy City Buildings: Creative Ideas to Inspire Play"
-description: "Imagine turning simple cardboard into a vibrant toy city that sparks your creativity and brings endless fun. You don’t need fancy materials or tools—just your h"
+title: 'Diy Cardboard Toy City Buildings: Creative Ideas to Inspire Play'
+description: Imagine turning simple cardboard into a vibrant toy city that sparks
+  your creativity and brings endless fun. You don’t need fancy materials or tools—just
+  your h
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-city-buildings&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-city-buildings&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning simple cardboard into a vibrant toy city that sparks your creativity and brings endless fun. You don’t need fancy materials or tools—just your hands and a bit of imagination.**

@@ -1,10 +1,14 @@
 ---
-title: "Eleven Stranger Things Collectible Doll: Must-Have Fan Treasure"
-description: "Are you a fan of Stranger Things looking to add something special to your collection? The Eleven Stranger Things collectible doll might just be what you need. T"
+title: 'Eleven Stranger Things Collectible Doll: Must-Have Fan Treasure'
+description: Are you a fan of Stranger Things looking to add something special to
+  your collection? The Eleven Stranger Things collectible doll might just be what
+  you need. T
 pubDate: 2025-11-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=eleven-stranger-things-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=eleven-stranger-things-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Stranger Things looking to add something special to your collection? The Eleven Stranger Things collectible doll might just be what you need.**

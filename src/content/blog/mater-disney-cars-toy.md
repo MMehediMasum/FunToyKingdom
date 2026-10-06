@@ -1,10 +1,14 @@
 ---
-title: "Mater Disney Cars Toy: Ultimate Collectible Talking Tow Truck for Kids"
-description: "Mater Disney Cars toys captivate young fans with beloved characters like Tow Mater. These toys blend fun and imagination perfectly. Mattel and Disney Pixar have"
+title: 'Mater Disney Cars Toy: Ultimate Collectible Talking Tow Truck for Kids'
+description: Mater Disney Cars toys captivate young fans with beloved characters like
+  Tow Mater. These toys blend fun and imagination perfectly. Mattel and Disney Pixar
+  have
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mater-disney-cars-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=mater-disney-cars-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Mater Disney Cars toys captivate young fans with beloved characters like Tow Mater. These toys blend fun and imagination perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Camera Crafting Tutorial: Create Your Own Classic Toy"
-description: "Do you want to create a fun and charming wooden toy camera that you can proudly show off or gift to someone special? This wooden toy camera crafting tutorial is"
+title: 'Wooden Toy Camera Crafting Tutorial: Create Your Own Classic Toy'
+description: Do you want to create a fun and charming wooden toy camera that you can
+  proudly show off or gift to someone special? This wooden toy camera crafting tutorial
+  is
 pubDate: 2025-10-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-camera-crafting-tutorial&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-camera-crafting-tutorial&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to create a fun and charming wooden toy camera that you can proudly show off or gift to someone special? This wooden toy camera crafting tutorial is just what you need.**

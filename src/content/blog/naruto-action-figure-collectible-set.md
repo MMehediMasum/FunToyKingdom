@@ -1,10 +1,14 @@
 ---
-title: "Naruto Action Figure Collectible Set: Ultimate Fan's Must-Have Guide"
-description: "If you’re a Naruto fan, you know how exciting it is to bring your favorite characters to life. Imagine holding a Naruto action figure collectible set in your ha"
+title: 'Naruto Action Figure Collectible Set: Ultimate Fan''s Must-Have Guide'
+description: If you’re a Naruto fan, you know how exciting it is to bring your favorite
+  characters to life. Imagine holding a Naruto action figure collectible set in your
+  ha
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=naruto-action-figure-collectible-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=naruto-action-figure-collectible-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a Naruto fan, you know how exciting it is to bring your favorite characters to life. Imagine holding a Naruto action figure collectible set in your hands—each figure packed with detail and ready to join your collection.**

@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 10 Year Old: Fun and Creative Projects"
-description: "Looking for fun and creative ways to keep your 10-year-old busy? Arts and crafts are the perfect solution. They not only spark imagination but also help develop"
+title: 'Arts And Crafts for 10 Year Old: Fun and Creative Projects'
+description: Looking for fun and creative ways to keep your 10-year-old busy? Arts
+  and crafts are the perfect solution. They not only spark imagination but also help
+  develop
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-10-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for fun and creative ways to keep your 10-year-old busy? Arts and crafts are the perfect solution.**

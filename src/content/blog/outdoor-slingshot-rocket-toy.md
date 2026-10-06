@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Slingshot Rocket Toy: Ultimate Fun for Kids Outdoors"
-description: "Are you looking for a fun way to add excitement to your outdoor playtime? The Outdoor Slingshot Rocket Toy is just what you need. It’s simple, thrilling, and pe"
+title: 'Outdoor Slingshot Rocket Toy: Ultimate Fun for Kids Outdoors'
+description: Are you looking for a fun way to add excitement to your outdoor playtime?
+  The Outdoor Slingshot Rocket Toy is just what you need. It’s simple, thrilling,
+  and pe
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-slingshot-rocket-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-slingshot-rocket-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to add excitement to your outdoor playtime? The Outdoor Slingshot Rocket Toy is just what you need.**

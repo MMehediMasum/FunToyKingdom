@@ -1,10 +1,14 @@
 ---
-title: "Best Tractor Toys for 3 Year Olds: Top Durable & Educational Picks"
-description: "Tractor toys spark curiosity and fun for 3-year-olds. They help develop motor skills and encourage imaginative play. Choosing the best tractor toys for toddlers"
+title: 'Best Tractor Toys for 3 Year Olds: Top Durable & Educational Picks'
+description: Tractor toys spark curiosity and fun for 3-year-olds. They help develop
+  motor skills and encourage imaginative play. Choosing the best tractor toys for
+  toddlers
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tractor-toys-for-3-year-olds-top-durable-educational-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-tractor-toys-for-3-year-olds-top-durable-educational-picks&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Tractor toys spark curiosity and fun for 3-year-olds. They help develop motor skills and encourage imaginative play.**

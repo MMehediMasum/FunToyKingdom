@@ -1,10 +1,14 @@
 ---
-title: "Rc Tank With Remote Range: Ultimate Guide to Extended Control"
-description: "Are you looking for an exciting way to bring your RC tank experience to the next level? Understanding the remote range of your RC tank can make all the differen"
+title: 'Rc Tank With Remote Range: Ultimate Guide to Extended Control'
+description: Are you looking for an exciting way to bring your RC tank experience
+  to the next level? Understanding the remote range of your RC tank can make all the
+  differen
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-tank-with-remote-range&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-tank-with-remote-range&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for an exciting way to bring your RC tank experience to the next level? Understanding the remote range of your RC tank can make all the difference between fun and frustration.**

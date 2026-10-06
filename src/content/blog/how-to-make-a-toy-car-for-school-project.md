@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Toy Car for School Project: Easy Step-by-Step Guide"
-description: "Are you ready to impress your classmates and teachers with a cool school project? Making a toy car might sound tricky, but with the right steps, you can build o"
+title: 'How to Make a Toy Car for School Project: Easy Step-by-Step Guide'
+description: Are you ready to impress your classmates and teachers with a cool school
+  project? Making a toy car might sound tricky, but with the right steps, you can
+  build o
 pubDate: 2025-09-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-car-for-school-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Race Tracks For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-car-for-school-project&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to impress your classmates and teachers with a cool school project? Making a toy car might sound tricky, but with the right steps, you can build one easily and have fun doing it.**

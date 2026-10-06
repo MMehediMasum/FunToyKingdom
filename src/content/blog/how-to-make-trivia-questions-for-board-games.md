@@ -1,10 +1,14 @@
 ---
-title: "How to Make Trivia Questions for Board Games: Ultimate Guide"
-description: "Are you ready to add a fresh twist to your board game nights? Creating your own trivia questions can make the game more exciting and personal. But how do you co"
+title: 'How to Make Trivia Questions for Board Games: Ultimate Guide'
+description: Are you ready to add a fresh twist to your board game nights? Creating
+  your own trivia questions can make the game more exciting and personal. But how
+  do you co
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-trivia-questions-for-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-trivia-questions-for-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to add a fresh twist to your board game nights? Creating your own trivia questions can make the game more exciting and personal.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Kia Cars: Best Diecast Models with Sound, Light, and Pull Back"
-description: "Toy Kia cars offer fun and realistic play for kids and collectors alike. These diecast models come in many styles and sizes, perfect for all ages. Toy Kia cars "
+title: 'Toy Kia Cars: Best Diecast Models with Sound, Light, and Pull Back'
+description: 'Toy Kia cars offer fun and realistic play for kids and collectors alike.
+  These diecast models come in many styles and sizes, perfect for all ages. Toy Kia
+  cars '
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-kia-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-kia-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy Kia cars offer fun and realistic play for kids and collectors alike. These diecast models come in many styles and sizes, perfect for all ages.**

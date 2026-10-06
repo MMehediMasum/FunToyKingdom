@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rabbit Inflatable Ride on: Ultimate Fun for Kids Outdoors"
-description: "Imagine the joy on your child’s face as they bounce and glide on an outdoor rabbit inflatable ride-on. This fun and safe toy isn’t just a way to play—it’s a cha"
+title: 'Outdoor Rabbit Inflatable Ride on: Ultimate Fun for Kids Outdoors'
+description: Imagine the joy on your child’s face as they bounce and glide on an outdoor
+  rabbit inflatable ride-on. This fun and safe toy isn’t just a way to play—it’s a
+  cha
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rabbit-inflatable-ride-on&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rabbit-inflatable-ride-on&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the joy on your child’s face as they bounce and glide on an outdoor rabbit inflatable ride-on. This fun and safe toy isn’t just a way to play—it’s a chance to spark imagination, build balance, and create unforgettable memories right in your backyard.**

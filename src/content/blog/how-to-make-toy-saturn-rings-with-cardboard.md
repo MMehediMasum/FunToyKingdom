@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Saturn Rings With Cardboard: Easy DIY Guide"
-description: "Have you ever wanted to create something fun and eye-catching with just a few simple materials? Making toy Saturn rings out of cardboard is a perfect project fo"
+title: 'How to Make Toy Saturn Rings With Cardboard: Easy DIY Guide'
+description: Have you ever wanted to create something fun and eye-catching with just
+  a few simple materials? Making toy Saturn rings out of cardboard is a perfect project
+  fo
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-saturn-rings-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-saturn-rings-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and eye-catching with just a few simple materials? Making toy Saturn rings out of cardboard is a perfect project for you.**

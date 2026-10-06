@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Pliers: Easy DIY Craft Guide"
-description: "Have you ever wanted to create a fun, safe toy for your child that also sparks their creativity? Making wooden toy pliers is easier than you think, and you don’"
+title: 'How to Make Wooden Toy Pliers: Easy DIY Craft Guide'
+description: Have you ever wanted to create a fun, safe toy for your child that also
+  sparks their creativity? Making wooden toy pliers is easier than you think, and
+  you don’
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-pliers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-pliers&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a fun, safe toy for your child that also sparks their creativity? Making wooden toy pliers is easier than you think, and you don’t need fancy tools or skills to get started.**

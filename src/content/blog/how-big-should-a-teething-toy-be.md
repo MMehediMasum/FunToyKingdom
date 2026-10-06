@@ -1,10 +1,14 @@
 ---
-title: "How Big Should a Teething Toy Be: Essential Size Guide for Safety"
-description: "Choosing the right teething toy for your baby can feel overwhelming. You want something that’s safe, soothing, and just the right size. But how big should a tee"
+title: 'How Big Should a Teething Toy Be: Essential Size Guide for Safety'
+description: Choosing the right teething toy for your baby can feel overwhelming.
+  You want something that’s safe, soothing, and just the right size. But how big should
+  a tee
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-big-should-a-teething-toy-be&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-big-should-a-teething-toy-be&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right teething toy for your baby can feel overwhelming. You want something that’s safe, soothing, and just the right size.**

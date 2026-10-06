@@ -1,10 +1,14 @@
 ---
-title: "Best Doll Houses for Barbies: Top 3-Story Playsets with Fun Features"
-description: "Finding the best doll houses for Barbies can make playtime more fun and creative. These doll houses offer great features and lots of space for imagination. Barb"
+title: 'Best Doll Houses for Barbies: Top 3-Story Playsets with Fun Features'
+description: Finding the best doll houses for Barbies can make playtime more fun and
+  creative. These doll houses offer great features and lots of space for imagination.
+  Barb
 pubDate: 2025-11-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-doll-houses-for-barbies-top-3-story-playsets-with-fun-features&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=best-doll-houses-for-barbies-top-3-story-playsets-with-fun-features&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finding the best doll houses for Barbies can make playtime more fun and creative. These doll houses offer great features and lots of space for imagination.**

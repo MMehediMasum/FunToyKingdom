@@ -1,10 +1,14 @@
 ---
-title: "Plastic Kiddie Pool With Shade: Ultimate Summer Fun & Safety Guide"
-description: "Looking for a way to keep your kids cool and safe during hot days? A plastic kiddie pool with shade might be just what you need. It’s not only fun but also prot"
+title: 'Plastic Kiddie Pool With Shade: Ultimate Summer Fun & Safety Guide'
+description: Looking for a way to keep your kids cool and safe during hot days? A
+  plastic kiddie pool with shade might be just what you need. It’s not only fun but
+  also prot
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=plastic-kiddie-pool-with-shade&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Toy Development
+heroImage: https://tse1.mm.bing.net/th?q=plastic-kiddie-pool-with-shade&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a way to keep your kids cool and safe during hot days? A plastic kiddie pool with shade might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Cars for 12 Year Old: Top Picks for Thrilling Fun"
-description: "Are you searching for the perfect remote control car for your 12-year-old? Choosing the right one can be tricky—there are so many options out there, and you wan"
+title: 'Remote Control Cars for 12 Year Old: Top Picks for Thrilling Fun'
+description: Are you searching for the perfect remote control car for your 12-year-old?
+  Choosing the right one can be tricky—there are so many options out there, and you
+  wan
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-cars-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-cars-for-12-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you searching for the perfect remote control car for your 12-year-old? Choosing the right one can be tricky—there are so many options out there, and you want a car that’s fun, safe, and easy to use.**

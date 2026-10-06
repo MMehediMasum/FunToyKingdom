@@ -1,10 +1,14 @@
 ---
-title: "Power Rangers Action Figures: Ultimate Guide to Collect & Play"
-description: "Are you a fan of Power Rangers or looking to add some excitement to your collection? Power Rangers action figures bring your favorite heroes right into your han"
+title: 'Power Rangers Action Figures: Ultimate Guide to Collect & Play'
+description: Are you a fan of Power Rangers or looking to add some excitement to your
+  collection? Power Rangers action figures bring your favorite heroes right into your
+  han
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=power-rangers-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=power-rangers-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Power Rangers or looking to add some excitement to your collection? Power Rangers action figures bring your favorite heroes right into your hands.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Lantern: Easy Step-by-Step Guide for Kids"
-description: "Looking for a fun and creative project that adds a warm glow to your space? A DIY wooden toy lantern is just what you need. It’s simple to make, uses basic mate"
+title: 'Diy Wooden Toy Lantern: Easy Step-by-Step Guide for Kids'
+description: Looking for a fun and creative project that adds a warm glow to your
+  space? A DIY wooden toy lantern is just what you need. It’s simple to make, uses
+  basic mate
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-lantern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-lantern&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative project that adds a warm glow to your space? A DIY wooden toy lantern is just what you need.**

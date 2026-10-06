@@ -1,10 +1,13 @@
 ---
-title: "Toy Gold Coins Collectibles: Ultimate Guide to Rare Treasures"
-description: "Imagine holding a treasure in your hands—shiny, golden, and full of stories. Toy gold coins collectibles are not just playthings; they are gateways to adventure"
+title: 'Toy Gold Coins Collectibles: Ultimate Guide to Rare Treasures'
+description: Imagine holding a treasure in your hands—shiny, golden, and full of stories.
+  Toy gold coins collectibles are not just playthings; they are gateways to adventure
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-gold-coins-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-gold-coins-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine holding a treasure in your hands—shiny, golden, and full of stories. Toy gold coins collectibles are not just playthings; they are gateways to adventure, history, and fun.**

@@ -1,10 +1,14 @@
 ---
-title: "Best 3D Metal Puzzles for Adults: Top DIY Kits for Brain Teasers"
-description: "3D metal puzzles offer a fun and challenging way to spend time. They combine creativity, focus, and fine motor skills in one activity. These puzzles come in man"
+title: 'Best 3D Metal Puzzles for Adults: Top DIY Kits for Brain Teasers'
+description: 3D metal puzzles offer a fun and challenging way to spend time. They
+  combine creativity, focus, and fine motor skills in one activity. These puzzles
+  come in man
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-3d-metal-puzzles-for-adults-top-diy-kits-for-brain-teasers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Care & Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-3d-metal-puzzles-for-adults-top-diy-kits-for-brain-teasers&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **3D metal puzzles offer a fun and challenging way to spend time. They combine creativity, focus, and fine motor skills in one activity.**

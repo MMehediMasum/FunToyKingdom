@@ -1,10 +1,14 @@
 ---
-title: "Shredder Tmnt Villain Action Figure: Ultimate Collectible Showdown"
-description: "If you’re a fan of Teenage Mutant Ninja Turtles, you know that the Shredder isn’t just any villain—he’s the ultimate enemy. Now, imagine having your very own Sh"
+title: 'Shredder Tmnt Villain Action Figure: Ultimate Collectible Showdown'
+description: If you’re a fan of Teenage Mutant Ninja Turtles, you know that the Shredder
+  isn’t just any villain—he’s the ultimate enemy. Now, imagine having your very own
+  Sh
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=shredder-tmnt-villain-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=shredder-tmnt-villain-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Teenage Mutant Ninja Turtles, you know that the Shredder isn’t just any villain—he’s the ultimate enemy. Now, imagine having your very own Shredder TMNT villain action figure right in your hands.**

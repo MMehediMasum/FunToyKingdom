@@ -1,10 +1,14 @@
 ---
-title: "Collectible Coin Operated Toy Machines: Ultimate Guide to Investing"
-description: "Have you ever felt the thrill of dropping a coin into a toy machine and watching a surprise appear? Collectible coin operated toy machines bring that magic righ"
+title: 'Collectible Coin Operated Toy Machines: Ultimate Guide to Investing'
+description: Have you ever felt the thrill of dropping a coin into a toy machine and
+  watching a surprise appear? Collectible coin operated toy machines bring that magic
+  righ
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-coin-operated-toy-machines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=collectible-coin-operated-toy-machines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever felt the thrill of dropping a coin into a toy machine and watching a surprise appear? Collectible coin operated toy machines bring that magic right to your home.**

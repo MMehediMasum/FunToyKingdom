@@ -1,10 +1,14 @@
 ---
-title: "Kids Electric Ride on Atv: Ultimate Fun and Safety Guide"
-description: "Looking for the perfect way to bring endless fun and adventure to your child’s playtime? A kids electric ride on ATV might be just what you need. Imagine your l"
+title: 'Kids Electric Ride on Atv: Ultimate Fun and Safety Guide'
+description: Looking for the perfect way to bring endless fun and adventure to your
+  child’s playtime? A kids electric ride on ATV might be just what you need. Imagine
+  your l
 pubDate: 2025-08-30
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-electric-ride-on-atv&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=kids-electric-ride-on-atv&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect way to bring endless fun and adventure to your child’s playtime? A kids electric ride on ATV might be just what you need.**

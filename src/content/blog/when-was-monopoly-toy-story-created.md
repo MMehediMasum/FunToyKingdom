@@ -1,10 +1,14 @@
 ---
-title: "When was Monopoly Toy Story Created: Discover the Surprising History"
-description: "Have you ever wondered when the Monopoly Toy Story edition was created? If you're a fan of both the classic board game and the beloved Toy Story movies, this sp"
+title: 'When was Monopoly Toy Story Created: Discover the Surprising History'
+description: Have you ever wondered when the Monopoly Toy Story edition was created?
+  If you're a fan of both the classic board game and the beloved Toy Story movies,
+  this sp
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-was-monopoly-toy-story-created&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- How Much Money Do You
+heroImage: https://tse1.mm.bing.net/th?q=when-was-monopoly-toy-story-created&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered when the Monopoly Toy Story edition was created? If you're a fan of both the classic board game and the beloved Toy Story movies, this special version is sure to catch your interest.**

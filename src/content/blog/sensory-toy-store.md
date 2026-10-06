@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toy Store: Top Fidget Toys for Stress Relief and Autism Support"
-description: "Sensory toys offer a unique way to help individuals manage stress and anxiety. They cater to children and adults alike, providing relief through tactile engagem"
+title: 'Sensory Toy Store: Top Fidget Toys for Stress Relief and Autism Support'
+description: Sensory toys offer a unique way to help individuals manage stress and
+  anxiety. They cater to children and adults alike, providing relief through tactile
+  engagem
 pubDate: 2026-08-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toy-store&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toy-store&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys offer a unique way to help individuals manage stress and anxiety. They cater to children and adults alike, providing relief through tactile engagement.**

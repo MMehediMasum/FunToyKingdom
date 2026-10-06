@@ -1,10 +1,14 @@
 ---
-title: "Limited Edition Toy Figurines: Must-Have Collectibles for Fans"
-description: "Imagine holding a toy figurine that no one else has. A piece so rare, it feels like a secret treasure made just for you. Limited edition toy figurines aren’t ju"
+title: 'Limited Edition Toy Figurines: Must-Have Collectibles for Fans'
+description: Imagine holding a toy figurine that no one else has. A piece so rare,
+  it feels like a secret treasure made just for you. Limited edition toy figurines
+  aren’t ju
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=limited-edition-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=limited-edition-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine holding a toy figurine that no one else has. A piece so rare, it feels like a secret treasure made just for you.**

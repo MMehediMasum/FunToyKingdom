@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Water Cannon Toy: Ultimate Summer Fun for Kids"
-description: "Looking for a fun way to beat the heat and bring excitement to your outdoor playtime? An outdoor water cannon toy could be exactly what you need. Imagine the th"
+title: 'Outdoor Water Cannon Toy: Ultimate Summer Fun for Kids'
+description: Looking for a fun way to beat the heat and bring excitement to your outdoor
+  playtime? An outdoor water cannon toy could be exactly what you need. Imagine the
+  th
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-water-cannon-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-water-cannon-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to beat the heat and bring excitement to your outdoor playtime? An outdoor water cannon toy could be exactly what you need.**

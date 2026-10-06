@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bat Inflatable Ride on Kids: Ultimate Fun & Safe Playtime"
-description: "Looking for a fun and exciting way to keep your kids entertained outdoors? The Outdoor Bat Inflatable Ride On for kids might be exactly what you need. Imagine y"
+title: 'Outdoor Bat Inflatable Ride on Kids: Ultimate Fun & Safe Playtime'
+description: Looking for a fun and exciting way to keep your kids entertained outdoors?
+  The Outdoor Bat Inflatable Ride On for kids might be exactly what you need. Imagine
+  y
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bat-inflatable-ride-on-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bat-inflatable-ride-on-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids entertained outdoors? The Outdoor Bat Inflatable Ride On for kids might be exactly what you need.**

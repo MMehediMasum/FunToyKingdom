@@ -1,10 +1,13 @@
 ---
-title: "Toy Mercedes Car: Top Diecast Models with Lights, Sound, and Pull Back Features"
-description: "Toy Mercedes cars bring luxury and style to miniature vehicle collections. These detailed models offer fun for kids and adults alike. Toy Mercedes cars capture "
+title: 'Toy Mercedes Car: Top Diecast Models with Lights, Sound, and Pull Back Features'
+description: 'Toy Mercedes cars bring luxury and style to miniature vehicle collections.
+  These detailed models offer fun for kids and adults alike. Toy Mercedes cars capture '
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-mercedes-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-mercedes-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toy Mercedes cars bring luxury and style to miniature vehicle collections. These detailed models offer fun for kids and adults alike.**

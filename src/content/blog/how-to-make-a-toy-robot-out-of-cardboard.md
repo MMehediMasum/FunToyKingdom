@@ -1,10 +1,13 @@
 ---
-title: "How to Make a Toy Robot Out of Cardboard: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something fun and cool with your own hands? Making a toy robot out of cardboard is a simple and exciting way to bring your creati"
+title: 'How to Make a Toy Robot Out of Cardboard: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something fun and cool with your own hands?
+  Making a toy robot out of cardboard is a simple and exciting way to bring your creati
 pubDate: 2026-05-27
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-robot-out-of-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-robot-out-of-cardboard&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to create something fun and cool with your own hands? Making a toy robot out of cardboard is a simple and exciting way to bring your creativity to life.**

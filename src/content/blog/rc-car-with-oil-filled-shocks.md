@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Oil Filled Shocks: Ultimate Performance & Smooth Ride"
-description: "If you’re looking to take your RC car experience to the next level, understanding the role of oil-filled shocks is a game changer. These shocks don’t just make "
+title: 'Rc Car With Oil Filled Shocks: Ultimate Performance & Smooth Ride'
+description: 'If you’re looking to take your RC car experience to the next level,
+  understanding the role of oil-filled shocks is a game changer. These shocks don’t
+  just make '
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-oil-filled-shocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-oil-filled-shocks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **If you’re looking to take your RC car experience to the next level, understanding the role of oil-filled shocks is a game changer. These shocks don’t just make your car look cooler—they transform how it handles rough terrain and sharp turns.**

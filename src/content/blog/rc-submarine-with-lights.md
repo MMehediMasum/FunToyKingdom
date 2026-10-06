@@ -1,10 +1,14 @@
 ---
-title: "Rc Submarine With Lights: Ultimate Guide to Underwater Fun"
-description: "Imagine controlling a sleek RC submarine that glides silently beneath the water’s surface, its bright lights cutting through the darkness like a real underwater"
+title: 'Rc Submarine With Lights: Ultimate Guide to Underwater Fun'
+description: Imagine controlling a sleek RC submarine that glides silently beneath
+  the water’s surface, its bright lights cutting through the darkness like a real
+  underwater
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-submarine-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-submarine-with-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling a sleek RC submarine that glides silently beneath the water’s surface, its bright lights cutting through the darkness like a real underwater explorer. If you’ve ever wanted to bring the mystery of the deep sea right to your fingertips, an RC submarine with lights is exactly what you need.**

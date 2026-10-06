@@ -1,10 +1,14 @@
 ---
-title: "Tummy Time Toys for Newborns: Boost Growth with Top Picks"
-description: "If you’re a new parent, you know how important tummy time is for your newborn’s growth. But keeping your little one engaged during tummy time can be a challenge"
+title: 'Tummy Time Toys for Newborns: Boost Growth with Top Picks'
+description: If you’re a new parent, you know how important tummy time is for your
+  newborn’s growth. But keeping your little one engaged during tummy time can be a
+  challenge
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=tummy-time-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=tummy-time-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a new parent, you know how important tummy time is for your newborn’s growth. But keeping your little one engaged during tummy time can be a challenge.**

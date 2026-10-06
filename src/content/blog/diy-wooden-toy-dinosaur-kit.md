@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Dinosaur Kit: Build Fun & Educational Craft Sets"
-description: "Are you looking for a fun and creative way to spend time with your kids or even enjoy a solo project? A DIY Wooden Toy Dinosaur Kit is the perfect choice for yo"
+title: 'Diy Wooden Toy Dinosaur Kit: Build Fun & Educational Craft Sets'
+description: Are you looking for a fun and creative way to spend time with your kids
+  or even enjoy a solo project? A DIY Wooden Toy Dinosaur Kit is the perfect choice
+  for yo
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-dinosaur-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-dinosaur-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to spend time with your kids or even enjoy a solo project? A DIY Wooden Toy Dinosaur Kit is the perfect choice for you.**

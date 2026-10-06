@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Basketball Hoop for Toddlers: Safe, Fun, and Durable Options"
-description: "Are you looking for a fun and safe way to get your toddler active outdoors? An outdoor basketball hoop designed just for little ones could be the perfect choice"
+title: 'Outdoor Basketball Hoop for Toddlers: Safe, Fun, and Durable Options'
+description: Are you looking for a fun and safe way to get your toddler active outdoors?
+  An outdoor basketball hoop designed just for little ones could be the perfect choice
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-basketball-hoop-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-basketball-hoop-for-toddlers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to get your toddler active outdoors? An outdoor basketball hoop designed just for little ones could be the perfect choice.**

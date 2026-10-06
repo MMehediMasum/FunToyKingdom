@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Furniture from Cardboard: Easy DIY Craft Ideas"
-description: "Are you looking for a fun and creative way to make toy furniture for your kids or your own projects? Making toy furniture from cardboard is easier than you thin"
+title: 'How to Make Toy Furniture from Cardboard: Easy DIY Craft Ideas'
+description: Are you looking for a fun and creative way to make toy furniture for
+  your kids or your own projects? Making toy furniture from cardboard is easier than
+  you thin
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-furniture-from-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-furniture-from-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to make toy furniture for your kids or your own projects? Making toy furniture from cardboard is easier than you think, and it’s a great way to save money while turning simple materials into something amazing.**

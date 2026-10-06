@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wooden Toy Truck: Step-by-Step Guide for Beginners"
-description: "Are you ready to create something special with your own hands? Building a wooden toy truck is a fun and rewarding project that anyone can enjoy. Imagine the pri"
+title: 'How to Build a Wooden Toy Truck: Step-by-Step Guide for Beginners'
+description: Are you ready to create something special with your own hands? Building
+  a wooden toy truck is a fun and rewarding project that anyone can enjoy. Imagine
+  the pri
 pubDate: 2026-05-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-truck&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-truck&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to create something special with your own hands? Building a wooden toy truck is a fun and rewarding project that anyone can enjoy.**

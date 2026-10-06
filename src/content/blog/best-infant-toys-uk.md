@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Toys UK: Top Picks for Sensory and Developmental Play"
-description: "Choosing the best infant toys in the UK helps your baby learn and have fun safely. Toys that fit your baby’s age and needs support healthy growth and play. Infa"
+title: 'Best Infant Toys UK: Top Picks for Sensory and Developmental Play'
+description: Choosing the best infant toys in the UK helps your baby learn and have
+  fun safely. Toys that fit your baby’s age and needs support healthy growth and play.
+  Infa
 pubDate: 2026-01-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-toys-uk&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-toys-uk&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best infant toys in the UK helps your baby learn and have fun safely. Toys that fit your baby’s age and needs support healthy growth and play.**

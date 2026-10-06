@@ -1,10 +1,14 @@
 ---
-title: "Kids Golf Club Toy Set: Ultimate Fun and Learning Combo"
-description: "Are you looking for a fun and safe way to introduce your child to the exciting world of golf? The Kids Golf Club Toy Set might be just what you need. Imagine yo"
+title: 'Kids Golf Club Toy Set: Ultimate Fun and Learning Combo'
+description: Are you looking for a fun and safe way to introduce your child to the
+  exciting world of golf? The Kids Golf Club Toy Set might be just what you need.
+  Imagine yo
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-golf-club-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=kids-golf-club-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to introduce your child to the exciting world of golf? The Kids Golf Club Toy Set might be just what you need.**

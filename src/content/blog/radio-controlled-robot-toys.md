@@ -1,10 +1,14 @@
 ---
-title: "Radio Controlled Robot Toys: Top Transforming Robots with Lights & Sounds"
-description: "Radio controlled robot toys bring fun and excitement to kids of all ages. These toys combine technology, movement, and interactive features for endless play. Ra"
+title: 'Radio Controlled Robot Toys: Top Transforming Robots with Lights & Sounds'
+description: Radio controlled robot toys bring fun and excitement to kids of all ages.
+  These toys combine technology, movement, and interactive features for endless play.
+  Ra
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=radio-controlled-robot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Do Toy Drones Need
+heroImage: https://tse1.mm.bing.net/th?q=radio-controlled-robot-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Radio controlled robot toys bring fun and excitement to kids of all ages. These toys combine technology, movement, and interactive features for endless play.**

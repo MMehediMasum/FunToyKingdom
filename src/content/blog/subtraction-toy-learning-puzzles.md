@@ -1,10 +1,14 @@
 ---
-title: "Subtraction Toy Learning Puzzles: Fun Ways to Boost Math Skills"
-description: "Are you looking for a fun way to help your child master subtraction? Subtraction toy learning puzzles are the perfect solution. These puzzles turn tricky math p"
+title: 'Subtraction Toy Learning Puzzles: Fun Ways to Boost Math Skills'
+description: Are you looking for a fun way to help your child master subtraction?
+  Subtraction toy learning puzzles are the perfect solution. These puzzles turn tricky
+  math p
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=subtraction-toy-learning-puzzles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=subtraction-toy-learning-puzzles&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to help your child master subtraction? Subtraction toy learning puzzles are the perfect solution.**

@@ -1,10 +1,14 @@
 ---
-title: "What Toys are Worth a Lot of Money: Top Valuable Collectibles Revealed"
-description: "Have you ever wondered if the toys you played with as a kid could be worth a small fortune today? You might be surprised to learn that some toys, once ordinary "
+title: 'What Toys are Worth a Lot of Money: Top Valuable Collectibles Revealed'
+description: 'Have you ever wondered if the toys you played with as a kid could be
+  worth a small fortune today? You might be surprised to learn that some toys, once
+  ordinary '
 pubDate: 2025-09-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-are-worth-a-lot-of-money&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-are-worth-a-lot-of-money&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wondered if the toys you played with as a kid could be worth a small fortune today? You might be surprised to learn that some toys, once ordinary and forgotten, now sell for thousands of dollars.**

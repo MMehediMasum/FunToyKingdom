@@ -1,10 +1,14 @@
 ---
-title: "Green Ranger Power Rangers Doll: Ultimate Collector’s Must-Have Guide"
-description: "Are you a fan of the Green Ranger or looking for the perfect collectible to add to your Power Rangers collection? The Green Ranger Power Rangers Doll brings you"
+title: 'Green Ranger Power Rangers Doll: Ultimate Collector’s Must-Have Guide'
+description: Are you a fan of the Green Ranger or looking for the perfect collectible
+  to add to your Power Rangers collection? The Green Ranger Power Rangers Doll brings
+  you
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=green-ranger-power-rangers-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=green-ranger-power-rangers-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of the Green Ranger or looking for the perfect collectible to add to your Power Rangers collection? The Green Ranger Power Rangers Doll brings your favorite hero to life with amazing detail and quality.**

@@ -1,10 +1,14 @@
 ---
-title: "Building Sets for 8 Year Old: Top Creative Picks for Fun Learning"
-description: "Looking for the perfect building sets for your 8-year-old? You want something that sparks creativity, keeps them engaged, and helps their skills grow. But with "
+title: 'Building Sets for 8 Year Old: Top Creative Picks for Fun Learning'
+description: 'Looking for the perfect building sets for your 8-year-old? You want
+  something that sparks creativity, keeps them engaged, and helps their skills grow.
+  But with '
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=building-sets-for-8-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=building-sets-for-8-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for the perfect building sets for your 8-year-old? You want something that sparks creativity, keeps them engaged, and helps their skills grow.**

@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Anxiety: Top Calming Fidget Toys for Stress Relief"
-description: "Sensory toys can help reduce anxiety in both children and adults. These toys offer tactile stimulation and comfort. Anxiety can be overwhelming, but sensory toy"
+title: 'Sensory Toys for Anxiety: Top Calming Fidget Toys for Stress Relief'
+description: Sensory toys can help reduce anxiety in both children and adults. These
+  toys offer tactile stimulation and comfort. Anxiety can be overwhelming, but sensory
+  toy
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-anxiety&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-anxiety&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys can help reduce anxiety in both children and adults. These toys offer tactile stimulation and comfort.**

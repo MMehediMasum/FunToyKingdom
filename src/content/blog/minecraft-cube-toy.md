@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Minecraft Cube Toy: Top Magnetic Building Blocks for Creative Kids"
 description: "Minecraft Cube Toy sparks creativity with simple, colorful blocks inspired by the popular game. Kids build and play with familiar pixelated shapes. This toy set"
 pubDate: 2026-08-08

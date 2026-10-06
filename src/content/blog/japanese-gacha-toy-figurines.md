@@ -1,10 +1,14 @@
 ---
-title: "Japanese Gacha Toy Figurines: Ultimate Collectors’ Guide 2025"
-description: "If you love surprises and collecting tiny treasures, Japanese Gacha toy figurines are made just for you. These small, colorful toys come in mystery capsules, tu"
+title: 'Japanese Gacha Toy Figurines: Ultimate Collectors’ Guide 2025'
+description: If you love surprises and collecting tiny treasures, Japanese Gacha toy
+  figurines are made just for you. These small, colorful toys come in mystery capsules,
+  tu
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=japanese-gacha-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=japanese-gacha-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you love surprises and collecting tiny treasures, Japanese Gacha toy figurines are made just for you. These small, colorful toys come in mystery capsules, turning every purchase into a fun game of chance.**

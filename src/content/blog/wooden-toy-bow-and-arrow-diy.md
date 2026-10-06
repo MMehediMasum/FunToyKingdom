@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Bow And Arrow DIY: Easy Steps for Kids’ Fun Craft"
-description: "Are you looking for a fun and creative project that you can make with your own hands? Building a wooden toy bow and arrow is a perfect way to bring excitement a"
+title: 'Wooden Toy Bow And Arrow DIY: Easy Steps for Kids’ Fun Craft'
+description: Are you looking for a fun and creative project that you can make with
+  your own hands? Building a wooden toy bow and arrow is a perfect way to bring excitement
+  a
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-bow-and-arrow-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-bow-and-arrow-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with your own hands? Building a wooden toy bow and arrow is a perfect way to bring excitement and skill into your day.**

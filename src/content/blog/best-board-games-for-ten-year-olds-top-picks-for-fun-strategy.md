@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Ten Year Olds: Top Picks for Fun & Strategy"
-description: "Choosing the best board games for ten year olds boosts fun and learning. These games suit kids’ growing minds and social skills. Board games help children devel"
+title: 'Best Board Games for Ten Year Olds: Top Picks for Fun & Strategy'
+description: Choosing the best board games for ten year olds boosts fun and learning.
+  These games suit kids’ growing minds and social skills. Board games help children
+  devel
 pubDate: 2025-12-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-ten-year-olds-top-picks-for-fun-strategy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-ten-year-olds-top-picks-for-fun-strategy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best board games for ten year olds boosts fun and learning. These games suit kids’ growing minds and social skills.**

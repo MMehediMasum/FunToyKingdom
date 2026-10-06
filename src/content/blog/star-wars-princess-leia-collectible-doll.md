@@ -1,10 +1,14 @@
 ---
-title: "Star Wars Princess Leia Collectible Doll: Must-Have Iconic Treasure"
-description: "Are you a fan of Star Wars and looking to add something special to your collection? The Star Wars Princess Leia Collectible Doll might be exactly what you need."
+title: 'Star Wars Princess Leia Collectible Doll: Must-Have Iconic Treasure'
+description: Are you a fan of Star Wars and looking to add something special to your
+  collection? The Star Wars Princess Leia Collectible Doll might be exactly what you
+  need.
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=star-wars-princess-leia-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=star-wars-princess-leia-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Star Wars and looking to add something special to your collection? The Star Wars Princess Leia Collectible Doll might be exactly what you need.**

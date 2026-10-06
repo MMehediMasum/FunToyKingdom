@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Race Car Cardboard: Easy Steps for Kids Fun"
-description: "Do you want to create a fun toy race car using just cardboard? Imagine building your own cool car that you can race with your friends or display proudly. It’s e"
+title: 'How to Make Toy Race Car Cardboard: Easy Steps for Kids Fun'
+description: Do you want to create a fun toy race car using just cardboard? Imagine
+  building your own cool car that you can race with your friends or display proudly.
+  It’s e
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-race-car-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-race-car-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to create a fun toy race car using just cardboard? Imagine building your own cool car that you can race with your friends or display proudly.**

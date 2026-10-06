@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 3 Video Game Console: Ultimate Fun for Kids & Fans"
 description: "Are you ready to bring the magic of Toy Story 3 right into your living room? The Toy Story 3 video game console lets you step into the shoes of your favorite ch"
 pubDate: 2026-07-09

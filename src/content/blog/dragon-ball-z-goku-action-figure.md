@@ -1,10 +1,13 @@
 ---
-title: "Dragon Ball Z Goku Action Figure: Ultimate Collectible for Fans"
-description: "If you’re a fan of Dragon Ball Z, you know that Goku isn’t just a character—he’s a legend. Imagine having your very own Goku action figure, ready to bring your "
+title: 'Dragon Ball Z Goku Action Figure: Ultimate Collectible for Fans'
+description: 'If you’re a fan of Dragon Ball Z, you know that Goku isn’t just a character—he’s
+  a legend. Imagine having your very own Goku action figure, ready to bring your '
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-goku-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-goku-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Dragon Ball Z, you know that Goku isn’t just a character—he’s a legend. Imagine having your very own Goku action figure, ready to bring your favorite battles and moments to life right on your shelf.**

@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Cars: Creative, Eco-Friendly Fun Ideas"
-description: "Imagine giving your child a toy that sparks creativity, teaches patience, and brings endless fun—all made by your own hands. Handmade cardboard toy cars are mor"
+title: 'Handmade Cardboard Toy Cars: Creative, Eco-Friendly Fun Ideas'
+description: Imagine giving your child a toy that sparks creativity, teaches patience,
+  and brings endless fun—all made by your own hands. Handmade cardboard toy cars are
+  mor
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-cars&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, teaches patience, and brings endless fun—all made by your own hands. Handmade cardboard toy cars are more than just playthings; they are a chance for you to connect, create, and inspire.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the Most Expensive Toy: Discover the Ultimate Luxury Plaything"
-description: "Have you ever wondered what the most expensive toy in the world is? You might think of flashy gadgets or rare collectibles, but the answer could surprise you. T"
+title: 'What is the Most Expensive Toy: Discover the Ultimate Luxury Plaything'
+description: Have you ever wondered what the most expensive toy in the world is? You
+  might think of flashy gadgets or rare collectibles, but the answer could surprise
+  you. T
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-most-expensive-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy World Records
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-most-expensive-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what the most expensive toy in the world is? You might think of flashy gadgets or rare collectibles, but the answer could surprise you.**

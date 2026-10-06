@@ -1,10 +1,14 @@
 ---
-title: "Toy Lexus Car: Top Diecast Models with Sound and Light Features"
-description: "Toy Lexus cars bring the elegance of luxury vehicles into the hands of kids. These models offer fun and learning. Toy Lexus cars are miniature wonders that capt"
+title: 'Toy Lexus Car: Top Diecast Models with Sound and Light Features'
+description: Toy Lexus cars bring the elegance of luxury vehicles into the hands of
+  kids. These models offer fun and learning. Toy Lexus cars are miniature wonders
+  that capt
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-lexus-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-lexus-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toy Lexus cars bring the elegance of luxury vehicles into the hands of kids. These models offer fun and learning.**

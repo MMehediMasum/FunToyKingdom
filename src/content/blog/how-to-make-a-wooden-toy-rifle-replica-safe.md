@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Rifle Replica Safe: Expert Tips"
-description: "Are you looking to create a wooden toy rifle replica that is not only realistic but also completely safe? Whether it’s for a costume, a display, or a fun projec"
+title: 'How to Make a Wooden Toy Rifle Replica Safe: Expert Tips'
+description: Are you looking to create a wooden toy rifle replica that is not only
+  realistic but also completely safe? Whether it’s for a costume, a display, or a
+  fun projec
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-rifle-replica-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-rifle-replica-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking to create a wooden toy rifle replica that is not only realistic but also completely safe? Whether it’s for a costume, a display, or a fun project, safety should always come first.**

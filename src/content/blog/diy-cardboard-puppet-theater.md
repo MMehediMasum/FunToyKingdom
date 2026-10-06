@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Puppet Theater: Create Magical Shows at Home"
-description: "Looking for a fun, creative project that brings joy to your home? Building your own DIY cardboard puppet theater is the perfect way to spark imagination and hou"
+title: 'Diy Cardboard Puppet Theater: Create Magical Shows at Home'
+description: Looking for a fun, creative project that brings joy to your home? Building
+  your own DIY cardboard puppet theater is the perfect way to spark imagination and
+  hou
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-puppet-theater&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-puppet-theater&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun, creative project that brings joy to your home? Building your own DIY cardboard puppet theater is the perfect way to spark imagination and hours of entertainment for you and your family.**

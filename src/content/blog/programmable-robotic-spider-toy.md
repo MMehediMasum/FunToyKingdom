@@ -1,10 +1,14 @@
 ---
-title: "Programmable Robotic Spider Toy: Ultimate Fun & Learning Gadget"
-description: "Imagine controlling a spider that moves exactly how you want it to—crawling, climbing, and even reacting to your commands. A programmable robotic spider toy let"
+title: 'Programmable Robotic Spider Toy: Ultimate Fun & Learning Gadget'
+description: Imagine controlling a spider that moves exactly how you want it to—crawling,
+  climbing, and even reacting to your commands. A programmable robotic spider toy
+  let
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=programmable-robotic-spider-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=programmable-robotic-spider-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine controlling a spider that moves exactly how you want it to—crawling, climbing, and even reacting to your commands. A programmable robotic spider toy lets you do just that.**

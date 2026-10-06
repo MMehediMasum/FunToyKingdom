@@ -1,10 +1,14 @@
 ---
-title: "Trivia Board Games for Teens: Ultimate Fun and Brain Boosters"
-description: "Looking for a fun way to bring your friends or family together? Trivia board games for teens are the perfect choice to spark excitement and challenge your knowl"
+title: 'Trivia Board Games for Teens: Ultimate Fun and Brain Boosters'
+description: Looking for a fun way to bring your friends or family together? Trivia
+  board games for teens are the perfect choice to spark excitement and challenge your
+  knowl
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=trivia-board-games-for-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=trivia-board-games-for-teens&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your friends or family together? Trivia board games for teens are the perfect choice to spark excitement and challenge your knowledge.**

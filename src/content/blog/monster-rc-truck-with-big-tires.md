@@ -1,10 +1,14 @@
 ---
-title: "Monster Rc Truck With Big Tires: Ultimate Off-Road Power Unleashed"
-description: "Are you ready to take your RC truck experience to a whole new level? A monster RC truck with big tires isn’t just a toy—it’s a powerhouse that lets you conquer "
+title: 'Monster Rc Truck With Big Tires: Ultimate Off-Road Power Unleashed'
+description: 'Are you ready to take your RC truck experience to a whole new level?
+  A monster RC truck with big tires isn’t just a toy—it’s a powerhouse that lets you
+  conquer '
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-rc-truck-with-big-tires&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=monster-rc-truck-with-big-tires&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC truck experience to a whole new level? A monster RC truck with big tires isn’t just a toy—it’s a powerhouse that lets you conquer rough terrain, jump over obstacles, and feel the thrill of control right at your fingertips.**

@@ -1,10 +1,14 @@
 ---
-title: "Infant Crib Toys: Top Picks to Delight and Stimulate Babies"
-description: "Are you looking for the perfect toys to keep your little one happy and engaged in their crib? Choosing the right infant crib toys can make a big difference in y"
+title: 'Infant Crib Toys: Top Picks to Delight and Stimulate Babies'
+description: Are you looking for the perfect toys to keep your little one happy and
+  engaged in their crib? Choosing the right infant crib toys can make a big difference
+  in y
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-crib-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toys For Airplane Travel
+heroImage: https://tse1.mm.bing.net/th?q=infant-crib-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect toys to keep your little one happy and engaged in their crib? Choosing the right infant crib toys can make a big difference in your baby’s comfort and development.**

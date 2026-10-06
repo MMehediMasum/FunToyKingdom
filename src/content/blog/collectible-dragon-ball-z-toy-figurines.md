@@ -1,10 +1,14 @@
 ---
-title: "Collectible Dragon Ball Z Toy Figurines: Ultimate Fan Must-Haves"
-description: "Are you a fan of Dragon Ball Z and love collecting unique items? Imagine holding a detailed Dragon Ball Z toy figurine that brings your favorite characters to l"
+title: 'Collectible Dragon Ball Z Toy Figurines: Ultimate Fan Must-Haves'
+description: Are you a fan of Dragon Ball Z and love collecting unique items? Imagine
+  holding a detailed Dragon Ball Z toy figurine that brings your favorite characters
+  to l
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-dragon-ball-z-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=collectible-dragon-ball-z-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Dragon Ball Z and love collecting unique items? Imagine holding a detailed Dragon Ball Z toy figurine that brings your favorite characters to life right in your hands.**

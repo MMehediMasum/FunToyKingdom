@@ -1,10 +1,14 @@
 ---
-title: "Robot Stickman Toy: Top 4PCS Bendable Action Figures for Kids"
-description: "Robot Stickman toys offer fun and creative play for kids of all ages. These flexible figures move easily, making them perfect for imaginative games. Robot Stick"
+title: 'Robot Stickman Toy: Top 4PCS Bendable Action Figures for Kids'
+description: Robot Stickman toys offer fun and creative play for kids of all ages.
+  These flexible figures move easily, making them perfect for imaginative games. Robot
+  Stick
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-stickman-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=robot-stickman-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot Stickman toys offer fun and creative play for kids of all ages. These flexible figures move easily, making them perfect for imaginative games.**

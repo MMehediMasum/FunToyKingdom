@@ -1,10 +1,14 @@
 ---
-title: "Rc Blimp Toy With Camera: Ultimate Aerial Fun for Kids"
-description: "Imagine seeing the world from a whole new angle—right from the sky, with your very own RC blimp toy with a camera. This isn’t just any toy; it’s your ticket to "
+title: 'Rc Blimp Toy With Camera: Ultimate Aerial Fun for Kids'
+description: 'Imagine seeing the world from a whole new angle—right from the sky,
+  with your very own RC blimp toy with a camera. This isn’t just any toy; it’s your
+  ticket to '
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-blimp-toy-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mini Toy Drone With Camera
+heroImage: https://tse1.mm.bing.net/th?q=rc-blimp-toy-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine seeing the world from a whole new angle—right from the sky, with your very own RC blimp toy with a camera. This isn’t just any toy; it’s your ticket to capturing stunning views while having fun flying it around.**

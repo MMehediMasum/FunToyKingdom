@@ -1,10 +1,13 @@
 ---
-title: "Rc Airplane With Easy Controls: Fly Like a Pro Instantly"
-description: "Looking for an RC airplane that’s simple to fly but still fun to control? You’re in the right place. Imagine soaring your very own plane without the frustration"
+title: 'Rc Airplane With Easy Controls: Fly Like a Pro Instantly'
+description: Looking for an RC airplane that’s simple to fly but still fun to control?
+  You’re in the right place. Imagine soaring your very own plane without the frustration
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-easy-controls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-easy-controls&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for an RC airplane that’s simple to fly but still fun to control? You’re in the right place.**

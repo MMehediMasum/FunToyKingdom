@@ -1,10 +1,14 @@
 ---
-title: "When is New York Toy Fair: Ultimate 2025 Date & Event Guide"
-description: "Are you curious about when the next New York Toy Fair is happening? Whether you’re a toy lover, a collector, or someone looking for the latest trends, knowing t"
+title: 'When is New York Toy Fair: Ultimate 2025 Date & Event Guide'
+description: Are you curious about when the next New York Toy Fair is happening? Whether
+  you’re a toy lover, a collector, or someone looking for the latest trends, knowing
+  t
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-is-new-york-toy-fair&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=when-is-new-york-toy-fair&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you curious about when the next New York Toy Fair is happening? Whether you’re a toy lover, a collector, or someone looking for the latest trends, knowing the exact dates is key.**

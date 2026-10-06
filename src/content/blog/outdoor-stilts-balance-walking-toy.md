@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Stilts Balance Walking Toy: Ultimate Fun for Kids"
-description: "Are you looking for a fun way to boost your balance and coordination? The Outdoor Stilts Balance Walking Toy is just what you need. It turns walking into an exc"
+title: 'Outdoor Stilts Balance Walking Toy: Ultimate Fun for Kids'
+description: Are you looking for a fun way to boost your balance and coordination?
+  The Outdoor Stilts Balance Walking Toy is just what you need. It turns walking into
+  an exc
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-stilts-balance-walking-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-stilts-balance-walking-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to boost your balance and coordination? The Outdoor Stilts Balance Walking Toy is just what you need.**

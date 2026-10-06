@@ -1,10 +1,14 @@
 ---
-title: "Robot Plush Toy: The Perfect Cuddly Companion for Kids and Collectors"
-description: "Robot plush toys bring fun and comfort to children of all ages. These soft, huggable robots make great gifts for boys and girls alike. Robot plush toys come in "
+title: 'Robot Plush Toy: The Perfect Cuddly Companion for Kids and Collectors'
+description: 'Robot plush toys bring fun and comfort to children of all ages. These
+  soft, huggable robots make great gifts for boys and girls alike. Robot plush toys
+  come in '
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-plush-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=robot-plush-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot plush toys bring fun and comfort to children of all ages. These soft, huggable robots make great gifts for boys and girls alike.**

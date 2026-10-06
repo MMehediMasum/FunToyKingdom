@@ -1,10 +1,14 @@
 ---
-title: "Do Cats Need Teething Toys: Essential Tips for Happy Kittens"
-description: "If you have a kitten at home, you might have noticed them chewing on everything in sight. You may wonder, do cats actually need teething toys like babies do? Un"
+title: 'Do Cats Need Teething Toys: Essential Tips for Happy Kittens'
+description: If you have a kitten at home, you might have noticed them chewing on
+  everything in sight. You may wonder, do cats actually need teething toys like babies
+  do? Un
 pubDate: 2025-09-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-cats-need-teething-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=do-cats-need-teething-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you have a kitten at home, you might have noticed them chewing on everything in sight. You may wonder, do cats actually need teething toys like babies do?**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Parties: Top Fun Picks for Game Night Excitement"
-description: "Board games bring energy and fun to any party. They help people connect and share laughs in a relaxed setting. Choosing the best board games for parties can tur"
+title: 'Best Board Games for Parties: Top Fun Picks for Game Night Excitement'
+description: Board games bring energy and fun to any party. They help people connect
+  and share laughs in a relaxed setting. Choosing the best board games for parties
+  can tur
 pubDate: 2025-09-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-parties-top-fun-picks-for-game-night-excitement&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-parties-top-fun-picks-for-game-night-excitement&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games bring energy and fun to any party. They help people connect and share laughs in a relaxed setting.**

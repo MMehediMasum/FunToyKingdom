@@ -1,10 +1,14 @@
 ---
-title: "What are Good Toys for 3 Year Olds: Top Fun & Educational Picks"
-description: "Choosing the right toys for your 3-year-old can feel overwhelming. You want something that’s fun, safe, and helps your child learn and grow. But how do you know"
+title: 'What are Good Toys for 3 Year Olds: Top Fun & Educational Picks'
+description: Choosing the right toys for your 3-year-old can feel overwhelming. You
+  want something that’s fun, safe, and helps your child learn and grow. But how do
+  you know
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-good-toys-for-3-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=what-are-good-toys-for-3-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for your 3-year-old can feel overwhelming. You want something that’s fun, safe, and helps your child learn and grow.**

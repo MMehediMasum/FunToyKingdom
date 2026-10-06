@@ -1,10 +1,14 @@
 ---
-title: "Toy Tea Party Set: Best Pretend Play Kits for Little Girls"
-description: "A toy tea party set sparks imagination and encourages social play among young children. It offers a fun way to learn sharing and communication skills. These tea"
+title: 'Toy Tea Party Set: Best Pretend Play Kits for Little Girls'
+description: A toy tea party set sparks imagination and encourages social play among
+  young children. It offers a fun way to learn sharing and communication skills. These
+  tea
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-tea-party-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=toy-tea-party-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A toy tea party set sparks imagination and encourages social play among young children. It offers a fun way to learn sharing and communication skills.**

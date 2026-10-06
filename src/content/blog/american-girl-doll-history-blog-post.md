@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "American Girl Doll History Blog Post: Unveiling Timeless Charm"
 description: "Have you ever wondered what makes American Girl dolls so special? These dolls are more than just toys—they carry stories, history, and emotions that connect gen"
 pubDate: 2025-12-10

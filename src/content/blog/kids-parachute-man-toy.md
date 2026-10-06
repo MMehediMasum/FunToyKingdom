@@ -1,10 +1,14 @@
 ---
-title: "Kids Parachute Man Toy: Ultimate Fun and Outdoor Adventure Guide"
-description: "Are you looking for a fun and exciting toy that will keep your child entertained for hours? The Kids Parachute Man Toy is just what you need. It’s simple to use"
+title: 'Kids Parachute Man Toy: Ultimate Fun and Outdoor Adventure Guide'
+description: Are you looking for a fun and exciting toy that will keep your child
+  entertained for hours? The Kids Parachute Man Toy is just what you need. It’s simple
+  to use
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-parachute-man-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=kids-parachute-man-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting toy that will keep your child entertained for hours? The Kids Parachute Man Toy is just what you need.**

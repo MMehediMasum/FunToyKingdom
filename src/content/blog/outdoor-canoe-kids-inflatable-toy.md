@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Canoe Kids Inflatable Toy: Ultimate Fun for Summer Adventures"
-description: "Looking for a fun and safe way to keep your kids entertained outdoors? Your search ends here with the Outdoor Canoe Kids Inflatable Toy. Imagine your child padd"
+title: 'Outdoor Canoe Kids Inflatable Toy: Ultimate Fun for Summer Adventures'
+description: Looking for a fun and safe way to keep your kids entertained outdoors?
+  Your search ends here with the Outdoor Canoe Kids Inflatable Toy. Imagine your child
+  padd
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-canoe-kids-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-canoe-kids-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained outdoors? Your search ends here with the Outdoor Canoe Kids Inflatable Toy.**

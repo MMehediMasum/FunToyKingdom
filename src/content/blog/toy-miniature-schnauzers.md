@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Miniature Schnauzers: Top Realistic Plush & Figurine Dog Toys"
 description: "Toy Miniature Schnauzers bring joy with their lifelike looks and soft textures. These toys suit kids and collectors who love detailed dog figures. Miniature Sch"
 pubDate: 2026-03-06

@@ -1,10 +1,13 @@
 ---
-title: "Donut Stacking Toy: Top Educational and Fun Toddler Toys for Fine Motor Skills"
-description: "Donut stacking toys offer a playful way for toddlers to develop essential skills. These toys combine fun with learning. Perfect for young minds, donut stacking "
+title: 'Donut Stacking Toy: Top Educational and Fun Toddler Toys for Fine Motor Skills'
+description: 'Donut stacking toys offer a playful way for toddlers to develop essential
+  skills. These toys combine fun with learning. Perfect for young minds, donut stacking '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=donut-stacking-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Stacking Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=donut-stacking-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Donut stacking toys offer a playful way for toddlers to develop essential skills. These toys combine fun with learning.**

@@ -1,10 +1,14 @@
 ---
-title: "Avengers Infinity War Action Figure Set: Ultimate Collectors' Edition"
-description: "Are you ready to bring the epic battle of Avengers Infinity War right into your hands? The Avengers Infinity War Action Figure Set lets you relive every thrilli"
+title: 'Avengers Infinity War Action Figure Set: Ultimate Collectors'' Edition'
+description: Are you ready to bring the epic battle of Avengers Infinity War right
+  into your hands? The Avengers Infinity War Action Figure Set lets you relive every
+  thrilli
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=avengers-infinity-war-action-figure-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=avengers-infinity-war-action-figure-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring the epic battle of Avengers Infinity War right into your hands? The Avengers Infinity War Action Figure Set lets you relive every thrilling moment with your favorite heroes and villains.**

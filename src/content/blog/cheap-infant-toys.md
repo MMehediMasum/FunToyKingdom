@@ -1,10 +1,14 @@
 ---
-title: "Cheap Infant Toys That Boost Development and Keep Babies Engaged"
-description: "Finding affordable and safe toys for your infant is crucial. These toys not only entertain but also support development. Parents often seek toys that are both b"
+title: Cheap Infant Toys That Boost Development and Keep Babies Engaged
+description: Finding affordable and safe toys for your infant is crucial. These toys
+  not only entertain but also support development. Parents often seek toys that are
+  both b
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=cheap-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding affordable and safe toys for your infant is crucial. These toys not only entertain but also support development.**

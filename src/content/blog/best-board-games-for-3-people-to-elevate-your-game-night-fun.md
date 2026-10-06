@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for 3 People to Elevate Your Game Night Fun"
-description: "Finding the best board games for 3 people can make your game night more fun and exciting. Games that fit well with three players keep everyone involved and ente"
+title: Best Board Games for 3 People to Elevate Your Game Night Fun
+description: Finding the best board games for 3 people can make your game night more
+  fun and exciting. Games that fit well with three players keep everyone involved
+  and ente
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-3-people-to-elevate-your-game-night-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-3-people-to-elevate-your-game-night-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for 3 people can make your game night more fun and exciting. Games that fit well with three players keep everyone involved and entertained.**

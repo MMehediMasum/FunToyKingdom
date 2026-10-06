@@ -1,10 +1,14 @@
 ---
-title: "Case Ih Farm Toys: Top Diecast Tractors and Harvesters for Collectors"
-description: "Case Ih Farm Toys bring farming equipment to life in small, detailed models. These toys capture the look and feel of real tractors and machines. Fans of farming"
+title: 'Case Ih Farm Toys: Top Diecast Tractors and Harvesters for Collectors'
+description: Case Ih Farm Toys bring farming equipment to life in small, detailed
+  models. These toys capture the look and feel of real tractors and machines. Fans
+  of farming
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=case-ih-farm-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=case-ih-farm-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Case Ih Farm Toys bring farming equipment to life in small, detailed models. These toys capture the look and feel of real tractors and machines.**

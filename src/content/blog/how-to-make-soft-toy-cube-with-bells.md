@@ -1,10 +1,14 @@
 ---
-title: "How to Make Soft Toy Cube With Bells: Easy DIY Guide for Beginners"
-description: "Have you ever wanted to create a soft toy that’s not only cuddly but also fun to play with? Making a soft toy cube with bells is easier than you think, and it’s"
+title: 'How to Make Soft Toy Cube With Bells: Easy DIY Guide for Beginners'
+description: Have you ever wanted to create a soft toy that’s not only cuddly but
+  also fun to play with? Making a soft toy cube with bells is easier than you think,
+  and it’s
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-soft-toy-cube-with-bells&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-soft-toy-cube-with-bells&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to create a soft toy that’s not only cuddly but also fun to play with? Making a soft toy cube with bells is easier than you think, and it’s a perfect project for your next DIY adventure.**

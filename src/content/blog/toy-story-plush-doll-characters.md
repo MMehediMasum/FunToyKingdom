@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Plush Doll Characters: Ultimate Collectors' Must-Haves"
-description: "If you’re a fan of Toy Story, you know how much joy these characters bring to every story. Imagine having your favorite Toy Story plush doll right by your side—"
+title: 'Toy Story Plush Doll Characters: Ultimate Collectors'' Must-Haves'
+description: If you’re a fan of Toy Story, you know how much joy these characters
+  bring to every story. Imagine having your favorite Toy Story plush doll right by
+  your side—
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-plush-doll-characters&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-plush-doll-characters&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Toy Story, you know how much joy these characters bring to every story. Imagine having your favorite Toy Story plush doll right by your side—soft, cuddly, and full of personality.**

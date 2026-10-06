@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Pretend Gas Pedal: Ultimate Fun for Kids"
-description: "Imagine giving your child the thrill of driving their very own car, right in your living room or backyard. A ride on toy with a pretend gas pedal does exactly t"
+title: 'Ride on Toy With Pretend Gas Pedal: Ultimate Fun for Kids'
+description: Imagine giving your child the thrill of driving their very own car, right
+  in your living room or backyard. A ride on toy with a pretend gas pedal does exactly
+  t
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-pretend-gas-pedal&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-pretend-gas-pedal&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child the thrill of driving their very own car, right in your living room or backyard. A ride on toy with a pretend gas pedal does exactly that—it turns playtime into an exciting adventure.**

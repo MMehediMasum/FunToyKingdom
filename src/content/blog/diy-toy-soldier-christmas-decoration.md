@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Soldier Christmas Decoration: Easy & Festive Craft Ideas"
-description: "Are you looking to add a unique and charming touch to your holiday décor this year? A DIY toy soldier Christmas decoration could be just what your home needs. I"
+title: 'Diy Toy Soldier Christmas Decoration: Easy & Festive Craft Ideas'
+description: Are you looking to add a unique and charming touch to your holiday décor
+  this year? A DIY toy soldier Christmas decoration could be just what your home needs.
+  I
 pubDate: 2025-10-25
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-soldier-christmas-decoration&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-soldier-christmas-decoration&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking to add a unique and charming touch to your holiday décor this year? A DIY toy soldier Christmas decoration could be just what your home needs.**

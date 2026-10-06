@@ -1,10 +1,14 @@
 ---
-title: "How to Connect Toy Drone to Phone: Easy Steps for Instant Control"
-description: "Want to take full control of your toy drone using your phone? Connecting your drone to your device opens up a world of fun and easy flying, right at your finger"
+title: 'How to Connect Toy Drone to Phone: Easy Steps for Instant Control'
+description: Want to take full control of your toy drone using your phone? Connecting
+  your drone to your device opens up a world of fun and easy flying, right at your
+  finger
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-connect-toy-drone-to-phone&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=how-to-connect-toy-drone-to-phone&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Want to take full control of your toy drone using your phone? Connecting your drone to your device opens up a world of fun and easy flying, right at your fingertips.**

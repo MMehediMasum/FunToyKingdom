@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys Mcqueen Crash: Ultimate Lightning McQueen Playset Showdown"
-description: "Cars Toys McQueen Crash brings exciting action from the Disney Pixar Cars world to your home. Kids love racing and crashing their favorite Lightning McQueen toy"
+title: 'Cars Toys Mcqueen Crash: Ultimate Lightning McQueen Playset Showdown'
+description: Cars Toys McQueen Crash brings exciting action from the Disney Pixar
+  Cars world to your home. Kids love racing and crashing their favorite Lightning
+  McQueen toy
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-mcqueen-crash&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-mcqueen-crash&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toys McQueen Crash brings exciting action from the Disney Pixar Cars world to your home. Kids love racing and crashing their favorite Lightning McQueen toy cars.**

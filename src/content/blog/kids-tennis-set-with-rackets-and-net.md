@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Tennis Set With Rackets And Net: Ultimate Fun & Fitness Kit"
 description: "Are you looking for a fun and active way to get your kids moving? A kids tennis set with rackets and net could be just what you need. Imagine your child learnin"
 pubDate: 2026-06-20

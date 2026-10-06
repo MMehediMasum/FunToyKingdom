@@ -1,10 +1,14 @@
 ---
-title: "Infant Indoor Climbing Toys: Safe, Fun, and Engaging Playsets for Toddlers"
-description: "Infant indoor climbing toys help toddlers build strength and coordination safely at home. These soft, colorful play sets encourage crawling, climbing, and slidi"
+title: 'Infant Indoor Climbing Toys: Safe, Fun, and Engaging Playsets for Toddlers'
+description: Infant indoor climbing toys help toddlers build strength and coordination
+  safely at home. These soft, colorful play sets encourage crawling, climbing, and
+  slidi
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-indoor-climbing-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=infant-indoor-climbing-toys&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Infant indoor climbing toys help toddlers build strength and coordination safely at home. These soft, colorful play sets encourage crawling, climbing, and sliding fun.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Dollhouses for 3 Year Olds: Top Wooden & Miniature Playsets Reviewed"
-description: "Choosing the best dollhouse for a 3-year-old can inspire hours of imaginative play. Safe, sturdy, and age-appropriate options matter most. Dollhouses help child"
+title: 'Best Dollhouses for 3 Year Olds: Top Wooden & Miniature Playsets Reviewed'
+description: Choosing the best dollhouse for a 3-year-old can inspire hours of imaginative
+  play. Safe, sturdy, and age-appropriate options matter most. Dollhouses help child
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouses-for-3-year-olds-top-wooden-miniature-playsets-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouses-for-3-year-olds-top-wooden-miniature-playsets-reviewed&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dollhouse for a 3-year-old can inspire hours of imaginative play. Safe, sturdy, and age-appropriate options matter most.**

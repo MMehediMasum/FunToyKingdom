@@ -1,10 +1,14 @@
 ---
-title: "Big Toy Blocks: Top Building Sets for Creative Toddler Playtime"
-description: "Big toy blocks offer endless fun and learning for children. These building sets engage young minds and spark creativity. Big toy blocks are a perfect blend of f"
+title: 'Big Toy Blocks: Top Building Sets for Creative Toddler Playtime'
+description: Big toy blocks offer endless fun and learning for children. These building
+  sets engage young minds and spark creativity. Big toy blocks are a perfect blend
+  of f
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=big-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=big-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Big toy blocks offer endless fun and learning for children. These building sets engage young minds and spark creativity.**

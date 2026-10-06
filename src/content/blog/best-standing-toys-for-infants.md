@@ -1,10 +1,14 @@
 ---
-title: "Best Standing Toys for Infants to Boost Learning and Motor Skills"
-description: "Choosing the best standing toys helps infants develop balance, coordination, and confidence. These toys encourage movement and make learning fun for babies. Sta"
+title: Best Standing Toys for Infants to Boost Learning and Motor Skills
+description: Choosing the best standing toys helps infants develop balance, coordination,
+  and confidence. These toys encourage movement and make learning fun for babies.
+  Sta
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-standing-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-standing-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best standing toys helps infants develop balance, coordination, and confidence. These toys encourage movement and make learning fun for babies.**

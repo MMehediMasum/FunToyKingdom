@@ -1,10 +1,14 @@
 ---
-title: "Best Selling Board Games Ever: Timeless Classics You Must Try"
-description: "Are you ready to discover the board games that have captured the hearts of millions around the world? Whether you’re looking for a new game to play with family "
+title: 'Best Selling Board Games Ever: Timeless Classics You Must Try'
+description: 'Are you ready to discover the board games that have captured the hearts
+  of millions around the world? Whether you’re looking for a new game to play with
+  family '
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-selling-board-games-ever&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-selling-board-games-ever&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to discover the board games that have captured the hearts of millions around the world? Whether you’re looking for a new game to play with family and friends or just curious about what makes some games truly timeless, this list of the best selling board games ever is made for you.**

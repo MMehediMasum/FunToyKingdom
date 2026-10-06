@@ -1,10 +1,14 @@
 ---
-title: "Geography Map Puzzle Toys: Boost Learning with Fun & Interactive Play"
-description: "Are you looking for a fun and engaging way to boost your knowledge of the world? Geography map puzzle toys can turn learning into an exciting adventure. These p"
+title: 'Geography Map Puzzle Toys: Boost Learning with Fun & Interactive Play'
+description: Are you looking for a fun and engaging way to boost your knowledge of
+  the world? Geography map puzzle toys can turn learning into an exciting adventure.
+  These p
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=geography-map-puzzle-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=geography-map-puzzle-toys&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and engaging way to boost your knowledge of the world? Geography map puzzle toys can turn learning into an exciting adventure.**

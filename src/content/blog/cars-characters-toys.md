@@ -1,10 +1,14 @@
 ---
-title: "Cars Characters Toys: Ultimate Collectible Mini Racers and Playsets Review"
-description: "Cars characters toys bring the magic of Disney-Pixar's beloved movies into playtime. These toys inspire creativity and fun. Kids and collectors alike find joy i"
+title: 'Cars Characters Toys: Ultimate Collectible Mini Racers and Playsets Review'
+description: Cars characters toys bring the magic of Disney-Pixar's beloved movies
+  into playtime. These toys inspire creativity and fun. Kids and collectors alike
+  find joy i
 pubDate: 2026-01-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-characters-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-characters-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Cars characters toys bring the magic of Disney-Pixar's beloved movies into playtime. These toys inspire creativity and fun.**

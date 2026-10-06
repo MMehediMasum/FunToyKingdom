@@ -1,10 +1,14 @@
 ---
-title: "Portable Soccer Goal for Backyard: Ultimate Guide to Fun & Fitness"
-description: "Imagine having the perfect spot right in your backyard where you can practice your soccer skills anytime you want. A portable soccer goal makes that possible. W"
+title: 'Portable Soccer Goal for Backyard: Ultimate Guide to Fun & Fitness'
+description: Imagine having the perfect spot right in your backyard where you can
+  practice your soccer skills anytime you want. A portable soccer goal makes that
+  possible. W
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=portable-soccer-goal-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Frisbee Kids Play
+heroImage: https://tse1.mm.bing.net/th?q=portable-soccer-goal-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine having the perfect spot right in your backyard where you can practice your soccer skills anytime you want. A portable soccer goal makes that possible.**

@@ -1,10 +1,14 @@
 ---
-title: "Red Ranger Action Figure Collectible: Ultimate Guide to Rare Finds"
-description: "Are you a fan of action figures that capture the thrill of adventure and heroism? The Red Ranger Action Figure Collectible is more than just a toy—it's a powerf"
+title: 'Red Ranger Action Figure Collectible: Ultimate Guide to Rare Finds'
+description: Are you a fan of action figures that capture the thrill of adventure
+  and heroism? The Red Ranger Action Figure Collectible is more than just a toy—it's
+  a powerf
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=red-ranger-action-figure-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=red-ranger-action-figure-collectible&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of action figures that capture the thrill of adventure and heroism? The Red Ranger Action Figure Collectible is more than just a toy—it's a powerful piece that connects you to your favorite battles and victories.**

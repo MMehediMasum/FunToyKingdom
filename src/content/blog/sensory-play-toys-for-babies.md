@@ -1,10 +1,14 @@
 ---
-title: "Sensory Play Toys for Babies: Boost Development & Fun Instantly"
-description: "Are you looking for ways to help your baby learn and grow while having fun? Sensory play toys for babies are a fantastic choice. These toys do more than enterta"
+title: 'Sensory Play Toys for Babies: Boost Development & Fun Instantly'
+description: Are you looking for ways to help your baby learn and grow while having
+  fun? Sensory play toys for babies are a fantastic choice. These toys do more than
+  enterta
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-play-toys-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=sensory-play-toys-for-babies&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for ways to help your baby learn and grow while having fun? Sensory play toys for babies are a fantastic choice.**

@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Jeep for Kids: Ultimate Fun and Adventure Guide"
-description: "Are you looking for a fun and exciting toy that will keep your child entertained for hours? A remote control jeep for kids might be exactly what you need. Imagi"
+title: 'Remote Control Jeep for Kids: Ultimate Fun and Adventure Guide'
+description: Are you looking for a fun and exciting toy that will keep your child
+  entertained for hours? A remote control jeep for kids might be exactly what you
+  need. Imagi
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-jeep-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-jeep-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting toy that will keep your child entertained for hours? A remote control jeep for kids might be exactly what you need.**

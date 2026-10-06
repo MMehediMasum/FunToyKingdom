@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Soldier Making Guide: Step-by-Step Crafting Tips"
-description: "Are you ready to create something timeless with your own hands? Making a wooden toy soldier is a fun and rewarding project that brings out your creativity and c"
+title: 'Wooden Toy Soldier Making Guide: Step-by-Step Crafting Tips'
+description: Are you ready to create something timeless with your own hands? Making
+  a wooden toy soldier is a fun and rewarding project that brings out your creativity
+  and c
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-soldier-making-guide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-soldier-making-guide&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to create something timeless with your own hands? Making a wooden toy soldier is a fun and rewarding project that brings out your creativity and craftsmanship.**

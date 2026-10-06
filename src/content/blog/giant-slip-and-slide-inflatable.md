@@ -1,10 +1,14 @@
 ---
-title: "Giant Slip And Slide Inflatable: Ultimate Summer Fun Guide"
-description: "Are you ready to turn your backyard into the ultimate fun zone? A giant slip and slide inflatable can bring endless excitement to your summer days. Imagine the "
+title: 'Giant Slip And Slide Inflatable: Ultimate Summer Fun Guide'
+description: 'Are you ready to turn your backyard into the ultimate fun zone? A giant
+  slip and slide inflatable can bring endless excitement to your summer days. Imagine
+  the '
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-slip-and-slide-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Slide For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=giant-slip-and-slide-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your backyard into the ultimate fun zone? A giant slip and slide inflatable can bring endless excitement to your summer days.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Blocks: Creative Ideas for Fun & Learning"
-description: "Are you looking for a fun and creative way to keep your kids entertained while helping them learn? DIY wooden toy blocks could be the perfect solution for you. "
+title: 'Diy Wooden Toy Blocks: Creative Ideas for Fun & Learning'
+description: 'Are you looking for a fun and creative way to keep your kids entertained
+  while helping them learn? DIY wooden toy blocks could be the perfect solution for
+  you. '
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Blocks
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to keep your kids entertained while helping them learn? DIY wooden toy blocks could be the perfect solution for you.**

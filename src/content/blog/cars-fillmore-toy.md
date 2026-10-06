@@ -1,10 +1,14 @@
 ---
-title: "Cars Fillmore Toy: Top Die-Cast Models Your Kids Will Love"
-description: "The Cars Fillmore toy is a favorite among young fans of the Disney Cars movies. This die-cast model captures Fillmore’s fun personality and colorful design. Fil"
+title: 'Cars Fillmore Toy: Top Die-Cast Models Your Kids Will Love'
+description: The Cars Fillmore toy is a favorite among young fans of the Disney Cars
+  movies. This die-cast model captures Fillmore’s fun personality and colorful design.
+  Fil
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-fillmore-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-fillmore-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Cars Fillmore toy is a favorite among young fans of the Disney Cars movies. This die-cast model captures Fillmore’s fun personality and colorful design.**

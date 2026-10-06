@@ -1,10 +1,14 @@
 ---
-title: "Toy Lamborghini Police Car: Top Die-Cast Models for Kids’ Playtime Fun"
-description: "The thrill of high-speed chases meets childhood play with toy Lamborghini police cars. These miniatures offer excitement and learning. Toy Lamborghini police ca"
+title: 'Toy Lamborghini Police Car: Top Die-Cast Models for Kids’ Playtime Fun'
+description: The thrill of high-speed chases meets childhood play with toy Lamborghini
+  police cars. These miniatures offer excitement and learning. Toy Lamborghini police
+  ca
 pubDate: 2026-01-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-lamborghini-police-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-lamborghini-police-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **The thrill of high-speed chases meets childhood play with toy Lamborghini police cars. These miniatures offer excitement and learning.**

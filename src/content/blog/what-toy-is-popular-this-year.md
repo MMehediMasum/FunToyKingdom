@@ -1,10 +1,14 @@
 ---
-title: "What Toy is Popular This Year: Top Trending Picks You Can’t Miss"
-description: "Are you wondering which toy is the must-have hit this year? You’re not alone. Finding the perfect toy can feel overwhelming with so many options out there. But "
+title: 'What Toy is Popular This Year: Top Trending Picks You Can’t Miss'
+description: 'Are you wondering which toy is the must-have hit this year? You’re not
+  alone. Finding the perfect toy can feel overwhelming with so many options out there.
+  But '
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toy-is-popular-this-year&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-toy-is-popular-this-year&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering which toy is the must-have hit this year? You’re not alone.**

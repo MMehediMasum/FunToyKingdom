@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Lighthouse Project: Creative Fun for Kids"
-description: "Have you ever wanted to create something fun and unique with your own hands? Imagine turning simple cardboard into a charming toy lighthouse that you can proudl"
+title: 'Diy Cardboard Toy Lighthouse Project: Creative Fun for Kids'
+description: Have you ever wanted to create something fun and unique with your own
+  hands? Imagine turning simple cardboard into a charming toy lighthouse that you
+  can proudl
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-lighthouse-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-lighthouse-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and unique with your own hands? Imagine turning simple cardboard into a charming toy lighthouse that you can proudly display or play with.**

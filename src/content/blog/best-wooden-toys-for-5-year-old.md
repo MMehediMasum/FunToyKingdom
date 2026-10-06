@@ -1,10 +1,14 @@
 ---
-title: "Best Wooden Toys for 5 Year Old: Top Durable & Educational Picks"
-description: "Looking for the best wooden toys for your 5-year-old? You want something that sparks their imagination, lasts for years, and keeps them happily engaged. Wooden "
+title: 'Best Wooden Toys for 5 Year Old: Top Durable & Educational Picks'
+description: 'Looking for the best wooden toys for your 5-year-old? You want something
+  that sparks their imagination, lasts for years, and keeps them happily engaged.
+  Wooden '
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wooden-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-wooden-toys-for-5-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for the best wooden toys for your 5-year-old? You want something that sparks their imagination, lasts for years, and keeps them happily engaged.**

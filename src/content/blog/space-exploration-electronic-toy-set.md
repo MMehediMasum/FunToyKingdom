@@ -1,10 +1,14 @@
 ---
-title: "Space Exploration Electronic Toy Set: Ignite Kids’ Cosmic Curiosity"
-description: "Imagine holding the universe in your hands, exploring planets, rockets, and stars—all while having fun. The Space Exploration Electronic Toy Set lets you do jus"
+title: 'Space Exploration Electronic Toy Set: Ignite Kids’ Cosmic Curiosity'
+description: Imagine holding the universe in your hands, exploring planets, rockets,
+  and stars—all while having fun. The Space Exploration Electronic Toy Set lets you
+  do jus
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=space-exploration-electronic-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=space-exploration-electronic-toy-set&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine holding the universe in your hands, exploring planets, rockets, and stars—all while having fun. The Space Exploration Electronic Toy Set lets you do just that.**

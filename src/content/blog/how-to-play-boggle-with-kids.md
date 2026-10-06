@@ -1,10 +1,14 @@
 ---
-title: "How to Play Boggle With Kids: Fun Tips for Family Game Night"
-description: "Are you looking for a fun and educational game to play with your kids? Boggle is a fantastic choice that sparks creativity and sharpens vocabulary—all while hav"
+title: 'How to Play Boggle With Kids: Fun Tips for Family Game Night'
+description: Are you looking for a fun and educational game to play with your kids?
+  Boggle is a fantastic choice that sparks creativity and sharpens vocabulary—all
+  while hav
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-play-boggle-with-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=how-to-play-boggle-with-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and educational game to play with your kids? Boggle is a fantastic choice that sparks creativity and sharpens vocabulary—all while having a great time together.**

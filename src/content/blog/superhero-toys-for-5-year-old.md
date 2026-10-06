@@ -1,10 +1,14 @@
 ---
-title: "Superhero Toys for 5 Year Olds: Top Fun Picks for Imaginative Play"
-description: "Superhero toys captivate young imaginations, bringing their favorite characters to life. Perfect for playtime adventures and creative storytelling. Children age"
+title: 'Superhero Toys for 5 Year Olds: Top Fun Picks for Imaginative Play'
+description: Superhero toys captivate young imaginations, bringing their favorite
+  characters to life. Perfect for playtime adventures and creative storytelling. Children
+  age
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=superhero-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=superhero-toys-for-5-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Superhero toys captivate young imaginations, bringing their favorite characters to life. Perfect for playtime adventures and creative storytelling.**

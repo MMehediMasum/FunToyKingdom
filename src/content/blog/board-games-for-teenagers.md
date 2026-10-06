@@ -1,10 +1,14 @@
 ---
-title: "Board Games for Teenagers: Ultimate Fun and Skill-Building Picks"
-description: "Looking for a fun way to bring your friends or family together? Board games for teenagers are more exciting and engaging than ever. Whether you want to challeng"
+title: 'Board Games for Teenagers: Ultimate Fun and Skill-Building Picks'
+description: Looking for a fun way to bring your friends or family together? Board
+  games for teenagers are more exciting and engaging than ever. Whether you want to
+  challeng
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-teenagers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-teenagers&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your friends or family together? Board games for teenagers are more exciting and engaging than ever.**

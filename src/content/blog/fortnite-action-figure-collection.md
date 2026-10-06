@@ -1,10 +1,14 @@
 ---
-title: "Fortnite Action Figure Collection: Ultimate Guide for Fans 2025"
-description: "Are you a fan of Fortnite and love collecting cool action figures? Imagine having your favorite characters right on your shelf, ready to bring your gaming adven"
+title: 'Fortnite Action Figure Collection: Ultimate Guide for Fans 2025'
+description: Are you a fan of Fortnite and love collecting cool action figures? Imagine
+  having your favorite characters right on your shelf, ready to bring your gaming
+  adven
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=fortnite-action-figure-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=fortnite-action-figure-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Fortnite and love collecting cool action figures? Imagine having your favorite characters right on your shelf, ready to bring your gaming adventures to life.**

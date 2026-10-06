@@ -1,10 +1,14 @@
 ---
-title: "Bible Toys Figurines: Inspire Faith and Fun with Biblical Playsets"
-description: "Bible toys figurines bring Bible stories to life for children through fun, hands-on play. These toys help kids learn about faith in an easy, engaging way. Bible"
+title: 'Bible Toys Figurines: Inspire Faith and Fun with Biblical Playsets'
+description: Bible toys figurines bring Bible stories to life for children through
+  fun, hands-on play. These toys help kids learn about faith in an easy, engaging
+  way. Bible
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=bible-toys-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=bible-toys-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Bible toys figurines bring Bible stories to life for children through fun, hands-on play. These toys help kids learn about faith in an easy, engaging way.**

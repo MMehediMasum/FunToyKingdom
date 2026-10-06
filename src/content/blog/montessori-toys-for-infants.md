@@ -1,10 +1,14 @@
 ---
-title: "Montessori Toys for Infants: Boost Learning with Safe Play"
-description: "Are you looking for the best way to support your infant’s early learning and development? Montessori toys for infants might be exactly what you need. These toys"
+title: 'Montessori Toys for Infants: Boost Learning with Safe Play'
+description: Are you looking for the best way to support your infant’s early learning
+  and development? Montessori toys for infants might be exactly what you need. These
+  toys
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=montessori-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Montessori Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=montessori-toys-for-infants&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the best way to support your infant’s early learning and development? Montessori toys for infants might be exactly what you need.**

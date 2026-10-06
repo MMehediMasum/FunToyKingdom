@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Knight Castle Playset: Ultimate Adventure for Kids"
-description: "Imagine your backyard turning into a magical kingdom where your kids become brave knights and clever princesses. The Outdoor Knight Castle Playset is more than "
+title: 'Outdoor Knight Castle Playset: Ultimate Adventure for Kids'
+description: 'Imagine your backyard turning into a magical kingdom where your kids
+  become brave knights and clever princesses. The Outdoor Knight Castle Playset is
+  more than '
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-knight-castle-playset&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-knight-castle-playset&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your backyard turning into a magical kingdom where your kids become brave knights and clever princesses. The Outdoor Knight Castle Playset is more than just a toy—it’s a gateway to endless adventure and creativity.**

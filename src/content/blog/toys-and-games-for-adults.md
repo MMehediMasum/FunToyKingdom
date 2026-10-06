@@ -1,10 +1,13 @@
 ---
-title: "Toys And Games for Adults: Ultimate Fun for Couples and Party Nights"
-description: "Toys and games for adults bring fun and excitement to social and private moments. They help couples and friends connect and enjoy playful experiences together. "
+title: 'Toys And Games for Adults: Ultimate Fun for Couples and Party Nights'
+description: 'Toys and games for adults bring fun and excitement to social and private
+  moments. They help couples and friends connect and enjoy playful experiences together. '
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-and-games-for-adults&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=toys-and-games-for-adults&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Toys and games for adults bring fun and excitement to social and private moments. They help couples and friends connect and enjoy playful experiences together.**

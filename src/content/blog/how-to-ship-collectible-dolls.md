@@ -1,10 +1,14 @@
 ---
-title: "How to Ship Collectible Dolls: Ultimate Guide for Safe Delivery"
-description: "Shipping collectible dolls can feel tricky. You want to make sure your precious items arrive safe and sound. If you’re worried about damage, loss, or delays, yo"
+title: 'How to Ship Collectible Dolls: Ultimate Guide for Safe Delivery'
+description: Shipping collectible dolls can feel tricky. You want to make sure your
+  precious items arrive safe and sound. If you’re worried about damage, loss, or delays,
+  yo
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-ship-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-ship-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Shipping collectible dolls can feel tricky. You want to make sure your precious items arrive safe and sound.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Hedgehog Inflatable Ride On: Fun, Safe, and Durable Adventure"
-description: "Imagine adding a splash of fun and excitement to your outdoor gatherings with something everyone will love. The Outdoor Hedgehog Inflatable Ride On is not just "
+title: 'Outdoor Hedgehog Inflatable Ride On: Fun, Safe, and Durable Adventure'
+description: 'Imagine adding a splash of fun and excitement to your outdoor gatherings
+  with something everyone will love. The Outdoor Hedgehog Inflatable Ride On is not
+  just '
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-hedgehog-inflatable-ride-on&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-hedgehog-inflatable-ride-on&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine adding a splash of fun and excitement to your outdoor gatherings with something everyone will love. The Outdoor Hedgehog Inflatable Ride On is not just a playful attraction—it’s a way to bring smiles, laughter, and unforgettable moments right to your backyard.**

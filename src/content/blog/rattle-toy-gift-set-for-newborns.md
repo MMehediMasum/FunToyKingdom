@@ -1,10 +1,14 @@
 ---
-title: "Rattle Toy Gift Set for Newborns: Perfect Soothing Baby Gifts"
-description: "Are you looking for the perfect gift that will delight both you and your newborn? A rattle toy gift set for newborns is more than just a toy—it’s a tool that sp"
+title: 'Rattle Toy Gift Set for Newborns: Perfect Soothing Baby Gifts'
+description: Are you looking for the perfect gift that will delight both you and your
+  newborn? A rattle toy gift set for newborns is more than just a toy—it’s a tool
+  that sp
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=rattle-toy-gift-set-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Learning Toys
+heroImage: https://tse1.mm.bing.net/th?q=rattle-toy-gift-set-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect gift that will delight both you and your newborn? A rattle toy gift set for newborns is more than just a toy—it’s a tool that sparks curiosity, supports early development, and keeps your little one happily engaged.**

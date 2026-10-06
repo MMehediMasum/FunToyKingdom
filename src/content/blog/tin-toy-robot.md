@@ -1,10 +1,14 @@
 ---
-title: "Tin Toy Robot: Top Vintage Wind-Up Collectibles for Kids & Adults"
-description: "Tin toy robots bring charm and nostalgia to collectors and kids alike. These classic wind-up toys offer simple fun and timeless design. Tin toy robots have ente"
+title: 'Tin Toy Robot: Top Vintage Wind-Up Collectibles for Kids & Adults'
+description: Tin toy robots bring charm and nostalgia to collectors and kids alike.
+  These classic wind-up toys offer simple fun and timeless design. Tin toy robots
+  have ente
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tin-toy-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=tin-toy-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Tin toy robots bring charm and nostalgia to collectors and kids alike. These classic wind-up toys offer simple fun and timeless design.**

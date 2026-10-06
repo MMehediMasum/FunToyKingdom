@@ -1,10 +1,14 @@
 ---
-title: "Big Superhero Toys: Top Marvel & DC 12-Inch Action Figures for Kids"
-description: "Big superhero toys captivate fans of all ages. These action-packed figures bring iconic characters to life in grand style. Superhero action figures offer a thri"
+title: 'Big Superhero Toys: Top Marvel & DC 12-Inch Action Figures for Kids'
+description: Big superhero toys captivate fans of all ages. These action-packed figures
+  bring iconic characters to life in grand style. Superhero action figures offer a
+  thri
 pubDate: 2026-02-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=big-superhero-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=big-superhero-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Big superhero toys captivate fans of all ages. These action-packed figures bring iconic characters to life in grand style.**

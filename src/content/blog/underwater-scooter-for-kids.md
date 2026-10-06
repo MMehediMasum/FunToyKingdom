@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Underwater Scooter for Kids: Ultimate Fun and Safety Guide"
 description: "Imagine your child’s face lighting up as they zoom through the water, exploring like a little underwater adventurer. An underwater scooter for kids can turn poo"
 pubDate: 2026-03-21

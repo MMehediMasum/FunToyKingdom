@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Hawk Inflatable Pool Float: Ultimate Summer Fun Essential"
-description: "Imagine yourself floating effortlessly on a sunny day, feeling the gentle breeze as you relax on a fun and eye-catching pool float. The Outdoor Hawk Inflatable "
+title: 'Outdoor Hawk Inflatable Pool Float: Ultimate Summer Fun Essential'
+description: 'Imagine yourself floating effortlessly on a sunny day, feeling the gentle
+  breeze as you relax on a fun and eye-catching pool float. The Outdoor Hawk Inflatable '
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-hawk-inflatable-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-hawk-inflatable-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself floating effortlessly on a sunny day, feeling the gentle breeze as you relax on a fun and eye-catching pool float. The Outdoor Hawk Inflatable Pool Float is designed to bring a unique mix of comfort and style to your water time.**

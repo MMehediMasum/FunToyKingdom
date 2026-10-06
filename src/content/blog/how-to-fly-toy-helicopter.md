@@ -1,10 +1,14 @@
 ---
-title: "How to Fly Toy Helicopter: Expert Tips for Smooth Control"
-description: "Have you ever wondered how to fly a toy helicopter like a pro? It’s not as hard as you might think. With the right tips and a little practice, you can master th"
+title: 'How to Fly Toy Helicopter: Expert Tips for Smooth Control'
+description: Have you ever wondered how to fly a toy helicopter like a pro? It’s not
+  as hard as you might think. With the right tips and a little practice, you can master
+  th
 pubDate: 2025-08-31
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fly-toy-helicopter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fly-toy-helicopter&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered how to fly a toy helicopter like a pro? It’s not as hard as you might think.**

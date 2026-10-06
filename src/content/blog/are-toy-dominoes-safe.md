@@ -1,10 +1,14 @@
 ---
-title: "Are Toy Dominoes Safe: Essential Tips for Parents to Know"
-description: "Have you ever wondered if toy dominoes are truly safe for your kids to play with? You want to make sure that every game is fun without any hidden dangers lurkin"
+title: 'Are Toy Dominoes Safe: Essential Tips for Parents to Know'
+description: Have you ever wondered if toy dominoes are truly safe for your kids to
+  play with? You want to make sure that every game is fun without any hidden dangers
+  lurkin
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-toy-dominoes-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=are-toy-dominoes-safe&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered if toy dominoes are truly safe for your kids to play with? You want to make sure that every game is fun without any hidden dangers lurking in those colorful pieces.**

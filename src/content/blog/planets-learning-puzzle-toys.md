@@ -1,10 +1,14 @@
 ---
-title: "Planets Learning Puzzle Toys: Boost Brainpower with Fun Challenges"
-description: "Are you looking for a fun and smart way to boost your child’s learning? Planets Learning Puzzle Toys might be just what you need. These toys are designed to mak"
+title: 'Planets Learning Puzzle Toys: Boost Brainpower with Fun Challenges'
+description: Are you looking for a fun and smart way to boost your child’s learning?
+  Planets Learning Puzzle Toys might be just what you need. These toys are designed
+  to mak
 pubDate: 2025-10-10
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=planets-learning-puzzle-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=planets-learning-puzzle-toys&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and smart way to boost your child’s learning? Planets Learning Puzzle Toys might be just what you need.**

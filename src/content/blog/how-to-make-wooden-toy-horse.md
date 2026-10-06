@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Horse: Easy Step-by-Step Guide"
-description: "Do you want to create a timeless wooden toy horse that brings joy and charm to your home? Making one yourself is easier than you think, and it gives you a uniqu"
+title: 'How to Make Wooden Toy Horse: Easy Step-by-Step Guide'
+description: Do you want to create a timeless wooden toy horse that brings joy and
+  charm to your home? Making one yourself is easier than you think, and it gives you
+  a uniqu
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-horse&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-horse&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to create a timeless wooden toy horse that brings joy and charm to your home? Making one yourself is easier than you think, and it gives you a unique chance to craft something special with your own hands.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Kids Bath Toys: Easy Tips for a Germ-Free Bath Time"
-description: "If you’re a parent, you know how much your kids love their bath toys. But have you ever thought about what’s hiding inside those colorful ducks and squirty anim"
+title: 'How to Clean Kids Bath Toys: Easy Tips for a Germ-Free Bath Time'
+description: If you’re a parent, you know how much your kids love their bath toys.
+  But have you ever thought about what’s hiding inside those colorful ducks and squirty
+  anim
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-kids-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-kids-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent, you know how much your kids love their bath toys. But have you ever thought about what’s hiding inside those colorful ducks and squirty animals?**

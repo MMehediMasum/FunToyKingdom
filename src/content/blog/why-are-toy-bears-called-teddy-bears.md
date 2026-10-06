@@ -1,10 +1,14 @@
 ---
-title: "Why are Toy Bears Called Teddy Bears: The Surprising Origin Story"
-description: "Have you ever wondered why your cuddly toy bear is called a \"Teddy Bear\"? It’s a name you hear everywhere, but the story behind it is surprisingly special. This"
+title: 'Why are Toy Bears Called Teddy Bears: The Surprising Origin Story'
+description: Have you ever wondered why your cuddly toy bear is called a "Teddy Bear"?
+  It’s a name you hear everywhere, but the story behind it is surprisingly special.
+  This
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-are-toy-bears-called-teddy-bears&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=why-are-toy-bears-called-teddy-bears&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered why your cuddly toy bear is called a "Teddy Bear"? It’s a name you hear everywhere, but the story behind it is surprisingly special.**

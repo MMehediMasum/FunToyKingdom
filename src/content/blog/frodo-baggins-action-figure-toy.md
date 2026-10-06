@@ -1,10 +1,14 @@
 ---
-title: "Frodo Baggins Action Figure Toy: Ultimate Collectible for Fans"
-description: "If you’re a fan of The Lord of the Rings, the Frodo Baggins Action Figure Toy is a must-have for your collection. Imagine holding a detailed, lifelike version o"
+title: 'Frodo Baggins Action Figure Toy: Ultimate Collectible for Fans'
+description: If you’re a fan of The Lord of the Rings, the Frodo Baggins Action Figure
+  Toy is a must-have for your collection. Imagine holding a detailed, lifelike version
+  o
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=frodo-baggins-action-figure-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=frodo-baggins-action-figure-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of The Lord of the Rings, the Frodo Baggins Action Figure Toy is a must-have for your collection. Imagine holding a detailed, lifelike version of the brave hobbit who carried the fate of Middle-earth on his shoulders.**

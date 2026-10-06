@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Rocket Launcher Safe: Fun, Easy & Kid-Friendly"
-description: "Looking for a fun project that’s safe, exciting, and perfect for your kids? You’re in the right place. Building a DIY cardboard toy rocket launcher lets you cre"
+title: 'Diy Cardboard Toy Rocket Launcher Safe: Fun, Easy & Kid-Friendly'
+description: Looking for a fun project that’s safe, exciting, and perfect for your
+  kids? You’re in the right place. Building a DIY cardboard toy rocket launcher lets
+  you cre
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-rocket-launcher-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-rocket-launcher-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun project that’s safe, exciting, and perfect for your kids? You’re in the right place.**

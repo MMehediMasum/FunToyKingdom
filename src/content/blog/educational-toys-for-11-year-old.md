@@ -1,10 +1,14 @@
 ---
-title: "Educational Toys for 11 Year Old: Top Picks to Boost Learning Fun"
-description: "Choosing the right toys for your 11-year-old can feel tricky. You want something fun, but also something that helps your child learn and grow. Educational toys "
+title: 'Educational Toys for 11 Year Old: Top Picks to Boost Learning Fun'
+description: 'Choosing the right toys for your 11-year-old can feel tricky. You want
+  something fun, but also something that helps your child learn and grow. Educational
+  toys '
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-11-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toys for your 11-year-old can feel tricky. You want something fun, but also something that helps your child learn and grow.**

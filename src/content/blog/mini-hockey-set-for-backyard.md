@@ -1,10 +1,14 @@
 ---
-title: "Mini Hockey Set for Backyard: Ultimate Fun & Fitness Guide"
-description: "Are you looking for a fun way to bring excitement and activity right to your backyard? A mini hockey set could be exactly what you need. Imagine quick games tha"
+title: 'Mini Hockey Set for Backyard: Ultimate Fun & Fitness Guide'
+description: Are you looking for a fun way to bring excitement and activity right
+  to your backyard? A mini hockey set could be exactly what you need. Imagine quick
+  games tha
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-hockey-set-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=mini-hockey-set-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to bring excitement and activity right to your backyard? A mini hockey set could be exactly what you need.**

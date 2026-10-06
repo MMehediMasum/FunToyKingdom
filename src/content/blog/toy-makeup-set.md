@@ -1,10 +1,14 @@
 ---
-title: "Toy Makeup Set: Perfect Pretend Play Kit for Little Girls' Fun"
-description: "Toy makeup sets offer children safe, fun ways to explore creativity and role-play. These kits include colorful, washable cosmetics designed just for kids. Prete"
+title: 'Toy Makeup Set: Perfect Pretend Play Kit for Little Girls'' Fun'
+description: Toy makeup sets offer children safe, fun ways to explore creativity and
+  role-play. These kits include colorful, washable cosmetics designed just for kids.
+  Prete
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-makeup-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tic Tac Toe Strategies
+heroImage: https://tse1.mm.bing.net/th?q=toy-makeup-set&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Toy makeup sets offer children safe, fun ways to explore creativity and role-play. These kits include colorful, washable cosmetics designed just for kids.**

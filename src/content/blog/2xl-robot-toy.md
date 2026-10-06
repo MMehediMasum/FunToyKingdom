@@ -1,10 +1,14 @@
 ---
-title: "2Xl Robot Toy: Ultimate Interactive Learning & Fun for Kids"
-description: "The 2Xl Robot Toy offers fun and learning in one smart package. Kids enjoy playing while exploring new skills. This robot toy suits children aged 3 to 12 and co"
+title: '2Xl Robot Toy: Ultimate Interactive Learning & Fun for Kids'
+description: The 2Xl Robot Toy offers fun and learning in one smart package. Kids
+  enjoy playing while exploring new skills. This robot toy suits children aged 3 to
+  12 and co
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=2xl-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=2xl-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The 2Xl Robot Toy offers fun and learning in one smart package. Kids enjoy playing while exploring new skills.**

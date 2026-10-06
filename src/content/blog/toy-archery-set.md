@@ -1,10 +1,14 @@
 ---
-title: "Toy Archery Set: Top LED Bow and Arrow Toys for Kids’ Fun"
-description: "Toy archery sets offer safe and fun ways for kids to enjoy archery indoors and outdoors. These sets include light-up bows, suction cup arrows, and targets desig"
+title: 'Toy Archery Set: Top LED Bow and Arrow Toys for Kids’ Fun'
+description: Toy archery sets offer safe and fun ways for kids to enjoy archery indoors
+  and outdoors. These sets include light-up bows, suction cup arrows, and targets
+  desig
 pubDate: 2025-10-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-archery-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=toy-archery-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy archery sets offer safe and fun ways for kids to enjoy archery indoors and outdoors. These sets include light-up bows, suction cup arrows, and targets designed for children.**

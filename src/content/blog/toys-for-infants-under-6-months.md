@@ -1,10 +1,14 @@
 ---
-title: "Toys for Infants under 6 Months: Top Sensory and Developmental Picks"
-description: "Choosing the right toys for infants under 6 months supports early growth and sensory development. These toys help babies explore colors, shapes, and textures sa"
+title: 'Toys for Infants under 6 Months: Top Sensory and Developmental Picks'
+description: Choosing the right toys for infants under 6 months supports early growth
+  and sensory development. These toys help babies explore colors, shapes, and textures
+  sa
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-infants-under-6-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-infants-under-6-months&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the right toys for infants under 6 months supports early growth and sensory development. These toys help babies explore colors, shapes, and textures safely.**

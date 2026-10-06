@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Toy Story Edition: Ultimate Family Game Night Fun"
-description: "Are you a fan of classic board games and beloved animated movies? Imagine combining the fun of Monopoly with the magic of Toy Story. The Monopoly Toy Story Edit"
+title: 'Monopoly Toy Story Edition: Ultimate Family Game Night Fun'
+description: Are you a fan of classic board games and beloved animated movies? Imagine
+  combining the fun of Monopoly with the magic of Toy Story. The Monopoly Toy Story
+  Edit
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-toy-story-edition&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-toy-story-edition&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of classic board games and beloved animated movies? Imagine combining the fun of Monopoly with the magic of Toy Story.**

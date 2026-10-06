@@ -1,10 +1,14 @@
 ---
-title: "Are Toys Alive in Real Life: Unveiling the Mystery Today"
-description: "Have you ever wondered if your toys might come to life when you’re not looking? Imagine the stories they could tell or the adventures they might have after you "
+title: 'Are Toys Alive in Real Life: Unveiling the Mystery Today'
+description: 'Have you ever wondered if your toys might come to life when you’re not
+  looking? Imagine the stories they could tell or the adventures they might have after
+  you '
 pubDate: 2025-08-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-toys-alive-in-real-life&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=are-toys-alive-in-real-life&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered if your toys might come to life when you’re not looking? Imagine the stories they could tell or the adventures they might have after you leave the room.**

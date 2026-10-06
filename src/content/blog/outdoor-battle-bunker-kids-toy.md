@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Battle Bunker Kids Toy: Ultimate Fun and Adventure Guide"
-description: "Imagine giving your kids a space where their imagination runs wild, where every game turns into an exciting adventure. The Outdoor Battle Bunker Kids Toy is des"
+title: 'Outdoor Battle Bunker Kids Toy: Ultimate Fun and Adventure Guide'
+description: Imagine giving your kids a space where their imagination runs wild, where
+  every game turns into an exciting adventure. The Outdoor Battle Bunker Kids Toy
+  is des
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-battle-bunker-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-battle-bunker-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids a space where their imagination runs wild, where every game turns into an exciting adventure. The Outdoor Battle Bunker Kids Toy is designed to do just that.**

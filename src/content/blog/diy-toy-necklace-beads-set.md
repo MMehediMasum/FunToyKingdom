@@ -1,10 +1,13 @@
 ---
-title: "Diy Toy Necklace Beads Set: Create Fun, Colorful Jewelry Easily"
-description: "Looking for a fun and creative way to spend your time? A DIY Toy Necklace Beads Set is just what you need. Imagine turning simple beads into a colorful necklace"
+title: 'Diy Toy Necklace Beads Set: Create Fun, Colorful Jewelry Easily'
+description: Looking for a fun and creative way to spend your time? A DIY Toy Necklace
+  Beads Set is just what you need. Imagine turning simple beads into a colorful necklace
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-necklace-beads-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-necklace-beads-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative way to spend your time? A DIY Toy Necklace Beads Set is just what you need.**

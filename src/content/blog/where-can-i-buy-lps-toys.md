@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy Lps Toys: Ultimate Guide to Top Shopping Spots"
-description: "Are you on the hunt for LPS toys but not sure where to find the best places to buy them? Whether you’re starting a new collection or looking for rare pieces, kn"
+title: 'Where Can I Buy Lps Toys: Ultimate Guide to Top Shopping Spots'
+description: Are you on the hunt for LPS toys but not sure where to find the best
+  places to buy them? Whether you’re starting a new collection or looking for rare
+  pieces, kn
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-lps-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toys Cheap
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-lps-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you on the hunt for LPS toys but not sure where to find the best places to buy them? Whether you’re starting a new collection or looking for rare pieces, knowing exactly where to look can save you time and money.**

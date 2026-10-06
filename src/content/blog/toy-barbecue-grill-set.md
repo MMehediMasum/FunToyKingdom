@@ -1,10 +1,13 @@
 ---
-title: "Toy Barbecue Grill Set: Interactive BBQ Fun with Smoke, Sound & Light"
-description: "Toy barbecue grill sets are a delightful way to spark creativity in children. These playsets offer a realistic grilling experience with lights, sounds, and pret"
+title: 'Toy Barbecue Grill Set: Interactive BBQ Fun with Smoke, Sound & Light'
+description: Toy barbecue grill sets are a delightful way to spark creativity in children.
+  These playsets offer a realistic grilling experience with lights, sounds, and pret
 pubDate: 2026-08-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-barbecue-grill-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=toy-barbecue-grill-set&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Toy barbecue grill sets are a delightful way to spark creativity in children. These playsets offer a realistic grilling experience with lights, sounds, and pretend smoke, perfect for little chefs aged 2-6.**

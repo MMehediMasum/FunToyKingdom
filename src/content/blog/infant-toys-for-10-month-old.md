@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 10 Month Old: Top Montessori and Sensory Picks"
-description: "Choosing the right toys for a 10-month-old baby helps support growth and learning. Toys that engage senses and encourage movement work best. At 10 months, babie"
+title: 'Infant Toys for 10 Month Old: Top Montessori and Sensory Picks'
+description: Choosing the right toys for a 10-month-old baby helps support growth
+  and learning. Toys that engage senses and encourage movement work best. At 10 months,
+  babie
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-10-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-10-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a 10-month-old baby helps support growth and learning. Toys that engage senses and encourage movement work best.**

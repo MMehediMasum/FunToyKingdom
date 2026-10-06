@@ -1,10 +1,14 @@
 ---
-title: "Die Cast Toy Cars: Top Collectible Models for Kids and Enthusiasts"
-description: "Die cast toy cars capture the imagination of both kids and collectors. These miniature marvels replicate real vehicles with intricate detail. Die cast toy cars "
+title: 'Die Cast Toy Cars: Top Collectible Models for Kids and Enthusiasts'
+description: 'Die cast toy cars capture the imagination of both kids and collectors.
+  These miniature marvels replicate real vehicles with intricate detail. Die cast
+  toy cars '
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=die-cast-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=die-cast-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Die cast toy cars capture the imagination of both kids and collectors. These miniature marvels replicate real vehicles with intricate detail.**

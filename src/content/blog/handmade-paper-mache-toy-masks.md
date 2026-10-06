@@ -1,10 +1,14 @@
 ---
-title: "Handmade Paper Mache Toy Masks: Unique, Creative & Eco-Friendly Fun"
-description: "Are you looking for a fun and creative way to bring joy to your playtime or decorate your space? Handmade paper mache toy masks might be exactly what you need. "
+title: 'Handmade Paper Mache Toy Masks: Unique, Creative & Eco-Friendly Fun'
+description: 'Are you looking for a fun and creative way to bring joy to your playtime
+  or decorate your space? Handmade paper mache toy masks might be exactly what you
+  need. '
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-paper-mache-toy-masks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Wooden Pirate
+heroImage: https://tse1.mm.bing.net/th?q=handmade-paper-mache-toy-masks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to bring joy to your playtime or decorate your space? Handmade paper mache toy masks might be exactly what you need.**

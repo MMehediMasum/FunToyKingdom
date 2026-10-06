@@ -1,10 +1,14 @@
 ---
-title: "1 18 Scale Toy Cars: Top Diecast Models for Collectors and Enthusiasts"
-description: "1:18 scale toy cars offer detailed miniatures that appeal to collectors and car fans alike. These models blend realism with fun in a compact size. This scale me"
+title: '1 18 Scale Toy Cars: Top Diecast Models for Collectors and Enthusiasts'
+description: 1:18 scale toy cars offer detailed miniatures that appeal to collectors
+  and car fans alike. These models blend realism with fun in a compact size. This
+  scale me
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1-18-scale-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=1-18-scale-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **1:18 scale toy cars offer detailed miniatures that appeal to collectors and car fans alike. These models blend realism with fun in a compact size.**

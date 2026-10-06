@@ -1,10 +1,14 @@
 ---
-title: "Soft Textured Fabric Toys for Babies: Safe, Cozy, and Adorable Choices"
-description: "When it comes to your baby’s comfort and safety, every little detail matters. Soft textured fabric toys are more than just playthings—they can soothe, stimulate"
+title: 'Soft Textured Fabric Toys for Babies: Safe, Cozy, and Adorable Choices'
+description: When it comes to your baby’s comfort and safety, every little detail
+  matters. Soft textured fabric toys are more than just playthings—they can soothe,
+  stimulate
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-textured-fabric-toys-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Fabric Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=soft-textured-fabric-toys-for-babies&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **When it comes to your baby’s comfort and safety, every little detail matters. Soft textured fabric toys are more than just playthings—they can soothe, stimulate, and support your baby’s early development.**

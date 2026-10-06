@@ -1,10 +1,14 @@
 ---
-title: "Kids Bumper Boat Inflatable Pool: Ultimate Fun for Summer Splash"
-description: "Looking for a fun and safe way to keep your kids entertained this summer? A Kids Bumper Boat Inflatable Pool might be exactly what you need. Imagine your childr"
+title: 'Kids Bumper Boat Inflatable Pool: Ultimate Fun for Summer Splash'
+description: Looking for a fun and safe way to keep your kids entertained this summer?
+  A Kids Bumper Boat Inflatable Pool might be exactly what you need. Imagine your
+  childr
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-bumper-boat-inflatable-pool&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=kids-bumper-boat-inflatable-pool&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained this summer? A Kids Bumper Boat Inflatable Pool might be exactly what you need.**

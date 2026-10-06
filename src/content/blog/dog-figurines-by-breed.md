@@ -1,10 +1,13 @@
 ---
-title: "Dog Figurines by Breed: Collectible Sculptures for Every Dog Lover"
-description: "Dog figurines captivate dog lovers with their intricate details and breed-specific designs. They celebrate the unique charm of each breed. Collecting dog figuri"
+title: 'Dog Figurines by Breed: Collectible Sculptures for Every Dog Lover'
+description: Dog figurines captivate dog lovers with their intricate details and breed-specific
+  designs. They celebrate the unique charm of each breed. Collecting dog figuri
 pubDate: 2025-10-07
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-figurines-by-breed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=dog-figurines-by-breed&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dog figurines captivate dog lovers with their intricate details and breed-specific designs. They celebrate the unique charm of each breed.**

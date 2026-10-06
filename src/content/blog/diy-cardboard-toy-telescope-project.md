@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Telescope Project: Fun & Easy DIY Craft Guide"
-description: "Have you ever wanted to explore the stars without leaving your backyard? Imagine building your very own toy telescope using simple cardboard and a few easy-to-f"
+title: 'Diy Cardboard Toy Telescope Project: Fun & Easy DIY Craft Guide'
+description: Have you ever wanted to explore the stars without leaving your backyard?
+  Imagine building your very own toy telescope using simple cardboard and a few easy-to-f
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-telescope-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-telescope-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to explore the stars without leaving your backyard? Imagine building your very own toy telescope using simple cardboard and a few easy-to-find materials.**

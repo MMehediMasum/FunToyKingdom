@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Doll Fashion Design Trend Blog: Stunning Styles to Watch Now"
 description: "Are you ready to discover the latest styles shaping the world of doll fashion? Whether you’re a collector, designer, or just curious, this blog will give you fr"
 pubDate: 2025-12-10

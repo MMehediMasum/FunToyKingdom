@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Kai Toys: Top Action Figures Every Fan Must Own"
-description: "Dragon Ball Z Kai toys bring your favorite characters to life with detailed action figures. Fans enjoy collecting and playing with these iconic Dragon Ball figu"
+title: 'Dragon Ball Z Kai Toys: Top Action Figures Every Fan Must Own'
+description: Dragon Ball Z Kai toys bring your favorite characters to life with detailed
+  action figures. Fans enjoy collecting and playing with these iconic Dragon Ball
+  figu
 pubDate: 2026-02-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-kai-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-kai-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z Kai toys bring your favorite characters to life with detailed action figures. Fans enjoy collecting and playing with these iconic Dragon Ball figures.**

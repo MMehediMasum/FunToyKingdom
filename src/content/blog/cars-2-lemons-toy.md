@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Lemons Toy: Top Diecast Collectibles for Toddlers and Kids"
-description: "Cars 2 Lemons Toy brings fun from the hit Disney Pixar Cars 2 movie. These toys feature colorful characters that kids love. This collection includes diecast veh"
+title: 'Cars 2 Lemons Toy: Top Diecast Collectibles for Toddlers and Kids'
+description: Cars 2 Lemons Toy brings fun from the hit Disney Pixar Cars 2 movie.
+  These toys feature colorful characters that kids love. This collection includes
+  diecast veh
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-lemons-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-lemons-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 2 Lemons Toy brings fun from the hit Disney Pixar Cars 2 movie. These toys feature colorful characters that kids love.**

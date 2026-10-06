@@ -1,10 +1,13 @@
 ---
-title: "Case Tractor Toys: Top Picks for Realistic Farm Fun and Play"
-description: "Case Tractor Toys bring the farming world to life for children and collectors. They offer a glimpse into agriculture's heart. From the ERTL 1/64 Case IH Tractor"
+title: 'Case Tractor Toys: Top Picks for Realistic Farm Fun and Play'
+description: Case Tractor Toys bring the farming world to life for children and collectors.
+  They offer a glimpse into agriculture's heart. From the ERTL 1/64 Case IH Tractor
 pubDate: 2026-08-11
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=case-tractor-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=case-tractor-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Case Tractor Toys bring the farming world to life for children and collectors. They offer a glimpse into agriculture's heart.**

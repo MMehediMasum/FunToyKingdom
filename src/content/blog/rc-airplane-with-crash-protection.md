@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane With Crash Protection: Ultimate Durable Flying Fun"
-description: "Are you tired of your RC airplane crashing and breaking on the first flight? Imagine flying your plane with confidence, knowing it can handle bumps and crashes "
+title: 'Rc Airplane With Crash Protection: Ultimate Durable Flying Fun'
+description: 'Are you tired of your RC airplane crashing and breaking on the first
+  flight? Imagine flying your plane with confidence, knowing it can handle bumps and
+  crashes '
 pubDate: 2025-11-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-crash-protection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-crash-protection&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of your RC airplane crashing and breaking on the first flight? Imagine flying your plane with confidence, knowing it can handle bumps and crashes without falling apart.**

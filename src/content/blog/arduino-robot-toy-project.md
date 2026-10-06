@@ -1,10 +1,14 @@
 ---
-title: "Arduino Robot Toy Project: Build Fun & Interactive Gadgets"
-description: "Are you ready to create something fun and exciting with your own hands? Imagine building a robot toy that you can control and program yourself. This Arduino Rob"
+title: 'Arduino Robot Toy Project: Build Fun & Interactive Gadgets'
+description: Are you ready to create something fun and exciting with your own hands?
+  Imagine building a robot toy that you can control and program yourself. This Arduino
+  Rob
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=arduino-robot-toy-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=arduino-robot-toy-project&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to create something fun and exciting with your own hands? Imagine building a robot toy that you can control and program yourself.**

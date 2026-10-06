@@ -1,10 +1,14 @@
 ---
-title: "How to Make Cardboard Toy Barn: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and creative project that you can make with your kids or even on your own? Building a cardboard toy barn is a simple and rewarding way"
+title: 'How to Make Cardboard Toy Barn: Easy Steps for Creative Fun'
+description: Are you looking for a fun and creative project that you can make with
+  your kids or even on your own? Building a cardboard toy barn is a simple and rewarding
+  way
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-cardboard-toy-barn&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-cardboard-toy-barn&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with your kids or even on your own? Building a cardboard toy barn is a simple and rewarding way to bring imagination to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Disney Animator Collection Dolls: Magical Keepsakes for Fans"
-description: "If you love Disney magic and collectibles, the Disney Animator Collection Dolls are made just for you. These dolls capture the charm of your favorite Disney cha"
+title: 'Disney Animator Collection Dolls: Magical Keepsakes for Fans'
+description: If you love Disney magic and collectibles, the Disney Animator Collection
+  Dolls are made just for you. These dolls capture the charm of your favorite Disney
+  cha
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-animator-collection-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Old Princess Dolls
+heroImage: https://tse1.mm.bing.net/th?q=disney-animator-collection-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you love Disney magic and collectibles, the Disney Animator Collection Dolls are made just for you. These dolls capture the charm of your favorite Disney characters as adorable toddlers.**

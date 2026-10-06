@@ -1,10 +1,14 @@
 ---
-title: "Cabbage Patch Kids Collectible Dolls: Ultimate Guide to Rare Finds"
-description: "Are you curious about why Cabbage Patch Kids collectible dolls have captured the hearts of so many? These charming dolls are more than just toys—they hold a spe"
+title: 'Cabbage Patch Kids Collectible Dolls: Ultimate Guide to Rare Finds'
+description: Are you curious about why Cabbage Patch Kids collectible dolls have captured
+  the hearts of so many? These charming dolls are more than just toys—they hold a
+  spe
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=cabbage-patch-kids-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=cabbage-patch-kids-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about why Cabbage Patch Kids collectible dolls have captured the hearts of so many? These charming dolls are more than just toys—they hold a special place in the world of collectibles.**

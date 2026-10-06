@@ -1,10 +1,14 @@
 ---
-title: "Who Sells Miniature Toy Airplanes: Top Trusted Sellers Revealed"
-description: "Are you looking to add a cool miniature toy airplane to your collection or gift one to someone special? Finding the right place to buy these tiny flying models "
+title: 'Who Sells Miniature Toy Airplanes: Top Trusted Sellers Revealed'
+description: 'Are you looking to add a cool miniature toy airplane to your collection
+  or gift one to someone special? Finding the right place to buy these tiny flying
+  models '
 pubDate: 2026-09-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-sells-miniature-toy-airplanes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=who-sells-miniature-toy-airplanes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking to add a cool miniature toy airplane to your collection or gift one to someone special? Finding the right place to buy these tiny flying models can be tricky.**

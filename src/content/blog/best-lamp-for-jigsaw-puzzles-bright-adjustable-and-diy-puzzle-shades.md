@@ -1,10 +1,14 @@
 ---
-title: "Best Lamp for Jigsaw Puzzles: Bright, Adjustable, and DIY Puzzle Shades"
-description: "Choosing the best lamp for jigsaw puzzles helps reduce eye strain and brightens your workspace. Good lighting makes puzzle pieces clearer and colors more vivid."
+title: 'Best Lamp for Jigsaw Puzzles: Bright, Adjustable, and DIY Puzzle Shades'
+description: Choosing the best lamp for jigsaw puzzles helps reduce eye strain and
+  brightens your workspace. Good lighting makes puzzle pieces clearer and colors more
+  vivid.
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lamp-for-jigsaw-puzzles-bright-adjustable-and-diy-puzzle-shades&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Care & Accessories
+heroImage: https://tse1.mm.bing.net/th?q=best-lamp-for-jigsaw-puzzles-bright-adjustable-and-diy-puzzle-shades&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best lamp for jigsaw puzzles helps reduce eye strain and brightens your workspace. Good lighting makes puzzle pieces clearer and colors more vivid.**

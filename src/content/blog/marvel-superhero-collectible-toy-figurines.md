@@ -1,10 +1,14 @@
 ---
-title: "Marvel Superhero Collectible Toy Figurines: Ultimate Fan Must-Haves"
-description: "Are you a fan of Marvel superheroes? Imagine having your favorite characters right on your shelf, ready to inspire you every day. Marvel Superhero Collectible T"
+title: 'Marvel Superhero Collectible Toy Figurines: Ultimate Fan Must-Haves'
+description: Are you a fan of Marvel superheroes? Imagine having your favorite characters
+  right on your shelf, ready to inspire you every day. Marvel Superhero Collectible
+  T
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=marvel-superhero-collectible-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=marvel-superhero-collectible-toy-figurines&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you a fan of Marvel superheroes? Imagine having your favorite characters right on your shelf, ready to inspire you every day.**

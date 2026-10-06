@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Toy Soldier Costume for Kids: Easy DIY Guide"
-description: "Are you looking for a fun and creative way to make your child’s costume stand out? A toy soldier costume is a classic choice that brings imagination to life. Wi"
+title: 'How to Make a Toy Soldier Costume for Kids: Easy DIY Guide'
+description: Are you looking for a fun and creative way to make your child’s costume
+  stand out? A toy soldier costume is a classic choice that brings imagination to
+  life. Wi
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-soldier-costume-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-soldier-costume-for-kids&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and creative way to make your child’s costume stand out? A toy soldier costume is a classic choice that brings imagination to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Sword Fight Foam Set: Ultimate Fun for Active Playtime"
-description: "Are you ready to bring excitement and action to your outdoor playtime? The Outdoor Sword Fight Foam Set is exactly what you need to turn any backyard into a thr"
+title: 'Outdoor Sword Fight Foam Set: Ultimate Fun for Active Playtime'
+description: Are you ready to bring excitement and action to your outdoor playtime?
+  The Outdoor Sword Fight Foam Set is exactly what you need to turn any backyard into
+  a thr
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-sword-fight-foam-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-sword-fight-foam-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to bring excitement and action to your outdoor playtime? The Outdoor Sword Fight Foam Set is exactly what you need to turn any backyard into a thrilling battlefield.**

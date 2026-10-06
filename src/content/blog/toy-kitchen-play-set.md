@@ -1,10 +1,14 @@
 ---
-title: "Toy Kitchen Play Set: Ultimate Interactive Pretend Cooking Fun for Kids"
-description: "A toy kitchen play set sparks creativity and imagination in young children. It offers a fun way to learn everyday skills through pretend cooking. Toy kitchen pl"
+title: 'Toy Kitchen Play Set: Ultimate Interactive Pretend Cooking Fun for Kids'
+description: A toy kitchen play set sparks creativity and imagination in young children.
+  It offers a fun way to learn everyday skills through pretend cooking. Toy kitchen
+  pl
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-kitchen-play-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=toy-kitchen-play-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **A toy kitchen play set sparks creativity and imagination in young children. It offers a fun way to learn everyday skills through pretend cooking.**

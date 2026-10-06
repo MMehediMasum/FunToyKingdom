@@ -1,10 +1,14 @@
 ---
-title: "When Can I Give My Baby a Teething Toy: Expert Tips Revealed"
-description: "Teething can be tough for both you and your baby. You want to help soothe their sore gums, but you might be wondering, \"When can I give my baby a teething toy?\""
+title: 'When Can I Give My Baby a Teething Toy: Expert Tips Revealed'
+description: Teething can be tough for both you and your baby. You want to help soothe
+  their sore gums, but you might be wondering, "When can I give my baby a teething
+  toy?"
 pubDate: 2026-07-27
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-can-i-give-my-baby-a-teething-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=when-can-i-give-my-baby-a-teething-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Teething can be tough for both you and your baby. You want to help soothe their sore gums, but you might be wondering, "When can I give my baby a teething toy?"**

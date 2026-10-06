@@ -1,10 +1,14 @@
 ---
-title: "Stacking Toys for 1 Year Old: Top Picks for Fun & Learning"
-description: "Are you looking for the perfect toy to help your 1-year-old grow and have fun at the same time? Stacking toys are more than just colorful blocks—they’re a power"
+title: 'Stacking Toys for 1 Year Old: Top Picks for Fun & Learning'
+description: Are you looking for the perfect toy to help your 1-year-old grow and
+  have fun at the same time? Stacking toys are more than just colorful blocks—they’re
+  a power
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Stacking Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stacking-toys-for-1-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toy to help your 1-year-old grow and have fun at the same time? Stacking toys are more than just colorful blocks—they’re a powerful way to boost your child’s hand-eye coordination, problem-solving skills, and creativity.**

@@ -1,10 +1,14 @@
 ---
-title: "1980S Toy Robot Collectibles: Classic Fighting & Remote Control Favorites"
-description: "The 1980s brought a wave of toy robots that captured the imaginations of children everywhere. These mechanical wonders offered fun, creativity, and a glimpse in"
+title: '1980S Toy Robot Collectibles: Classic Fighting & Remote Control Favorites'
+description: The 1980s brought a wave of toy robots that captured the imaginations
+  of children everywhere. These mechanical wonders offered fun, creativity, and a
+  glimpse in
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1980s-toy-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=1980s-toy-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The 1980s brought a wave of toy robots that captured the imaginations of children everywhere. These mechanical wonders offered fun, creativity, and a glimpse into the future.**

@@ -1,10 +1,14 @@
 ---
-title: "What Vintage Toy Figurines are Valuable: Top Collectibles Revealed"
-description: "Have you ever wondered if the old toy figurines sitting in your attic could be worth a small fortune? Many vintage toy figurines are surprisingly valuable, and "
+title: 'What Vintage Toy Figurines are Valuable: Top Collectibles Revealed'
+description: 'Have you ever wondered if the old toy figurines sitting in your attic
+  could be worth a small fortune? Many vintage toy figurines are surprisingly valuable,
+  and '
 pubDate: 2025-11-21
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-vintage-toy-figurines-are-valuable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=what-vintage-toy-figurines-are-valuable&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered if the old toy figurines sitting in your attic could be worth a small fortune? Many vintage toy figurines are surprisingly valuable, and knowing which ones to look for can turn your collection into a treasure.**

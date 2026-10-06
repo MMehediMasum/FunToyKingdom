@@ -1,10 +1,13 @@
 ---
-title: "Kids Smart Science Lab Toys: Ignite Curiosity and Learning Fun"
-description: "Are you looking for a fun and educational way to spark your child’s curiosity? Kids smart science lab toys could be exactly what you need. These toys turn learn"
+title: 'Kids Smart Science Lab Toys: Ignite Curiosity and Learning Fun'
+description: Are you looking for a fun and educational way to spark your child’s curiosity?
+  Kids smart science lab toys could be exactly what you need. These toys turn learn
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-smart-science-lab-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=kids-smart-science-lab-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and educational way to spark your child’s curiosity? Kids smart science lab toys could be exactly what you need.**

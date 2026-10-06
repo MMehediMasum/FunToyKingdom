@@ -1,10 +1,14 @@
 ---
-title: "Children’s Toy Doctor Kits: Top Pretend Play Sets for Kids’ Imaginative Fun"
-description: "Children's toy doctor kits are more than just playthings. They inspire creativity and teach empathy in young children. These kits provide a fun, educational exp"
+title: 'Children’s Toy Doctor Kits: Top Pretend Play Sets for Kids’ Imaginative Fun'
+description: Children's toy doctor kits are more than just playthings. They inspire
+  creativity and teach empathy in young children. These kits provide a fun, educational
+  exp
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=childrens-toy-doctor-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=childrens-toy-doctor-kits&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Children's toy doctor kits are more than just playthings. They inspire creativity and teach empathy in young children.**

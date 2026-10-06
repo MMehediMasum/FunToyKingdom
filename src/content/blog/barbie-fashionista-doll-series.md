@@ -1,10 +1,14 @@
 ---
-title: "Barbie Fashionista Doll Series: Ultimate Style Guide for Collectors"
-description: "Are you ready to discover a doll collection that celebrates style, diversity, and creativity all in one? The Barbie Fashionista Doll Series is more than just to"
+title: 'Barbie Fashionista Doll Series: Ultimate Style Guide for Collectors'
+description: Are you ready to discover a doll collection that celebrates style, diversity,
+  and creativity all in one? The Barbie Fashionista Doll Series is more than just
+  to
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-fashionista-doll-series&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-fashionista-doll-series&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to discover a doll collection that celebrates style, diversity, and creativity all in one? The Barbie Fashionista Doll Series is more than just toys – it’s a way to inspire your imagination and express your unique taste.**

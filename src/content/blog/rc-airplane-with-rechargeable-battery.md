@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane With Rechargeable Battery: Ultimate Guide for 2025"
-description: "Are you ready to take your RC airplane experience to the next level? Imagine flying your plane longer, charging it faster, and enjoying every moment without the"
+title: 'Rc Airplane With Rechargeable Battery: Ultimate Guide for 2025'
+description: Are you ready to take your RC airplane experience to the next level?
+  Imagine flying your plane longer, charging it faster, and enjoying every moment
+  without the
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-rechargeable-battery&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-rechargeable-battery&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC airplane experience to the next level? Imagine flying your plane longer, charging it faster, and enjoying every moment without the hassle of constantly replacing batteries.**

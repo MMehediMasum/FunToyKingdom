@@ -1,10 +1,13 @@
 ---
-title: "Stroller Toys for Newborns: Top Picks for Happy Baby Rides"
-description: "Are you looking for the perfect way to keep your newborn happy and entertained during stroller rides? Choosing the right stroller toys can make all the differen"
+title: 'Stroller Toys for Newborns: Top Picks for Happy Baby Rides'
+description: Are you looking for the perfect way to keep your newborn happy and entertained
+  during stroller rides? Choosing the right stroller toys can make all the differen
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stroller-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=stroller-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect way to keep your newborn happy and entertained during stroller rides? Choosing the right stroller toys can make all the difference.**

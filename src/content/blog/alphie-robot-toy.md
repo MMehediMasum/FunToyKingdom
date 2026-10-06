@@ -1,10 +1,14 @@
 ---
-title: "Alphie Robot Toy: Ultimate ABC Learning Fun for Toddlers and Kids"
-description: "The Alphie Robot Toy offers an engaging way for kids to learn letters and numbers. This educational toy combines fun with hands-on learning. Designed for toddle"
+title: 'Alphie Robot Toy: Ultimate ABC Learning Fun for Toddlers and Kids'
+description: The Alphie Robot Toy offers an engaging way for kids to learn letters
+  and numbers. This educational toy combines fun with hands-on learning. Designed
+  for toddle
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=alphie-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=alphie-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Alphie Robot Toy offers an engaging way for kids to learn letters and numbers. This educational toy combines fun with hands-on learning.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Light Up Toys for Babies: Top Picks for Fun & Learning"
-description: "Are you looking for the best light up toys that will captivate your baby’s attention and spark their curiosity? Choosing the right toy can make a big difference"
+title: 'Best Light Up Toys for Babies: Top Picks for Fun & Learning'
+description: Are you looking for the best light up toys that will captivate your baby’s
+  attention and spark their curiosity? Choosing the right toy can make a big difference
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-up-toys-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Toy Development
+heroImage: https://tse1.mm.bing.net/th?q=best-light-up-toys-for-babies&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the best light up toys that will captivate your baby’s attention and spark their curiosity? Choosing the right toy can make a big difference in your little one’s playtime and development.**

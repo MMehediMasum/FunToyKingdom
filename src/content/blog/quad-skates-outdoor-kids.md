@@ -1,10 +1,13 @@
 ---
-title: "Quad Skates Outdoor Kids: Ultimate Fun & Safety Tips Revealed"
-description: "Are you looking for a fun way to get your kids moving outside? Quad skates outdoor kids love are the perfect choice to spark their energy and creativity. Imagin"
+title: 'Quad Skates Outdoor Kids: Ultimate Fun & Safety Tips Revealed'
+description: Are you looking for a fun way to get your kids moving outside? Quad skates
+  outdoor kids love are the perfect choice to spark their energy and creativity. Imagin
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=quad-skates-outdoor-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=quad-skates-outdoor-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids moving outside? Quad skates outdoor kids love are the perfect choice to spark their energy and creativity.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Bait Boat for Surf Fishing: Top Picks for Ultimate Bait Deployment"
-description: "Choosing the best RC bait boat for surf fishing can improve your catch and make fishing easier. These boats carry bait far into the surf, saving time and effort"
+title: 'Best Rc Bait Boat for Surf Fishing: Top Picks for Ultimate Bait Deployment'
+description: Choosing the best RC bait boat for surf fishing can improve your catch
+  and make fishing easier. These boats carry bait far into the surf, saving time and
+  effort
 pubDate: 2025-10-12
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-bait-boat-for-surf-fishing-top-picks-for-ultimate-bait-deployment&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-bait-boat-for-surf-fishing-top-picks-for-ultimate-bait-deployment&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best RC bait boat for surf fishing can improve your catch and make fishing easier. These boats carry bait far into the surf, saving time and effort.**

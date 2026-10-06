@@ -1,10 +1,14 @@
 ---
-title: "Kids Digital Camera Toy: Ultimate Fun for Creative Young Photographers"
-description: "Are you looking for a fun and safe way to spark your child’s creativity? A kids digital camera toy might be exactly what you need. Imagine your little one captu"
+title: 'Kids Digital Camera Toy: Ultimate Fun for Creative Young Photographers'
+description: Are you looking for a fun and safe way to spark your child’s creativity?
+  A kids digital camera toy might be exactly what you need. Imagine your little one
+  captu
 pubDate: 2026-07-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-digital-camera-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=kids-digital-camera-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and safe way to spark your child’s creativity? A kids digital camera toy might be exactly what you need.**

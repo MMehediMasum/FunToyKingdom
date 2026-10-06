@@ -1,10 +1,13 @@
 ---
-title: "How Toy Figurines are Made: The Ultimate Step-by-Step Guide"
-description: "Have you ever wondered how those tiny toy figurines you love are created? From the smooth finish to the detailed features, there’s a fascinating process behind "
+title: 'How Toy Figurines are Made: The Ultimate Step-by-Step Guide'
+description: 'Have you ever wondered how those tiny toy figurines you love are created?
+  From the smooth finish to the detailed features, there’s a fascinating process behind '
 pubDate: 2025-11-03
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-toy-figurines-are-made&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=how-toy-figurines-are-made&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered how those tiny toy figurines you love are created? From the smooth finish to the detailed features, there’s a fascinating process behind every little character.**

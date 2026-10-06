@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for 12 Year Old: Ultimate Picks for Creative Fun"
-description: "Are you searching for the perfect Lego sets that will keep your 12-year-old excited and challenged? Finding toys that match their growing skills and interests c"
+title: 'Lego Sets for 12 Year Old: Ultimate Picks for Creative Fun'
+description: Are you searching for the perfect Lego sets that will keep your 12-year-old
+  excited and challenged? Finding toys that match their growing skills and interests
+  c
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-12-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you searching for the perfect Lego sets that will keep your 12-year-old excited and challenged? Finding toys that match their growing skills and interests can be tricky.**

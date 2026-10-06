@@ -1,10 +1,14 @@
 ---
-title: "Dolls for Tweens: Top Trendy Picks to Inspire Imaginative Play"
-description: "Are you searching for the perfect dolls that your tween will truly love? Finding toys that match their growing interests and changing tastes can be tricky. You "
+title: 'Dolls for Tweens: Top Trendy Picks to Inspire Imaginative Play'
+description: 'Are you searching for the perfect dolls that your tween will truly love?
+  Finding toys that match their growing interests and changing tastes can be tricky.
+  You '
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-tweens&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you searching for the perfect dolls that your tween will truly love? Finding toys that match their growing interests and changing tastes can be tricky.**

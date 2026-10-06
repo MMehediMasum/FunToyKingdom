@@ -1,10 +1,14 @@
 ---
-title: "Cat Toy Power Ball: Ultimate Interactive Fun for Indoor Cats"
-description: "Cats love to play, and interactive toys keep them engaged. The Cat Toy Power Ball offers endless entertainment for indoor cats. This innovative toy is designed "
+title: 'Cat Toy Power Ball: Ultimate Interactive Fun for Indoor Cats'
+description: 'Cats love to play, and interactive toys keep them engaged. The Cat Toy
+  Power Ball offers endless entertainment for indoor cats. This innovative toy is
+  designed '
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-power-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-power-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cats love to play, and interactive toys keep them engaged. The Cat Toy Power Ball offers endless entertainment for indoor cats.**

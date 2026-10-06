@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Crab Catching Game Kids: Fun, Safe, and Exciting Ideas"
-description: "Looking for a fun and exciting way to get your kids outside and active? The Outdoor Crab Catching Game for Kids is the perfect choice! It’s simple, thrilling, a"
+title: 'Outdoor Crab Catching Game Kids: Fun, Safe, and Exciting Ideas'
+description: Looking for a fun and exciting way to get your kids outside and active?
+  The Outdoor Crab Catching Game for Kids is the perfect choice! It’s simple, thrilling,
+  a
 pubDate: 2025-10-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crab-catching-game-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crab-catching-game-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to get your kids outside and active? The Outdoor Crab Catching Game for Kids is the perfect choice!**

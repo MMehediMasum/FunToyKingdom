@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Planet Inflatable Sprinkler: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into an exciting splash zone where fun never ends. With the Outdoor Planet Inflatable Sprinkler, you can create a cool, refreshing"
+title: 'Outdoor Planet Inflatable Sprinkler: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into an exciting splash zone where fun
+  never ends. With the Outdoor Planet Inflatable Sprinkler, you can create a cool,
+  refreshing
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-planet-inflatable-sprinkler&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-planet-inflatable-sprinkler&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into an exciting splash zone where fun never ends. With the Outdoor Planet Inflatable Sprinkler, you can create a cool, refreshing escape right at home.**

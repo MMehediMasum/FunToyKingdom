@@ -1,10 +1,14 @@
 ---
-title: "Baby Shower Toys Infant: Top Sensory and Developmental Gifts for Newborns"
-description: "Choosing the right toys for a baby shower can be daunting. Newborns need toys that are safe and stimulating. For infants aged 0-12 months, toys play a crucial r"
+title: 'Baby Shower Toys Infant: Top Sensory and Developmental Gifts for Newborns'
+description: Choosing the right toys for a baby shower can be daunting. Newborns need
+  toys that are safe and stimulating. For infants aged 0-12 months, toys play a crucial
+  r
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=baby-shower-toys-infant&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=baby-shower-toys-infant&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a baby shower can be daunting. Newborns need toys that are safe and stimulating.**

@@ -1,10 +1,14 @@
 ---
-title: "Ninja Warrior Obstacle Course for Backyard: Ultimate Fun & Fitness Guide"
-description: "Are you ready to turn your backyard into an exciting Ninja Warrior obstacle course? Imagine having a fun, challenging space right outside your door where you ca"
+title: 'Ninja Warrior Obstacle Course for Backyard: Ultimate Fun & Fitness Guide'
+description: Are you ready to turn your backyard into an exciting Ninja Warrior obstacle
+  course? Imagine having a fun, challenging space right outside your door where you
+  ca
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ninja-warrior-obstacle-course-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=ninja-warrior-obstacle-course-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your backyard into an exciting Ninja Warrior obstacle course? Imagine having a fun, challenging space right outside your door where you can test your strength, speed, and agility anytime you want.**

@@ -1,10 +1,14 @@
 ---
-title: "Is Chess a Toy Or a Game: Unveiling the Ultimate Truth"
-description: "Have you ever wondered if chess is just a toy or a real game? It might seem simple at first—black and white pieces on a board—but there’s much more beneath the "
+title: 'Is Chess a Toy Or a Game: Unveiling the Ultimate Truth'
+description: 'Have you ever wondered if chess is just a toy or a real game? It might
+  seem simple at first—black and white pieces on a board—but there’s much more beneath
+  the '
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-chess-a-toy-or-a-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=is-chess-a-toy-or-a-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered if chess is just a toy or a real game? It might seem simple at first—black and white pieces on a board—but there’s much more beneath the surface.**

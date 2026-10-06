@@ -1,10 +1,14 @@
 ---
-title: "Doctor Toy Set: Top Pretend Play Kits for Toddlers and Kids"
-description: "A doctor toy set helps children explore the world of medicine through play. It encourages creativity and teaches basic health skills. These doctor kits come wit"
+title: 'Doctor Toy Set: Top Pretend Play Kits for Toddlers and Kids'
+description: A doctor toy set helps children explore the world of medicine through
+  play. It encourages creativity and teaches basic health skills. These doctor kits
+  come wit
 pubDate: 2026-02-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=doctor-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=doctor-toy-set&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **A doctor toy set helps children explore the world of medicine through play. It encourages creativity and teaches basic health skills.**

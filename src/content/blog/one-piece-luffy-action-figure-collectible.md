@@ -1,10 +1,14 @@
 ---
-title: "One Piece Luffy Action Figure Collectible: Ultimate Fan Must-Have!"
-description: "Are you a fan of One Piece and want to bring your favorite hero, Luffy, to life right on your shelf? The One Piece Luffy Action Figure Collectible is more than "
+title: 'One Piece Luffy Action Figure Collectible: Ultimate Fan Must-Have!'
+description: 'Are you a fan of One Piece and want to bring your favorite hero, Luffy,
+  to life right on your shelf? The One Piece Luffy Action Figure Collectible is more
+  than '
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=one-piece-luffy-action-figure-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=one-piece-luffy-action-figure-collectible&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of One Piece and want to bring your favorite hero, Luffy, to life right on your shelf? The One Piece Luffy Action Figure Collectible is more than just a toy—it’s a piece of the adventure you love.**

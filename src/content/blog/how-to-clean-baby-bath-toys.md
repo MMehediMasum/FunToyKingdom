@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Baby Bath Toys: Easy Tips for a Germ-Free Bath Time"
-description: "If you’re a parent, you know how important it is to keep your baby’s bath toys clean and safe. These toys spend a lot of time in water, making them a perfect pl"
+title: 'How to Clean Baby Bath Toys: Easy Tips for a Germ-Free Bath Time'
+description: If you’re a parent, you know how important it is to keep your baby’s
+  bath toys clean and safe. These toys spend a lot of time in water, making them a
+  perfect pl
 pubDate: 2025-09-30
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-baby-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-baby-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent, you know how important it is to keep your baby’s bath toys clean and safe. These toys spend a lot of time in water, making them a perfect place for germs and mold to grow.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Sensory Toys for 4 Year Olds: Top Fidget and Stress Relief Picks"
-description: "Choosing the best sensory toys for 4 year olds helps support their learning and calm their minds. Sensory toys improve focus, motor skills, and creativity in yo"
+title: 'Best Sensory Toys for 4 Year Olds: Top Fidget and Stress Relief Picks'
+description: Choosing the best sensory toys for 4 year olds helps support their learning
+  and calm their minds. Sensory toys improve focus, motor skills, and creativity in
+  yo
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sensory-toys-for-4-year-olds-top-fidget-and-stress-relief-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-sensory-toys-for-4-year-olds-top-fidget-and-stress-relief-picks&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best sensory toys for 4 year olds helps support their learning and calm their minds. Sensory toys improve focus, motor skills, and creativity in young children.**

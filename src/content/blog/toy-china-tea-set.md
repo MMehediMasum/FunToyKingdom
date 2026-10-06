@@ -1,10 +1,14 @@
 ---
-title: "Toy China Tea Set: Perfect Floral Porcelain Playset for Kids’ Parties"
-description: "A toy china tea set is more than just a plaything; it's a gateway to imagination and social skills. These charming sets, designed for children, offer endless ho"
+title: 'Toy China Tea Set: Perfect Floral Porcelain Playset for Kids’ Parties'
+description: A toy china tea set is more than just a plaything; it's a gateway to
+  imagination and social skills. These charming sets, designed for children, offer
+  endless ho
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-china-tea-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-china-tea-set&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **A toy china tea set is more than just a plaything; it's a gateway to imagination and social skills. These charming sets, designed for children, offer endless hours of pretend play and joy.**

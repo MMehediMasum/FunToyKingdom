@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for 6 Year Olds: Fun, Educational, and Family-Friendly Picks"
-description: "Choosing the best card games for 6 year olds helps develop their skills and keeps them entertained. Simple rules and fun themes make games enjoyable for kids an"
+title: 'Best Card Games for 6 Year Olds: Fun, Educational, and Family-Friendly Picks'
+description: Choosing the best card games for 6 year olds helps develop their skills
+  and keeps them entertained. Simple rules and fun themes make games enjoyable for
+  kids an
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-6-year-olds-fun-educational-and-family-friendly-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-6-year-olds-fun-educational-and-family-friendly-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best card games for 6 year olds helps develop their skills and keeps them entertained. Simple rules and fun themes make games enjoyable for kids and families alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Toys R Us Toys And Games: Top Exclusive Picks for Every Kid’s Playtime"
-description: "Toys R Us offers a wide range of toys and games for kids of all ages. Their exclusive collections include popular brands and unique items hard to find elsewhere"
+title: 'Toys R Us Toys And Games: Top Exclusive Picks for Every Kid’s Playtime'
+description: Toys R Us offers a wide range of toys and games for kids of all ages.
+  Their exclusive collections include popular brands and unique items hard to find
+  elsewhere
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-r-us-toys-and-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ring Stack Toy Age Guide
+heroImage: https://tse1.mm.bing.net/th?q=toys-r-us-toys-and-games&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toys R Us offers a wide range of toys and games for kids of all ages. Their exclusive collections include popular brands and unique items hard to find elsewhere.**

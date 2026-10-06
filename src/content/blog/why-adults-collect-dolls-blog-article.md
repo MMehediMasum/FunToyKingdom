@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why Adults Collect Dolls Blog Article: Surprising Reasons Revealed"
 description: "Have you ever wondered why adults collect dolls? It might surprise you how powerful and meaningful this hobby can be. Collecting dolls isn’t just about nostalgi"
 pubDate: 2025-12-18

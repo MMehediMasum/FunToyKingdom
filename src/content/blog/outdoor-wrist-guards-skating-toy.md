@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Wrist Guards Skating Toy: Ultimate Safety for Fun Rides"
-description: "Are you ready to take your skating fun to the next level while staying safe? Outdoor wrist guards skating toys are exactly what you need to protect yourself fro"
+title: 'Outdoor Wrist Guards Skating Toy: Ultimate Safety for Fun Rides'
+description: Are you ready to take your skating fun to the next level while staying
+  safe? Outdoor wrist guards skating toys are exactly what you need to protect yourself
+  fro
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-wrist-guards-skating-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-wrist-guards-skating-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your skating fun to the next level while staying safe? Outdoor wrist guards skating toys are exactly what you need to protect yourself from falls and scrapes.**

@@ -1,10 +1,14 @@
 ---
-title: "3D Printing Sensory Toys: Top Fidget Designs for Stress Relief"
-description: "3D printing has transformed the creation of sensory toys, offering unique designs for stress relief and relaxation. These toys, tailored for various needs, comb"
+title: '3D Printing Sensory Toys: Top Fidget Designs for Stress Relief'
+description: 3D printing has transformed the creation of sensory toys, offering unique
+  designs for stress relief and relaxation. These toys, tailored for various needs,
+  comb
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=3d-printing-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=3d-printing-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **3D printing has transformed the creation of sensory toys, offering unique designs for stress relief and relaxation. These toys, tailored for various needs, combine creativity with functionality.**

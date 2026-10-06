@@ -1,10 +1,14 @@
 ---
-title: "Demon Slayer Nezuko Collectible Doll: Ultimate Fan Must-Have Guide"
-description: "If you’re a fan of Demon Slayer, you know how special Nezuko is. Now, imagine having a beautifully crafted Nezuko collectible doll right in your hands. This isn"
+title: 'Demon Slayer Nezuko Collectible Doll: Ultimate Fan Must-Have Guide'
+description: If you’re a fan of Demon Slayer, you know how special Nezuko is. Now,
+  imagine having a beautifully crafted Nezuko collectible doll right in your hands.
+  This isn
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=demon-slayer-nezuko-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=demon-slayer-nezuko-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Demon Slayer, you know how special Nezuko is. Now, imagine having a beautifully crafted Nezuko collectible doll right in your hands.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With Live Video Feed: Ultimate Guide to Real-Time Aerial Views"
-description: "Imagine controlling a drone that lets you see the world from above in real time. With an RC drone with live video feed, you get to experience flying like never "
+title: 'Rc Drone With Live Video Feed: Ultimate Guide to Real-Time Aerial Views'
+description: 'Imagine controlling a drone that lets you see the world from above in
+  real time. With an RC drone with live video feed, you get to experience flying like
+  never '
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-live-video-feed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-live-video-feed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling a drone that lets you see the world from above in real time. With an RC drone with live video feed, you get to experience flying like never before.**

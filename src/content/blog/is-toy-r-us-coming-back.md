@@ -1,10 +1,14 @@
 ---
-title: "Is Toy R Us Coming Back: Exciting Revival or Just a Rumor?"
-description: "Are you wondering if Toy R Us is making a comeback? You’re not alone. Many of us grew up with those colorful aisles filled with toys that sparked our imaginatio"
+title: 'Is Toy R Us Coming Back: Exciting Revival or Just a Rumor?'
+description: Are you wondering if Toy R Us is making a comeback? You’re not alone.
+  Many of us grew up with those colorful aisles filled with toys that sparked our
+  imaginatio
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-toy-r-us-coming-back&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ring Stack Toy Age Guide
+heroImage: https://tse1.mm.bing.net/th?q=is-toy-r-us-coming-back&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you wondering if Toy R Us is making a comeback? You’re not alone.**

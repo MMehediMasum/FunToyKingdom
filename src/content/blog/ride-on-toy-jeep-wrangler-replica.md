@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Jeep Wrangler Replica: Ultimate Adventure for Kids"
-description: "Imagine your child’s face lighting up as they take the wheel of their very own Jeep Wrangler. A ride on toy Jeep Wrangler replica isn’t just a toy—it’s a gatewa"
+title: 'Ride on Toy Jeep Wrangler Replica: Ultimate Adventure for Kids'
+description: Imagine your child’s face lighting up as they take the wheel of their
+  very own Jeep Wrangler. A ride on toy Jeep Wrangler replica isn’t just a toy—it’s
+  a gatewa
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-jeep-wrangler-replica&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-jeep-wrangler-replica&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they take the wheel of their very own Jeep Wrangler. A ride on toy Jeep Wrangler replica isn’t just a toy—it’s a gateway to endless fun and adventure right in your backyard.**

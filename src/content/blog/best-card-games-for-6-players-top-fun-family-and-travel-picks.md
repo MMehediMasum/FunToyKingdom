@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for 6 Players: Top Fun Family and Travel Picks"
-description: "Finding card games that suit six players can be tricky. This list highlights the best options for family and friends. Playing card games is a fun way to bring p"
+title: 'Best Card Games for 6 Players: Top Fun Family and Travel Picks'
+description: Finding card games that suit six players can be tricky. This list highlights
+  the best options for family and friends. Playing card games is a fun way to bring
+  p
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-6-players-top-fun-family-and-travel-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-6-players-top-fun-family-and-travel-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding card games that suit six players can be tricky. This list highlights the best options for family and friends.**

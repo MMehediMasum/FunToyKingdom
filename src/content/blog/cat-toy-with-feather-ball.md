@@ -1,10 +1,13 @@
 ---
-title: "Cat Toy With Feather Ball: Top Interactive Toys for Playful Cats"
-description: "Cats love to play, and interactive toys can keep them entertained for hours. Feather ball toys are perfect for indoor fun. Feather ball toys offer a delightful "
+title: 'Cat Toy With Feather Ball: Top Interactive Toys for Playful Cats'
+description: 'Cats love to play, and interactive toys can keep them entertained for
+  hours. Feather ball toys are perfect for indoor fun. Feather ball toys offer a delightful '
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-with-feather-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-with-feather-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cats love to play, and interactive toys can keep them entertained for hours. Feather ball toys are perfect for indoor fun.**

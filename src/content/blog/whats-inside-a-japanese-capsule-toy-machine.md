@@ -1,10 +1,14 @@
 ---
-title: "What’S Inside a Japanese Capsule Toy Machine: Surprising Treasures Revealed"
-description: "Have you ever wondered what surprises hide inside a Japanese capsule toy machine? These colorful machines are more than just a fun way to pass time—they’re a ga"
+title: 'What’S Inside a Japanese Capsule Toy Machine: Surprising Treasures Revealed'
+description: Have you ever wondered what surprises hide inside a Japanese capsule
+  toy machine? These colorful machines are more than just a fun way to pass time—they’re
+  a ga
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=whats-inside-a-japanese-capsule-toy-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Capsule Toy Vending
+heroImage: https://tse1.mm.bing.net/th?q=whats-inside-a-japanese-capsule-toy-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered what surprises hide inside a Japanese capsule toy machine? These colorful machines are more than just a fun way to pass time—they’re a gateway to tiny treasures and unexpected delights.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Cars With Eyes: Top Picks for Fun and Imaginative Playtime"
-description: "Toy cars with eyes bring favorite characters to life in a fun and playful way. These toys capture the charm of popular movies and stories that children love. To"
+title: 'Toy Cars With Eyes: Top Picks for Fun and Imaginative Playtime'
+description: Toy cars with eyes bring favorite characters to life in a fun and playful
+  way. These toys capture the charm of popular movies and stories that children love.
+  To
 pubDate: 2026-09-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cars-with-eyes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=toy-cars-with-eyes&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy cars with eyes bring favorite characters to life in a fun and playful way. These toys capture the charm of popular movies and stories that children love.**

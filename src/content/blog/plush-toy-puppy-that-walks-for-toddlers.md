@@ -1,10 +1,14 @@
 ---
-title: "Plush Toy Puppy That Walks for Toddlers: Fun, Safe & Interactive!"
-description: "Are you looking for a toy that brings joy, comfort, and a bit of magic to your toddler’s playtime? A plush toy puppy that walks might be exactly what you need. "
+title: 'Plush Toy Puppy That Walks for Toddlers: Fun, Safe & Interactive!'
+description: 'Are you looking for a toy that brings joy, comfort, and a bit of magic
+  to your toddler’s playtime? A plush toy puppy that walks might be exactly what you
+  need. '
 pubDate: 2026-09-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=plush-toy-puppy-that-walks-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=plush-toy-puppy-that-walks-for-toddlers&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a toy that brings joy, comfort, and a bit of magic to your toddler’s playtime? A plush toy puppy that walks might be exactly what you need.**

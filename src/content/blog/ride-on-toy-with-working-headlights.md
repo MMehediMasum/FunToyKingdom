@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Working Headlights: Ultimate Fun & Safety Guide"
-description: "Imagine your child’s face lighting up as they zoom around on a ride on toy that looks just like a real car. Now, picture that toy with working headlights, addin"
+title: 'Ride on Toy With Working Headlights: Ultimate Fun & Safety Guide'
+description: Imagine your child’s face lighting up as they zoom around on a ride on
+  toy that looks just like a real car. Now, picture that toy with working headlights,
+  addin
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-working-headlights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-working-headlights&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they zoom around on a ride on toy that looks just like a real car. Now, picture that toy with working headlights, adding an extra layer of excitement and realism.**

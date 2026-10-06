@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for Teenagers: Ultimate Creative Building Ideas"
-description: "Are you looking for a fun way to challenge your creativity and keep your mind sharp? Lego sets for teenagers are the perfect way to do just that. Whether you lo"
+title: 'Lego Sets for Teenagers: Ultimate Creative Building Ideas'
+description: Are you looking for a fun way to challenge your creativity and keep your
+  mind sharp? Lego sets for teenagers are the perfect way to do just that. Whether
+  you lo
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-teenagers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-teenagers&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun way to challenge your creativity and keep your mind sharp? Lego sets for teenagers are the perfect way to do just that.**

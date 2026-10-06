@@ -1,10 +1,14 @@
 ---
-title: "Plush Elephants for Newborns: Soft, Safe, and Adorable Gifts"
-description: "Are you looking for the perfect gift that will comfort your newborn and bring endless smiles? Plush elephants for newborns might just be what you need. These so"
+title: 'Plush Elephants for Newborns: Soft, Safe, and Adorable Gifts'
+description: Are you looking for the perfect gift that will comfort your newborn and
+  bring endless smiles? Plush elephants for newborns might just be what you need.
+  These so
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=plush-elephants-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=plush-elephants-for-newborns&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect gift that will comfort your newborn and bring endless smiles? Plush elephants for newborns might just be what you need.**

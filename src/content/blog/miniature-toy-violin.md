@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Violin: Perfect Collectible Musical Decor and Gift Ideas"
-description: "Miniature toy violins captivate with their charm and intricate design. These tiny replicas offer a delightful blend of artistry and functionality. Miniature toy"
+title: 'Miniature Toy Violin: Perfect Collectible Musical Decor and Gift Ideas'
+description: Miniature toy violins captivate with their charm and intricate design.
+  These tiny replicas offer a delightful blend of artistry and functionality. Miniature
+  toy
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-violin&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-violin&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature toy violins captivate with their charm and intricate design. These tiny replicas offer a delightful blend of artistry and functionality.**

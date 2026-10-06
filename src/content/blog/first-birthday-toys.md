@@ -1,10 +1,14 @@
 ---
-title: "First Birthday Toys: Top Picks for Fun & Learning"
-description: "Your baby’s first birthday is a special milestone, and choosing the perfect toys can make the day even more memorable. But with so many options out there, how d"
+title: 'First Birthday Toys: Top Picks for Fun & Learning'
+description: Your baby’s first birthday is a special milestone, and choosing the perfect
+  toys can make the day even more memorable. But with so many options out there, how
+  d
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=first-birthday-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=first-birthday-toys&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Your baby’s first birthday is a special milestone, and choosing the perfect toys can make the day even more memorable. But with so many options out there, how do you pick toys that are safe, fun, and help your little one grow?**

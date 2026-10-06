@@ -1,10 +1,14 @@
 ---
-title: "Kids Watering Can Garden Toy: Fun, Safe, and Educational Playtime"
-description: "Are you looking for a fun and simple way to get your kids excited about gardening? A kids watering can garden toy might be just what you need. It’s more than a "
+title: 'Kids Watering Can Garden Toy: Fun, Safe, and Educational Playtime'
+description: 'Are you looking for a fun and simple way to get your kids excited about
+  gardening? A kids watering can garden toy might be just what you need. It’s more
+  than a '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-watering-can-garden-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Car Rides Engaging
+heroImage: https://tse1.mm.bing.net/th?q=kids-watering-can-garden-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and simple way to get your kids excited about gardening? A kids watering can garden toy might be just what you need.**

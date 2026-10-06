@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Car Gift for Birthday: Ultimate Fun and Joy Guide"
-description: "Looking for the perfect birthday gift that brings instant joy and endless fun? A ride on toy car might be exactly what you need. Imagine your child’s eyes light"
+title: 'Ride on Toy Car Gift for Birthday: Ultimate Fun and Joy Guide'
+description: Looking for the perfect birthday gift that brings instant joy and endless
+  fun? A ride on toy car might be exactly what you need. Imagine your child’s eyes
+  light
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-car-gift-for-birthday&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-car-gift-for-birthday&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect birthday gift that brings instant joy and endless fun? A ride on toy car might be exactly what you need.**

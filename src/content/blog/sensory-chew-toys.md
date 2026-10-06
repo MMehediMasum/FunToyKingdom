@@ -1,10 +1,14 @@
 ---
-title: "Sensory Chew Toys: Top Picks to Reduce Anxiety and Improve Focus"
-description: "Sensory chew toys help kids and adults manage anxiety and improve focus. These toys provide safe chewing options for those with sensory needs. Sensory chew toys"
+title: 'Sensory Chew Toys: Top Picks to Reduce Anxiety and Improve Focus'
+description: Sensory chew toys help kids and adults manage anxiety and improve focus.
+  These toys provide safe chewing options for those with sensory needs. Sensory chew
+  toys
 pubDate: 2026-02-12
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-chew-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Chew Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-chew-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory chew toys help kids and adults manage anxiety and improve focus. These toys provide safe chewing options for those with sensory needs.**

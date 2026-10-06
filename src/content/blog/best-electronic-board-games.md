@@ -1,10 +1,14 @@
 ---
-title: "Best Electronic Board Games: Ultimate Fun for All Ages"
-description: "Looking for a way to bring excitement and fun to your game nights? You’re in the right place. Electronic board games combine the classic thrill of board games w"
+title: 'Best Electronic Board Games: Ultimate Fun for All Ages'
+description: Looking for a way to bring excitement and fun to your game nights? You’re
+  in the right place. Electronic board games combine the classic thrill of board games
+  w
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electronic-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-electronic-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a way to bring excitement and fun to your game nights? You’re in the right place.**

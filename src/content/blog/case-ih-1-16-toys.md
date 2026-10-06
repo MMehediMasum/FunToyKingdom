@@ -1,10 +1,14 @@
 ---
-title: "Case Ih 1 16 Toys: Ultimate Guide to Realistic Farm Tractor Models"
-description: "Case IH 1:16 toys bring farm equipment to life in a small, detailed size. These models show tractors, combines, and farm tools with great care. These toys let k"
+title: 'Case Ih 1 16 Toys: Ultimate Guide to Realistic Farm Tractor Models'
+description: Case IH 1:16 toys bring farm equipment to life in a small, detailed size.
+  These models show tractors, combines, and farm tools with great care. These toys
+  let k
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=case-ih-1-16-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=case-ih-1-16-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Case IH 1:16 toys bring farm equipment to life in a small, detailed size. These models show tractors, combines, and farm tools with great care.**

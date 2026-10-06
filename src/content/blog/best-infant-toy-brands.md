@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Toy Brands for Sensory, Teething, and Developmental Fun"
-description: "Choosing the best infant toy brands helps support your baby’s growth and keeps them happy. Safe, engaging toys develop senses and motor skills effectively. Babi"
+title: Best Infant Toy Brands for Sensory, Teething, and Developmental Fun
+description: Choosing the best infant toy brands helps support your baby’s growth
+  and keeps them happy. Safe, engaging toys develop senses and motor skills effectively.
+  Babi
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-toy-brands&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Learning Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-toy-brands&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best infant toy brands helps support your baby’s growth and keeps them happy. Safe, engaging toys develop senses and motor skills effectively.**

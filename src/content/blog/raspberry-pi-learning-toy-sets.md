@@ -1,10 +1,14 @@
 ---
-title: "Raspberry Pi Learning Toy Sets: Ultimate Guide to Fun STEM Education"
-description: "Are you looking for a fun and smart way to boost your child’s creativity and problem-solving skills? Raspberry Pi Learning Toy Sets might be just what you need."
+title: 'Raspberry Pi Learning Toy Sets: Ultimate Guide to Fun STEM Education'
+description: Are you looking for a fun and smart way to boost your child’s creativity
+  and problem-solving skills? Raspberry Pi Learning Toy Sets might be just what you
+  need.
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=raspberry-pi-learning-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Flash Card Toy Learning Sets
+heroImage: https://tse1.mm.bing.net/th?q=raspberry-pi-learning-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and smart way to boost your child’s creativity and problem-solving skills? Raspberry Pi Learning Toy Sets might be just what you need.**

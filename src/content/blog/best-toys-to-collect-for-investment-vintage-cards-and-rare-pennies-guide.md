@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Toys to Collect for Investment: Vintage Cards and Rare Pennies Guide"
 description: "Collecting toys can be a smart way to invest money. Some toys grow in value over time and bring good returns. Toys like old US Wheat Pennies and vintage basebal"
 pubDate: 2025-12-29

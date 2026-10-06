@@ -1,10 +1,14 @@
 ---
-title: "Educational Toys for 18 Month Old: Top Picks for Smart Playtime"
-description: "Choosing the right toys for your 18-month-old can feel overwhelming. You want something that’s fun, safe, and helps your little one learn and grow. But how do y"
+title: 'Educational Toys for 18 Month Old: Top Picks for Smart Playtime'
+description: Choosing the right toys for your 18-month-old can feel overwhelming.
+  You want something that’s fun, safe, and helps your little one learn and grow. But
+  how do y
 pubDate: 2026-05-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-18-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-18-month-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toys for your 18-month-old can feel overwhelming. You want something that’s fun, safe, and helps your little one learn and grow.**

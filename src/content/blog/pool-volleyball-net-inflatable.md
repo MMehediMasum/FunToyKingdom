@@ -1,10 +1,14 @@
 ---
-title: "Pool Volleyball Net Inflatable: Ultimate Fun for Summer Games!"
-description: "Looking for a fun way to turn your pool time into an exciting game? A pool volleyball net inflatable could be exactly what you need. Imagine setting up a net ri"
+title: 'Pool Volleyball Net Inflatable: Ultimate Fun for Summer Games!'
+description: Looking for a fun way to turn your pool time into an exciting game? A
+  pool volleyball net inflatable could be exactly what you need. Imagine setting up
+  a net ri
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=pool-volleyball-net-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Frisbee Kids Play
+heroImage: https://tse1.mm.bing.net/th?q=pool-volleyball-net-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to turn your pool time into an exciting game? A pool volleyball net inflatable could be exactly what you need.**

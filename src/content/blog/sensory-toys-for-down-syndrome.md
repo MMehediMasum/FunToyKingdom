@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Down Syndrome: Top Calming Fidget Picks for Kids"
-description: "Sensory toys support children with Down syndrome by improving focus, motor skills, and calming anxiety. These toys engage touch, sight, and sound to help kids l"
+title: 'Sensory Toys for Down Syndrome: Top Calming Fidget Picks for Kids'
+description: Sensory toys support children with Down syndrome by improving focus,
+  motor skills, and calming anxiety. These toys engage touch, sight, and sound to
+  help kids l
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-down-syndrome&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-down-syndrome&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys support children with Down syndrome by improving focus, motor skills, and calming anxiety. These toys engage touch, sight, and sound to help kids learn and play.**

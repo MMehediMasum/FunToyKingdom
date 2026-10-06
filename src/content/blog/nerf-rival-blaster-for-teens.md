@@ -1,10 +1,14 @@
 ---
-title: "Nerf Rival Blaster for Teens: Ultimate Guide to High-Impact Fun"
-description: "Looking for the perfect Nerf Rival blaster that’s just right for teens? You want something powerful, fun, and easy to use—something that makes every game exciti"
+title: 'Nerf Rival Blaster for Teens: Ultimate Guide to High-Impact Fun'
+description: Looking for the perfect Nerf Rival blaster that’s just right for teens?
+  You want something powerful, fun, and easy to use—something that makes every game
+  exciti
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nerf-rival-blaster-for-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=nerf-rival-blaster-for-teens&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for the perfect Nerf Rival blaster that’s just right for teens? You want something powerful, fun, and easy to use—something that makes every game exciting and keeps you winning.**

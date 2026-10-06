@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Poodle Vs Miniature: Which Adorable Poodle Suits Your Style Best?"
 description: "Toy Poodles and Miniature Poodles are two popular small dog breeds. Both have charming looks but differ in size and personality. Toy Poodles usually weigh under"
 pubDate: 2026-08-17

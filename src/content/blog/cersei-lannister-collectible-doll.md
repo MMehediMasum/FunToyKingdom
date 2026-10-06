@@ -1,10 +1,14 @@
 ---
-title: "Cersei Lannister Collectible Doll: Ultimate Must-Have for Fans"
-description: "If you’re a fan of Game of Thrones, the Cersei Lannister Collectible Doll is something you don’t want to miss. Imagine holding a piece of the Seven Kingdoms in "
+title: 'Cersei Lannister Collectible Doll: Ultimate Must-Have for Fans'
+description: 'If you’re a fan of Game of Thrones, the Cersei Lannister Collectible
+  Doll is something you don’t want to miss. Imagine holding a piece of the Seven Kingdoms
+  in '
 pubDate: 2025-09-27
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=cersei-lannister-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=cersei-lannister-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Game of Thrones, the Cersei Lannister Collectible Doll is something you don’t want to miss. Imagine holding a piece of the Seven Kingdoms in your hands, detailed and crafted just for you.**

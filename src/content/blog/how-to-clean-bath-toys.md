@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bath Toys: Easy Tips for a Germ-Free Playtime"
-description: "You love giving your little one a fun bath time, but have you ever thought about what’s hiding inside those bath toys? Over time, mold and bacteria can build up"
+title: 'How to Clean Bath Toys: Easy Tips for a Germ-Free Playtime'
+description: You love giving your little one a fun bath time, but have you ever thought
+  about what’s hiding inside those bath toys? Over time, mold and bacteria can build
+  up
 pubDate: 2025-10-12
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **You love giving your little one a fun bath time, but have you ever thought about what’s hiding inside those bath toys? Over time, mold and bacteria can build up, turning those cute toys into a health risk.**

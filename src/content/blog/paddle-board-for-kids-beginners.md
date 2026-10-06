@@ -1,10 +1,13 @@
 ---
-title: "Paddle Board for Kids Beginners: Ultimate Fun & Safety Guide"
-description: "Looking for the perfect paddle board for kids beginners? You want something safe, easy to use, and fun for your little one. But with so many options out there, "
+title: 'Paddle Board for Kids Beginners: Ultimate Fun & Safety Guide'
+description: 'Looking for the perfect paddle board for kids beginners? You want something
+  safe, easy to use, and fun for your little one. But with so many options out there, '
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=paddle-board-for-kids-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Car Rides Engaging
+heroImage: https://tse1.mm.bing.net/th?q=paddle-board-for-kids-beginners&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect paddle board for kids beginners? You want something safe, easy to use, and fun for your little one.**

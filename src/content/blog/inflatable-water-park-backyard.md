@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Water Park Backyard: Ultimate Summer Fun for All Ages"
-description: "Imagine turning your backyard into the ultimate summer fun zone with an inflatable water park. You don’t need a pool or a trip to the beach to enjoy hours of sp"
+title: 'Inflatable Water Park Backyard: Ultimate Summer Fun for All Ages'
+description: Imagine turning your backyard into the ultimate summer fun zone with
+  an inflatable water park. You don’t need a pool or a trip to the beach to enjoy
+  hours of sp
 pubDate: 2025-10-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-water-park-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-water-park-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate summer fun zone with an inflatable water park. You don’t need a pool or a trip to the beach to enjoy hours of splash-filled excitement.**

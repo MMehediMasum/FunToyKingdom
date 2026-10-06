@@ -1,10 +1,13 @@
 ---
-title: "Magnetic Cube Toys: Top Educational Building Sets for Kids’ Creativity"
-description: "Magnetic cube toys captivate young minds with endless building possibilities. These colorful blocks spark creativity in children. Designed for toddlers and pres"
+title: 'Magnetic Cube Toys: Top Educational Building Sets for Kids’ Creativity'
+description: Magnetic cube toys captivate young minds with endless building possibilities.
+  These colorful blocks spark creativity in children. Designed for toddlers and pres
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=magnetic-cube-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=magnetic-cube-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Magnetic cube toys captivate young minds with endless building possibilities. These colorful blocks spark creativity in children.**

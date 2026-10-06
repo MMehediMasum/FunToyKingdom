@@ -1,10 +1,13 @@
 ---
-title: "Board Games for 8 Year Old: Fun & Educational Picks for Kids"
-description: "Looking for the perfect board games for your 8-year-old? You want something fun, engaging, and just right for their age. The right game can boost their thinking"
+title: 'Board Games for 8 Year Old: Fun & Educational Picks for Kids'
+description: Looking for the perfect board games for your 8-year-old? You want something
+  fun, engaging, and just right for their age. The right game can boost their thinking
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-8-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-8-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect board games for your 8-year-old? You want something fun, engaging, and just right for their age.**

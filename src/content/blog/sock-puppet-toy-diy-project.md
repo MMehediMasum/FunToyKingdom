@@ -1,10 +1,14 @@
 ---
-title: "Sock Puppet Toy Diy Project: Easy, Fun, and Creative Guide"
-description: "Looking for a fun and creative way to spend your time? Making a sock puppet toy yourself is easier than you think. You don’t need fancy materials or special ski"
+title: 'Sock Puppet Toy Diy Project: Easy, Fun, and Creative Guide'
+description: Looking for a fun and creative way to spend your time? Making a sock
+  puppet toy yourself is easier than you think. You don’t need fancy materials or
+  special ski
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sock-puppet-toy-diy-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=sock-puppet-toy-diy-project&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Looking for a fun and creative way to spend your time? Making a sock puppet toy yourself is easier than you think.**

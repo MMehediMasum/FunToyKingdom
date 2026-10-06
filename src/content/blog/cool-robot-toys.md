@@ -1,10 +1,14 @@
 ---
-title: "Cool Robot Toys: Top Interactive and Programmable Robots Kids Love"
-description: "Robot toys bring fun and learning together for kids of all ages. They move, dance, and respond to commands, sparking curiosity and play. Cool robot toys like Ki"
+title: 'Cool Robot Toys: Top Interactive and Programmable Robots Kids Love'
+description: Robot toys bring fun and learning together for kids of all ages. They
+  move, dance, and respond to commands, sparking curiosity and play. Cool robot toys
+  like Ki
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-robot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cool-robot-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot toys bring fun and learning together for kids of all ages. They move, dance, and respond to commands, sparking curiosity and play.**

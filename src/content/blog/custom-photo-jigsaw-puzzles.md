@@ -1,10 +1,14 @@
 ---
-title: "Custom Photo Jigsaw Puzzles: Unique Gifts That Spark Joy"
-description: "Imagine turning your favorite photo into a fun, challenging puzzle that brings joy to you and your loved ones. Custom photo jigsaw puzzles let you do just that."
+title: 'Custom Photo Jigsaw Puzzles: Unique Gifts That Spark Joy'
+description: Imagine turning your favorite photo into a fun, challenging puzzle that
+  brings joy to you and your loved ones. Custom photo jigsaw puzzles let you do just
+  that.
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=custom-photo-jigsaw-puzzles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=custom-photo-jigsaw-puzzles&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine turning your favorite photo into a fun, challenging puzzle that brings joy to you and your loved ones. Custom photo jigsaw puzzles let you do just that.**

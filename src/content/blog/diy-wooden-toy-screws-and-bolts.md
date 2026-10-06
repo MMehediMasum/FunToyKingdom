@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Screws And Bolts: Ultimate Guide for Safe Assembly"
-description: "Are you looking for a fun and creative way to build toys that last? DIY wooden toy screws and bolts could be exactly what you need. They let you craft sturdy, s"
+title: 'Diy Wooden Toy Screws And Bolts: Ultimate Guide for Safe Assembly'
+description: Are you looking for a fun and creative way to build toys that last? DIY
+  wooden toy screws and bolts could be exactly what you need. They let you craft sturdy,
+  s
 pubDate: 2025-10-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-screws-and-bolts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-screws-and-bolts&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to build toys that last? DIY wooden toy screws and bolts could be exactly what you need.**

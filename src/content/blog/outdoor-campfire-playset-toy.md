@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Campfire Playset Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine your child’s face lighting up with joy as they gather around a tiny campfire, roasting pretend marshmallows and sharing stories. The Outdoor Campfire Pl"
+title: 'Outdoor Campfire Playset Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine your child’s face lighting up with joy as they gather around
+  a tiny campfire, roasting pretend marshmallows and sharing stories. The Outdoor
+  Campfire Pl
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-campfire-playset-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-campfire-playset-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with joy as they gather around a tiny campfire, roasting pretend marshmallows and sharing stories. The Outdoor Campfire Playset Toy brings that magical experience right to your backyard.**

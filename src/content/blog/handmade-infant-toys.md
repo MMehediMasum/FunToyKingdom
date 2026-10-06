@@ -1,10 +1,14 @@
 ---
-title: "Handmade Infant Toys: Organic Wooden Rattles for Sensory Development"
-description: "Handmade infant toys offer natural, safe play options for babies. These toys support early development and sensory growth. Parents want toys that are gentle and"
+title: 'Handmade Infant Toys: Organic Wooden Rattles for Sensory Development'
+description: Handmade infant toys offer natural, safe play options for babies. These
+  toys support early development and sensory growth. Parents want toys that are gentle
+  and
 pubDate: 2026-01-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=handmade-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Handmade infant toys offer natural, safe play options for babies. These toys support early development and sensory growth.**

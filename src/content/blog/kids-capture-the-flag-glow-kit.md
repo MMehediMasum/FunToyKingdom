@@ -1,10 +1,14 @@
 ---
-title: "Kids Capture the Flag Glow Kit: Ultimate Night Game Fun Guide"
-description: "Looking for a fun and exciting way to light up your kids’ outdoor playtime? The Kids Capture the Flag Glow Kit is exactly what you need. Imagine your children r"
+title: 'Kids Capture the Flag Glow Kit: Ultimate Night Game Fun Guide'
+description: Looking for a fun and exciting way to light up your kids’ outdoor playtime?
+  The Kids Capture the Flag Glow Kit is exactly what you need. Imagine your children
+  r
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-capture-the-flag-glow-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=kids-capture-the-flag-glow-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and exciting way to light up your kids’ outdoor playtime? The Kids Capture the Flag Glow Kit is exactly what you need.**

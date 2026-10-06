@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kick Scooter for Kids Adjustable Height: Ultimate Guide for Parents"
 description: "Looking for the perfect kick scooter for your child? You want something safe, fun, and that grows with them. An adjustable height kick scooter is just what you "
 pubDate: 2025-09-17

@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sign Up for Free Toys for Christmas: Top Trusted Sites"
-description: "Are you looking for ways to get free toys for Christmas this year? You’re not alone. Many families want to make the holidays special without breaking the bank. "
+title: 'Where Can I Sign Up for Free Toys for Christmas: Top Trusted Sites'
+description: 'Are you looking for ways to get free toys for Christmas this year? You’re
+  not alone. Many families want to make the holidays special without breaking the
+  bank. '
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sign-up-for-free-toys-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sign-up-for-free-toys-for-christmas&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for ways to get free toys for Christmas this year? You’re not alone.**

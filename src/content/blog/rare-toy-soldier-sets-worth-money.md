@@ -1,10 +1,13 @@
 ---
-title: "Rare Toy Soldier Sets Worth Money: Top Collectibles to Invest In"
-description: "Have you ever wondered if those old toy soldier sets tucked away in your attic could be worth something? You might be sitting on a small treasure that collector"
+title: 'Rare Toy Soldier Sets Worth Money: Top Collectibles to Invest In'
+description: Have you ever wondered if those old toy soldier sets tucked away in your
+  attic could be worth something? You might be sitting on a small treasure that collector
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-toy-soldier-sets-worth-money&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=rare-toy-soldier-sets-worth-money&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered if those old toy soldier sets tucked away in your attic could be worth something? You might be sitting on a small treasure that collectors are eager to find.**

@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 4 Year Old: Fun, Easy, and Creative Ideas"
-description: "Are you looking for fun and simple ways to keep your 4-year-old busy and creative? Arts and crafts are the perfect solution to help your little one explore thei"
+title: 'Arts And Crafts for 4 Year Old: Fun, Easy, and Creative Ideas'
+description: Are you looking for fun and simple ways to keep your 4-year-old busy
+  and creative? Arts and crafts are the perfect solution to help your little one explore
+  thei
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-4-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and simple ways to keep your 4-year-old busy and creative? Arts and crafts are the perfect solution to help your little one explore their imagination while developing important skills.**

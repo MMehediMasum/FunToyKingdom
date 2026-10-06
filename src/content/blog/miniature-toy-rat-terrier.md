@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Rat Terrier Figurine: Perfect Collectible for Dog Lovers"
-description: "The miniature toy Rat Terrier is a charming addition to any collection. These tiny figurines capture the breed's lively spirit. In the world of miniature dog fi"
+title: 'Miniature Toy Rat Terrier Figurine: Perfect Collectible for Dog Lovers'
+description: The miniature toy Rat Terrier is a charming addition to any collection.
+  These tiny figurines capture the breed's lively spirit. In the world of miniature
+  dog fi
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-rat-terrier&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-rat-terrier&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **The miniature toy Rat Terrier is a charming addition to any collection. These tiny figurines capture the breed's lively spirit.**

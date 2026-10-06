@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games for Family Gatherings: Ultimate Fun & Bonding Guide"
-description: "Looking for the best board games to make your family gatherings unforgettable? You want games that bring everyone together, spark laughter, and create memories "
+title: 'Best Board Games for Family Gatherings: Ultimate Fun & Bonding Guide'
+description: 'Looking for the best board games to make your family gatherings unforgettable?
+  You want games that bring everyone together, spark laughter, and create memories '
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-family-gatherings&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-family-gatherings&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the best board games to make your family gatherings unforgettable? You want games that bring everyone together, spark laughter, and create memories that last.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Bow Set: Ultimate LED Light Up Archery Fun for Kids"
-description: "Toy bow sets make perfect gifts for kids. They offer fun and safe archery play for children of various ages. These toy sets come with LED lights and suction cup"
+title: 'Toy Bow Set: Ultimate LED Light Up Archery Fun for Kids'
+description: Toy bow sets make perfect gifts for kids. They offer fun and safe archery
+  play for children of various ages. These toy sets come with LED lights and suction
+  cup
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-bow-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=toy-bow-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy bow sets make perfect gifts for kids. They offer fun and safe archery play for children of various ages.**

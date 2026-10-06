@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Safari Animals: Easy, Fun & Creative Craft Ideas"
-description: "Imagine creating something special with your own hands—wooden safari animals that bring joy and spark imagination. These DIY wooden toy safari animals aren’t ju"
+title: 'Diy Wooden Toy Safari Animals: Easy, Fun & Creative Craft Ideas'
+description: Imagine creating something special with your own hands—wooden safari
+  animals that bring joy and spark imagination. These DIY wooden toy safari animals
+  aren’t ju
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-safari-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-safari-animals&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating something special with your own hands—wooden safari animals that bring joy and spark imagination. These DIY wooden toy safari animals aren’t just toys; they are pieces of creativity that you can proudly make for your kids or even for yourself.**

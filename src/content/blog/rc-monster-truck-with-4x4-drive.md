@@ -1,10 +1,14 @@
 ---
-title: "Rc Monster Truck With 4X4 Drive: Ultimate Off-Road Power Unleashed"
-description: "Are you ready to take your RC truck experience to the next level? An RC monster truck with 4X4 drive gives you power, control, and unstoppable fun. Whether you "
+title: 'Rc Monster Truck With 4X4 Drive: Ultimate Off-Road Power Unleashed'
+description: 'Are you ready to take your RC truck experience to the next level? An
+  RC monster truck with 4X4 drive gives you power, control, and unstoppable fun. Whether
+  you '
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-monster-truck-with-4x4-drive&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-monster-truck-with-4x4-drive&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC truck experience to the next level? An RC monster truck with 4X4 drive gives you power, control, and unstoppable fun.**

@@ -1,10 +1,14 @@
 ---
-title: "90S Collectible Toy Figurines: Ultimate Guide to Rare Treasures"
-description: "Do you remember the thrill of unwrapping a new toy as a kid? Those 90s collectible toy figurines were more than just playthings—they were tiny treasures that sp"
+title: '90S Collectible Toy Figurines: Ultimate Guide to Rare Treasures'
+description: Do you remember the thrill of unwrapping a new toy as a kid? Those 90s
+  collectible toy figurines were more than just playthings—they were tiny treasures
+  that sp
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=90s-collectible-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=90s-collectible-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Do you remember the thrill of unwrapping a new toy as a kid? Those 90s collectible toy figurines were more than just playthings—they were tiny treasures that sparked your imagination and brought your favorite characters to life.**

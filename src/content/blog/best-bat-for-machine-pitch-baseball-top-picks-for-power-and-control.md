@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Bat for Machine Pitch Baseball: Top Picks for Power and Control"
 description: "Choosing the best bat for machine pitch baseball is key for young players’ confidence and skill. A proper bat fits well, feels balanced, and helps improve hitti"
 pubDate: 2025-10-22

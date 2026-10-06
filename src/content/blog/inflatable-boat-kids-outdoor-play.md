@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Boat Kids Outdoor Play: Ultimate Fun & Safety Tips"
-description: "Looking for a fun and safe way to get your kids outside and active? An inflatable boat for kids can turn any day into an exciting outdoor adventure. Imagine you"
+title: 'Inflatable Boat Kids Outdoor Play: Ultimate Fun & Safety Tips'
+description: Looking for a fun and safe way to get your kids outside and active? An
+  inflatable boat for kids can turn any day into an exciting outdoor adventure. Imagine
+  you
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-boat-kids-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-boat-kids-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to get your kids outside and active? An inflatable boat for kids can turn any day into an exciting outdoor adventure.**

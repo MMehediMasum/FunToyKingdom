@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Stomp Rocket Launcher: Ultimate Fun for Kids & Families"
-description: "Looking for a fun way to get outside and enjoy some active play? The Outdoor Stomp Rocket Launcher is just what you need. It’s simple, exciting, and perfect for"
+title: 'Outdoor Stomp Rocket Launcher: Ultimate Fun for Kids & Families'
+description: Looking for a fun way to get outside and enjoy some active play? The
+  Outdoor Stomp Rocket Launcher is just what you need. It’s simple, exciting, and
+  perfect for
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-stomp-rocket-launcher&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-stomp-rocket-launcher&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get outside and enjoy some active play? The Outdoor Stomp Rocket Launcher is just what you need.**

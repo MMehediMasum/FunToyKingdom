@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Ride on Dirt Bike for 10 Year Old: Top Safe & Fun Picks 2025"
 description: "Are you looking for the perfect ride-on dirt bike for your 10-year-old? Choosing the right bike can be tricky. You want something safe, fun, and just right for "
 pubDate: 2026-05-03

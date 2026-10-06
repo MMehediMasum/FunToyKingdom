@@ -1,10 +1,14 @@
 ---
-title: "How to Value Collectible Dolls And Figures: Expert Tips Revealed"
-description: "Are you wondering how to find out what your collectible dolls and figures are really worth? Whether you’ve inherited a treasure trove or just started a new hobb"
+title: 'How to Value Collectible Dolls And Figures: Expert Tips Revealed'
+description: Are you wondering how to find out what your collectible dolls and figures
+  are really worth? Whether you’ve inherited a treasure trove or just started a new
+  hobb
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-value-collectible-dolls-and-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-value-collectible-dolls-and-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you wondering how to find out what your collectible dolls and figures are really worth? Whether you’ve inherited a treasure trove or just started a new hobby, knowing how to value these items can save you money and help you make smart decisions.**

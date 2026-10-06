@@ -1,10 +1,14 @@
 ---
-title: "What are Good Toys for Rabbits: Top Picks for Happy Pets"
-description: "Are you looking for the best toys to keep your rabbit happy and healthy? Choosing the right toys for your furry friend is more important than you might think. T"
+title: 'What are Good Toys for Rabbits: Top Picks for Happy Pets'
+description: Are you looking for the best toys to keep your rabbit happy and healthy?
+  Choosing the right toys for your furry friend is more important than you might think.
+  T
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-good-toys-for-rabbits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=what-are-good-toys-for-rabbits&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for the best toys to keep your rabbit happy and healthy? Choosing the right toys for your furry friend is more important than you might think.**

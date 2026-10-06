@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Dog Toys: Durable Chew Options for Aggressive Medium to Large Breeds"
-description: "Vinyl dog toys offer a safe and fun way to keep dogs busy and happy. These toys are strong, durable, and perfect for dogs that love to chew. Dogs need toys that"
+title: 'Vinyl Dog Toys: Durable Chew Options for Aggressive Medium to Large Breeds'
+description: Vinyl dog toys offer a safe and fun way to keep dogs busy and happy.
+  These toys are strong, durable, and perfect for dogs that love to chew. Dogs need
+  toys that
 pubDate: 2026-09-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-dog-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-dog-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Vinyl dog toys offer a safe and fun way to keep dogs busy and happy. These toys are strong, durable, and perfect for dogs that love to chew.**

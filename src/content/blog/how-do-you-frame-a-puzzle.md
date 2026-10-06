@@ -1,10 +1,14 @@
 ---
-title: "How Do You Frame a Puzzle: Easy Steps for a Stunning Display"
-description: "Have you ever finished a puzzle and wondered how to keep it safe and show it off proudly? Framing your puzzle is the perfect way to protect your hard work and t"
+title: 'How Do You Frame a Puzzle: Easy Steps for a Stunning Display'
+description: Have you ever finished a puzzle and wondered how to keep it safe and
+  show it off proudly? Framing your puzzle is the perfect way to protect your hard
+  work and t
 pubDate: 2025-09-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-frame-a-puzzle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-frame-a-puzzle&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever finished a puzzle and wondered how to keep it safe and show it off proudly? Framing your puzzle is the perfect way to protect your hard work and turn it into a beautiful piece of art.**

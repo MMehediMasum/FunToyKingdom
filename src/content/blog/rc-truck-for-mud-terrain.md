@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck for Mud Terrain: Ultimate Off-Road Power and Performance"
-description: "Are you ready to conquer the toughest muddy trails with your RC truck? Whether you're a beginner or an experienced hobbyist, finding the right RC truck for mud "
+title: 'Rc Truck for Mud Terrain: Ultimate Off-Road Power and Performance'
+description: 'Are you ready to conquer the toughest muddy trails with your RC truck?
+  Whether you''re a beginner or an experienced hobbyist, finding the right RC truck
+  for mud '
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-for-mud-terrain&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-for-mud-terrain&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to conquer the toughest muddy trails with your RC truck? Whether you're a beginner or an experienced hobbyist, finding the right RC truck for mud terrain can make all the difference in your off-road adventures.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys World Grand Prix: Ultimate Collectible Racing Car Set Review"
-description: "Cars Toys World Grand Prix brings exciting racecars and playsets inspired by Disney Pixar’s Cars movies. This collection features colorful, collectible toy cars"
+title: 'Cars Toys World Grand Prix: Ultimate Collectible Racing Car Set Review'
+description: Cars Toys World Grand Prix brings exciting racecars and playsets inspired
+  by Disney Pixar’s Cars movies. This collection features colorful, collectible toy
+  cars
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-world-grand-prix&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-world-grand-prix&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toys World Grand Prix brings exciting racecars and playsets inspired by Disney Pixar’s Cars movies. This collection features colorful, collectible toy cars and tracks for fun racing action.**

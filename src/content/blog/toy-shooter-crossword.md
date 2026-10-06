@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Shooter Crossword: Top Outdoor Water Guns and Shooting Game Toys"
 description: "Toy Shooter Crossword puzzles offer a fun way to learn about popular shooting toys. They combine wordplay with knowledge of kid-friendly blasters and water guns"
 pubDate: 2026-08-06

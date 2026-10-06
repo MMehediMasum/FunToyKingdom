@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Toy Shop: Top Collectible Figures for Every Pop Culture Fan"
-description: "Vinyl toy enthusiasts delight in a world of unique collectible figures. Discover iconic designs from beloved shows and games. Explore the captivating universe o"
+title: 'Vinyl Toy Shop: Top Collectible Figures for Every Pop Culture Fan'
+description: Vinyl toy enthusiasts delight in a world of unique collectible figures.
+  Discover iconic designs from beloved shows and games. Explore the captivating universe
+  o
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-toy-shop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-toy-shop&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vinyl toy enthusiasts delight in a world of unique collectible figures. Discover iconic designs from beloved shows and games.**

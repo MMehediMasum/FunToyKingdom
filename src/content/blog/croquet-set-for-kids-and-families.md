@@ -1,10 +1,14 @@
 ---
-title: "Croquet Set for Kids And Families: Ultimate Fun for All Ages"
-description: "Looking for a fun way to bring your family together outdoors? A croquet set for kids and families might be just what you need. Imagine the laughter, the friendl"
+title: 'Croquet Set for Kids And Families: Ultimate Fun for All Ages'
+description: Looking for a fun way to bring your family together outdoors? A croquet
+  set for kids and families might be just what you need. Imagine the laughter, the
+  friendl
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=croquet-set-for-kids-and-families&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=croquet-set-for-kids-and-families&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your family together outdoors? A croquet set for kids and families might be just what you need.**

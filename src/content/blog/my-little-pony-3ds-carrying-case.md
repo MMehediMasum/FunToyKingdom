@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "My Little Pony 3Ds Carrying Case: Stylish Protection for Your Console"
 description: "A My Little Pony 3DS carrying case keeps your console safe and easy to carry. It offers protection and storage for your device and games. These cases fit Ninten"
 pubDate: 2025-11-14

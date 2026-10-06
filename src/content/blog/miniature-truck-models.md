@@ -1,10 +1,14 @@
 ---
-title: "Miniature Truck Models: Top Collectible Diecast and Dollhouse Accessories"
-description: "Miniature truck models capture the charm of real trucks in small, detailed forms. They appeal to collectors, hobbyists, and kids who enjoy realistic toys. These"
+title: 'Miniature Truck Models: Top Collectible Diecast and Dollhouse Accessories'
+description: Miniature truck models capture the charm of real trucks in small, detailed
+  forms. They appeal to collectors, hobbyists, and kids who enjoy realistic toys.
+  These
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-truck-models&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-truck-models&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature truck models capture the charm of real trucks in small, detailed forms. They appeal to collectors, hobbyists, and kids who enjoy realistic toys.**

@@ -1,10 +1,14 @@
 ---
-title: "Soft Squeaky Toys for Newborns: Safe, Soothing, and Fun Picks"
-description: "Finding the perfect toy for your newborn can feel overwhelming. You want something safe, gentle, and that will keep your baby happy. Soft squeaky toys might be "
+title: 'Soft Squeaky Toys for Newborns: Safe, Soothing, and Fun Picks'
+description: 'Finding the perfect toy for your newborn can feel overwhelming. You
+  want something safe, gentle, and that will keep your baby happy. Soft squeaky toys
+  might be '
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-squeaky-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=soft-squeaky-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the perfect toy for your newborn can feel overwhelming. You want something safe, gentle, and that will keep your baby happy.**

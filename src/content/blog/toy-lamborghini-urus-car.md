@@ -1,10 +1,14 @@
 ---
-title: "Toy Lamborghini Urus Car: Top Diecast Models with Light and Sound Features"
-description: "The Toy Lamborghini Urus Car offers exciting play for kids and collectors. It combines style, sound, and realistic features in one model. This diecast toy car i"
+title: 'Toy Lamborghini Urus Car: Top Diecast Models with Light and Sound Features'
+description: The Toy Lamborghini Urus Car offers exciting play for kids and collectors.
+  It combines style, sound, and realistic features in one model. This diecast toy
+  car i
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-lamborghini-urus-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-lamborghini-urus-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **The Toy Lamborghini Urus Car offers exciting play for kids and collectors. It combines style, sound, and realistic features in one model.**

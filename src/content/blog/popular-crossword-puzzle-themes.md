@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Popular Crossword Puzzle Themes: Top Trends to Challenge Your Mind"
 description: "Are you ready to dive into the exciting world of crossword puzzles? Whether you’re a beginner or a seasoned solver, the theme of a crossword can make all the di"
 pubDate: 2026-06-10

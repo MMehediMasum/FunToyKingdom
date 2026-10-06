@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Jousting Lance Toy: Ultimate Fun for Active Kids"
-description: "Imagine the thrill of a medieval tournament right in your own backyard. With an Outdoor Jousting Lance Toy, you can bring excitement, adventure, and active fun "
+title: 'Outdoor Jousting Lance Toy: Ultimate Fun for Active Kids'
+description: 'Imagine the thrill of a medieval tournament right in your own backyard.
+  With an Outdoor Jousting Lance Toy, you can bring excitement, adventure, and active
+  fun '
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-jousting-lance-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-jousting-lance-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the thrill of a medieval tournament right in your own backyard. With an Outdoor Jousting Lance Toy, you can bring excitement, adventure, and active fun to your playtime like never before.**

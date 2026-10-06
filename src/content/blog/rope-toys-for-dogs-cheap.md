@@ -1,10 +1,14 @@
 ---
-title: "Rope Toys for Dogs Cheap: Durable, Fun, and Safe Tug Chew Options"
-description: "Dog rope toys are affordable and perfect for playtime. They keep your dog entertained while supporting dental health. Rope toys offer fun and practicality for y"
+title: 'Rope Toys for Dogs Cheap: Durable, Fun, and Safe Tug Chew Options'
+description: Dog rope toys are affordable and perfect for playtime. They keep your
+  dog entertained while supporting dental health. Rope toys offer fun and practicality
+  for y
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rope-toys-for-dogs-cheap&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rope Toys For Dogs Cheap
+heroImage: https://tse1.mm.bing.net/th?q=rope-toys-for-dogs-cheap&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toys are affordable and perfect for playtime. They keep your dog entertained while supporting dental health.**

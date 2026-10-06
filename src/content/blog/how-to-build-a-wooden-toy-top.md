@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wooden Toy Top: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something simple, fun, and timeless with your own hands? Building a wooden toy top is a perfect project that brings together crea"
+title: 'How to Build a Wooden Toy Top: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something simple, fun, and timeless with
+  your own hands? Building a wooden toy top is a perfect project that brings together
+  crea
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-top&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-top&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something simple, fun, and timeless with your own hands? Building a wooden toy top is a perfect project that brings together creativity and craftsmanship.**

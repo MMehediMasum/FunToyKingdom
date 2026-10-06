@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Crystal Growing Kit: Exciting STEM Fun for Kids Outdoors"
-description: "Have you ever wanted to create sparkling crystals right in your own backyard? With an Outdoor Crystal Growing Kit, you can watch magic happen as colorful crysta"
+title: 'Outdoor Crystal Growing Kit: Exciting STEM Fun for Kids Outdoors'
+description: Have you ever wanted to create sparkling crystals right in your own backyard?
+  With an Outdoor Crystal Growing Kit, you can watch magic happen as colorful crysta
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crystal-growing-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crystal-growing-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wanted to create sparkling crystals right in your own backyard? With an Outdoor Crystal Growing Kit, you can watch magic happen as colorful crystals form before your eyes.**

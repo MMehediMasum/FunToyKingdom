@@ -1,10 +1,15 @@
 ---
-title: "Cognitive Toys for Infants: Boost Early Learning with Engaging Montessori Picks"
-description: "Cognitive toys help infants learn and explore their world. These toys boost brain growth and develop key skills early. Choosing the right cognitive toys support"
+title: 'Cognitive Toys for Infants: Boost Early Learning with Engaging Montessori
+  Picks'
+description: Cognitive toys help infants learn and explore their world. These toys
+  boost brain growth and develop key skills early. Choosing the right cognitive toys
+  support
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cognitive-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=cognitive-toys-for-infants&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Cognitive toys help infants learn and explore their world. These toys boost brain growth and develop key skills early.**

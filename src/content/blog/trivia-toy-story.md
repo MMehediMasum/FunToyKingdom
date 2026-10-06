@@ -1,10 +1,14 @@
 ---
-title: "Trivia Toy Story: Ultimate Family Fun with Pixar Matching & Board Games"
-description: "Toy Story trivia brings fun facts about your favorite Pixar characters. Discover games that spark memories and laughter for all ages. Toy Story games offer exci"
+title: 'Trivia Toy Story: Ultimate Family Fun with Pixar Matching & Board Games'
+description: Toy Story trivia brings fun facts about your favorite Pixar characters.
+  Discover games that spark memories and laughter for all ages. Toy Story games offer
+  exci
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=trivia-toy-story&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=trivia-toy-story&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story trivia brings fun facts about your favorite Pixar characters. Discover games that spark memories and laughter for all ages.**

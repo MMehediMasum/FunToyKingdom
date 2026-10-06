@@ -1,10 +1,14 @@
 ---
-title: "Toy Medical Set: Top Doctor Kits for Kids’ Fun and Learning"
-description: "Toy medical sets offer children an exciting way to explore the world of healthcare through play. These kits inspire creativity and learning in young minds. Toy "
+title: 'Toy Medical Set: Top Doctor Kits for Kids’ Fun and Learning'
+description: 'Toy medical sets offer children an exciting way to explore the world
+  of healthcare through play. These kits inspire creativity and learning in young
+  minds. Toy '
 pubDate: 2026-09-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-medical-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-medical-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy medical sets offer children an exciting way to explore the world of healthcare through play. These kits inspire creativity and learning in young minds.**

@@ -1,10 +1,14 @@
 ---
-title: "Cabbage Patch Kids Doll History: Uncover the Iconic Toy Legacy"
-description: "Have you ever wondered what makes Cabbage Patch Kids dolls so special? These charming dolls have captured the hearts of millions, but their story is more fascin"
+title: 'Cabbage Patch Kids Doll History: Uncover the Iconic Toy Legacy'
+description: Have you ever wondered what makes Cabbage Patch Kids dolls so special?
+  These charming dolls have captured the hearts of millions, but their story is more
+  fascin
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=cabbage-patch-kids-doll-history&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=cabbage-patch-kids-doll-history&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered what makes Cabbage Patch Kids dolls so special? These charming dolls have captured the hearts of millions, but their story is more fascinating than you might think.**

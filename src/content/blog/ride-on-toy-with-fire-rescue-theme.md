@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Fire Rescue Theme: Ultimate Fun for Kids"
-description: "Imagine your child zooming around, feeling like a real hero ready to save the day. A ride-on toy with a fire rescue theme does exactly that—it turns playtime in"
+title: 'Ride on Toy With Fire Rescue Theme: Ultimate Fun for Kids'
+description: Imagine your child zooming around, feeling like a real hero ready to
+  save the day. A ride-on toy with a fire rescue theme does exactly that—it turns
+  playtime in
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-fire-rescue-theme&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy With Police
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-fire-rescue-theme&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child zooming around, feeling like a real hero ready to save the day. A ride-on toy with a fire rescue theme does exactly that—it turns playtime into an exciting adventure.**

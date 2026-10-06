@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 5 Year Old: Top Picks for Fun and Learning"
-description: "Are you looking for the perfect doll that will light up your 5-year-old’s face? Choosing the right doll can be tricky with so many options out there. You want s"
+title: 'Dolls for 5 Year Old: Top Picks for Fun and Learning'
+description: Are you looking for the perfect doll that will light up your 5-year-old’s
+  face? Choosing the right doll can be tricky with so many options out there. You
+  want s
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-5-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for the perfect doll that will light up your 5-year-old’s face? Choosing the right doll can be tricky with so many options out there.**

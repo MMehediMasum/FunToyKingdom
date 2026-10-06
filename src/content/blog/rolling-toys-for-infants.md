@@ -1,10 +1,14 @@
 ---
-title: "Rolling Toys for Infants: Top Picks for Fun & Development"
-description: "Are you looking for the perfect way to keep your little one entertained while helping them grow? Rolling toys for infants might be just what you need. These sim"
+title: 'Rolling Toys for Infants: Top Picks for Fun & Development'
+description: Are you looking for the perfect way to keep your little one entertained
+  while helping them grow? Rolling toys for infants might be just what you need. These
+  sim
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=rolling-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=rolling-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect way to keep your little one entertained while helping them grow? Rolling toys for infants might be just what you need.**

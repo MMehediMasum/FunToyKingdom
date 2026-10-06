@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Adjustable Suspension: Ultimate Control & Performance Guide"
-description: "Are you ready to take your RC car experience to the next level? Imagine having complete control over how your car handles every bump, jump, and turn. With an RC"
+title: 'Rc Car With Adjustable Suspension: Ultimate Control & Performance Guide'
+description: Are you ready to take your RC car experience to the next level? Imagine
+  having complete control over how your car handles every bump, jump, and turn. With
+  an RC
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-adjustable-suspension&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-adjustable-suspension&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to the next level? Imagine having complete control over how your car handles every bump, jump, and turn.**

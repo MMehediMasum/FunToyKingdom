@@ -1,10 +1,14 @@
 ---
-title: "Best Arts And Crafts for 3 Year Olds: Top Creative Kits and Supplies"
-description: "Choosing the best arts and crafts for 3 year olds helps boost creativity and fine motor skills. Crafts keep toddlers busy and happy while learning new things. Y"
+title: 'Best Arts And Crafts for 3 Year Olds: Top Creative Kits and Supplies'
+description: Choosing the best arts and crafts for 3 year olds helps boost creativity
+  and fine motor skills. Crafts keep toddlers busy and happy while learning new things.
+  Y
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-3-year-olds-top-creative-kits-and-supplies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-3-year-olds-top-creative-kits-and-supplies&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Choosing the best arts and crafts for 3 year olds helps boost creativity and fine motor skills. Crafts keep toddlers busy and happy while learning new things.**

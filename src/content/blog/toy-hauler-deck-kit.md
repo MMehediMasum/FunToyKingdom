@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Deck Kit: Essential Upgrade for Your Patio Door Conversion"
 description: "A toy hauler deck kit enhances your outdoor living space by transforming your hauler's door into a patio. These kits offer convenience and functionality for RV "
 pubDate: 2026-09-02

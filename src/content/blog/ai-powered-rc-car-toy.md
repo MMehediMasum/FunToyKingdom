@@ -1,10 +1,14 @@
 ---
-title: "Ai Powered Rc Car Toy: Ultimate Fun Meets Smart Technology"
-description: "Imagine controlling an RC car that learns your moves, reacts instantly, and races smarter than ever before. An AI powered RC car toy isn’t just a toy—it’s your "
+title: 'Ai Powered Rc Car Toy: Ultimate Fun Meets Smart Technology'
+description: 'Imagine controlling an RC car that learns your moves, reacts instantly,
+  and races smarter than ever before. An AI powered RC car toy isn’t just a toy—it’s
+  your '
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ai-powered-rc-car-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=ai-powered-rc-car-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling an RC car that learns your moves, reacts instantly, and races smarter than ever before. An AI powered RC car toy isn’t just a toy—it’s your new best companion for endless fun and excitement.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Minecraft Block Toys: Top Magnetic Building Sets for Creative Kids"
 description: "Minecraft block toys capture the imagination of young builders. These magnetic blocks offer endless creative possibilities. Kids aged 3 and up can dive into a w"
 pubDate: 2026-08-01

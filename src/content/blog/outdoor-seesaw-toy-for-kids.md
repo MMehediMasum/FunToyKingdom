@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Seesaw Toy for Kids: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun and simple way to bring more joy to your kids’ playtime? An outdoor seesaw toy might be exactly what your backyard needs. Imagine your"
+title: 'Outdoor Seesaw Toy for Kids: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun and simple way to bring more joy to your kids’
+  playtime? An outdoor seesaw toy might be exactly what your backyard needs. Imagine
+  your
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-seesaw-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-seesaw-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and simple way to bring more joy to your kids’ playtime? An outdoor seesaw toy might be exactly what your backyard needs.**

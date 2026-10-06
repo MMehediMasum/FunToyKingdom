@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for 4 People to Boost Family Fun and Strategy"
-description: "Playing card games with four people offers the perfect mix of fun and challenge. These games keep everyone engaged and create memorable moments. Card games for "
+title: Best Card Games for 4 People to Boost Family Fun and Strategy
+description: 'Playing card games with four people offers the perfect mix of fun and
+  challenge. These games keep everyone engaged and create memorable moments. Card
+  games for '
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-4-people-to-boost-family-fun-and-strategy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-4-people-to-boost-family-fun-and-strategy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Playing card games with four people offers the perfect mix of fun and challenge. These games keep everyone engaged and create memorable moments.**

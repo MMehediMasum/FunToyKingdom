@@ -1,10 +1,14 @@
 ---
-title: "Rc Tank With Sound Effects: Ultimate Realistic Battle Experience"
-description: "Imagine controlling a powerful RC tank that doesn’t just move but roars to life with real sound effects. If you love the thrill of remote-controlled vehicles an"
+title: 'Rc Tank With Sound Effects: Ultimate Realistic Battle Experience'
+description: Imagine controlling a powerful RC tank that doesn’t just move but roars
+  to life with real sound effects. If you love the thrill of remote-controlled vehicles
+  an
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-tank-with-sound-effects&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-tank-with-sound-effects&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling a powerful RC tank that doesn’t just move but roars to life with real sound effects. If you love the thrill of remote-controlled vehicles and want your experience to feel more authentic, an RC tank with sound effects is exactly what you need.**

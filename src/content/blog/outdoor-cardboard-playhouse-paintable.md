@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Cardboard Playhouse Paintable: Creative Fun for Kids"
-description: "Imagine giving your kids a magical space where their creativity can run wild—right in your backyard. An outdoor cardboard playhouse paintable lets you do just t"
+title: 'Outdoor Cardboard Playhouse Paintable: Creative Fun for Kids'
+description: Imagine giving your kids a magical space where their creativity can run
+  wild—right in your backyard. An outdoor cardboard playhouse paintable lets you do
+  just t
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-cardboard-playhouse-paintable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-cardboard-playhouse-paintable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids a magical space where their creativity can run wild—right in your backyard. An outdoor cardboard playhouse paintable lets you do just that.**

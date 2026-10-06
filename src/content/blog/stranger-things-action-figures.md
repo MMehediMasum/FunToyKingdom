@@ -1,10 +1,14 @@
 ---
-title: "Stranger Things Action Figures: Ultimate Collectors’ Guide 2025"
-description: "Are you a fan of Stranger Things and love collecting cool action figures? Then you’re in the right place. Stranger Things action figures bring your favorite cha"
+title: 'Stranger Things Action Figures: Ultimate Collectors’ Guide 2025'
+description: Are you a fan of Stranger Things and love collecting cool action figures?
+  Then you’re in the right place. Stranger Things action figures bring your favorite
+  cha
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=stranger-things-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=stranger-things-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Stranger Things and love collecting cool action figures? Then you’re in the right place.**

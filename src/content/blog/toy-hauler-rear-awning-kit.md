@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Rear Awning Kit: Ultimate Upgrade for Your RV Patio Space"
 description: "Toy hauler rear awning kits offer an ideal solution for enhancing outdoor living space. They provide shade and protection, making your RV experience more comfor"
 pubDate: 2026-09-02

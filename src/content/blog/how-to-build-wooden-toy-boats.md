@@ -1,10 +1,14 @@
 ---
-title: "How to Build Wooden Toy Boats: Easy Steps for Perfect Crafting"
-description: "Have you ever wanted to create something fun and timeless with your own hands? Building wooden toy boats is a simple and rewarding project that anyone can enjoy"
+title: 'How to Build Wooden Toy Boats: Easy Steps for Perfect Crafting'
+description: Have you ever wanted to create something fun and timeless with your own
+  hands? Building wooden toy boats is a simple and rewarding project that anyone can
+  enjoy
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-boats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-boats&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and timeless with your own hands? Building wooden toy boats is a simple and rewarding project that anyone can enjoy.**

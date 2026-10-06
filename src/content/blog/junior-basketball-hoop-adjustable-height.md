@@ -1,10 +1,14 @@
 ---
-title: "Junior Basketball Hoop Adjustable Height: Ultimate Guide for Kids"
-description: "Are you looking for the perfect basketball hoop that grows with your child? A junior basketball hoop with adjustable height might be exactly what you need. It l"
+title: 'Junior Basketball Hoop Adjustable Height: Ultimate Guide for Kids'
+description: Are you looking for the perfect basketball hoop that grows with your
+  child? A junior basketball hoop with adjustable height might be exactly what you
+  need. It l
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=junior-basketball-hoop-adjustable-height&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=junior-basketball-hoop-adjustable-height&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect basketball hoop that grows with your child? A junior basketball hoop with adjustable height might be exactly what you need.**

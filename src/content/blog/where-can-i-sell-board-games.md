@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sell Board Games: Top Places to Get Cash Fast"
-description: "Are you wondering where you can sell your board games quickly and for a good price? Whether you have a collection gathering dust or just want to make some extra"
+title: 'Where Can I Sell Board Games: Top Places to Get Cash Fast'
+description: Are you wondering where you can sell your board games quickly and for
+  a good price? Whether you have a collection gathering dust or just want to make
+  some extra
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sell-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sell-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you wondering where you can sell your board games quickly and for a good price? Whether you have a collection gathering dust or just want to make some extra cash, finding the right place to sell your games matters.**

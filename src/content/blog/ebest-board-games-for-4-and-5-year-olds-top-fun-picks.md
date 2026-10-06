@@ -1,10 +1,14 @@
 ---
-title: "Ebest Board Games for 4 And 5 Year Olds: Top Fun Picks"
-description: "Finding the best board games for 4 and 5 year olds can be fun but tricky. Kids this age need simple, engaging games that develop skills and spark joy. Board gam"
+title: 'Ebest Board Games for 4 And 5 Year Olds: Top Fun Picks'
+description: Finding the best board games for 4 and 5 year olds can be fun but tricky.
+  Kids this age need simple, engaging games that develop skills and spark joy. Board
+  gam
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=ebest-board-games-for-4-and-5-year-olds-top-fun-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=ebest-board-games-for-4-and-5-year-olds-top-fun-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for 4 and 5 year olds can be fun but tricky. Kids this age need simple, engaging games that develop skills and spark joy.**

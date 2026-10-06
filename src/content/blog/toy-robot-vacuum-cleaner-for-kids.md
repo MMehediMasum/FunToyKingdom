@@ -1,10 +1,14 @@
 ---
-title: "Toy Robot Vacuum Cleaner for Kids: Fun, Safe, and Educational!"
-description: "Imagine giving your child a fun way to help clean up while playing. A toy robot vacuum cleaner for kids does just that. It’s more than a toy—it’s a clever tool "
+title: 'Toy Robot Vacuum Cleaner for Kids: Fun, Safe, and Educational!'
+description: 'Imagine giving your child a fun way to help clean up while playing.
+  A toy robot vacuum cleaner for kids does just that. It’s more than a toy—it’s a
+  clever tool '
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-robot-vacuum-cleaner-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=toy-robot-vacuum-cleaner-for-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine giving your child a fun way to help clean up while playing. A toy robot vacuum cleaner for kids does just that.**

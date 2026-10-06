@@ -1,10 +1,14 @@
 ---
-title: "Ball Toys for Cats: Top Interactive Picks to Keep Your Kitty Entertained"
-description: "Ball toys for cats keep indoor cats active and entertained. These toys encourage play and mental stimulation in a fun way. Cats love to chase, bat, and pounce o"
+title: 'Ball Toys for Cats: Top Interactive Picks to Keep Your Kitty Entertained'
+description: Ball toys for cats keep indoor cats active and entertained. These toys
+  encourage play and mental stimulation in a fun way. Cats love to chase, bat, and
+  pounce o
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ball-toys-for-cats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=ball-toys-for-cats&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Ball toys for cats keep indoor cats active and entertained. These toys encourage play and mental stimulation in a fun way.**

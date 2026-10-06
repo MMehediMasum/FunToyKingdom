@@ -1,10 +1,14 @@
 ---
-title: "Frozen Olaf Plush Doll Collectible: Must-Have Magical Toy Guide"
-description: "Are you a fan of Frozen and looking to add something special to your collection? The Frozen Olaf Plush Doll Collectible is more than just a toy—it’s a piece of "
+title: 'Frozen Olaf Plush Doll Collectible: Must-Have Magical Toy Guide'
+description: 'Are you a fan of Frozen and looking to add something special to your
+  collection? The Frozen Olaf Plush Doll Collectible is more than just a toy—it’s
+  a piece of '
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=frozen-olaf-plush-doll-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=frozen-olaf-plush-doll-collectible&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Frozen and looking to add something special to your collection? The Frozen Olaf Plush Doll Collectible is more than just a toy—it’s a piece of magic you can hold.**

@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Vespa Scooter Replica: Ultimate Fun for Kids!"
-description: "Imagine your child zooming around the backyard on a stylish, miniature Vespa scooter that looks just like the real thing. The Ride on Toy Vespa Scooter Replica "
+title: 'Ride on Toy Vespa Scooter Replica: Ultimate Fun for Kids!'
+description: 'Imagine your child zooming around the backyard on a stylish, miniature
+  Vespa scooter that looks just like the real thing. The Ride on Toy Vespa Scooter
+  Replica '
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-vespa-scooter-replica&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-vespa-scooter-replica&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child zooming around the backyard on a stylish, miniature Vespa scooter that looks just like the real thing. The Ride on Toy Vespa Scooter Replica isn’t just a toy—it’s an exciting way to spark your child’s imagination and give them hours of fun.**

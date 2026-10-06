@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Doll Dresses: Easy Steps for Beautiful Outfits"
-description: "Have you ever wanted to create beautiful, custom outfits for your dolls? Sewing doll dresses is a fun and rewarding way to bring your creativity to life. Whethe"
+title: 'How to Sew Doll Dresses: Easy Steps for Beautiful Outfits'
+description: Have you ever wanted to create beautiful, custom outfits for your dolls?
+  Sewing doll dresses is a fun and rewarding way to bring your creativity to life.
+  Whethe
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-doll-dresses&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-doll-dresses&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wanted to create beautiful, custom outfits for your dolls? Sewing doll dresses is a fun and rewarding way to bring your creativity to life.**

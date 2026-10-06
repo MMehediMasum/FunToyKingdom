@@ -1,10 +1,14 @@
 ---
-title: "Best Family Board Games for All Ages to Spark Fun and Connection"
-description: "Finding board games that everyone in the family enjoys can be tough. These games offer fun for kids, teens, and adults alike. Family game nights bring everyone "
+title: Best Family Board Games for All Ages to Spark Fun and Connection
+description: 'Finding board games that everyone in the family enjoys can be tough.
+  These games offer fun for kids, teens, and adults alike. Family game nights bring
+  everyone '
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-family-board-games-for-all-ages-to-spark-fun-and-connection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-family-board-games-for-all-ages-to-spark-fun-and-connection&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding board games that everyone in the family enjoys can be tough. These games offer fun for kids, teens, and adults alike.**

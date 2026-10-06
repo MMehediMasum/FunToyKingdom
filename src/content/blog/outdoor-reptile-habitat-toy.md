@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Reptile Habitat Toy: Ultimate Guide to Fun & Safety"
-description: "Are you looking for the perfect way to keep your reptile happy and healthy? An outdoor reptile habitat toy might be exactly what you need. Imagine giving your p"
+title: 'Outdoor Reptile Habitat Toy: Ultimate Guide to Fun & Safety'
+description: Are you looking for the perfect way to keep your reptile happy and healthy?
+  An outdoor reptile habitat toy might be exactly what you need. Imagine giving your
+  p
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-reptile-habitat-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-reptile-habitat-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect way to keep your reptile happy and healthy? An outdoor reptile habitat toy might be exactly what you need.**

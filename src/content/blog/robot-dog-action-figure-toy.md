@@ -1,10 +1,14 @@
 ---
-title: "Robot Dog Action Figure Toy: Ultimate Fun for Kids and Collectors"
-description: "Imagine having a toy that’s not just fun but feels almost alive—a Robot Dog Action Figure Toy that moves, barks, and reacts just like a real puppy. If you’re lo"
+title: 'Robot Dog Action Figure Toy: Ultimate Fun for Kids and Collectors'
+description: Imagine having a toy that’s not just fun but feels almost alive—a Robot
+  Dog Action Figure Toy that moves, barks, and reacts just like a real puppy. If you’re
+  lo
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-dog-action-figure-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=robot-dog-action-figure-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having a toy that’s not just fun but feels almost alive—a Robot Dog Action Figure Toy that moves, barks, and reacts just like a real puppy. If you’re looking for a cool, interactive companion that sparks your imagination and keeps you entertained for hours, this is exactly what you need.**

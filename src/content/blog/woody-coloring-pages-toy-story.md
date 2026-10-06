@@ -1,10 +1,14 @@
 ---
-title: "Woody Coloring Pages Toy Story: Fun Mess-Free Activity Books for Kids"
-description: "Woody Coloring Pages Toy Story bring your favorite cowboy to life with fun and creativity. These pages offer hours of coloring joy for kids of all ages. Toy Sto"
+title: 'Woody Coloring Pages Toy Story: Fun Mess-Free Activity Books for Kids'
+description: Woody Coloring Pages Toy Story bring your favorite cowboy to life with
+  fun and creativity. These pages offer hours of coloring joy for kids of all ages.
+  Toy Sto
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=woody-coloring-pages-toy-story&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Ball
+heroImage: https://tse1.mm.bing.net/th?q=woody-coloring-pages-toy-story&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Woody Coloring Pages Toy Story bring your favorite cowboy to life with fun and creativity. These pages offer hours of coloring joy for kids of all ages.**

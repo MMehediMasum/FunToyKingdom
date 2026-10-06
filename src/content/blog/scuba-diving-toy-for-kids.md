@@ -1,10 +1,14 @@
 ---
-title: "Scuba Diving Toy for Kids: Ultimate Fun and Safe Water Play"
-description: "Are you looking for a fun and safe way to introduce your child to the wonders of the underwater world? A scuba diving toy for kids might be just what you need. "
+title: 'Scuba Diving Toy for Kids: Ultimate Fun and Safe Water Play'
+description: 'Are you looking for a fun and safe way to introduce your child to the
+  wonders of the underwater world? A scuba diving toy for kids might be just what
+  you need. '
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=scuba-diving-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Car Rides Engaging
+heroImage: https://tse1.mm.bing.net/th?q=scuba-diving-toy-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe way to introduce your child to the wonders of the underwater world? A scuba diving toy for kids might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Tiara Craft: Easy Steps for Magical Handmade Crowns"
-description: "Are you ready to create something magical with your own hands? Making a DIY toy tiara is a fun and simple craft that lets you bring sparkle and joy to playtime."
+title: 'Diy Toy Tiara Craft: Easy Steps for Magical Handmade Crowns'
+description: Are you ready to create something magical with your own hands? Making
+  a DIY toy tiara is a fun and simple craft that lets you bring sparkle and joy to
+  playtime.
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-tiara-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Puppet Box Craft
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-tiara-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something magical with your own hands? Making a DIY toy tiara is a fun and simple craft that lets you bring sparkle and joy to playtime.**

@@ -1,10 +1,14 @@
 ---
-title: "Vintage Case Toy Tractors: Top Collectible Models for Farm Enthusiasts"
-description: "Vintage case toy tractors capture the charm of farming's golden age. These miniature models delight collectors and children alike. From the Case IH 1/64 Out-Lug"
+title: 'Vintage Case Toy Tractors: Top Collectible Models for Farm Enthusiasts'
+description: Vintage case toy tractors capture the charm of farming's golden age.
+  These miniature models delight collectors and children alike. From the Case IH 1/64
+  Out-Lug
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-case-toy-tractors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=vintage-case-toy-tractors&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Vintage case toy tractors capture the charm of farming's golden age. These miniature models delight collectors and children alike.**

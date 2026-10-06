@@ -1,10 +1,14 @@
 ---
-title: "Nerf Football for Backyard Play: Ultimate Fun & Safe Games"
-description: "Looking for a fun way to bring your family and friends together right in your backyard? Nerf football is the perfect choice for you. It’s safe, easy to play, an"
+title: 'Nerf Football for Backyard Play: Ultimate Fun & Safe Games'
+description: Looking for a fun way to bring your family and friends together right
+  in your backyard? Nerf football is the perfect choice for you. It’s safe, easy to
+  play, an
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nerf-football-for-backyard-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Frisbee Kids Play
+heroImage: https://tse1.mm.bing.net/th?q=nerf-football-for-backyard-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your family and friends together right in your backyard? Nerf football is the perfect choice for you.**

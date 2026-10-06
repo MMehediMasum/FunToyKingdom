@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Shoes Craft: Creative Ideas to Inspire Your DIY Projects"
-description: "Imagine giving your child a unique, charming gift that no store-bought toy can match. Handmade toy shoes craft lets you do just that. You get to create tiny, ad"
+title: 'Handmade Toy Shoes Craft: Creative Ideas to Inspire Your DIY Projects'
+description: Imagine giving your child a unique, charming gift that no store-bought
+  toy can match. Handmade toy shoes craft lets you do just that. You get to create
+  tiny, ad
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-shoes-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Rocket Cardboard Craft
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-shoes-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a unique, charming gift that no store-bought toy can match. Handmade toy shoes craft lets you do just that.**

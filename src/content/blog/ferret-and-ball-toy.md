@@ -1,10 +1,13 @@
 ---
-title: "Ferret And Ball Toy: Top Interactive Picks for Happy, Healthy Pets"
-description: "Ferret and ball toys provide fun and exercise for small pets like ferrets, cats, and dogs. These toys keep pets active and help maintain their teeth and minds. "
+title: 'Ferret And Ball Toy: Top Interactive Picks for Happy, Healthy Pets'
+description: 'Ferret and ball toys provide fun and exercise for small pets like ferrets,
+  cats, and dogs. These toys keep pets active and help maintain their teeth and minds. '
 pubDate: 2026-08-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ferret-and-ball-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=ferret-and-ball-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Ferret and ball toys provide fun and exercise for small pets like ferrets, cats, and dogs. These toys keep pets active and help maintain their teeth and minds.**

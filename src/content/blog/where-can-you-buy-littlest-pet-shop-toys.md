@@ -1,10 +1,14 @@
 ---
-title: "Where Can You Buy Littlest Pet Shop Toys: Top Trusted Stores Revealed"
-description: "Are you on the hunt for Littlest Pet Shop toys but not sure where to find them? Whether you’re looking to add new furry friends to your collection or searching "
+title: 'Where Can You Buy Littlest Pet Shop Toys: Top Trusted Stores Revealed'
+description: 'Are you on the hunt for Littlest Pet Shop toys but not sure where to
+  find them? Whether you’re looking to add new furry friends to your collection or
+  searching '
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-you-buy-littlest-pet-shop-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=where-can-you-buy-littlest-pet-shop-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you on the hunt for Littlest Pet Shop toys but not sure where to find them? Whether you’re looking to add new furry friends to your collection or searching for the perfect gift, knowing the best places to buy these popular toys can save you time and frustration.**

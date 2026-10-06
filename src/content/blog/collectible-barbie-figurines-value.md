@@ -1,10 +1,14 @@
 ---
-title: "Collectible Barbie Figurines Value: Ultimate Guide to Top Worth"
-description: "Are you curious about how much your collectible Barbie figurines are really worth? Whether you’ve held onto them for years or just started collecting, understan"
+title: 'Collectible Barbie Figurines Value: Ultimate Guide to Top Worth'
+description: Are you curious about how much your collectible Barbie figurines are
+  really worth? Whether you’ve held onto them for years or just started collecting,
+  understan
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-barbie-figurines-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=collectible-barbie-figurines-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about how much your collectible Barbie figurines are really worth? Whether you’ve held onto them for years or just started collecting, understanding their value can be exciting and rewarding.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Glue for Dollhouses: Top Picks for Strong, Precise Miniature Bonding"
-description: "Finding the best glue for dollhouses ensures your mini creations stay strong and neat. Choosing the right adhesive makes crafting easier and results last longer"
+title: 'Best Glue for Dollhouses: Top Picks for Strong, Precise Miniature Bonding'
+description: Finding the best glue for dollhouses ensures your mini creations stay
+  strong and neat. Choosing the right adhesive makes crafting easier and results last
+  longer
 pubDate: 2025-09-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-glue-for-dollhouses-top-picks-for-strong-precise-miniature-bonding&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=best-glue-for-dollhouses-top-picks-for-strong-precise-miniature-bonding&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finding the best glue for dollhouses ensures your mini creations stay strong and neat. Choosing the right adhesive makes crafting easier and results last longer.**

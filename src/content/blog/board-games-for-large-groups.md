@@ -1,10 +1,14 @@
 ---
-title: "Board Games for Large Groups: Ultimate Fun for Everyone"
-description: "Looking for the perfect way to bring your large group together? Board games are a fantastic choice to spark laughter, teamwork, and friendly competition. But fi"
+title: 'Board Games for Large Groups: Ultimate Fun for Everyone'
+description: Looking for the perfect way to bring your large group together? Board
+  games are a fantastic choice to spark laughter, teamwork, and friendly competition.
+  But fi
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-large-groups&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-large-groups&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect way to bring your large group together? Board games are a fantastic choice to spark laughter, teamwork, and friendly competition.**

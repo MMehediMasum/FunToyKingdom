@@ -1,10 +1,14 @@
 ---
-title: "Ai Storytelling Toy for Bedtime: Magical Stories Every Night"
-description: "Imagine a bedtime routine where your child’s favorite stories come to life, every night, without you having to lift a finger. What if there was a way to make be"
+title: 'Ai Storytelling Toy for Bedtime: Magical Stories Every Night'
+description: Imagine a bedtime routine where your child’s favorite stories come to
+  life, every night, without you having to lift a finger. What if there was a way
+  to make be
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ai-storytelling-toy-for-bedtime&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=ai-storytelling-toy-for-bedtime&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine a bedtime routine where your child’s favorite stories come to life, every night, without you having to lift a finger. What if there was a way to make bedtime not just easier, but truly magical?**

@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Tractors 1 16: Top Collectible Models for Farm Enthusiasts"
-description: "Diecast toy tractors in 1:16 scale captivate collectors and enthusiasts alike. These models offer an authentic miniature farming experience. The world of diecas"
+title: 'Diecast Toy Tractors 1 16: Top Collectible Models for Farm Enthusiasts'
+description: Diecast toy tractors in 1:16 scale captivate collectors and enthusiasts
+  alike. These models offer an authentic miniature farming experience. The world of
+  diecas
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-tractors-1-16&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-tractors-1-16&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy tractors in 1:16 scale captivate collectors and enthusiasts alike. These models offer an authentic miniature farming experience.**

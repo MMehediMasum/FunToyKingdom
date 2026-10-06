@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Ring Pops: Perfect Party Favors for Kids’ Celebrations"
 description: "Toy Story Ring Pops bring fun and flavor to any party. These colorful lollipops feature beloved characters like Buzz Lightyear and Woody. Perfect for birthdays "
 pubDate: 2025-11-17

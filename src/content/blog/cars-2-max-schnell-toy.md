@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Max Schnell Toy: Ultimate Die-Cast Racer for Kids’ Fun"
-description: "The Cars 2 Max Schnell toy is a popular die-cast car from Disney Pixar’s Cars 2 movie. This detailed model captures Max Schnell, a fan-favorite character known "
+title: 'Cars 2 Max Schnell Toy: Ultimate Die-Cast Racer for Kids’ Fun'
+description: 'The Cars 2 Max Schnell toy is a popular die-cast car from Disney Pixar’s
+  Cars 2 movie. This detailed model captures Max Schnell, a fan-favorite character
+  known '
 pubDate: 2026-01-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-max-schnell-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-max-schnell-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 Max Schnell toy is a popular die-cast car from Disney Pixar’s Cars 2 movie. This detailed model captures Max Schnell, a fan-favorite character known for his speed and style.**

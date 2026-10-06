@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Airplane: Easy Steps for Fun & Creativity"
-description: "Are you looking for a fun and creative project that you can make with your own hands? Building a DIY cardboard toy airplane is a perfect way to bring your imagi"
+title: 'Diy Cardboard Toy Airplane: Easy Steps for Fun & Creativity'
+description: Are you looking for a fun and creative project that you can make with
+  your own hands? Building a DIY cardboard toy airplane is a perfect way to bring
+  your imagi
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-airplane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-airplane&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with your own hands? Building a DIY cardboard toy airplane is a perfect way to bring your imagination to life.**

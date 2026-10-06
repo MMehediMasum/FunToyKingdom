@@ -1,10 +1,14 @@
 ---
-title: "Can You Bring Water Toys to Great Wolf Lodge? Ultimate Guide"
-description: "Planning a trip to Great Wolf Lodge and wondering if you can bring your own water toys? You’re not alone. Many families want to pack their favorite floaties, no"
+title: Can You Bring Water Toys to Great Wolf Lodge? Ultimate Guide
+description: Planning a trip to Great Wolf Lodge and wondering if you can bring your
+  own water toys? You’re not alone. Many families want to pack their favorite floaties,
+  no
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-bring-water-toys-to-great-wolf-lodge&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=can-you-bring-water-toys-to-great-wolf-lodge&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Planning a trip to Great Wolf Lodge and wondering if you can bring your own water toys? You’re not alone.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Turn off Toy Dog That Walks: Easy Steps to Stop It Fast"
-description: "Is your toy dog that walks acting up or won’t stop moving when you want it to? You’re not alone. Learning how to turn off your walking toy dog quickly and safel"
+title: 'How to Turn off Toy Dog That Walks: Easy Steps to Stop It Fast'
+description: Is your toy dog that walks acting up or won’t stop moving when you want
+  it to? You’re not alone. Learning how to turn off your walking toy dog quickly and
+  safel
 pubDate: 2025-08-28
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-off-toy-dog-that-walks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-off-toy-dog-that-walks&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Is your toy dog that walks acting up or won’t stop moving when you want it to? You’re not alone.**

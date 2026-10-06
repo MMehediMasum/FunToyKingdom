@@ -1,10 +1,14 @@
 ---
-title: "Must Have Teething Toy for Newborns: Ultimate Comfort & Safety Guide"
-description: "Teething can be tough for both you and your newborn. Those tiny gums ache, and your little one can get fussy and restless. But what if you could ease that disco"
+title: 'Must Have Teething Toy for Newborns: Ultimate Comfort & Safety Guide'
+description: Teething can be tough for both you and your newborn. Those tiny gums
+  ache, and your little one can get fussy and restless. But what if you could ease
+  that disco
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=must-have-teething-toy-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=must-have-teething-toy-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Teething can be tough for both you and your newborn. Those tiny gums ache, and your little one can get fussy and restless.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Collectible Price Guide: Ultimate Value Insights 2025"
-description: "Are you curious about the value of your toy soldier collection? Whether you’re a seasoned collector or just getting started, knowing the price of your pieces ca"
+title: 'Toy Soldier Collectible Price Guide: Ultimate Value Insights 2025'
+description: Are you curious about the value of your toy soldier collection? Whether
+  you’re a seasoned collector or just getting started, knowing the price of your pieces
+  ca
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-collectible-price-guide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-collectible-price-guide&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about the value of your toy soldier collection? Whether you’re a seasoned collector or just getting started, knowing the price of your pieces can make a big difference.**

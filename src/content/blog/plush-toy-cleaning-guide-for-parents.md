@@ -1,10 +1,14 @@
 ---
-title: "Plush Toy Cleaning Guide for Parents: Easy Tips for Fresh Toys"
-description: "If you’re a parent, you know how much your child loves their plush toys. These cuddly companions often go everywhere with them, collecting dirt, germs, and some"
+title: 'Plush Toy Cleaning Guide for Parents: Easy Tips for Fresh Toys'
+description: If you’re a parent, you know how much your child loves their plush toys.
+  These cuddly companions often go everywhere with them, collecting dirt, germs, and
+  some
 pubDate: 2026-09-12
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=plush-toy-cleaning-guide-for-parents&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=plush-toy-cleaning-guide-for-parents&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **If you’re a parent, you know how much your child loves their plush toys. These cuddly companions often go everywhere with them, collecting dirt, germs, and sometimes even stains.**

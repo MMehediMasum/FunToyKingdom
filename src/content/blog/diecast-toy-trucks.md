@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Trucks: Top Collectible Models for Kids and Enthusiasts"
-description: "Diecast toy trucks captivate collectors and children alike with their detailed designs and durable construction. From vintage models to modern replicas, these m"
+title: 'Diecast Toy Trucks: Top Collectible Models for Kids and Enthusiasts'
+description: Diecast toy trucks captivate collectors and children alike with their
+  detailed designs and durable construction. From vintage models to modern replicas,
+  these m
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy trucks captivate collectors and children alike with their detailed designs and durable construction. From vintage models to modern replicas, these miniature marvels bring joy to enthusiasts of all ages.**

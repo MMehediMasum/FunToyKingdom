@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 0 to 3 Months: Essential Picks for Early Development"
-description: "You want the best for your baby, especially in those first few months when everything is new and exciting. Choosing the right sensory toys for your 0 to 3-month"
+title: 'Sensory Toys for 0 to 3 Months: Essential Picks for Early Development'
+description: You want the best for your baby, especially in those first few months
+  when everything is new and exciting. Choosing the right sensory toys for your 0
+  to 3-month
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-0-to-3-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-0-to-3-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **You want the best for your baby, especially in those first few months when everything is new and exciting. Choosing the right sensory toys for your 0 to 3-month-old can make a big difference in their early development.**

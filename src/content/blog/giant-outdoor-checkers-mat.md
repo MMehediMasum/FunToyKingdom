@@ -1,10 +1,14 @@
 ---
-title: "Giant Outdoor Checkers Mat: Ultimate Fun for All Ages"
-description: "Imagine turning your backyard, patio, or park into an exciting game zone with just one simple addition. A Giant Outdoor Checkers Mat is more than just a game – "
+title: 'Giant Outdoor Checkers Mat: Ultimate Fun for All Ages'
+description: 'Imagine turning your backyard, patio, or park into an exciting game
+  zone with just one simple addition. A Giant Outdoor Checkers Mat is more than just
+  a game – '
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-outdoor-checkers-mat&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=giant-outdoor-checkers-mat&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard, patio, or park into an exciting game zone with just one simple addition. A Giant Outdoor Checkers Mat is more than just a game – it’s a way to bring your family and friends closer while enjoying fresh air and sunshine.**

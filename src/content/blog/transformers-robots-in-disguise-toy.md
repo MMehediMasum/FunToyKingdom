@@ -1,10 +1,13 @@
 ---
-title: "Transformers Robots in Disguise Toy: Ultimate Action Figures for Kids"
-description: "Transformers Robots in Disguise toys bring exciting battles and adventures to life. These action figures change from robots to vehicles quickly. This collection"
+title: 'Transformers Robots in Disguise Toy: Ultimate Action Figures for Kids'
+description: Transformers Robots in Disguise toys bring exciting battles and adventures
+  to life. These action figures change from robots to vehicles quickly. This collection
 pubDate: 2026-02-24
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Transformers Robots in Disguise toys bring exciting battles and adventures to life. These action figures change from robots to vehicles quickly.**

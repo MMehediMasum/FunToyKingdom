@@ -1,10 +1,14 @@
 ---
-title: "Monster High Frankie Stein Doll: Ultimate Collector’s Must-Have Guide"
-description: "Are you ready to meet a doll that’s as unique and exciting as you are? The Monster High Frankie Stein Doll brings a fun mix of spooky and stylish that makes pla"
+title: 'Monster High Frankie Stein Doll: Ultimate Collector’s Must-Have Guide'
+description: Are you ready to meet a doll that’s as unique and exciting as you are?
+  The Monster High Frankie Stein Doll brings a fun mix of spooky and stylish that
+  makes pla
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-frankie-stein-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Selling Toys For Cash
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-frankie-stein-doll&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to meet a doll that’s as unique and exciting as you are? The Monster High Frankie Stein Doll brings a fun mix of spooky and stylish that makes playtime unforgettable.**

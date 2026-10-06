@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Train Tracks Diy Project: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and creative way to spend time with your kids? Building your own wooden toy train tracks can be the perfect project for you. Not only "
+title: 'Wooden Toy Train Tracks Diy Project: Easy Steps for Creative Fun'
+description: 'Are you looking for a fun and creative way to spend time with your kids?
+  Building your own wooden toy train tracks can be the perfect project for you. Not
+  only '
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-train-tracks-diy-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-train-tracks-diy-project&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and creative way to spend time with your kids? Building your own wooden toy train tracks can be the perfect project for you.**

@@ -1,10 +1,14 @@
 ---
-title: "High Contrast Toys for Newborns: Boost Baby’s Visual Development"
-description: "Are you looking for the perfect toys to help your newborn’s brain grow and develop? High contrast toys could be just what you need. These simple yet powerful to"
+title: 'High Contrast Toys for Newborns: Boost Baby’s Visual Development'
+description: Are you looking for the perfect toys to help your newborn’s brain grow
+  and develop? High contrast toys could be just what you need. These simple yet powerful
+  to
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=high-contrast-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=high-contrast-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect toys to help your newborn’s brain grow and develop? High contrast toys could be just what you need.**

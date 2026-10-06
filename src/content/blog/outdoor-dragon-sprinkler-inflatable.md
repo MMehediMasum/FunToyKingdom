@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dragon Sprinkler Inflatable: Ultimate Summer Fun Essential"
-description: "Imagine turning your backyard into an exciting water playground that kids and adults will love. The Outdoor Dragon Sprinkler Inflatable is more than just a fun "
+title: 'Outdoor Dragon Sprinkler Inflatable: Ultimate Summer Fun Essential'
+description: 'Imagine turning your backyard into an exciting water playground that
+  kids and adults will love. The Outdoor Dragon Sprinkler Inflatable is more than
+  just a fun '
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dragon-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dragon-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into an exciting water playground that kids and adults will love. The Outdoor Dragon Sprinkler Inflatable is more than just a fun decoration—it’s a way to bring joy, laughter, and cool refreshment to your hot summer days.**

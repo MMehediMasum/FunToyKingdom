@@ -1,10 +1,13 @@
 ---
-title: "Jada Toys Police Cars: Ultimate Die-Cast Collectibles for Kids and Adults"
-description: "Jada Toys Police Cars offer detailed die-cast models for kids and collectors. These cars bring excitement with authentic designs and fun features. Jada Toys cre"
+title: 'Jada Toys Police Cars: Ultimate Die-Cast Collectibles for Kids and Adults'
+description: Jada Toys Police Cars offer detailed die-cast models for kids and collectors.
+  These cars bring excitement with authentic designs and fun features. Jada Toys cre
 pubDate: 2026-01-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-police-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-police-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jada Toys Police Cars offer detailed die-cast models for kids and collectors. These cars bring excitement with authentic designs and fun features.**

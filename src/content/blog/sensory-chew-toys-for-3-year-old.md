@@ -1,10 +1,13 @@
 ---
-title: "Sensory Chew Toys for 3 Year Olds: Durable, Calming, and Safe Choices"
-description: "Sensory chew toys help 3-year-olds explore and soothe their senses safely. These toys support children with autism, ADHD, and sensory processing needs. Sensory "
+title: 'Sensory Chew Toys for 3 Year Olds: Durable, Calming, and Safe Choices'
+description: 'Sensory chew toys help 3-year-olds explore and soothe their senses safely.
+  These toys support children with autism, ADHD, and sensory processing needs. Sensory '
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Chew Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-3-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory chew toys help 3-year-olds explore and soothe their senses safely. These toys support children with autism, ADHD, and sensory processing needs.**

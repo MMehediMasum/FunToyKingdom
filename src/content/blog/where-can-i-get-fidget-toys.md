@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Get Fidget Toys: Top Places to Buy in 2025"
-description: "Are you looking for the perfect place to get fidget toys that can help you focus, reduce stress, or simply keep your hands busy? You’re not alone. Whether you w"
+title: 'Where Can I Get Fidget Toys: Top Places to Buy in 2025'
+description: Are you looking for the perfect place to get fidget toys that can help
+  you focus, reduce stress, or simply keep your hands busy? You’re not alone. Whether
+  you w
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-get-fidget-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Fidget Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-get-fidget-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect place to get fidget toys that can help you focus, reduce stress, or simply keep your hands busy? You’re not alone.**

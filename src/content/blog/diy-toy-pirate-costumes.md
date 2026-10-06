@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Pirate Costumes: Easy Steps for Epic Adventure Looks"
-description: "Are you ready to transform your little one into the fiercest pirate on the block? Creating DIY toy pirate costumes is easier than you think, and it’s a fun way "
+title: 'Diy Toy Pirate Costumes: Easy Steps for Epic Adventure Looks'
+description: 'Are you ready to transform your little one into the fiercest pirate
+  on the block? Creating DIY toy pirate costumes is easier than you think, and it’s
+  a fun way '
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-pirate-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-pirate-costumes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to transform your little one into the fiercest pirate on the block? Creating DIY toy pirate costumes is easier than you think, and it’s a fun way to bring your child’s imagination to life.**

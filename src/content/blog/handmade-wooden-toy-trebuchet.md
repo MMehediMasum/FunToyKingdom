@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Trebuchet: Ultimate Fun and Learning Toy"
-description: "Imagine holding a beautifully crafted wooden toy that sparks your creativity and brings hours of fun. The Handmade Wooden Toy Trebuchet is not just a toy—it’s a"
+title: 'Handmade Wooden Toy Trebuchet: Ultimate Fun and Learning Toy'
+description: Imagine holding a beautifully crafted wooden toy that sparks your creativity
+  and brings hours of fun. The Handmade Wooden Toy Trebuchet is not just a toy—it’s
+  a
 pubDate: 2025-10-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-trebuchet&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Crowns
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-trebuchet&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a beautifully crafted wooden toy that sparks your creativity and brings hours of fun. The Handmade Wooden Toy Trebuchet is not just a toy—it’s a chance for you to explore history, physics, and hands-on play all at once.**

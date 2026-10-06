@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Bikes for Seniors With Balance Problems: Top Safe & Comfortable Picks"
 description: "Choosing the best bike for seniors with balance problems helps improve fitness safely and comfortably. Bikes with sturdy support and easy controls offer confide"
 pubDate: 2025-11-20

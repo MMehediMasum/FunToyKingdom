@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Arcade Style Toy Video Games: Ultimate Fun for All Ages"
 description: "Are you ready to dive into a world where fun meets nostalgia? Arcade style toy video games bring back the excitement of classic gaming with a modern twist. Whet"
 pubDate: 2026-06-27

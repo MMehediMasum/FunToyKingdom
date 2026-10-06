@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 9 Year Old: Top Picks for Fun & Imaginative Play"
-description: "Are you searching for the perfect doll that will light up your 9-year-old’s face? Choosing the right doll can be tricky, but it’s worth it when you see their ex"
+title: 'Dolls for 9 Year Old: Top Picks for Fun & Imaginative Play'
+description: Are you searching for the perfect doll that will light up your 9-year-old’s
+  face? Choosing the right doll can be tricky, but it’s worth it when you see their
+  ex
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-9-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you searching for the perfect doll that will light up your 9-year-old’s face? Choosing the right doll can be tricky, but it’s worth it when you see their excitement and creativity come alive.**

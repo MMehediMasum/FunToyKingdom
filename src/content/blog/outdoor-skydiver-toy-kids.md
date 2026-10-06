@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Skydiver Toy Kids: Ultimate Fun for Active Playtime"
-description: "Imagine giving your child a toy that sparks endless fun, creativity, and outdoor adventure all at once. The Outdoor Skydiver Toy for Kids is just that—an exciti"
+title: 'Outdoor Skydiver Toy Kids: Ultimate Fun for Active Playtime'
+description: Imagine giving your child a toy that sparks endless fun, creativity,
+  and outdoor adventure all at once. The Outdoor Skydiver Toy for Kids is just that—an
+  exciti
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-skydiver-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-skydiver-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that sparks endless fun, creativity, and outdoor adventure all at once. The Outdoor Skydiver Toy for Kids is just that—an exciting way to get your little ones moving, exploring, and imagining like never before.**

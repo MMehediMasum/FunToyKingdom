@@ -1,10 +1,13 @@
 ---
-title: "Diy Toy Building Blocks for Kids: Creative Fun and Learning Ideas"
-description: "Are you looking for a fun and creative way to keep your kids entertained while boosting their imagination? DIY toy building blocks could be the perfect solution"
+title: 'Diy Toy Building Blocks for Kids: Creative Fun and Learning Ideas'
+description: Are you looking for a fun and creative way to keep your kids entertained
+  while boosting their imagination? DIY toy building blocks could be the perfect solution
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-building-blocks-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Blocks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-building-blocks-for-kids&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to keep your kids entertained while boosting their imagination? DIY toy building blocks could be the perfect solution for you.**

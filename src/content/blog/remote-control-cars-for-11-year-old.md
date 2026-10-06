@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Cars for 11 Year Old: Top Picks for Ultimate Fun"
-description: "Are you looking for the perfect remote control car for your 11-year-old? Choosing the right one can be tricky with so many options out there. You want a car tha"
+title: 'Remote Control Cars for 11 Year Old: Top Picks for Ultimate Fun'
+description: Are you looking for the perfect remote control car for your 11-year-old?
+  Choosing the right one can be tricky with so many options out there. You want a
+  car tha
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-cars-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-cars-for-11-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect remote control car for your 11-year-old? Choosing the right one can be tricky with so many options out there.**

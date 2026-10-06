@@ -1,10 +1,14 @@
 ---
-title: "Finn McMissile Toy Car: Ultimate Die-Cast Collectible for Kids"
-description: "The Finn McMissile toy car brings excitement to young fans of Disney Pixar's Cars series. This die-cast model captures the adventurous spirit of the beloved sec"
+title: 'Finn McMissile Toy Car: Ultimate Die-Cast Collectible for Kids'
+description: The Finn McMissile toy car brings excitement to young fans of Disney
+  Pixar's Cars series. This die-cast model captures the adventurous spirit of the
+  beloved sec
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=finn-mcmissile-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=finn-mcmissile-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **The Finn McMissile toy car brings excitement to young fans of Disney Pixar's Cars series. This die-cast model captures the adventurous spirit of the beloved secret agent car.**

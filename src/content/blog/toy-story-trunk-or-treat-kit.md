@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Trunk Or Treat Kit: Ultimate Party Decorations and Treat Ideas"
 description: "The Toy Story Trunk Or Treat Kit brings fun and color to any Halloween celebration. It includes decorations, balloons, and themed party supplies that kids love."
 pubDate: 2026-02-28

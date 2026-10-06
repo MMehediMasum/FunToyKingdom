@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Rally Car: Creative Fun for Kids & Adults"
-description: "Imagine having a cool rally car that you made yourself—one that’s fun, unique, and kind to the planet. A handmade cardboard toy rally car isn’t just a toy; it’s"
+title: 'Handmade Cardboard Toy Rally Car: Creative Fun for Kids & Adults'
+description: Imagine having a cool rally car that you made yourself—one that’s fun,
+  unique, and kind to the planet. A handmade cardboard toy rally car isn’t just a
+  toy; it’s
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-rally-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-rally-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine having a cool rally car that you made yourself—one that’s fun, unique, and kind to the planet. A handmade cardboard toy rally car isn’t just a toy; it’s your chance to get creative, build something with your own hands, and enjoy hours of play.**

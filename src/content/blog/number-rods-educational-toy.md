@@ -1,10 +1,14 @@
 ---
-title: "Number Rods Educational Toy: Boost Math Skills Fast"
-description: "Are you looking for a fun and effective way to help your child learn numbers and basic math? The Number Rods Educational Toy could be exactly what you need. It’"
+title: 'Number Rods Educational Toy: Boost Math Skills Fast'
+description: Are you looking for a fun and effective way to help your child learn
+  numbers and basic math? The Number Rods Educational Toy could be exactly what you
+  need. It’
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=number-rods-educational-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=number-rods-educational-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and effective way to help your child learn numbers and basic math? The Number Rods Educational Toy could be exactly what you need.**

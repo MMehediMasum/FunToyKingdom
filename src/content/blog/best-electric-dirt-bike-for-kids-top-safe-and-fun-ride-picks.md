@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Electric Dirt Bike for Kids: Top Safe and Fun Ride Picks"
 description: "Choosing the best electric dirt bike for kids can be tricky with many options available. This guide helps find safe, fun, and reliable bikes for young riders. E"
 pubDate: 2025-09-13

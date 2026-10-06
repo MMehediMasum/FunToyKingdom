@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Remote Tracking: Ultimate Fun and Safety Guide"
-description: "Imagine giving your child a ride-on toy that you can control and track from anywhere. Sounds exciting, right? With a ride-on toy that comes with remote tracking"
+title: 'Ride on Toy With Remote Tracking: Ultimate Fun and Safety Guide'
+description: Imagine giving your child a ride-on toy that you can control and track
+  from anywhere. Sounds exciting, right? With a ride-on toy that comes with remote
+  tracking
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-remote-tracking&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-remote-tracking&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a ride-on toy that you can control and track from anywhere. Sounds exciting, right?**

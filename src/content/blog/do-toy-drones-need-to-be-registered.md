@@ -1,10 +1,14 @@
 ---
-title: "Do Toy Drones Need to Be Registered: Essential Facts Revealed"
-description: "Are you thinking about flying a toy drone but wondering if you need to register it first? You’re not alone. Many drone enthusiasts ask this question before taki"
+title: 'Do Toy Drones Need to Be Registered: Essential Facts Revealed'
+description: Are you thinking about flying a toy drone but wondering if you need to
+  register it first? You’re not alone. Many drone enthusiasts ask this question before
+  taki
 pubDate: 2025-08-27
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-toy-drones-need-to-be-registered&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Do Toy Drones Need
+heroImage: https://tse1.mm.bing.net/th?q=do-toy-drones-need-to-be-registered&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you thinking about flying a toy drone but wondering if you need to register it first? You’re not alone.**

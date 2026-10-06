@@ -1,10 +1,13 @@
 ---
-title: "How Do Kenken Puzzles Work: Unlocking Brain-Boosting Fun"
-description: "Have you ever faced a puzzle that challenges your logic and math skills at the same time? KenKen puzzles do exactly that, and they can be surprisingly addictive"
+title: 'How Do Kenken Puzzles Work: Unlocking Brain-Boosting Fun'
+description: Have you ever faced a puzzle that challenges your logic and math skills
+  at the same time? KenKen puzzles do exactly that, and they can be surprisingly addictive
 pubDate: 2025-09-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-kenken-puzzles-work&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=how-do-kenken-puzzles-work&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever faced a puzzle that challenges your logic and math skills at the same time? KenKen puzzles do exactly that, and they can be surprisingly addictive.**

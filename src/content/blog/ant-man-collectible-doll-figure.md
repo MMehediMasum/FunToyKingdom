@@ -1,10 +1,14 @@
 ---
-title: "Ant Man Collectible Doll Figure: Ultimate Guide for Fans & Collectors"
-description: "Are you a fan of Ant Man or a collector looking for something unique? The Ant Man Collectible Doll Figure is more than just a toy—it's a piece of your favorite "
+title: 'Ant Man Collectible Doll Figure: Ultimate Guide for Fans & Collectors'
+description: 'Are you a fan of Ant Man or a collector looking for something unique?
+  The Ant Man Collectible Doll Figure is more than just a toy—it''s a piece of your
+  favorite '
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=ant-man-collectible-doll-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=ant-man-collectible-doll-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Ant Man or a collector looking for something unique? The Ant Man Collectible Doll Figure is more than just a toy—it's a piece of your favorite superhero's story you can hold in your hands.**

@@ -1,10 +1,13 @@
 ---
-title: "Rc Toy Boats: Top Waterproof Remote Control Boats for Lakes and Pools"
-description: "RC toy boats offer endless fun for both kids and adults. These remote-controlled boats provide exciting water adventures in pools, lakes, and ponds. RC toy boat"
+title: 'Rc Toy Boats: Top Waterproof Remote Control Boats for Lakes and Pools'
+description: RC toy boats offer endless fun for both kids and adults. These remote-controlled
+  boats provide exciting water adventures in pools, lakes, and ponds. RC toy boat
 pubDate: 2026-03-02
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-toy-boats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-toy-boats&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **RC toy boats offer endless fun for both kids and adults. These remote-controlled boats provide exciting water adventures in pools, lakes, and ponds.**

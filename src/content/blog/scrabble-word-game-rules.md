@@ -1,10 +1,14 @@
 ---
-title: "Scrabble Word Game Rules: Master the Ultimate Word Challenge Today"
-description: "Are you ready to challenge your mind and have fun at the same time? Scrabble is more than just a word game – it’s a powerful way to boost your vocabulary and sh"
+title: 'Scrabble Word Game Rules: Master the Ultimate Word Challenge Today'
+description: Are you ready to challenge your mind and have fun at the same time? Scrabble
+  is more than just a word game – it’s a powerful way to boost your vocabulary and
+  sh
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=scrabble-word-game-rules&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=scrabble-word-game-rules&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind and have fun at the same time? Scrabble is more than just a word game – it’s a powerful way to boost your vocabulary and sharpen your thinking skills.**

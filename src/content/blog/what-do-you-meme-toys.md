@@ -1,10 +1,14 @@
 ---
-title: "What Do You Meme Toys: Ultimate Guide to Fun & Collectibles"
-description: "Are you curious about the buzz around What Do You Meme Toys? If you love memes and fun games, these toys might just be your next favorite thing. They bring your"
+title: 'What Do You Meme Toys: Ultimate Guide to Fun & Collectibles'
+description: Are you curious about the buzz around What Do You Meme Toys? If you love
+  memes and fun games, these toys might just be your next favorite thing. They bring
+  your
 pubDate: 2025-09-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-do-you-meme-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=what-do-you-meme-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you curious about the buzz around What Do You Meme Toys? If you love memes and fun games, these toys might just be your next favorite thing.**

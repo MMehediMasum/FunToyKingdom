@@ -1,10 +1,15 @@
 ---
-title: "Toy And Miniature Australian Shepherds: Top Collectible Figures and Grooming Models"
-description: "Toy and miniature Australian Shepherds are popular among dog lovers for their size and charm. These smaller versions keep the breed’s intelligence and energy in"
+title: 'Toy And Miniature Australian Shepherds: Top Collectible Figures and Grooming
+  Models'
+description: Toy and miniature Australian Shepherds are popular among dog lovers for
+  their size and charm. These smaller versions keep the breed’s intelligence and energy
+  in
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-and-miniature-australian-shepherds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-and-miniature-australian-shepherds&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Toy and miniature Australian Shepherds are popular among dog lovers for their size and charm. These smaller versions keep the breed’s intelligence and energy in a compact form.**

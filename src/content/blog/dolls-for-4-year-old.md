@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 4 Year Old: Best Picks for Fun & Learning"
-description: "Choosing the perfect doll for your 4-year-old can feel overwhelming. You want something safe, fun, and that sparks your child’s imagination. But with so many op"
+title: 'Dolls for 4 Year Old: Best Picks for Fun & Learning'
+description: Choosing the perfect doll for your 4-year-old can feel overwhelming.
+  You want something safe, fun, and that sparks your child’s imagination. But with
+  so many op
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-4-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the perfect doll for your 4-year-old can feel overwhelming. You want something safe, fun, and that sparks your child’s imagination.**

@@ -1,10 +1,14 @@
 ---
-title: "Motion Sensor Animal Chase Toy: Ultimate Fun for Pets & Kids"
-description: "Are you looking for a fun and exciting way to keep your pet entertained? The Motion Sensor Animal Chase Toy might be exactly what you need. Imagine a toy that r"
+title: 'Motion Sensor Animal Chase Toy: Ultimate Fun for Pets & Kids'
+description: Are you looking for a fun and exciting way to keep your pet entertained?
+  The Motion Sensor Animal Chase Toy might be exactly what you need. Imagine a toy
+  that r
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=motion-sensor-animal-chase-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=motion-sensor-animal-chase-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your pet entertained? The Motion Sensor Animal Chase Toy might be exactly what you need.**

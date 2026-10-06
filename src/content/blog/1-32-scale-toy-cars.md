@@ -1,10 +1,14 @@
 ---
-title: "1 32 Scale Toy Cars: Top Diecast Models with Lights and Sounds"
-description: "1:32 scale toy cars offer detailed miniatures that appeal to collectors and kids alike. These small models fit perfectly in your hand but show big style and des"
+title: '1 32 Scale Toy Cars: Top Diecast Models with Lights and Sounds'
+description: 1:32 scale toy cars offer detailed miniatures that appeal to collectors
+  and kids alike. These small models fit perfectly in your hand but show big style
+  and des
 pubDate: 2026-01-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1-32-scale-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=1-32-scale-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **1:32 scale toy cars offer detailed miniatures that appeal to collectors and kids alike. These small models fit perfectly in your hand but show big style and design.**

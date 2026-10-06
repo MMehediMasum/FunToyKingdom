@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for Teenagers: Exciting Picks for Active Fun"
-description: "Are you looking for fun ways to get your teenager outside and moving? Finding the right outdoor toys can be a game-changer for their energy, mood, and social li"
+title: 'Outdoor Toys for Teenagers: Exciting Picks for Active Fun'
+description: Are you looking for fun ways to get your teenager outside and moving?
+  Finding the right outdoor toys can be a game-changer for their energy, mood, and
+  social li
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-teenagers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-teenagers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for fun ways to get your teenager outside and moving? Finding the right outdoor toys can be a game-changer for their energy, mood, and social life.**

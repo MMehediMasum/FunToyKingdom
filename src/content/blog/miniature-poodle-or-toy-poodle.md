@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Poodle Or Toy Poodle Essential Grooming and Care Products Guide"
 description: "Miniature Poodle and Toy Poodle are two popular small dog breeds with charming looks and lively personalities. Both require special care, including proper food,"
 pubDate: 2026-02-10

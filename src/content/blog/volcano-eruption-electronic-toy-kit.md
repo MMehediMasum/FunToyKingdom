@@ -1,10 +1,14 @@
 ---
-title: "Volcano Eruption Electronic Toy Kit: Ignite Learning & Fun Instantly"
-description: "Are you ready to bring the excitement of a real volcano right into your home? The Volcano Eruption Electronic Toy Kit lets you do just that—watch your own minia"
+title: 'Volcano Eruption Electronic Toy Kit: Ignite Learning & Fun Instantly'
+description: Are you ready to bring the excitement of a real volcano right into your
+  home? The Volcano Eruption Electronic Toy Kit lets you do just that—watch your own
+  minia
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=volcano-eruption-electronic-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=volcano-eruption-electronic-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to bring the excitement of a real volcano right into your home? The Volcano Eruption Electronic Toy Kit lets you do just that—watch your own miniature volcano come to life with bubbling lava and rumbling sounds.**

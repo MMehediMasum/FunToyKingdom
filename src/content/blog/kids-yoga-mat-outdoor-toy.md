@@ -1,10 +1,14 @@
 ---
-title: "Kids Yoga Mat Outdoor Toy: Ultimate Fun and Fitness Guide"
-description: "Looking for a fun and healthy way to keep your kids active outside? A kids yoga mat outdoor toy could be exactly what you need. Imagine your child stretching, b"
+title: 'Kids Yoga Mat Outdoor Toy: Ultimate Fun and Fitness Guide'
+description: Looking for a fun and healthy way to keep your kids active outside? A
+  kids yoga mat outdoor toy could be exactly what you need. Imagine your child stretching,
+  b
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-yoga-mat-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=kids-yoga-mat-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and healthy way to keep your kids active outside? A kids yoga mat outdoor toy could be exactly what you need.**

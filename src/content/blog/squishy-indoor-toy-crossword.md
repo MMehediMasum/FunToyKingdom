@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Squishy Indoor Toy Crossword: Top Sensory Fidget Toys for Stress Relief"
 description: "Squishy indoor toy crosswords combine fun puzzles with soft, squeezeable toys. They make stress relief and playtime enjoyable for all ages. These toys come in m"
 pubDate: 2025-10-08

@@ -1,10 +1,14 @@
 ---
-title: "Best Christmas Train Set for Adults with Lights, Sound, and Smoke Effects"
-description: "Finding the best Christmas train set for adults adds festive joy and timeless charm to holiday décor. These sets combine detailed craftsmanship with fun feature"
+title: Best Christmas Train Set for Adults with Lights, Sound, and Smoke Effects
+description: Finding the best Christmas train set for adults adds festive joy and
+  timeless charm to holiday décor. These sets combine detailed craftsmanship with
+  fun feature
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-christmas-train-set-for-adults-with-lights-sound-and-smoke-effects&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-christmas-train-set-for-adults-with-lights-sound-and-smoke-effects&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best Christmas train set for adults adds festive joy and timeless charm to holiday décor. These sets combine detailed craftsmanship with fun features like lights and sounds.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Create Custom Action Figures: Ultimate Step-by-Step Guide"
-description: "Have you ever wanted a toy that’s truly one of a kind? Imagine holding an action figure that looks exactly how you envision it—your favorite character, a person"
+title: 'How to Create Custom Action Figures: Ultimate Step-by-Step Guide'
+description: Have you ever wanted a toy that’s truly one of a kind? Imagine holding
+  an action figure that looks exactly how you envision it—your favorite character,
+  a person
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-create-custom-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-create-custom-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wanted a toy that’s truly one of a kind? Imagine holding an action figure that looks exactly how you envision it—your favorite character, a personal hero, or even yourself as a superhero.**

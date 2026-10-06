@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Leopard Inflatable Pool Toy: Ultimate Summer Fun Essential"
-description: "Looking for a fun way to make your pool time unforgettable? The Outdoor Leopard Inflatable Pool Toy might be exactly what you need. Imagine lounging on a giant,"
+title: 'Outdoor Leopard Inflatable Pool Toy: Ultimate Summer Fun Essential'
+description: Looking for a fun way to make your pool time unforgettable? The Outdoor
+  Leopard Inflatable Pool Toy might be exactly what you need. Imagine lounging on
+  a giant,
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-leopard-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-leopard-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to make your pool time unforgettable? The Outdoor Leopard Inflatable Pool Toy might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Campfire: Easy Steps for a Fun Family Project"
-description: "Imagine creating a cozy campfire right in your home—without any smoke or sparks. A DIY wooden toy campfire is not only a fun project for you but also a safe, cr"
+title: 'Diy Wooden Toy Campfire: Easy Steps for a Fun Family Project'
+description: Imagine creating a cozy campfire right in your home—without any smoke
+  or sparks. A DIY wooden toy campfire is not only a fun project for you but also
+  a safe, cr
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-campfire&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-campfire&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a cozy campfire right in your home—without any smoke or sparks. A DIY wooden toy campfire is not only a fun project for you but also a safe, creative playtime companion for your kids.**

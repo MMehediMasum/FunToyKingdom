@@ -1,10 +1,14 @@
 ---
-title: "Human Anatomy Model Toy: Ultimate Guide for Learning & Fun"
-description: "Have you ever wanted to explore the amazing design of the human body in a fun and hands-on way? A human anatomy model toy can make learning about muscles, bones"
+title: 'Human Anatomy Model Toy: Ultimate Guide for Learning & Fun'
+description: Have you ever wanted to explore the amazing design of the human body
+  in a fun and hands-on way? A human anatomy model toy can make learning about muscles,
+  bones
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=human-anatomy-model-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=human-anatomy-model-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to explore the amazing design of the human body in a fun and hands-on way? A human anatomy model toy can make learning about muscles, bones, and organs simple and exciting.**

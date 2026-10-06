@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Rocket Cardboard Craft: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something fun and exciting with just a few simple materials? Making a toy rocket from cardboard is a great way to spark your crea"
+title: 'How to Make Toy Rocket Cardboard Craft: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something fun and exciting with just a
+  few simple materials? Making a toy rocket from cardboard is a great way to spark
+  your crea
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-rocket-cardboard-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Rocket Cardboard Craft
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-rocket-cardboard-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and exciting with just a few simple materials? Making a toy rocket from cardboard is a great way to spark your creativity and enjoy a hands-on project.**

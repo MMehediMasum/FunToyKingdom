@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Man Toy: Top Collectible Figures and Games for Fans"
-description: "The Monopoly Man Toy offers a nostalgic journey into the world of classic board games. Perfect for collectors and fans alike. Explore an exciting range of Monop"
+title: 'Monopoly Man Toy: Top Collectible Figures and Games for Fans'
+description: The Monopoly Man Toy offers a nostalgic journey into the world of classic
+  board games. Perfect for collectors and fans alike. Explore an exciting range of
+  Monop
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-man-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-man-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **The Monopoly Man Toy offers a nostalgic journey into the world of classic board games. Perfect for collectors and fans alike.**

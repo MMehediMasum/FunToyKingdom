@@ -1,10 +1,14 @@
 ---
-title: "Disney Cars Movie Diecast Toys: Top Collectible Mini Racer Sets Reviewed"
-description: "Disney Cars movie diecast toys bring the beloved characters from the screen to your child's playtime. These toys capture the essence of the Cars movies in minia"
+title: 'Disney Cars Movie Diecast Toys: Top Collectible Mini Racer Sets Reviewed'
+description: Disney Cars movie diecast toys bring the beloved characters from the
+  screen to your child's playtime. These toys capture the essence of the Cars movies
+  in minia
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-cars-movie-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-cars-movie-diecast-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Cars movie diecast toys bring the beloved characters from the screen to your child's playtime. These toys capture the essence of the Cars movies in miniature form.**

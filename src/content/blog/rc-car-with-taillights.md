@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Taillights: Ultimate Guide to Nighttime Racing Fun"
-description: "Imagine driving your RC car at night and seeing those bright, glowing taillights shining behind it. It’s not just cool—it makes your car stand out and adds a ne"
+title: 'Rc Car With Taillights: Ultimate Guide to Nighttime Racing Fun'
+description: Imagine driving your RC car at night and seeing those bright, glowing
+  taillights shining behind it. It’s not just cool—it makes your car stand out and
+  adds a ne
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-taillights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-taillights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine driving your RC car at night and seeing those bright, glowing taillights shining behind it. It’s not just cool—it makes your car stand out and adds a new level of excitement to your hobby.**

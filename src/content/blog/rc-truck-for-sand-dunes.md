@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck for Sand Dunes: Ultimate Guide to Off-Road Thrills"
-description: "Are you ready to take your RC truck adventures to the next level? Imagine speeding across vast sand dunes, feeling the thrill as your truck conquers every bump "
+title: 'Rc Truck for Sand Dunes: Ultimate Guide to Off-Road Thrills'
+description: 'Are you ready to take your RC truck adventures to the next level? Imagine
+  speeding across vast sand dunes, feeling the thrill as your truck conquers every
+  bump '
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-for-sand-dunes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-for-sand-dunes&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC truck adventures to the next level? Imagine speeding across vast sand dunes, feeling the thrill as your truck conquers every bump and slope with ease.**

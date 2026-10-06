@@ -1,10 +1,14 @@
 ---
-title: "Solar Powered Toy Kits for Kids: Fun, Educational & Eco-Friendly"
-description: "Imagine giving your child a toy that’s not only fun but also teaches them about clean energy. Solar powered toy kits for kids do exactly that. They spark curios"
+title: 'Solar Powered Toy Kits for Kids: Fun, Educational & Eco-Friendly'
+description: Imagine giving your child a toy that’s not only fun but also teaches
+  them about clean energy. Solar powered toy kits for kids do exactly that. They spark
+  curios
 pubDate: 2025-11-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=solar-powered-toy-kits-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=solar-powered-toy-kits-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Imagine giving your child a toy that’s not only fun but also teaches them about clean energy. Solar powered toy kits for kids do exactly that.**

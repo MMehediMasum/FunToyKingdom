@@ -1,10 +1,14 @@
 ---
-title: "Medical Toy Kit: Top Pretend Play Sets for Kids’ Imaginative Fun"
-description: "Medical toy kits offer endless fun and learning for kids. These kits spark curiosity about healthcare and develop empathy. Children love pretending to be doctor"
+title: 'Medical Toy Kit: Top Pretend Play Sets for Kids’ Imaginative Fun'
+description: Medical toy kits offer endless fun and learning for kids. These kits
+  spark curiosity about healthcare and develop empathy. Children love pretending to
+  be doctor
 pubDate: 2026-03-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=medical-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=medical-toy-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Medical toy kits offer endless fun and learning for kids. These kits spark curiosity about healthcare and develop empathy.**

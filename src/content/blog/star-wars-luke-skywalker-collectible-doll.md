@@ -1,10 +1,14 @@
 ---
-title: "Star Wars Luke Skywalker Collectible Doll: Ultimate Fan Treasure"
-description: "Are you a true Star Wars fan looking to add something special to your collection? The Star Wars Luke Skywalker collectible doll might be exactly what you need. "
+title: 'Star Wars Luke Skywalker Collectible Doll: Ultimate Fan Treasure'
+description: 'Are you a true Star Wars fan looking to add something special to your
+  collection? The Star Wars Luke Skywalker collectible doll might be exactly what
+  you need. '
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=star-wars-luke-skywalker-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=star-wars-luke-skywalker-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a true Star Wars fan looking to add something special to your collection? The Star Wars Luke Skywalker collectible doll might be exactly what you need.**

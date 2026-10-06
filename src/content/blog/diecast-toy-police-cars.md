@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Police Cars: Top Collectible Models with Lights and Sound"
-description: "Diecast toy police cars bring excitement and realism to kids’ playtime. These small metal models capture the look of real police vehicles. Diecast police cars c"
+title: 'Diecast Toy Police Cars: Top Collectible Models with Lights and Sound'
+description: Diecast toy police cars bring excitement and realism to kids’ playtime.
+  These small metal models capture the look of real police vehicles. Diecast police
+  cars c
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-police-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-police-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy police cars bring excitement and realism to kids’ playtime. These small metal models capture the look of real police vehicles.**

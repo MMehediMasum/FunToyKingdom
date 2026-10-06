@@ -1,10 +1,14 @@
 ---
-title: "Physics Experiment Toy Kits: Unlock Fun & Learning at Home"
-description: "Are you looking for a fun way to explore how the world works? Physics experiment toy kits let you do just that. These kits turn tricky science ideas into hands-"
+title: 'Physics Experiment Toy Kits: Unlock Fun & Learning at Home'
+description: Are you looking for a fun way to explore how the world works? Physics
+  experiment toy kits let you do just that. These kits turn tricky science ideas into
+  hands-
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=physics-experiment-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=physics-experiment-toy-kits&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a fun way to explore how the world works? Physics experiment toy kits let you do just that.**

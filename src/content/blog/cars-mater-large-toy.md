@@ -1,10 +1,14 @@
 ---
-title: "Cars Mater Large Toy: Ultimate Diecast Collectible for Kids and Fans"
-description: "Cars Mater Large Toy offers a thrilling world of play for kids who love the Cars movie series. These toys capture the fun and excitement of Mater, the beloved t"
+title: 'Cars Mater Large Toy: Ultimate Diecast Collectible for Kids and Fans'
+description: Cars Mater Large Toy offers a thrilling world of play for kids who love
+  the Cars movie series. These toys capture the fun and excitement of Mater, the beloved
+  t
 pubDate: 2026-02-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mater-large-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-mater-large-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Mater Large Toy offers a thrilling world of play for kids who love the Cars movie series. These toys capture the fun and excitement of Mater, the beloved tow truck character.**

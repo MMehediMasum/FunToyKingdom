@@ -1,10 +1,14 @@
 ---
-title: "Crib Hanging Toys With Lights: Captivating Baby Soothers for Sweet Dreams"
-description: "Are you looking for a way to keep your baby entertained and comforted during playtime or bedtime? Crib hanging toys with lights could be just what you need. The"
+title: 'Crib Hanging Toys With Lights: Captivating Baby Soothers for Sweet Dreams'
+description: Are you looking for a way to keep your baby entertained and comforted
+  during playtime or bedtime? Crib hanging toys with lights could be just what you
+  need. The
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=crib-hanging-toys-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=crib-hanging-toys-with-lights&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a way to keep your baby entertained and comforted during playtime or bedtime? Crib hanging toys with lights could be just what you need.**

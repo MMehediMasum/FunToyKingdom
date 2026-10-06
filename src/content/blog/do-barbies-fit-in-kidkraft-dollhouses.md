@@ -1,10 +1,14 @@
 ---
-title: "Do Barbies Fit in Kidkraft Dollhouses? Ultimate Compatibility Guide"
-description: "Are you wondering if your Barbie dolls will fit perfectly inside your Kidkraft dollhouse? You’re not alone. Many parents and kids ask this question before makin"
+title: Do Barbies Fit in Kidkraft Dollhouses? Ultimate Compatibility Guide
+description: Are you wondering if your Barbie dolls will fit perfectly inside your
+  Kidkraft dollhouse? You’re not alone. Many parents and kids ask this question before
+  makin
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-barbies-fit-in-kidkraft-dollhouses&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=do-barbies-fit-in-kidkraft-dollhouses&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you wondering if your Barbie dolls will fit perfectly inside your Kidkraft dollhouse? You’re not alone.**

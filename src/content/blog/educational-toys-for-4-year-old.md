@@ -1,10 +1,14 @@
 ---
-title: "Educational Toys for 4 Year Old: Top Picks to Boost Learning Fun"
-description: "Choosing the right toys for your 4-year-old can feel overwhelming. You want something that’s fun but also helps your child learn and grow. Educational toys are "
+title: 'Educational Toys for 4 Year Old: Top Picks to Boost Learning Fun'
+description: 'Choosing the right toys for your 4-year-old can feel overwhelming. You
+  want something that’s fun but also helps your child learn and grow. Educational
+  toys are '
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-4-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toys for your 4-year-old can feel overwhelming. You want something that’s fun but also helps your child learn and grow.**

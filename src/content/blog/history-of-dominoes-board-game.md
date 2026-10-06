@@ -1,10 +1,14 @@
 ---
-title: "History of Dominoes Board Game: Unveiling Its Timeless Legacy"
-description: "Have you ever wondered where the dominoes board game really comes from? You might think it’s just a simple pastime, but its history is full of surprising storie"
+title: 'History of Dominoes Board Game: Unveiling Its Timeless Legacy'
+description: Have you ever wondered where the dominoes board game really comes from?
+  You might think it’s just a simple pastime, but its history is full of surprising
+  storie
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-dominoes-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=history-of-dominoes-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered where the dominoes board game really comes from? You might think it’s just a simple pastime, but its history is full of surprising stories and fascinating twists.**

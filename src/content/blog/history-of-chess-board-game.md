@@ -1,10 +1,14 @@
 ---
-title: "History of Chess Board Game: Unveiling Timeless Strategies"
-description: "Have you ever wondered where the chess board game truly began? What if you could uncover the secrets behind this timeless game that has challenged minds for cen"
+title: 'History of Chess Board Game: Unveiling Timeless Strategies'
+description: Have you ever wondered where the chess board game truly began? What if
+  you could uncover the secrets behind this timeless game that has challenged minds
+  for cen
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-chess-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=history-of-chess-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered where the chess board game truly began? What if you could uncover the secrets behind this timeless game that has challenged minds for centuries?**

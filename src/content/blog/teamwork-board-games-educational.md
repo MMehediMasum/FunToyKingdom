@@ -1,10 +1,14 @@
 ---
-title: "Teamwork Board Games Educational: Boost Collaboration & Fun Skills"
-description: "Do you want to boost your team’s skills while having fun? Teamwork board games educational style are the perfect way to do just that. These games challenge you "
+title: 'Teamwork Board Games Educational: Boost Collaboration & Fun Skills'
+description: 'Do you want to boost your team’s skills while having fun? Teamwork board
+  games educational style are the perfect way to do just that. These games challenge
+  you '
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=teamwork-board-games-educational&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=teamwork-board-games-educational&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Do you want to boost your team’s skills while having fun? Teamwork board games educational style are the perfect way to do just that.**

@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Treasure Chest: Create Fun, Affordable Playtime!"
-description: "Imagine surprising your kids with a unique toy that sparks their imagination and keeps them busy for hours—all made by you! Creating a DIY cardboard toy treasur"
+title: 'Diy Cardboard Toy Treasure Chest: Create Fun, Affordable Playtime!'
+description: Imagine surprising your kids with a unique toy that sparks their imagination
+  and keeps them busy for hours—all made by you! Creating a DIY cardboard toy treasur
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-treasure-chest&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-treasure-chest&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine surprising your kids with a unique toy that sparks their imagination and keeps them busy for hours—all made by you! Creating a DIY cardboard toy treasure chest is easier than you think, and it’s a fun project that turns simple materials into something magical.**

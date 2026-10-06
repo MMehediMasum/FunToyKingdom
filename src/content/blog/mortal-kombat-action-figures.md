@@ -1,10 +1,14 @@
 ---
-title: "Mortal Kombat Action Figures: Ultimate Collectors’ Must-Have Guide"
-description: "Are you a fan of Mortal Kombat and love collecting action figures? Imagine holding your favorite fighters in your hands, ready to recreate epic battles or displ"
+title: 'Mortal Kombat Action Figures: Ultimate Collectors’ Must-Have Guide'
+description: Are you a fan of Mortal Kombat and love collecting action figures? Imagine
+  holding your favorite fighters in your hands, ready to recreate epic battles or
+  displ
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=mortal-kombat-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=mortal-kombat-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Mortal Kombat and love collecting action figures? Imagine holding your favorite fighters in your hands, ready to recreate epic battles or display them proudly on your shelf.**

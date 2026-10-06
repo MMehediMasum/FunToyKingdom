@@ -1,10 +1,13 @@
 ---
-title: "Designer Vinyl Toys Display Ideas: Stylish Acrylic Cases & Collectible Figures"
-description: "Designer vinyl toys blend art and play into collectible figures loved worldwide. These toys come in many styles, from plush to detailed vinyl dolls. Collectors "
+title: 'Designer Vinyl Toys Display Ideas: Stylish Acrylic Cases & Collectible Figures'
+description: 'Designer vinyl toys blend art and play into collectible figures loved
+  worldwide. These toys come in many styles, from plush to detailed vinyl dolls. Collectors '
 pubDate: 2026-08-24
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=designer-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=designer-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Designer vinyl toys blend art and play into collectible figures loved worldwide. These toys come in many styles, from plush to detailed vinyl dolls.**

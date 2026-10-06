@@ -1,10 +1,14 @@
 ---
-title: "Shark Fin Swimming Kids Toy: Ultimate Fun for Water Playtime"
-description: "Imagine your child diving into endless fun with a toy that turns swimming into an exciting adventure. The Shark Fin Swimming Kids Toy is designed to spark your "
+title: 'Shark Fin Swimming Kids Toy: Ultimate Fun for Water Playtime'
+description: 'Imagine your child diving into endless fun with a toy that turns swimming
+  into an exciting adventure. The Shark Fin Swimming Kids Toy is designed to spark
+  your '
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=shark-fin-swimming-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=shark-fin-swimming-kids-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Imagine your child diving into endless fun with a toy that turns swimming into an exciting adventure. The Shark Fin Swimming Kids Toy is designed to spark your little one’s imagination while keeping them active in the water.**

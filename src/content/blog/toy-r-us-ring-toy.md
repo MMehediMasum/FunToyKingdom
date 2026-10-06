@@ -1,10 +1,14 @@
 ---
-title: "Toy R Us Ring Toy: Top Light-Up and Glow-in-the-Dark Favorites"
-description: "Exploring the world of Toys R Us ring toys can be exciting for children and collectors alike. These toys offer a mix of fun, learning, and creativity. Toys R Us"
+title: 'Toy R Us Ring Toy: Top Light-Up and Glow-in-the-Dark Favorites'
+description: Exploring the world of Toys R Us ring toys can be exciting for children
+  and collectors alike. These toys offer a mix of fun, learning, and creativity. Toys
+  R Us
 pubDate: 2026-02-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-r-us-ring-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ring Stack Toy Age Guide
+heroImage: https://tse1.mm.bing.net/th?q=toy-r-us-ring-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Exploring the world of Toys R Us ring toys can be exciting for children and collectors alike. These toys offer a mix of fun, learning, and creativity.**

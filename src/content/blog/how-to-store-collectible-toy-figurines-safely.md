@@ -1,10 +1,14 @@
 ---
-title: "How to Store Collectible Toy Figurines Safely: Ultimate Guide"
-description: "Are you worried about keeping your collectible toy figurines safe from dust, damage, or fading? You’ve invested time, money, and passion into building your coll"
+title: 'How to Store Collectible Toy Figurines Safely: Ultimate Guide'
+description: Are you worried about keeping your collectible toy figurines safe from
+  dust, damage, or fading? You’ve invested time, money, and passion into building
+  your coll
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-store-collectible-toy-figurines-safely&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-store-collectible-toy-figurines-safely&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you worried about keeping your collectible toy figurines safe from dust, damage, or fading? You’ve invested time, money, and passion into building your collection, so protecting it matters.**

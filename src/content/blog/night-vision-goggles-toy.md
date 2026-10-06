@@ -1,10 +1,14 @@
 ---
-title: "Night Vision Goggles Toy: Ultimate Fun for Kids’ Night Adventures"
-description: "Imagine stepping into a world where darkness holds no secrets. With night vision goggles toy, you can turn your backyard or bedroom into a thrilling adventure z"
+title: 'Night Vision Goggles Toy: Ultimate Fun for Kids’ Night Adventures'
+description: Imagine stepping into a world where darkness holds no secrets. With night
+  vision goggles toy, you can turn your backyard or bedroom into a thrilling adventure
+  z
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=night-vision-goggles-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=night-vision-goggles-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine stepping into a world where darkness holds no secrets. With night vision goggles toy, you can turn your backyard or bedroom into a thrilling adventure zone.**

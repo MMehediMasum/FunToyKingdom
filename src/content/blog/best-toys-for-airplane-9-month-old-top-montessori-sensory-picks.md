@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for Airplane 9 Month Old: Top Montessori Sensory Picks"
-description: "Choosing the best toys for a 9-month-old on an airplane helps keep your baby happy and calm. The right toys also support learning and sensory development during"
+title: 'Best Toys for Airplane 9 Month Old: Top Montessori Sensory Picks'
+description: Choosing the best toys for a 9-month-old on an airplane helps keep your
+  baby happy and calm. The right toys also support learning and sensory development
+  during
 pubDate: 2025-12-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-airplane-9-month-old-top-montessori-sensory-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-airplane-9-month-old-top-montessori-sensory-picks&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for a 9-month-old on an airplane helps keep your baby happy and calm. The right toys also support learning and sensory development during travel.**

@@ -1,10 +1,13 @@
 ---
-title: "Interactive Outdoor Dog Toys: Top Durable Picks for Aggressive Chewers"
-description: "Interactive outdoor dog toys keep dogs active and entertained while strengthening their minds and bodies. These toys offer fun ways to play and exercise togethe"
+title: 'Interactive Outdoor Dog Toys: Top Durable Picks for Aggressive Chewers'
+description: Interactive outdoor dog toys keep dogs active and entertained while strengthening
+  their minds and bodies. These toys offer fun ways to play and exercise togethe
 pubDate: 2026-02-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-outdoor-dog-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=interactive-outdoor-dog-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Interactive outdoor dog toys keep dogs active and entertained while strengthening their minds and bodies. These toys offer fun ways to play and exercise together.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Dollhouse for 7 Year Old Girls with LED Lights and Accessories"
-description: "Choosing the best dollhouse for a 7-year-old can inspire hours of imaginative play. The right dollhouse offers fun, creativity, and learning in one package. A g"
+title: Best Dollhouse for 7 Year Old Girls with LED Lights and Accessories
+description: Choosing the best dollhouse for a 7-year-old can inspire hours of imaginative
+  play. The right dollhouse offers fun, creativity, and learning in one package. A
+  g
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouse-for-7-year-old-girls-with-led-lights-and-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouse-for-7-year-old-girls-with-led-lights-and-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dollhouse for a 7-year-old can inspire hours of imaginative play. The right dollhouse offers fun, creativity, and learning in one package.**

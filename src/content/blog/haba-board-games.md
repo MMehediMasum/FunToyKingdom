@@ -1,10 +1,14 @@
 ---
-title: "Haba Board Games: Top Cooperative and Family Fun Games for Kids"
-description: "HABA board games offer engaging and educational fun for children and families. Known for quality and creativity, these games delight players of all ages. HABA's"
+title: 'Haba Board Games: Top Cooperative and Family Fun Games for Kids'
+description: HABA board games offer engaging and educational fun for children and
+  families. Known for quality and creativity, these games delight players of all ages.
+  HABA's
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=haba-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=haba-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **HABA board games offer engaging and educational fun for children and families. Known for quality and creativity, these games delight players of all ages.**

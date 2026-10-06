@@ -1,10 +1,13 @@
 ---
-title: "How Much are American Girl Dolls Worth: Ultimate Value Guide 2026"
-description: "Are you curious about how much your American Girl dolls are really worth? Whether you have a cherished doll from your childhood or you’re thinking about selling"
+title: 'How Much are American Girl Dolls Worth: Ultimate Value Guide 2026'
+description: Are you curious about how much your American Girl dolls are really worth?
+  Whether you have a cherished doll from your childhood or you’re thinking about selling
 pubDate: 2025-12-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-are-american-girl-dolls-worth&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=how-much-are-american-girl-dolls-worth&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about how much your American Girl dolls are really worth? Whether you have a cherished doll from your childhood or you’re thinking about selling a recent addition, knowing their true value can make a big difference.**

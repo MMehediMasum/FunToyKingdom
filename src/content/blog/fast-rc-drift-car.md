@@ -1,10 +1,14 @@
 ---
-title: "Fast Rc Drift Car: Ultimate Speed and Precision Guide"
-description: "Are you ready to take your RC car experience to the next level? A fast RC drift car isn’t just a toy—it’s a thrill machine that lets you master sharp turns and "
+title: 'Fast Rc Drift Car: Ultimate Speed and Precision Guide'
+description: 'Are you ready to take your RC car experience to the next level? A fast
+  RC drift car isn’t just a toy—it’s a thrill machine that lets you master sharp turns
+  and '
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=fast-rc-drift-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=fast-rc-drift-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to the next level? A fast RC drift car isn’t just a toy—it’s a thrill machine that lets you master sharp turns and lightning-fast moves like a pro.**

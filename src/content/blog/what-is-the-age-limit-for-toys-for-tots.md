@@ -1,10 +1,14 @@
 ---
-title: "What is the Age Limit for Toys for Tots: Essential Guide 2025"
-description: "Are you wondering if your child's age fits the Toys for Tots program? Knowing the age limit is key to making sure your gift brings the biggest smile possible. Y"
+title: 'What is the Age Limit for Toys for Tots: Essential Guide 2025'
+description: Are you wondering if your child's age fits the Toys for Tots program?
+  Knowing the age limit is key to making sure your gift brings the biggest smile possible.
+  Y
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-age-limit-for-toys-for-tots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-age-limit-for-toys-for-tots&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering if your child's age fits the Toys for Tots program? Knowing the age limit is key to making sure your gift brings the biggest smile possible.**

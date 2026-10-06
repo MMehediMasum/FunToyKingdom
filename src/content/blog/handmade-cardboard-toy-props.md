@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Props: Creative Fun for Kids and Adults"
-description: "Imagine holding a toy prop that's not just fun but also made with care and creativity—something you can proudly show off or use in your projects. Handmade cardb"
+title: 'Handmade Cardboard Toy Props: Creative Fun for Kids and Adults'
+description: Imagine holding a toy prop that's not just fun but also made with care
+  and creativity—something you can proudly show off or use in your projects. Handmade
+  cardb
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-props&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-props&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a toy prop that's not just fun but also made with care and creativity—something you can proudly show off or use in your projects. Handmade cardboard toy props bring a unique charm and personality that mass-produced items simply can't match.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Oven for Kids: Easy, Fun, and Creative Craft Ideas"
-description: "Imagine giving your child a fun, creative toy that sparks their imagination without spending a fortune. You can make a DIY cardboard toy oven that feels just li"
+title: 'Diy Cardboard Toy Oven for Kids: Easy, Fun, and Creative Craft Ideas'
+description: Imagine giving your child a fun, creative toy that sparks their imagination
+  without spending a fortune. You can make a DIY cardboard toy oven that feels just
+  li
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-oven-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-oven-for-kids&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a fun, creative toy that sparks their imagination without spending a fortune. You can make a DIY cardboard toy oven that feels just like the real thing—safe, colorful, and perfect for hours of play.**

@@ -1,10 +1,14 @@
 ---
-title: "Hammock Swing for Backyard Play: Ultimate Fun and Relaxation Guide"
-description: "Imagine turning your backyard into the ultimate fun zone with something as simple as a hammock swing. You deserve a space where relaxation meets play, and a ham"
+title: 'Hammock Swing for Backyard Play: Ultimate Fun and Relaxation Guide'
+description: Imagine turning your backyard into the ultimate fun zone with something
+  as simple as a hammock swing. You deserve a space where relaxation meets play, and
+  a ham
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hammock-swing-for-backyard-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=hammock-swing-for-backyard-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone with something as simple as a hammock swing. You deserve a space where relaxation meets play, and a hammock swing is the perfect way to bring that magic to your outdoor area.**

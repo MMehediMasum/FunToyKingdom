@@ -1,10 +1,14 @@
 ---
-title: "How Do You Say Board Games in Spanish: Essential Vocabulary Guide"
-description: "Have you ever wanted to talk about your favorite board games in Spanish but didn’t know where to start? Learning how to say \"board games\" in Spanish can open up"
+title: 'How Do You Say Board Games in Spanish: Essential Vocabulary Guide'
+description: Have you ever wanted to talk about your favorite board games in Spanish
+  but didn’t know where to start? Learning how to say "board games" in Spanish can
+  open up
 pubDate: 2025-09-04
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-say-board-games-in-spanish&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-say-board-games-in-spanish&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wanted to talk about your favorite board games in Spanish but didn’t know where to start? Learning how to say "board games" in Spanish can open up new ways for you to connect with friends, family, or fellow game lovers.**

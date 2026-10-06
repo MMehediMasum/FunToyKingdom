@@ -1,10 +1,14 @@
 ---
-title: "Pokemon Legendary Action Figure Collectibles: Ultimate Guide to Rare Finds"
-description: "Are you a fan of Pokémon and love collecting unique items? Imagine owning action figures of the most powerful and rare Pokémon—those legendary creatures that ev"
+title: 'Pokemon Legendary Action Figure Collectibles: Ultimate Guide to Rare Finds'
+description: Are you a fan of Pokémon and love collecting unique items? Imagine owning
+  action figures of the most powerful and rare Pokémon—those legendary creatures that
+  ev
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=pokemon-legendary-action-figure-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=pokemon-legendary-action-figure-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Pokémon and love collecting unique items? Imagine owning action figures of the most powerful and rare Pokémon—those legendary creatures that everyone talks about.**

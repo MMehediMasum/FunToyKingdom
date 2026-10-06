@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Indoor Use: Top Fun & Safe Picks for Kids"
-description: "Looking for a fun and safe way to keep your little one entertained indoors? A ride on toy for indoor use could be just what you need. It’s more than just a toy—"
+title: 'Ride on Toy for Indoor Use: Top Fun & Safe Picks for Kids'
+description: Looking for a fun and safe way to keep your little one entertained indoors?
+  A ride on toy for indoor use could be just what you need. It’s more than just a
+  toy—
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-indoor-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-indoor-use&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your little one entertained indoors? A ride on toy for indoor use could be just what you need.**

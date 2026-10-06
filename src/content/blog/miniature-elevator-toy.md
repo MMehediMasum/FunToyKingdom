@@ -1,10 +1,13 @@
 ---
-title: "Miniature Elevator Toy: Top DIY Kits and STEM Models for Kids Fun"
-description: "Miniature elevator toys offer a fun way to explore simple machines and engineering. These small models mimic real elevators and engage curious minds. Miniature "
+title: 'Miniature Elevator Toy: Top DIY Kits and STEM Models for Kids Fun'
+description: 'Miniature elevator toys offer a fun way to explore simple machines and
+  engineering. These small models mimic real elevators and engage curious minds. Miniature '
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-elevator-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-elevator-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature elevator toys offer a fun way to explore simple machines and engineering. These small models mimic real elevators and engage curious minds.**

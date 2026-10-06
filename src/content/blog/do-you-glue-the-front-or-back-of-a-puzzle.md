@@ -1,10 +1,14 @@
 ---
-title: "Do You Glue the Front Or Back of a Puzzle: Expert Tips Revealed"
-description: "Have you ever finished a puzzle and wondered, “Do I glue the front or the back?” It’s a question that can make or break your masterpiece. You want to keep your "
+title: 'Do You Glue the Front Or Back of a Puzzle: Expert Tips Revealed'
+description: 'Have you ever finished a puzzle and wondered, “Do I glue the front or
+  the back?” It’s a question that can make or break your masterpiece. You want to
+  keep your '
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-glue-the-front-or-back-of-a-puzzle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Puzzle For Framing
+heroImage: https://tse1.mm.bing.net/th?q=do-you-glue-the-front-or-back-of-a-puzzle&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever finished a puzzle and wondered, “Do I glue the front or the back?” It’s a question that can make or break your masterpiece. You want to keep your hard work safe, but choosing the wrong side to glue might ruin the picture or make it harder to display.**

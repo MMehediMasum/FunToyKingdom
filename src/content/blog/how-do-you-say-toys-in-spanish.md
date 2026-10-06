@@ -1,10 +1,13 @@
 ---
-title: "How Do You Say Toys in Spanish: Essential Words for Beginners"
-description: "Have you ever wondered how to say “toys” in Spanish? Whether you’re chatting with a friend, shopping for gifts, or helping your child learn a new language, know"
+title: 'How Do You Say Toys in Spanish: Essential Words for Beginners'
+description: Have you ever wondered how to say “toys” in Spanish? Whether you’re chatting
+  with a friend, shopping for gifts, or helping your child learn a new language, know
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-say-toys-in-spanish&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-say-toys-in-spanish&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered how to say “toys” in Spanish? Whether you’re chatting with a friend, shopping for gifts, or helping your child learn a new language, knowing this simple word can open up fun and meaningful conversations.**

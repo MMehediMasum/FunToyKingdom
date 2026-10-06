@@ -1,10 +1,14 @@
 ---
-title: "What Stores Have Coin Toy Machines: Top Spots to Find Fun Toys"
-description: "Have you ever found yourself hunting for a fun, small treasure while out shopping? Coin toy machines are a simple joy that can brighten your day and bring out y"
+title: 'What Stores Have Coin Toy Machines: Top Spots to Find Fun Toys'
+description: Have you ever found yourself hunting for a fun, small treasure while
+  out shopping? Coin toy machines are a simple joy that can brighten your day and
+  bring out y
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-stores-have-coin-toy-machines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=what-stores-have-coin-toy-machines&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever found yourself hunting for a fun, small treasure while out shopping? Coin toy machines are a simple joy that can brighten your day and bring out your inner child.**

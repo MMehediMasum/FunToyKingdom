@@ -1,10 +1,14 @@
 ---
-title: "Ladder Toss Game Backyard Toy: Ultimate Fun for All Ages"
-description: "Looking for a fun way to bring your friends and family together outdoors? The Ladder Toss Game Backyard Toy is exactly what you need to turn any gathering into "
+title: 'Ladder Toss Game Backyard Toy: Ultimate Fun for All Ages'
+description: 'Looking for a fun way to bring your friends and family together outdoors?
+  The Ladder Toss Game Backyard Toy is exactly what you need to turn any gathering
+  into '
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ladder-toss-game-backyard-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=ladder-toss-game-backyard-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your friends and family together outdoors? The Ladder Toss Game Backyard Toy is exactly what you need to turn any gathering into an exciting, laughter-filled event.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 2 Year Old: Top Realistic and Soft Baby Dolls Picks"
-description: "Choosing the best dolls for a 2-year-old helps support their growth and creativity. Dolls offer comfort, fun, and teach important skills like empathy and care. "
+title: 'Best Dolls for 2 Year Old: Top Realistic and Soft Baby Dolls Picks'
+description: 'Choosing the best dolls for a 2-year-old helps support their growth
+  and creativity. Dolls offer comfort, fun, and teach important skills like empathy
+  and care. '
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-2-year-old-top-realistic-and-soft-baby-dolls-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-2-year-old-top-realistic-and-soft-baby-dolls-picks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for a 2-year-old helps support their growth and creativity. Dolls offer comfort, fun, and teach important skills like empathy and care.**

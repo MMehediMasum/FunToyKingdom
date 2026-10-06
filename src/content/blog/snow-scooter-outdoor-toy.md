@@ -1,10 +1,14 @@
 ---
-title: "Snow Scooter Outdoor Toy: Ultimate Winter Fun for Kids"
-description: "Imagine turning a snowy day into your most exciting adventure yet. With a Snow Scooter Outdoor Toy, you can glide effortlessly over fresh powder and feel the th"
+title: 'Snow Scooter Outdoor Toy: Ultimate Winter Fun for Kids'
+description: Imagine turning a snowy day into your most exciting adventure yet. With
+  a Snow Scooter Outdoor Toy, you can glide effortlessly over fresh powder and feel
+  the th
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=snow-scooter-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=snow-scooter-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning a snowy day into your most exciting adventure yet. With a Snow Scooter Outdoor Toy, you can glide effortlessly over fresh powder and feel the thrill of winter like never before.**

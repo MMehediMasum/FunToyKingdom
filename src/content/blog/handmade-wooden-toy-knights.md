@@ -1,10 +1,13 @@
 ---
-title: "Handmade Wooden Toy Knights: Timeless Craftsmanship for Kids"
-description: "Imagine giving your child a toy that sparks creativity, encourages imaginative play, and lasts for years. Handmade wooden toy knights do just that. These charmi"
+title: 'Handmade Wooden Toy Knights: Timeless Craftsmanship for Kids'
+description: Imagine giving your child a toy that sparks creativity, encourages imaginative
+  play, and lasts for years. Handmade wooden toy knights do just that. These charmi
 pubDate: 2026-05-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-knights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-knights&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages imaginative play, and lasts for years. Handmade wooden toy knights do just that.**

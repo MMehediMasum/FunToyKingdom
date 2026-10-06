@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Cow Inflatable Toy for Kids: Fun & Safe Playtime Essential"
-description: "Looking for a fun and unique way to keep your kids entertained outdoors? The Outdoor Cow Inflatable Toy for Kids might be just what you need. Imagine your child"
+title: 'Outdoor Cow Inflatable Toy for Kids: Fun & Safe Playtime Essential'
+description: Looking for a fun and unique way to keep your kids entertained outdoors?
+  The Outdoor Cow Inflatable Toy for Kids might be just what you need. Imagine your
+  child
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-cow-inflatable-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-cow-inflatable-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to keep your kids entertained outdoors? The Outdoor Cow Inflatable Toy for Kids might be just what you need.**

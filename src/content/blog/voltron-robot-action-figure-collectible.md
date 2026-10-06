@@ -1,10 +1,14 @@
 ---
-title: "Voltron Robot Action Figure Collectible: Ultimate Fan's Must-Have Guide"
-description: "If you’re a fan of epic battles and legendary heroes, the Voltron Robot Action Figure Collectible is made just for you. Imagine holding the power of five mighty"
+title: 'Voltron Robot Action Figure Collectible: Ultimate Fan''s Must-Have Guide'
+description: If you’re a fan of epic battles and legendary heroes, the Voltron Robot
+  Action Figure Collectible is made just for you. Imagine holding the power of five
+  mighty
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=voltron-robot-action-figure-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=voltron-robot-action-figure-collectible&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **If you’re a fan of epic battles and legendary heroes, the Voltron Robot Action Figure Collectible is made just for you. Imagine holding the power of five mighty lions combined into one unstoppable robot right in your hands.**

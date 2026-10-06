@@ -1,10 +1,14 @@
 ---
-title: "Rc Offroad Truck Waterproof: Ultimate Guide to Rugged Adventure"
-description: "Are you tired of your RC offroad truck giving up as soon as it hits mud or a puddle? Imagine taking your truck anywhere—rain, mud, or shallow water—without worr"
+title: 'Rc Offroad Truck Waterproof: Ultimate Guide to Rugged Adventure'
+description: Are you tired of your RC offroad truck giving up as soon as it hits mud
+  or a puddle? Imagine taking your truck anywhere—rain, mud, or shallow water—without
+  worr
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-offroad-truck-waterproof&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-offroad-truck-waterproof&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of your RC offroad truck giving up as soon as it hits mud or a puddle? Imagine taking your truck anywhere—rain, mud, or shallow water—without worrying about damage.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why am I Bleeding After Using a Toy: Causes & Quick Solutions"
 description: "Have you ever noticed unexpected bleeding after using a toy and wondered why it’s happening? It can be alarming and confusing, especially when you don’t know if"
 pubDate: 2026-01-08

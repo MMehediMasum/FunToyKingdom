@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make Your Own Board Game: Ultimate Step-by-Step Guide"
-description: "Have you ever wondered how to turn your ideas into a fun, exciting board game? Making your own board game is easier than you think, and it’s a great way to brin"
+title: 'How Do You Make Your Own Board Game: Ultimate Step-by-Step Guide'
+description: Have you ever wondered how to turn your ideas into a fun, exciting board
+  game? Making your own board game is easier than you think, and it’s a great way
+  to brin
 pubDate: 2025-09-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-your-own-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-your-own-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how to turn your ideas into a fun, exciting board game? Making your own board game is easier than you think, and it’s a great way to bring your creativity to life.**

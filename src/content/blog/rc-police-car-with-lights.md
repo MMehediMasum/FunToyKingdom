@@ -1,10 +1,13 @@
 ---
-title: "Rc Police Car With Lights: Ultimate Fun for Kids and Collectors"
-description: "Imagine holding the power of a real police car right in your hands. With an RC police car with lights, you don’t just drive—you command attention and excitement"
+title: 'Rc Police Car With Lights: Ultimate Fun for Kids and Collectors'
+description: Imagine holding the power of a real police car right in your hands. With
+  an RC police car with lights, you don’t just drive—you command attention and excitement
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-police-car-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-police-car-with-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine holding the power of a real police car right in your hands. With an RC police car with lights, you don’t just drive—you command attention and excitement.**

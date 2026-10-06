@@ -1,10 +1,14 @@
 ---
-title: "Tow Mater Toy Car: The Ultimate Collectible for Kids and Fans"
-description: "Tow Mater Toy Car is a popular choice among kids who love the Cars movies. This toy brings Mater, the friendly tow truck, to life in a fun, easy-to-play way. Fa"
+title: 'Tow Mater Toy Car: The Ultimate Collectible for Kids and Fans'
+description: Tow Mater Toy Car is a popular choice among kids who love the Cars movies.
+  This toy brings Mater, the friendly tow truck, to life in a fun, easy-to-play way.
+  Fa
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tow-mater-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=tow-mater-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Tow Mater Toy Car is a popular choice among kids who love the Cars movies. This toy brings Mater, the friendly tow truck, to life in a fun, easy-to-play way.**

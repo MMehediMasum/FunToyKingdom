@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Agility Ladder for Kids: Boost Fun & Fitness Fast"
-description: "Are you looking for a fun and effective way to boost your child’s coordination and fitness? An outdoor agility ladder for kids might be just what you need. It’s"
+title: 'Outdoor Agility Ladder for Kids: Boost Fun & Fitness Fast'
+description: Are you looking for a fun and effective way to boost your child’s coordination
+  and fitness? An outdoor agility ladder for kids might be just what you need. It’s
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-agility-ladder-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-agility-ladder-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and effective way to boost your child’s coordination and fitness? An outdoor agility ladder for kids might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Go Toy Partner Event: Ultimate Family Game Fun and Excitement"
-description: "Monopoly Go Toy Partner Event brings excitement for board game lovers of all ages. Discover a variety of Monopoly games perfect for family fun. This event showc"
+title: 'Monopoly Go Toy Partner Event: Ultimate Family Game Fun and Excitement'
+description: Monopoly Go Toy Partner Event brings excitement for board game lovers
+  of all ages. Discover a variety of Monopoly games perfect for family fun. This event
+  showc
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-go-toy-partner-event&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-go-toy-partner-event&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Monopoly Go Toy Partner Event brings excitement for board game lovers of all ages. Discover a variety of Monopoly games perfect for family fun.**

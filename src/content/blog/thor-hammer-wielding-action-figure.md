@@ -1,10 +1,14 @@
 ---
-title: "Thor Hammer Wielding Action Figure: Ultimate Collector’s Dream!"
-description: "Are you ready to bring the power of Thor right into your hands? The Thor Hammer Wielding Action Figure is not just a toy—it’s an experience. Imagine holding Mjo"
+title: 'Thor Hammer Wielding Action Figure: Ultimate Collector’s Dream!'
+description: Are you ready to bring the power of Thor right into your hands? The Thor
+  Hammer Wielding Action Figure is not just a toy—it’s an experience. Imagine holding
+  Mjo
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=thor-hammer-wielding-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=thor-hammer-wielding-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring the power of Thor right into your hands? The Thor Hammer Wielding Action Figure is not just a toy—it’s an experience.**

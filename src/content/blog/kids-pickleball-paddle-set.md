@@ -1,10 +1,14 @@
 ---
-title: "Kids Pickleball Paddle Set: Ultimate Fun and Durable Gear Guide"
-description: "Are you looking for the perfect way to introduce your kids to pickleball? A Kids Pickleball Paddle Set could be exactly what you need. Choosing the right paddle"
+title: 'Kids Pickleball Paddle Set: Ultimate Fun and Durable Gear Guide'
+description: Are you looking for the perfect way to introduce your kids to pickleball?
+  A Kids Pickleball Paddle Set could be exactly what you need. Choosing the right
+  paddle
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-pickleball-paddle-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=kids-pickleball-paddle-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect way to introduce your kids to pickleball? A Kids Pickleball Paddle Set could be exactly what you need.**

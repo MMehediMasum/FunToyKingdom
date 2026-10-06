@@ -1,10 +1,14 @@
 ---
-title: "Rc Rally Car Toy With Lights: Ultimate Fun and Thrilling Races"
-description: "Are you ready to take your playtime to the next level? Imagine controlling a sleek RC rally car toy that lights up as it speeds across your room or backyard. Th"
+title: 'Rc Rally Car Toy With Lights: Ultimate Fun and Thrilling Races'
+description: Are you ready to take your playtime to the next level? Imagine controlling
+  a sleek RC rally car toy that lights up as it speeds across your room or backyard.
+  Th
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-rally-car-toy-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-rally-car-toy-with-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your playtime to the next level? Imagine controlling a sleek RC rally car toy that lights up as it speeds across your room or backyard.**

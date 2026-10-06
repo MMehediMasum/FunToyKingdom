@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Koala Inflatable Pool Toy: Ultimate Summer Fun Essential"
-description: "Looking for a fun way to make your outdoor time more exciting? The Outdoor Koala Inflatable Pool Toy is exactly what you need. Imagine relaxing in your pool wit"
+title: 'Outdoor Koala Inflatable Pool Toy: Ultimate Summer Fun Essential'
+description: Looking for a fun way to make your outdoor time more exciting? The Outdoor
+  Koala Inflatable Pool Toy is exactly what you need. Imagine relaxing in your pool
+  wit
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-koala-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-koala-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to make your outdoor time more exciting? The Outdoor Koala Inflatable Pool Toy is exactly what you need.**

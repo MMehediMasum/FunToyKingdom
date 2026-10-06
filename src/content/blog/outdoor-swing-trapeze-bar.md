@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Swing Trapeze Bar: Ultimate Fun and Safety Guide"
-description: "Are you looking to add excitement and fun to your outdoor space? An outdoor swing trapeze bar might be just what you need. It’s not only a great way to enjoy fr"
+title: 'Outdoor Swing Trapeze Bar: Ultimate Fun and Safety Guide'
+description: Are you looking to add excitement and fun to your outdoor space? An outdoor
+  swing trapeze bar might be just what you need. It’s not only a great way to enjoy
+  fr
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-swing-trapeze-bar&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-swing-trapeze-bar&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking to add excitement and fun to your outdoor space? An outdoor swing trapeze bar might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Toys for Car Trips: Top Magnetic Travel Activities for Kids Fun"
-description: "Toys for car trips keep kids busy and happy during long rides. Choosing the right travel toys makes the journey smoother for everyone. Car trips can get long an"
+title: 'Toys for Car Trips: Top Magnetic Travel Activities for Kids Fun'
+description: Toys for car trips keep kids busy and happy during long rides. Choosing
+  the right travel toys makes the journey smoother for everyone. Car trips can get
+  long an
 pubDate: 2026-01-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-car-trips&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-car-trips&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toys for car trips keep kids busy and happy during long rides. Choosing the right travel toys makes the journey smoother for everyone.**

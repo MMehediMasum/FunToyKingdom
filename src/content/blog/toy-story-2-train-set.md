@@ -1,10 +1,13 @@
 ---
-title: "Toy Story 2 Train Set: Ultimate Building Fun for Toddlers and Kids"
-description: "Toy Story 2 Train Set delights young fans with engaging play. These train sets offer endless adventure for preschoolers. Parents searching for fun and education"
+title: 'Toy Story 2 Train Set: Ultimate Building Fun for Toddlers and Kids'
+description: Toy Story 2 Train Set delights young fans with engaging play. These train
+  sets offer endless adventure for preschoolers. Parents searching for fun and education
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-2-train-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-2-train-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story 2 Train Set delights young fans with engaging play. These train sets offer endless adventure for preschoolers.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Water Guns for Summer Fun: Ultimate Picks for Epic Battles"
-description: "Ready to turn up the fun this summer? Whether you’re planning a backyard battle or a splashy pool party, the right water gun can make all the difference. You wa"
+title: 'Best Water Guns for Summer Fun: Ultimate Picks for Epic Battles'
+description: Ready to turn up the fun this summer? Whether you’re planning a backyard
+  battle or a splashy pool party, the right water gun can make all the difference.
+  You wa
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-water-guns-for-summer-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-water-guns-for-summer-fun&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Ready to turn up the fun this summer? Whether you’re planning a backyard battle or a splashy pool party, the right water gun can make all the difference.**

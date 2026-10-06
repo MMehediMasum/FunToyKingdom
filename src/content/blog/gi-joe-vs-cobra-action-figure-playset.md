@@ -1,10 +1,14 @@
 ---
-title: "Gi Joe Vs Cobra Action Figure Playset: Ultimate Battle Experience"
-description: "Are you ready to bring your favorite battles to life? The Gi Joe Vs Cobra Action Figure Playset lets you dive straight into the heart of the action. Imagine con"
+title: 'Gi Joe Vs Cobra Action Figure Playset: Ultimate Battle Experience'
+description: Are you ready to bring your favorite battles to life? The Gi Joe Vs Cobra
+  Action Figure Playset lets you dive straight into the heart of the action. Imagine
+  con
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=gi-joe-vs-cobra-action-figure-playset&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=gi-joe-vs-cobra-action-figure-playset&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring your favorite battles to life? The Gi Joe Vs Cobra Action Figure Playset lets you dive straight into the heart of the action.**

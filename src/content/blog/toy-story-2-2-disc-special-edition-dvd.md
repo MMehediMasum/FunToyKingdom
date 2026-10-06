@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 2 2 Disc Special Edition DVD: Ultimate Collector’s Must-Have Set"
 description: "Toy Story 2, a beloved animated film, returns with a special two-disc DVD edition. This edition promises a delightful viewing experience for fans. Toy Story 2 c"
 pubDate: 2026-08-21

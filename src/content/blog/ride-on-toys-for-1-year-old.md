@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toys for 1 Year Old: Top Safe & Fun Picks for Toddlers"
-description: "Choosing the perfect ride-on toy for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one grow. Imagine your chil"
+title: 'Ride on Toys for 1 Year Old: Top Safe & Fun Picks for Toddlers'
+description: Choosing the perfect ride-on toy for your 1-year-old can feel overwhelming.
+  You want something safe, fun, and that helps your little one grow. Imagine your
+  chil
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toys-for-1-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Choosing the perfect ride-on toy for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one grow.**

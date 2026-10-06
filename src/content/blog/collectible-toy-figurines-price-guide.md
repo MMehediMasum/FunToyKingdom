@@ -1,10 +1,14 @@
 ---
-title: "Collectible Toy Figurines Price Guide: Ultimate Expert Valuation Tips"
-description: "Are you curious about the true value of your collectible toy figurines? Whether you’re a seasoned collector or just starting out, knowing the right price for yo"
+title: 'Collectible Toy Figurines Price Guide: Ultimate Expert Valuation Tips'
+description: Are you curious about the true value of your collectible toy figurines?
+  Whether you’re a seasoned collector or just starting out, knowing the right price
+  for yo
 pubDate: 2026-07-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-toy-figurines-price-guide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=collectible-toy-figurines-price-guide&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about the true value of your collectible toy figurines? Whether you’re a seasoned collector or just starting out, knowing the right price for your treasures can make all the difference.**

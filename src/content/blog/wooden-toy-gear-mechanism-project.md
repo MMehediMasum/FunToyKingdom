@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Gear Mechanism Project: Build Fun, Functional Toys Fast"
-description: "Have you ever wondered how gears work together to create motion? Imagine building your very own wooden toy gear mechanism that moves smoothly and teaches you th"
+title: 'Wooden Toy Gear Mechanism Project: Build Fun, Functional Toys Fast'
+description: Have you ever wondered how gears work together to create motion? Imagine
+  building your very own wooden toy gear mechanism that moves smoothly and teaches
+  you th
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-gear-mechanism-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-gear-mechanism-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how gears work together to create motion? Imagine building your very own wooden toy gear mechanism that moves smoothly and teaches you the basics of engineering.**

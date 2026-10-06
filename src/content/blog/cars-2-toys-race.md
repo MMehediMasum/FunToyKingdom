@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Toys Race Track Playsets: Ultimate Fun for Kids of All Ages"
-description: "Cars 2 Toys Race brings excitement to kids who love racing and colorful cars. This fun playset includes popular characters and thrilling race tracks. Kids enjoy"
+title: 'Cars 2 Toys Race Track Playsets: Ultimate Fun for Kids of All Ages'
+description: Cars 2 Toys Race brings excitement to kids who love racing and colorful
+  cars. This fun playset includes popular characters and thrilling race tracks. Kids
+  enjoy
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-toys-race&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-toys-race&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 2 Toys Race brings excitement to kids who love racing and colorful cars. This fun playset includes popular characters and thrilling race tracks.**

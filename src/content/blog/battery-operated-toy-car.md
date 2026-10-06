@@ -1,10 +1,14 @@
 ---
-title: "Battery Operated Toy Car: Top Glow-in-the-Dark Race Cars for Kids"
-description: "Battery operated toy cars offer exciting playtime with easy controls and bright LED lights. Kids enjoy racing, stunts, and glowing effects that add fun to every"
+title: 'Battery Operated Toy Car: Top Glow-in-the-Dark Race Cars for Kids'
+description: Battery operated toy cars offer exciting playtime with easy controls
+  and bright LED lights. Kids enjoy racing, stunts, and glowing effects that add fun
+  to every
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=battery-operated-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=battery-operated-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Battery operated toy cars offer exciting playtime with easy controls and bright LED lights. Kids enjoy racing, stunts, and glowing effects that add fun to every ride.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Gnome Village: Magical Crafting Ideas for Kids"
-description: "Imagine creating a magical wooden toy gnome village right in your own home. You can bring charm and creativity together with a simple DIY project that’s fun for"
+title: 'Diy Wooden Toy Gnome Village: Magical Crafting Ideas for Kids'
+description: Imagine creating a magical wooden toy gnome village right in your own
+  home. You can bring charm and creativity together with a simple DIY project that’s
+  fun for
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-gnome-village&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-gnome-village&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a magical wooden toy gnome village right in your own home. You can bring charm and creativity together with a simple DIY project that’s fun for all ages.**

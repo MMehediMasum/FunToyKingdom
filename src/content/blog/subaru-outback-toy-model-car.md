@@ -1,10 +1,14 @@
 ---
-title: "Subaru Outback Toy Model Car: Perfect Collectible for Kids and Adults"
-description: "The Subaru Outback toy model car captures the spirit of this popular SUV in miniature form. It offers detailed design and fun features for collectors and kids a"
+title: 'Subaru Outback Toy Model Car: Perfect Collectible for Kids and Adults'
+description: The Subaru Outback toy model car captures the spirit of this popular
+  SUV in miniature form. It offers detailed design and fun features for collectors
+  and kids a
 pubDate: 2026-03-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=subaru-outback-toy-model-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=subaru-outback-toy-model-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Subaru Outback toy model car captures the spirit of this popular SUV in miniature form. It offers detailed design and fun features for collectors and kids alike.**

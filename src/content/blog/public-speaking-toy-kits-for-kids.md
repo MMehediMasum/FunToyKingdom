@@ -1,10 +1,14 @@
 ---
-title: "Public Speaking Toy Kits for Kids: Boost Confidence & Fun Learning"
-description: "Do you want your child to speak confidently in front of others? Public speaking can be scary, but it doesn’t have to be. Imagine your child having fun while lea"
+title: 'Public Speaking Toy Kits for Kids: Boost Confidence & Fun Learning'
+description: Do you want your child to speak confidently in front of others? Public
+  speaking can be scary, but it doesn’t have to be. Imagine your child having fun
+  while lea
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=public-speaking-toy-kits-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=public-speaking-toy-kits-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Do you want your child to speak confidently in front of others? Public speaking can be scary, but it doesn’t have to be.**

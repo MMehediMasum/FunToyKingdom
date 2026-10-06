@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat for Kids Pool Use: Ultimate Fun & Safe Choices"
-description: "Looking for a fun and safe way to keep your kids entertained in the pool? An RC boat designed specifically for kids’ pool use might be exactly what you need. Im"
+title: 'Rc Boat for Kids Pool Use: Ultimate Fun & Safe Choices'
+description: Looking for a fun and safe way to keep your kids entertained in the pool?
+  An RC boat designed specifically for kids’ pool use might be exactly what you need.
+  Im
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-for-kids-pool-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-for-kids-pool-use&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained in the pool? An RC boat designed specifically for kids’ pool use might be exactly what you need.**

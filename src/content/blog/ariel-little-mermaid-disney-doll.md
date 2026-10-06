@@ -1,10 +1,14 @@
 ---
-title: "Ariel Little Mermaid Disney Doll: Ultimate Collector’s Must-Have Guide"
-description: "If you’re a fan of Disney magic and timeless tales, the Ariel Little Mermaid Disney Doll is something you’ll want to discover. This doll brings your favorite un"
+title: 'Ariel Little Mermaid Disney Doll: Ultimate Collector’s Must-Have Guide'
+description: If you’re a fan of Disney magic and timeless tales, the Ariel Little
+  Mermaid Disney Doll is something you’ll want to discover. This doll brings your
+  favorite un
 pubDate: 2025-12-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=ariel-little-mermaid-disney-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=ariel-little-mermaid-disney-doll&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you’re a fan of Disney magic and timeless tales, the Ariel Little Mermaid Disney Doll is something you’ll want to discover. This doll brings your favorite underwater princess right into your hands, sparking joy and imagination like never before.**

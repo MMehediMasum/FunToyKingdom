@@ -1,10 +1,14 @@
 ---
-title: "Cars Ramone Toy: Ultimate Guide to Disney Pixar Diecast Collectibles"
-description: "Ramone is a popular character from the Disney Pixar Cars movies. His toy versions come in many styles and colors that kids love. Ramone toys capture the cool, c"
+title: 'Cars Ramone Toy: Ultimate Guide to Disney Pixar Diecast Collectibles'
+description: Ramone is a popular character from the Disney Pixar Cars movies. His
+  toy versions come in many styles and colors that kids love. Ramone toys capture
+  the cool, c
 pubDate: 2026-01-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-ramone-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-ramone-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Ramone is a popular character from the Disney Pixar Cars movies. His toy versions come in many styles and colors that kids love.**

@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Cerebral Palsy: Top Calming Fidget Toys for Special Needs"
-description: "Sensory toys play a crucial role in supporting children with cerebral palsy. They offer stimulation and promote sensory development. Children with cerebral pals"
+title: 'Sensory Toys for Cerebral Palsy: Top Calming Fidget Toys for Special Needs'
+description: Sensory toys play a crucial role in supporting children with cerebral
+  palsy. They offer stimulation and promote sensory development. Children with cerebral
+  pals
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-cerebral-palsy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-cerebral-palsy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys play a crucial role in supporting children with cerebral palsy. They offer stimulation and promote sensory development.**

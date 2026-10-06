@@ -1,10 +1,14 @@
 ---
-title: "Where is Learning Express Toys: Find Your Nearest Store Fast"
-description: "Are you wondering where you can find Learning Express Toys near you? Whether you’re searching for the perfect educational toy or a unique gift that sparks creat"
+title: 'Where is Learning Express Toys: Find Your Nearest Store Fast'
+description: Are you wondering where you can find Learning Express Toys near you?
+  Whether you’re searching for the perfect educational toy or a unique gift that sparks
+  creat
 pubDate: 2025-09-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-learning-express-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=where-is-learning-express-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you wondering where you can find Learning Express Toys near you? Whether you’re searching for the perfect educational toy or a unique gift that sparks creativity, knowing where to go makes all the difference.**

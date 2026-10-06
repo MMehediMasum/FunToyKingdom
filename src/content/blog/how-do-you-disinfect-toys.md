@@ -1,10 +1,14 @@
 ---
-title: "How Do You Disinfect Toys: Expert Tips for Safe Cleaning"
-description: "Your child’s toys are more than just playthings—they’re a gateway to learning and fun. But have you ever stopped to think about how clean those toys really are?"
+title: 'How Do You Disinfect Toys: Expert Tips for Safe Cleaning'
+description: Your child’s toys are more than just playthings—they’re a gateway to
+  learning and fun. But have you ever stopped to think about how clean those toys
+  really are?
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-disinfect-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-disinfect-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Your child’s toys are more than just playthings—they’re a gateway to learning and fun. But have you ever stopped to think about how clean those toys really are?**

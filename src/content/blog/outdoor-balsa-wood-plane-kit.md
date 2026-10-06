@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Balsa Wood Plane Kit: Build, Fly & Enjoy Endless Fun"
-description: "Are you ready to build something fun that flies? The Outdoor Balsa Wood Plane Kit is perfect for you. It’s simple to assemble, yet gives you the thrill of watch"
+title: 'Outdoor Balsa Wood Plane Kit: Build, Fly & Enjoy Endless Fun'
+description: Are you ready to build something fun that flies? The Outdoor Balsa Wood
+  Plane Kit is perfect for you. It’s simple to assemble, yet gives you the thrill
+  of watch
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-balsa-wood-plane-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-balsa-wood-plane-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to build something fun that flies? The Outdoor Balsa Wood Plane Kit is perfect for you.**

@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Parallel Bars Kids Training: Ultimate Fun & Fitness Guide"
-description: "Are you looking for a fun and effective way to boost your child’s strength, balance, and coordination? Outdoor parallel bars for kids training might be exactly "
+title: 'Outdoor Parallel Bars Kids Training: Ultimate Fun & Fitness Guide'
+description: 'Are you looking for a fun and effective way to boost your child’s strength,
+  balance, and coordination? Outdoor parallel bars for kids training might be exactly '
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-parallel-bars-kids-training&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-parallel-bars-kids-training&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and effective way to boost your child’s strength, balance, and coordination? Outdoor parallel bars for kids training might be exactly what you need.**

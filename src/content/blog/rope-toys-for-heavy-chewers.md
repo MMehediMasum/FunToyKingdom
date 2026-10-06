@@ -1,10 +1,14 @@
 ---
-title: "Rope Toys for Heavy Chewers: Durable Tug-of-War and Teeth Cleaning Solutions"
-description: "Rope toys offer strong, fun play for dogs that chew hard. They help keep teeth clean and stop boredom. Heavy chewers need toys that last and stay safe. Rope toy"
+title: 'Rope Toys for Heavy Chewers: Durable Tug-of-War and Teeth Cleaning Solutions'
+description: Rope toys offer strong, fun play for dogs that chew hard. They help keep
+  teeth clean and stop boredom. Heavy chewers need toys that last and stay safe. Rope
+  toy
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rope-toys-for-heavy-chewers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=rope-toys-for-heavy-chewers&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Rope toys offer strong, fun play for dogs that chew hard. They help keep teeth clean and stop boredom.**

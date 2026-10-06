@@ -1,10 +1,14 @@
 ---
-title: "What are Toy Subscription Services: Ultimate Guide to Fun & Savings"
-description: "Are you looking for a fun and easy way to keep your child entertained and learning? Toy subscription services might be just what you need. Imagine getting a box"
+title: 'What are Toy Subscription Services: Ultimate Guide to Fun & Savings'
+description: Are you looking for a fun and easy way to keep your child entertained
+  and learning? Toy subscription services might be just what you need. Imagine getting
+  a box
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-toy-subscription-services&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=what-are-toy-subscription-services&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and easy way to keep your child entertained and learning? Toy subscription services might be just what you need.**

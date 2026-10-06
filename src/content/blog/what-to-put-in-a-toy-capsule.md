@@ -1,10 +1,14 @@
 ---
-title: "What to Put in a Toy Capsule: Creative Ideas for Fun Surprises"
-description: "Are you wondering what to put in a toy capsule that will surprise and delight every time? Choosing the right items can turn a simple toy capsule into a treasure"
+title: 'What to Put in a Toy Capsule: Creative Ideas for Fun Surprises'
+description: Are you wondering what to put in a toy capsule that will surprise and
+  delight every time? Choosing the right items can turn a simple toy capsule into
+  a treasure
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-put-in-a-toy-capsule&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Capsule Toy Vending
+heroImage: https://tse1.mm.bing.net/th?q=what-to-put-in-a-toy-capsule&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you wondering what to put in a toy capsule that will surprise and delight every time? Choosing the right items can turn a simple toy capsule into a treasure chest of fun and excitement.**

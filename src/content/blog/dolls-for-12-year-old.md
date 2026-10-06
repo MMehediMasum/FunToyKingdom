@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 12 Year Old: Top Trending Picks They’ll Love in 2025"
-description: "Finding the perfect doll for a 12-year-old can feel tricky. You want something fun, engaging, and just right for their age. Whether your child loves imaginative"
+title: 'Dolls for 12 Year Old: Top Trending Picks They’ll Love in 2025'
+description: Finding the perfect doll for a 12-year-old can feel tricky. You want
+  something fun, engaging, and just right for their age. Whether your child loves
+  imaginative
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-12-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finding the perfect doll for a 12-year-old can feel tricky. You want something fun, engaging, and just right for their age.**

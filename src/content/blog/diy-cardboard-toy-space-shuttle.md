@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Space Shuttle: Build an Epic Kids’ Rocket Today!"
-description: "Are you looking for a fun and creative project that you can make with things you already have at home? Building your own cardboard toy space shuttle is a fantas"
+title: 'Diy Cardboard Toy Space Shuttle: Build an Epic Kids’ Rocket Today!'
+description: Are you looking for a fun and creative project that you can make with
+  things you already have at home? Building your own cardboard toy space shuttle is
+  a fantas
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-space-shuttle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-space-shuttle&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with things you already have at home? Building your own cardboard toy space shuttle is a fantastic way to spark your imagination and bring a bit of outer space right into your living room.**

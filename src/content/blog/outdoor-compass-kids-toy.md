@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Compass Kids Toy: Ultimate Guide for Fun Learning Adventures"
-description: "Are you looking for a fun and educational toy that gets your kids excited about the outdoors? The Outdoor Compass Kids Toy is just what you need. It’s simple, e"
+title: 'Outdoor Compass Kids Toy: Ultimate Guide for Fun Learning Adventures'
+description: Are you looking for a fun and educational toy that gets your kids excited
+  about the outdoors? The Outdoor Compass Kids Toy is just what you need. It’s simple,
+  e
 pubDate: 2025-09-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-compass-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-compass-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and educational toy that gets your kids excited about the outdoors? The Outdoor Compass Kids Toy is just what you need.**

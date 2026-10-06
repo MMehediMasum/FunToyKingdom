@@ -1,10 +1,14 @@
 ---
-title: "Kids Ride on With Realistic Engine Sounds: Ultimate Fun Experience"
-description: "Imagine your child’s eyes lighting up as they zoom around on a ride-on toy that sounds just like a real engine. You want to give your little one more than just "
+title: 'Kids Ride on With Realistic Engine Sounds: Ultimate Fun Experience'
+description: 'Imagine your child’s eyes lighting up as they zoom around on a ride-on
+  toy that sounds just like a real engine. You want to give your little one more than
+  just '
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-ride-on-with-realistic-engine-sounds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=kids-ride-on-with-realistic-engine-sounds&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they zoom around on a ride-on toy that sounds just like a real engine. You want to give your little one more than just a simple ride — you want to spark their imagination and make playtime unforgettable.**

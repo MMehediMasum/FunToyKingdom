@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Toy House Out of Wood: Easy Step-by-Step Guide"
-description: "Are you ready to create something special that your child will treasure? Building a toy house out of wood is a fun and rewarding project you can do with your ow"
+title: 'How to Build a Toy House Out of Wood: Easy Step-by-Step Guide'
+description: Are you ready to create something special that your child will treasure?
+  Building a toy house out of wood is a fun and rewarding project you can do with
+  your ow
 pubDate: 2025-09-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-toy-house-out-of-wood&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-toy-house-out-of-wood&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something special that your child will treasure? Building a toy house out of wood is a fun and rewarding project you can do with your own hands.**

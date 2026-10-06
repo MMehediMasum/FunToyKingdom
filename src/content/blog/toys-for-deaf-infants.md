@@ -1,10 +1,14 @@
 ---
-title: "Toys for Deaf Infants: Top Sensory and ASL Learning Picks"
-description: "Choosing the right toys for deaf infants helps support their growth and learning. Toys designed for sensory and visual engagement work best. Deaf babies explore"
+title: 'Toys for Deaf Infants: Top Sensory and ASL Learning Picks'
+description: Choosing the right toys for deaf infants helps support their growth and
+  learning. Toys designed for sensory and visual engagement work best. Deaf babies
+  explore
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-deaf-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-deaf-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for deaf infants helps support their growth and learning. Toys designed for sensory and visual engagement work best.**

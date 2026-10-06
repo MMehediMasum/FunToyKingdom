@@ -1,10 +1,14 @@
 ---
-title: "Disney Princess Doll History: Unveiling Timeless Magic and Collectibles"
-description: "Have you ever wondered how Disney Princess dolls became a beloved part of childhood for so many? These dolls are more than just toys—they hold stories, memories"
+title: 'Disney Princess Doll History: Unveiling Timeless Magic and Collectibles'
+description: Have you ever wondered how Disney Princess dolls became a beloved part
+  of childhood for so many? These dolls are more than just toys—they hold stories,
+  memories
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-princess-doll-history&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=disney-princess-doll-history&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered how Disney Princess dolls became a beloved part of childhood for so many? These dolls are more than just toys—they hold stories, memories, and magic that span decades.**

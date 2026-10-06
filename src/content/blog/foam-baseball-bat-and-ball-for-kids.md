@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Foam Baseball Bat And Ball for Kids: Safe, Fun, and Durable Playtime"
 description: "Are you looking for a fun and safe way to introduce your kids to baseball? A foam baseball bat and ball set could be exactly what you need. Imagine your child s"
 pubDate: 2026-04-06

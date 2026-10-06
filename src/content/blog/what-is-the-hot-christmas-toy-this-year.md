@@ -1,10 +1,14 @@
 ---
-title: "What is the Hot Christmas Toy This Year: Top Must-Have Gifts 2025"
-description: "Are you wondering what the hottest Christmas toy is this year? You’re not alone. Every holiday season, kids—and adults—look forward to the must-have gift that e"
+title: 'What is the Hot Christmas Toy This Year: Top Must-Have Gifts 2025'
+description: Are you wondering what the hottest Christmas toy is this year? You’re
+  not alone. Every holiday season, kids—and adults—look forward to the must-have gift
+  that e
 pubDate: 2025-08-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-hot-christmas-toy-this-year&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-hot-christmas-toy-this-year&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering what the hottest Christmas toy is this year? You’re not alone.**

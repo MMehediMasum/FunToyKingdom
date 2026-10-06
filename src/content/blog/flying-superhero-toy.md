@@ -1,10 +1,14 @@
 ---
-title: "Flying Superhero Toy: Top Remote Control Heroes Kids Love to Play"
-description: "Superhero toys ignite imagination and bring action-packed adventures to life. Meet the flying superhero toys captivating young fans. These toys are perfect for "
+title: 'Flying Superhero Toy: Top Remote Control Heroes Kids Love to Play'
+description: 'Superhero toys ignite imagination and bring action-packed adventures
+  to life. Meet the flying superhero toys captivating young fans. These toys are perfect
+  for '
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=flying-superhero-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=flying-superhero-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Superhero toys ignite imagination and bring action-packed adventures to life. Meet the flying superhero toys captivating young fans.**

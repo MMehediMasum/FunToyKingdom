@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Cars for Tweens: Ultimate Fun and Top Picks"
-description: "Are you looking for the perfect gift that will keep your tween entertained for hours? Remote control cars might be exactly what you need. These cars aren’t just"
+title: 'Remote Control Cars for Tweens: Ultimate Fun and Top Picks'
+description: Are you looking for the perfect gift that will keep your tween entertained
+  for hours? Remote control cars might be exactly what you need. These cars aren’t
+  just
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-cars-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-cars-for-tweens&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect gift that will keep your tween entertained for hours? Remote control cars might be exactly what you need.**

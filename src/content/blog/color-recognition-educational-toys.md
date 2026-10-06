@@ -1,10 +1,14 @@
 ---
-title: "Color Recognition Educational Toys: Boost Kids' Learning Fun"
-description: "Are you looking for a fun and effective way to help your child learn colors? Color recognition educational toys might be just what you need. These toys turn lea"
+title: 'Color Recognition Educational Toys: Boost Kids'' Learning Fun'
+description: Are you looking for a fun and effective way to help your child learn
+  colors? Color recognition educational toys might be just what you need. These toys
+  turn lea
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=color-recognition-educational-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=color-recognition-educational-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and effective way to help your child learn colors? Color recognition educational toys might be just what you need.**

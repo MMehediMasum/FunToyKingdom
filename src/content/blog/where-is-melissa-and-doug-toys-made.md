@@ -1,10 +1,14 @@
 ---
-title: "Where is Melissa And Doug Toys Made: Unveiling Quality Origins"
-description: "Have you ever wondered where Melissa and Doug toys are made? If you’re curious about the quality and origin of these popular toys, you’re not alone. Knowing whe"
+title: 'Where is Melissa And Doug Toys Made: Unveiling Quality Origins'
+description: Have you ever wondered where Melissa and Doug toys are made? If you’re
+  curious about the quality and origin of these popular toys, you’re not alone. Knowing
+  whe
 pubDate: 2025-09-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-melissa-and-doug-toys-made&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing
+heroImage: https://tse1.mm.bing.net/th?q=where-is-melissa-and-doug-toys-made&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered where Melissa and Doug toys are made? If you’re curious about the quality and origin of these popular toys, you’re not alone.**

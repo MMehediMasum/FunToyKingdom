@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Crossword Puzzle Online Free: Ultimate Fun & Brain Boosting Games"
 description: "Are you looking for a fun and challenging way to sharpen your mind without spending a dime? Crossword Puzzle Online Free offers you exactly that—a perfect blend"
 pubDate: 2026-05-30

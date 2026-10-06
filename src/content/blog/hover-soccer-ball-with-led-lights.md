@@ -1,10 +1,14 @@
 ---
-title: "Hover Soccer Ball With Led Lights: Ultimate Glow Game Experience"
-description: "Imagine playing soccer anytime, anywhere—even indoors—without worrying about scratched floors or missing balls. A Hover Soccer Ball with LED Lights lets you do "
+title: 'Hover Soccer Ball With Led Lights: Ultimate Glow Game Experience'
+description: 'Imagine playing soccer anytime, anywhere—even indoors—without worrying
+  about scratched floors or missing balls. A Hover Soccer Ball with LED Lights lets
+  you do '
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hover-soccer-ball-with-led-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=hover-soccer-ball-with-led-lights&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine playing soccer anytime, anywhere—even indoors—without worrying about scratched floors or missing balls. A Hover Soccer Ball with LED Lights lets you do just that.**

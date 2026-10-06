@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Rear Door Patio Kit: Ultimate Upgrade for Easy Conversion"
 description: "Transform your toy hauler's rear door into a functional patio with a rear door patio kit. These kits enhance your outdoor experience by creating a versatile spa"
 pubDate: 2026-08-31

@@ -1,10 +1,14 @@
 ---
-title: "Retro Robot Toy: Timeless Collectible Gifts for Fans and Kids"
-description: "Retro robot toys capture the charm of yesteryears, bringing nostalgia and joy to collectors and enthusiasts alike. These delightful creations, often crafted fro"
+title: 'Retro Robot Toy: Timeless Collectible Gifts for Fans and Kids'
+description: Retro robot toys capture the charm of yesteryears, bringing nostalgia
+  and joy to collectors and enthusiasts alike. These delightful creations, often crafted
+  fro
 pubDate: 2026-02-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=retro-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=retro-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Retro robot toys capture the charm of yesteryears, bringing nostalgia and joy to collectors and enthusiasts alike. These delightful creations, often crafted from tin and featuring wind-up mechanisms, offer a glimpse into the past.**

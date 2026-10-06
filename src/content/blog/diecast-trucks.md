@@ -1,10 +1,14 @@
 ---
-title: "Diecast Trucks: Top Realistic Model Pickups for Collectors and Kids"
-description: "Diecast trucks capture the imagination of collectors and hobbyists alike. These miniature replicas offer intricate details and durable craftsmanship. Diecast tr"
+title: 'Diecast Trucks: Top Realistic Model Pickups for Collectors and Kids'
+description: Diecast trucks capture the imagination of collectors and hobbyists alike.
+  These miniature replicas offer intricate details and durable craftsmanship. Diecast
+  tr
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast trucks capture the imagination of collectors and hobbyists alike. These miniature replicas offer intricate details and durable craftsmanship.**

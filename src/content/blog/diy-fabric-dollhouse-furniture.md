@@ -1,10 +1,13 @@
 ---
-title: "Diy Fabric Dollhouse Furniture: Creative Ideas for Unique Miniatures"
-description: "Imagine creating charming, cozy furniture for your fabric dollhouse without spending a fortune or hunting for tiny pieces in stores. You have the power to bring"
+title: 'Diy Fabric Dollhouse Furniture: Creative Ideas for Unique Miniatures'
+description: Imagine creating charming, cozy furniture for your fabric dollhouse without
+  spending a fortune or hunting for tiny pieces in stores. You have the power to bring
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-fabric-dollhouse-furniture&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouses For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=diy-fabric-dollhouse-furniture&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine creating charming, cozy furniture for your fabric dollhouse without spending a fortune or hunting for tiny pieces in stores. You have the power to bring your dollhouse to life with your own hands, using simple materials you probably already have.**

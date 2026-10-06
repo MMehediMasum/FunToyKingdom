@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Snowboard Sprinkler Inflatable: Ultimate Summer Fun Gear"
-description: "Imagine turning your backyard into an exciting winter playground without waiting for snow. With an outdoor snowboard sprinkler inflatable, you can bring the thr"
+title: 'Outdoor Snowboard Sprinkler Inflatable: Ultimate Summer Fun Gear'
+description: Imagine turning your backyard into an exciting winter playground without
+  waiting for snow. With an outdoor snowboard sprinkler inflatable, you can bring
+  the thr
 pubDate: 2025-09-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-snowboard-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-snowboard-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into an exciting winter playground without waiting for snow. With an outdoor snowboard sprinkler inflatable, you can bring the thrill of snowboarding right to your home.**

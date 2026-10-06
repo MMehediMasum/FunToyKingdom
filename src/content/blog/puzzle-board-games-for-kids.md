@@ -1,10 +1,14 @@
 ---
-title: "Puzzle Board Games for Kids: Fun, Learning & Creativity Boosters"
-description: "Are you looking for a fun and engaging way to boost your child’s thinking skills? Puzzle board games for kids are the perfect choice. They keep your little ones"
+title: 'Puzzle Board Games for Kids: Fun, Learning & Creativity Boosters'
+description: Are you looking for a fun and engaging way to boost your child’s thinking
+  skills? Puzzle board games for kids are the perfect choice. They keep your little
+  ones
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzle-board-games-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=puzzle-board-games-for-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and engaging way to boost your child’s thinking skills? Puzzle board games for kids are the perfect choice.**

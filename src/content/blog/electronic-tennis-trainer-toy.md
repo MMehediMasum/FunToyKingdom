@@ -1,10 +1,14 @@
 ---
-title: "Electronic Tennis Trainer Toy: Boost Skills with Fun Practice"
-description: "Are you looking for a fun way to improve your tennis skills right at home? The Electronic Tennis Trainer Toy might be just what you need. It’s designed to help "
+title: 'Electronic Tennis Trainer Toy: Boost Skills with Fun Practice'
+description: 'Are you looking for a fun way to improve your tennis skills right at
+  home? The Electronic Tennis Trainer Toy might be just what you need. It’s designed
+  to help '
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-tennis-trainer-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=electronic-tennis-trainer-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun way to improve your tennis skills right at home? The Electronic Tennis Trainer Toy might be just what you need.**

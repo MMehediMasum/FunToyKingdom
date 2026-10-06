@@ -1,10 +1,14 @@
 ---
-title: "Best Ride on Toys for 8 10 Year Olds: Top Electric Go Karts Reviewed"
-description: "Choosing the best ride on toys for 8 to 10 year olds can be fun but challenging. Kids need safe, exciting toys that match their age and interests. Ride on toys "
+title: 'Best Ride on Toys for 8 10 Year Olds: Top Electric Go Karts Reviewed'
+description: 'Choosing the best ride on toys for 8 to 10 year olds can be fun but
+  challenging. Kids need safe, exciting toys that match their age and interests. Ride
+  on toys '
 pubDate: 2025-10-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-8-10-year-olds-top-electric-go-karts-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-8-10-year-olds-top-electric-go-karts-reviewed&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Choosing the best ride on toys for 8 to 10 year olds can be fun but challenging. Kids need safe, exciting toys that match their age and interests.**

@@ -1,10 +1,14 @@
 ---
-title: "Transformers Megatron Collectible Toy: Ultimate Guide to Rare Finds"
-description: "Are you a fan of Transformers looking to add a powerful piece to your collection? The Transformers Megatron Collectible Toy is more than just a figure—it’s a sy"
+title: 'Transformers Megatron Collectible Toy: Ultimate Guide to Rare Finds'
+description: Are you a fan of Transformers looking to add a powerful piece to your
+  collection? The Transformers Megatron Collectible Toy is more than just a figure—it’s
+  a sy
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=transformers-megatron-collectible-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=transformers-megatron-collectible-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Transformers looking to add a powerful piece to your collection? The Transformers Megatron Collectible Toy is more than just a figure—it’s a symbol of strength and nostalgia that brings your favorite battles to life.**

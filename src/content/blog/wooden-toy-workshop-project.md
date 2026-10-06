@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Workshop Project: Create Timeless Playthings Easily"
-description: "Are you looking for a fun and creative way to spend your time? A Wooden Toy Workshop Project might be just what you need. Imagine turning simple pieces of wood "
+title: 'Wooden Toy Workshop Project: Create Timeless Playthings Easily'
+description: 'Are you looking for a fun and creative way to spend your time? A Wooden
+  Toy Workshop Project might be just what you need. Imagine turning simple pieces
+  of wood '
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-workshop-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-workshop-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to spend your time? A Wooden Toy Workshop Project might be just what you need.**

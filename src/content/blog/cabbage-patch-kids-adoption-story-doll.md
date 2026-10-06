@@ -1,10 +1,14 @@
 ---
-title: "Cabbage Patch Kids Adoption Story Doll: Heartwarming Tales Revealed"
-description: "Have you ever wished for a special friend who feels like family from the very first moment? The Cabbage Patch Kids Adoption Story Doll is more than just a toy—i"
+title: 'Cabbage Patch Kids Adoption Story Doll: Heartwarming Tales Revealed'
+description: Have you ever wished for a special friend who feels like family from
+  the very first moment? The Cabbage Patch Kids Adoption Story Doll is more than just
+  a toy—i
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=cabbage-patch-kids-adoption-story-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=cabbage-patch-kids-adoption-story-doll&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wished for a special friend who feels like family from the very first moment? The Cabbage Patch Kids Adoption Story Doll is more than just a toy—it’s an experience that lets you become part of a heartwarming story.**

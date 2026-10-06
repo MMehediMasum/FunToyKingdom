@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Thunder Hollow Toys: Ultimate Diecast Racing Set for Kids Fun"
-description: "Cars 3 Thunder Hollow toys captivate children's imaginations with their vibrant designs and thrilling play features. These toys bring the excitement of the Cars"
+title: 'Cars 3 Thunder Hollow Toys: Ultimate Diecast Racing Set for Kids Fun'
+description: Cars 3 Thunder Hollow toys captivate children's imaginations with their
+  vibrant designs and thrilling play features. These toys bring the excitement of
+  the Cars
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-thunder-hollow-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-thunder-hollow-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 3 Thunder Hollow toys captivate children's imaginations with their vibrant designs and thrilling play features. These toys bring the excitement of the Cars 3 movie to life with a variety of characters and vehicles.**

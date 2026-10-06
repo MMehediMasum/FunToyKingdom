@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Castle: Creative Fun for Kids"
-description: "Imagine giving your child a magical castle that’s not only fun to play with but also made with care and creativity. A handmade cardboard toy castle is more than"
+title: 'Handmade Cardboard Toy Castle: Creative Fun for Kids'
+description: Imagine giving your child a magical castle that’s not only fun to play
+  with but also made with care and creativity. A handmade cardboard toy castle is
+  more than
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-castle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-castle&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a magical castle that’s not only fun to play with but also made with care and creativity. A handmade cardboard toy castle is more than just a toy—it’s a gateway to endless adventures right in your home.**

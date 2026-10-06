@@ -1,10 +1,14 @@
 ---
-title: "Snow White Disney Collectible Doll: Ultimate Guide for Fans"
-description: "Are you a fan of classic Disney magic? Imagine holding a piece of that timeless charm right in your hands. The Snow White Disney Collectible Doll isn’t just any"
+title: 'Snow White Disney Collectible Doll: Ultimate Guide for Fans'
+description: Are you a fan of classic Disney magic? Imagine holding a piece of that
+  timeless charm right in your hands. The Snow White Disney Collectible Doll isn’t
+  just any
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=snow-white-disney-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=snow-white-disney-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of classic Disney magic? Imagine holding a piece of that timeless charm right in your hands.**

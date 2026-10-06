@@ -1,10 +1,14 @@
 ---
-title: "Kids Rake Shovel Outdoor Tools: Fun Gardening Gear for Kids"
-description: "Are you looking for a fun and simple way to get your kids outside and active? Kids rake shovel outdoor tools are the perfect solution. These tools let your chil"
+title: 'Kids Rake Shovel Outdoor Tools: Fun Gardening Gear for Kids'
+description: Are you looking for a fun and simple way to get your kids outside and
+  active? Kids rake shovel outdoor tools are the perfect solution. These tools let
+  your chil
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-rake-shovel-outdoor-tools&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=kids-rake-shovel-outdoor-tools&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and simple way to get your kids outside and active? Kids rake shovel outdoor tools are the perfect solution.**

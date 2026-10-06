@@ -1,10 +1,14 @@
 ---
-title: "What is a Soft Toy: Ultimate Guide to Cuddly Comfort and Joy"
-description: "Have you ever held a soft toy and felt an instant sense of comfort? Soft toys are more than just cuddly companions—they carry memories, emotions, and even a sen"
+title: 'What is a Soft Toy: Ultimate Guide to Cuddly Comfort and Joy'
+description: Have you ever held a soft toy and felt an instant sense of comfort? Soft
+  toys are more than just cuddly companions—they carry memories, emotions, and even
+  a sen
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-soft-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-soft-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever held a soft toy and felt an instant sense of comfort? Soft toys are more than just cuddly companions—they carry memories, emotions, and even a sense of security.**

@@ -1,10 +1,13 @@
 ---
-title: "Rc Car With App Control: Ultimate Guide to High-Tech Racing Fun"
-description: "Imagine controlling your RC car right from your smartphone. No more fiddling with tiny controllers or losing track of buttons. With an RC car that uses app cont"
+title: 'Rc Car With App Control: Ultimate Guide to High-Tech Racing Fun'
+description: Imagine controlling your RC car right from your smartphone. No more fiddling
+  with tiny controllers or losing track of buttons. With an RC car that uses app cont
 pubDate: 2025-09-10
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-app-control&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-app-control&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling your RC car right from your smartphone. No more fiddling with tiny controllers or losing track of buttons.**

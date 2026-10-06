@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Trampoline Pogo Stick: Ultimate Fun and Fitness Combo"
-description: "Are you looking for a fun way to keep your kids active and entertained outdoors? An outdoor trampoline pogo stick might be just what you need. Imagine combining"
+title: 'Outdoor Trampoline Pogo Stick: Ultimate Fun and Fitness Combo'
+description: Are you looking for a fun way to keep your kids active and entertained
+  outdoors? An outdoor trampoline pogo stick might be just what you need. Imagine
+  combining
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-trampoline-pogo-stick&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-trampoline-pogo-stick&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to keep your kids active and entertained outdoors? An outdoor trampoline pogo stick might be just what you need.**

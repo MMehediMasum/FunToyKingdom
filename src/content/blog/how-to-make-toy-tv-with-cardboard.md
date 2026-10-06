@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Tv With Cardboard: Easy DIY Kids Craft Tutorial"
-description: "Are you looking for a fun and creative project that you can make right at home? Imagine turning simple cardboard into a cool toy TV that you can play with or ev"
+title: 'How to Make Toy Tv With Cardboard: Easy DIY Kids Craft Tutorial'
+description: Are you looking for a fun and creative project that you can make right
+  at home? Imagine turning simple cardboard into a cool toy TV that you can play with
+  or ev
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-tv-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-tv-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make right at home? Imagine turning simple cardboard into a cool toy TV that you can play with or even decorate your room.**

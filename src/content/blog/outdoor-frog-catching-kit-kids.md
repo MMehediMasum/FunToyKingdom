@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Frog Catching Kit Kids: Ultimate Fun & Learning Adventure"
-description: "Are you looking for a fun way to get your kids outside and exploring nature? An Outdoor Frog Catching Kit for kids is just what you need. It turns a simple walk"
+title: 'Outdoor Frog Catching Kit Kids: Ultimate Fun & Learning Adventure'
+description: Are you looking for a fun way to get your kids outside and exploring
+  nature? An Outdoor Frog Catching Kit for kids is just what you need. It turns a
+  simple walk
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-frog-catching-kit-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-frog-catching-kit-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids outside and exploring nature? An Outdoor Frog Catching Kit for kids is just what you need.**

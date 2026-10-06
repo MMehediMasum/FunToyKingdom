@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Woody Doll Interactive Edition: Ultimate Playtime Fun"
-description: "Imagine holding your favorite cowboy hero right in your hands—Woody, from Toy Story, comes alive like never before. The Toy Story Woody Doll Interactive Edition"
+title: 'Toy Story Woody Doll Interactive Edition: Ultimate Playtime Fun'
+description: Imagine holding your favorite cowboy hero right in your hands—Woody,
+  from Toy Story, comes alive like never before. The Toy Story Woody Doll Interactive
+  Edition
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-woody-doll-interactive-edition&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-woody-doll-interactive-edition&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine holding your favorite cowboy hero right in your hands—Woody, from Toy Story, comes alive like never before. The Toy Story Woody Doll Interactive Edition isn’t just a toy; it’s your new best friend who talks, moves, and responds to you.**

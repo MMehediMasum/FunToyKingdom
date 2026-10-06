@@ -1,10 +1,14 @@
 ---
-title: "Astronaut Role Play Toy Set: Ignite Imagination & Space Adventure"
-description: "Have you ever wondered how to spark your child’s imagination while teaching them about space? The Astronaut Role Play Toy Set is exactly what you need. It’s mor"
+title: 'Astronaut Role Play Toy Set: Ignite Imagination & Space Adventure'
+description: Have you ever wondered how to spark your child’s imagination while teaching
+  them about space? The Astronaut Role Play Toy Set is exactly what you need. It’s
+  mor
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=astronaut-role-play-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=astronaut-role-play-toy-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered how to spark your child’s imagination while teaching them about space? The Astronaut Role Play Toy Set is exactly what you need.**

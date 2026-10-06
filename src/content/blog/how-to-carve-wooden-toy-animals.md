@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Animals: Easy Steps for Stunning Results"
-description: "Have you ever wanted to create something unique with your own hands? Carving wooden toy animals is a fun and rewarding way to do just that. Imagine holding a sm"
+title: 'How to Carve Wooden Toy Animals: Easy Steps for Stunning Results'
+description: Have you ever wanted to create something unique with your own hands?
+  Carving wooden toy animals is a fun and rewarding way to do just that. Imagine holding
+  a sm
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Carve Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-animals&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something unique with your own hands? Carving wooden toy animals is a fun and rewarding way to do just that.**

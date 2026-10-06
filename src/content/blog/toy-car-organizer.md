@@ -1,10 +1,14 @@
 ---
-title: "Toy Car Organizer: Top Storage Solutions for Diecast and Hot Wheels"
-description: "A toy car organizer helps keep your collection neat and easy to find. It saves space and protects your cars from damage. Many kids and collectors own dozens of "
+title: 'Toy Car Organizer: Top Storage Solutions for Diecast and Hot Wheels'
+description: 'A toy car organizer helps keep your collection neat and easy to find.
+  It saves space and protects your cars from damage. Many kids and collectors own
+  dozens of '
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-organizer&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-organizer&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **A toy car organizer helps keep your collection neat and easy to find. It saves space and protects your cars from damage.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Laser Tag Guns Set: Ultimate Fun for All Ages"
-description: "Are you ready to take your outdoor fun to the next level? Imagine the thrill of high-energy action, teamwork, and friendly competition—all packed into one excit"
+title: 'Outdoor Laser Tag Guns Set: Ultimate Fun for All Ages'
+description: Are you ready to take your outdoor fun to the next level? Imagine the
+  thrill of high-energy action, teamwork, and friendly competition—all packed into
+  one excit
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-laser-tag-guns-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-laser-tag-guns-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your outdoor fun to the next level? Imagine the thrill of high-energy action, teamwork, and friendly competition—all packed into one exciting game.**

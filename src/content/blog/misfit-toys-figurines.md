@@ -1,10 +1,14 @@
 ---
-title: "Misfit Toys Figurines: Top Collectible Figures for Fun and Nostalgia"
-description: "Misfit Toys Figurines captivate collectors and kids alike with their unique charm and nostalgia. These figurines bring beloved characters to life, offering a de"
+title: 'Misfit Toys Figurines: Top Collectible Figures for Fun and Nostalgia'
+description: Misfit Toys Figurines captivate collectors and kids alike with their
+  unique charm and nostalgia. These figurines bring beloved characters to life, offering
+  a de
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=misfit-toys-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=misfit-toys-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Misfit Toys Figurines captivate collectors and kids alike with their unique charm and nostalgia. These figurines bring beloved characters to life, offering a delightful mix of whimsy and creativity.**

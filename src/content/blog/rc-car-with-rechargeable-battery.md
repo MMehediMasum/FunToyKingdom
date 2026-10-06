@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Rechargeable Battery: Ultimate Fun & Long-Lasting Play"
-description: "Are you ready to take your RC car experience to the next level? Imagine never having to stop playing because your car ran out of power. An RC car with a recharg"
+title: 'Rc Car With Rechargeable Battery: Ultimate Fun & Long-Lasting Play'
+description: Are you ready to take your RC car experience to the next level? Imagine
+  never having to stop playing because your car ran out of power. An RC car with a
+  recharg
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-rechargeable-battery&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-rechargeable-battery&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to the next level? Imagine never having to stop playing because your car ran out of power.**

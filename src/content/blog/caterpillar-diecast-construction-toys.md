@@ -1,10 +1,13 @@
 ---
-title: "Caterpillar Diecast Construction Toys: Durable, Detailed Models for Collectors"
-description: "Caterpillar diecast construction toys bring realistic building machines to your collection. These detailed models capture the look and feel of real Caterpillar "
+title: 'Caterpillar Diecast Construction Toys: Durable, Detailed Models for Collectors'
+description: 'Caterpillar diecast construction toys bring realistic building machines
+  to your collection. These detailed models capture the look and feel of real Caterpillar '
 pubDate: 2026-08-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=caterpillar-diecast-construction-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=caterpillar-diecast-construction-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Caterpillar diecast construction toys bring realistic building machines to your collection. These detailed models capture the look and feel of real Caterpillar equipment.**

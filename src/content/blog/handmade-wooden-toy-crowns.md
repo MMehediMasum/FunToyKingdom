@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Crowns: Unique, Eco-Friendly Kids’ Favorites"
-description: "Imagine your child’s eyes lighting up as they place a beautiful, handmade wooden crown on their head. You want a toy that sparks creativity, feels safe, and las"
+title: 'Handmade Wooden Toy Crowns: Unique, Eco-Friendly Kids’ Favorites'
+description: Imagine your child’s eyes lighting up as they place a beautiful, handmade
+  wooden crown on their head. You want a toy that sparks creativity, feels safe, and
+  las
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-crowns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Crowns
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-crowns&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine your child’s eyes lighting up as they place a beautiful, handmade wooden crown on their head. You want a toy that sparks creativity, feels safe, and lasts through countless adventures.**

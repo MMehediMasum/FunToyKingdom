@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Card Drinking Games for Adults to Ignite Your Party Nights"
 description: "Card drinking games add excitement and laughter to adult gatherings. They break the ice and keep the party lively. These games blend simple rules with fun chall"
 pubDate: 2026-01-08

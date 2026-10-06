@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Magnetic Building Tiles: Ultimate Fun for Creative Kids"
-description: "Imagine turning your outdoor space into a vibrant playground where creativity and learning come alive. Outdoor Magnetic Building Tiles are the perfect tool to s"
+title: 'Outdoor Magnetic Building Tiles: Ultimate Fun for Creative Kids'
+description: Imagine turning your outdoor space into a vibrant playground where creativity
+  and learning come alive. Outdoor Magnetic Building Tiles are the perfect tool to
+  s
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-magnetic-building-tiles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-magnetic-building-tiles&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your outdoor space into a vibrant playground where creativity and learning come alive. Outdoor Magnetic Building Tiles are the perfect tool to spark your child’s imagination while encouraging hands-on discovery.**

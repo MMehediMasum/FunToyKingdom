@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Monster Truck: Ultimate Fun for Kids Outdoors"
-description: "Are you ready to watch your child’s face light up with pure joy? A Ride on Toy Monster Truck is more than just a toy—it’s an adventure waiting to happen right i"
+title: 'Ride on Toy Monster Truck: Ultimate Fun for Kids Outdoors'
+description: Are you ready to watch your child’s face light up with pure joy? A Ride
+  on Toy Monster Truck is more than just a toy—it’s an adventure waiting to happen
+  right i
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-monster-truck&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-monster-truck&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to watch your child’s face light up with pure joy? A Ride on Toy Monster Truck is more than just a toy—it’s an adventure waiting to happen right in your backyard.**

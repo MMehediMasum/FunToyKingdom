@@ -1,10 +1,14 @@
 ---
-title: "Toy Blast Puzzle Game for Kids: Ultimate Fun and Brain Boost"
-description: "Are you looking for a fun and exciting game that your kids will love? Toy Blast Puzzle Game for Kids is just what you need. It’s colorful, easy to play, and ful"
+title: 'Toy Blast Puzzle Game for Kids: Ultimate Fun and Brain Boost'
+description: Are you looking for a fun and exciting game that your kids will love?
+  Toy Blast Puzzle Game for Kids is just what you need. It’s colorful, easy to play,
+  and ful
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-blast-puzzle-game-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-blast-puzzle-game-for-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and exciting game that your kids will love? Toy Blast Puzzle Game for Kids is just what you need.**

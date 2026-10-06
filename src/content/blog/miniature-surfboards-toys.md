@@ -1,10 +1,14 @@
 ---
-title: "Miniature Surfboards Toys: Ultimate Fun for Kids and Surfing Fans"
-description: "Miniature surfboard toys bring fun and excitement to kids and adults alike. These small, wave-powered or finger-operated surfboards offer endless play possibili"
+title: 'Miniature Surfboards Toys: Ultimate Fun for Kids and Surfing Fans'
+description: Miniature surfboard toys bring fun and excitement to kids and adults
+  alike. These small, wave-powered or finger-operated surfboards offer endless play
+  possibili
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-surfboards-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-surfboards-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature surfboard toys bring fun and excitement to kids and adults alike. These small, wave-powered or finger-operated surfboards offer endless play possibilities.**

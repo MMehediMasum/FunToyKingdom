@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane With Propeller Guard: Ultimate Safety and Performance Guide"
-description: "Are you ready to take your RC airplane experience to the next level? Imagine flying your model with confidence, knowing that the propeller guard is protecting b"
+title: 'Rc Airplane With Propeller Guard: Ultimate Safety and Performance Guide'
+description: Are you ready to take your RC airplane experience to the next level?
+  Imagine flying your model with confidence, knowing that the propeller guard is protecting
+  b
 pubDate: 2025-09-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-propeller-guard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-propeller-guard&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC airplane experience to the next level? Imagine flying your model with confidence, knowing that the propeller guard is protecting both your plane and you from unexpected accidents.**

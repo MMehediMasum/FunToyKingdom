@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Crown Making Kit: Create Magical Crowns at Home Easily"
-description: "Are you looking for a fun and creative activity that you and your kids can enjoy together? A DIY Toy Crown Making Kit is just what you need. Imagine your child’"
+title: 'Diy Toy Crown Making Kit: Create Magical Crowns at Home Easily'
+description: Are you looking for a fun and creative activity that you and your kids
+  can enjoy together? A DIY Toy Crown Making Kit is just what you need. Imagine your
+  child’
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-crown-making-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-crown-making-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative activity that you and your kids can enjoy together? A DIY Toy Crown Making Kit is just what you need.**

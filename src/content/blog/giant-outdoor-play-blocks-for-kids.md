@@ -1,10 +1,14 @@
 ---
-title: "Giant Outdoor Play Blocks for Kids: Creative Fun & Learning Ideas"
-description: "Imagine your child building towering castles, colorful forts, or even entire cities—all with giant outdoor play blocks made just for kids. These oversized block"
+title: 'Giant Outdoor Play Blocks for Kids: Creative Fun & Learning Ideas'
+description: Imagine your child building towering castles, colorful forts, or even
+  entire cities—all with giant outdoor play blocks made just for kids. These oversized
+  block
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-outdoor-play-blocks-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=giant-outdoor-play-blocks-for-kids&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine your child building towering castles, colorful forts, or even entire cities—all with giant outdoor play blocks made just for kids. These oversized blocks aren’t just toys; they spark creativity, encourage active play, and help develop important skills.**

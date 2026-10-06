@@ -1,10 +1,13 @@
 ---
-title: "Toy Construction Vehicles Set: Ultimate Playtime Fun for Kids"
-description: "Toy construction vehicle sets captivate young minds. They inspire creativity and teach basic engineering concepts to kids. These sets, brimming with tiny excava"
+title: 'Toy Construction Vehicles Set: Ultimate Playtime Fun for Kids'
+description: Toy construction vehicle sets captivate young minds. They inspire creativity
+  and teach basic engineering concepts to kids. These sets, brimming with tiny excava
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-construction-vehicles-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=toy-construction-vehicles-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy construction vehicle sets captivate young minds. They inspire creativity and teach basic engineering concepts to kids.**

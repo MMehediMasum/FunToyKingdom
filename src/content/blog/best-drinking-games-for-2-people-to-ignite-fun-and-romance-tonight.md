@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Drinking Games for 2 People to Ignite Fun and Romance Tonight"
 description: "Finding the best drinking games for 2 people can make any evening more fun and exciting. These games bring laughter, challenge, and connection to your night tog"
 pubDate: 2026-01-02

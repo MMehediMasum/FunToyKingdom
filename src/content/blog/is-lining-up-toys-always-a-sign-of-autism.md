@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Lining Up Toys Always a Sign of Autism? Debunking Myths"
 description: "Have you ever noticed a child lining up toys one after another and wondered what it means? You might worry if this behavior is a sign of something serious, like"
 pubDate: 2026-01-06

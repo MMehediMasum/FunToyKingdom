@@ -1,10 +1,14 @@
 ---
-title: "Beauty And the Beast Belle Doll: Ultimate Collectible for Fans"
-description: "Are you a fan of the timeless tale of Beauty and the Beast? If so, the Beauty and the Beast Belle Doll is something you don’t want to miss. This doll captures B"
+title: 'Beauty And the Beast Belle Doll: Ultimate Collectible for Fans'
+description: Are you a fan of the timeless tale of Beauty and the Beast? If so, the
+  Beauty and the Beast Belle Doll is something you don’t want to miss. This doll captures
+  B
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=beauty-and-the-beast-belle-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=beauty-and-the-beast-belle-doll&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you a fan of the timeless tale of Beauty and the Beast? If so, the Beauty and the Beast Belle Doll is something you don’t want to miss.**

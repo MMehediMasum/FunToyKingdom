@@ -1,10 +1,14 @@
 ---
-title: "Cars Bath Toys Disney: Fun and Colorful Pixar Cars Bath Time Essentials"
-description: "Disney Cars bath toys bring fun and excitement to every child’s bath time. These colorful toys feature beloved characters from the Pixar Cars movies. Bath time "
+title: 'Cars Bath Toys Disney: Fun and Colorful Pixar Cars Bath Time Essentials'
+description: 'Disney Cars bath toys bring fun and excitement to every child’s bath
+  time. These colorful toys feature beloved characters from the Pixar Cars movies.
+  Bath time '
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-bath-toys-disney&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=cars-bath-toys-disney&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Disney Cars bath toys bring fun and excitement to every child’s bath time. These colorful toys feature beloved characters from the Pixar Cars movies.**

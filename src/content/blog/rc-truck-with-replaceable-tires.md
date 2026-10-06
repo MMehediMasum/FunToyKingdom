@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck With Replaceable Tires: Ultimate Durability & Easy Upgrades"
-description: "Are you tired of your RC truck’s tires wearing out too fast or getting stuck on rough terrain? Imagine having the power to swap out your tires whenever you want"
+title: 'Rc Truck With Replaceable Tires: Ultimate Durability & Easy Upgrades'
+description: Are you tired of your RC truck’s tires wearing out too fast or getting
+  stuck on rough terrain? Imagine having the power to swap out your tires whenever
+  you want
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-with-replaceable-tires&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-with-replaceable-tires&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of your RC truck’s tires wearing out too fast or getting stuck on rough terrain? Imagine having the power to swap out your tires whenever you want, giving your truck new life and better performance every time.**

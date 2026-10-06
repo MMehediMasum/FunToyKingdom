@@ -1,10 +1,14 @@
 ---
-title: "Moana Disney Doll Figure: Ultimate Guide to Collect & Enjoy"
-description: "Are you looking for the perfect Moana Disney doll figure to bring your favorite story to life? Whether you're a fan of the adventurous Moana or searching for a "
+title: 'Moana Disney Doll Figure: Ultimate Guide to Collect & Enjoy'
+description: 'Are you looking for the perfect Moana Disney doll figure to bring your
+  favorite story to life? Whether you''re a fan of the adventurous Moana or searching
+  for a '
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=moana-disney-doll-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=moana-disney-doll-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for the perfect Moana Disney doll figure to bring your favorite story to life? Whether you're a fan of the adventurous Moana or searching for a special gift, this doll captures her spirit in every detail.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Puzzles for Families: Top Challenging Jigsaw Games for Game Nights"
-description: "Puzzles bring families together for hours of fun and challenge. They boost teamwork and spark great conversations. Choosing the best puzzles for families can ma"
+title: 'Best Puzzles for Families: Top Challenging Jigsaw Games for Game Nights'
+description: Puzzles bring families together for hours of fun and challenge. They
+  boost teamwork and spark great conversations. Choosing the best puzzles for families
+  can ma
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-puzzles-for-families-top-challenging-jigsaw-games-for-game-nights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-puzzles-for-families-top-challenging-jigsaw-games-for-game-nights&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Puzzles bring families together for hours of fun and challenge. They boost teamwork and spark great conversations.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Age-Appropriate Toys for 2 Year Olds: Top Picks for Fun & Growth"
-description: "Choosing the perfect toys for your 2-year-old can feel overwhelming. You want something that’s safe, fun, and helps your little one learn and grow. But with so "
+title: 'Best Age-Appropriate Toys for 2 Year Olds: Top Picks for Fun & Growth'
+description: 'Choosing the perfect toys for your 2-year-old can feel overwhelming.
+  You want something that’s safe, fun, and helps your little one learn and grow. But
+  with so '
 pubDate: 2026-09-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-age-appropriate-toys-for-2-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-age-appropriate-toys-for-2-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the perfect toys for your 2-year-old can feel overwhelming. You want something that’s safe, fun, and helps your little one learn and grow.**

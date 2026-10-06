@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Robot Dog: Easy, Fun, and Creative Build Ideas"
-description: "Imagine turning simple cardboard into a fun, interactive toy robot dog that you built yourself. Sounds exciting, right? You don’t need fancy tools or expensive "
+title: 'Diy Cardboard Toy Robot Dog: Easy, Fun, and Creative Build Ideas'
+description: 'Imagine turning simple cardboard into a fun, interactive toy robot dog
+  that you built yourself. Sounds exciting, right? You don’t need fancy tools or expensive '
 pubDate: 2026-05-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-robot-dog&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-robot-dog&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine turning simple cardboard into a fun, interactive toy robot dog that you built yourself. Sounds exciting, right?**

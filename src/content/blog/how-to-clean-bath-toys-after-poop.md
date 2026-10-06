@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bath Toys After Poop: Easy & Safe Steps Revealed"
-description: "Dealing with poop on bath toys is something no parent wants to face, but it happens. You want to keep your child's playtime safe and clean, but how do you make "
+title: 'How to Clean Bath Toys After Poop: Easy & Safe Steps Revealed'
+description: 'Dealing with poop on bath toys is something no parent wants to face,
+  but it happens. You want to keep your child''s playtime safe and clean, but how
+  do you make '
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-after-poop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-after-poop&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Dealing with poop on bath toys is something no parent wants to face, but it happens. You want to keep your child's playtime safe and clean, but how do you make sure those toys are truly germ-free?**

@@ -1,10 +1,14 @@
 ---
-title: "Delta Kite for Family Beach Trips: Ultimate Fun and Easy Flying Guide"
-description: "Imagine the perfect family beach day where laughter fills the air and everyone is sharing a fun, unforgettable experience. You want something that brings your f"
+title: 'Delta Kite for Family Beach Trips: Ultimate Fun and Easy Flying Guide'
+description: Imagine the perfect family beach day where laughter fills the air and
+  everyone is sharing a fun, unforgettable experience. You want something that brings
+  your f
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=delta-kite-for-family-beach-trips&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=delta-kite-for-family-beach-trips&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the perfect family beach day where laughter fills the air and everyone is sharing a fun, unforgettable experience. You want something that brings your family together, is easy to use, and adds a splash of excitement to your trip.**

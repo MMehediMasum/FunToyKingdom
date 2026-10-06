@@ -1,10 +1,14 @@
 ---
-title: "Where Can You Buy Melissa And Doug Toys: Top Trusted Stores Revealed"
-description: "Are you looking for the perfect place to buy Melissa and Doug toys? You want fun, safe, and high-quality toys that spark creativity and learning for your child."
+title: 'Where Can You Buy Melissa And Doug Toys: Top Trusted Stores Revealed'
+description: Are you looking for the perfect place to buy Melissa and Doug toys? You
+  want fun, safe, and high-quality toys that spark creativity and learning for your
+  child.
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-you-buy-melissa-and-doug-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toys Cheap
+heroImage: https://tse1.mm.bing.net/th?q=where-can-you-buy-melissa-and-doug-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for the perfect place to buy Melissa and Doug toys? You want fun, safe, and high-quality toys that spark creativity and learning for your child.**

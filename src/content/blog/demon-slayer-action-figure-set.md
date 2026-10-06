@@ -1,10 +1,13 @@
 ---
-title: "Demon Slayer Action Figure Set: Ultimate Collector’s Must-Have Guide"
-description: "Are you a fan of Demon Slayer and love collecting action figures? The Demon Slayer Action Figure Set is exactly what you need to bring your favorite characters "
+title: 'Demon Slayer Action Figure Set: Ultimate Collector’s Must-Have Guide'
+description: 'Are you a fan of Demon Slayer and love collecting action figures? The
+  Demon Slayer Action Figure Set is exactly what you need to bring your favorite characters '
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=demon-slayer-action-figure-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=demon-slayer-action-figure-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Demon Slayer and love collecting action figures? The Demon Slayer Action Figure Set is exactly what you need to bring your favorite characters to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Sensory Toys for 2 Year Olds to Boost Learning and Play"
-description: "Finding the best sensory toys for 2 year olds helps support their growth and learning. Sensory toys improve fine motor skills and keep toddlers engaged. At age "
+title: Best Sensory Toys for 2 Year Olds to Boost Learning and Play
+description: 'Finding the best sensory toys for 2 year olds helps support their growth
+  and learning. Sensory toys improve fine motor skills and keep toddlers engaged.
+  At age '
 pubDate: 2026-08-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sensory-toys-for-2-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-sensory-toys-for-2-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best sensory toys for 2 year olds helps support their growth and learning. Sensory toys improve fine motor skills and keep toddlers engaged.**

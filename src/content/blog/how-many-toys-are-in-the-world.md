@@ -1,10 +1,14 @@
 ---
-title: "How Many Toys are in the World: Shocking Facts Revealed"
-description: "Have you ever wondered just how many toys exist across the world? You might think it’s a simple question, but the answer will surprise you. From tiny figurines "
+title: 'How Many Toys are in the World: Shocking Facts Revealed'
+description: 'Have you ever wondered just how many toys exist across the world? You
+  might think it’s a simple question, but the answer will surprise you. From tiny
+  figurines '
 pubDate: 2025-09-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-toys-are-in-the-world&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy World Records
+heroImage: https://tse1.mm.bing.net/th?q=how-many-toys-are-in-the-world&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered just how many toys exist across the world? You might think it’s a simple question, but the answer will surprise you.**

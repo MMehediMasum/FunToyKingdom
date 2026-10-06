@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Frisbee: Top Durable Flying Discs for Active Dogs"
-description: "Frisbees are a fantastic way to keep dogs active and entertained. They come in various designs and materials to suit every pup's preference. Dog toy frisbees of"
+title: 'Dog Toy Frisbee: Top Durable Flying Discs for Active Dogs'
+description: Frisbees are a fantastic way to keep dogs active and entertained. They
+  come in various designs and materials to suit every pup's preference. Dog toy frisbees
+  of
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-frisbee&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-frisbee&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Frisbees are a fantastic way to keep dogs active and entertained. They come in various designs and materials to suit every pup's preference.**

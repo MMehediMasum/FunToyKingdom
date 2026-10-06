@@ -1,10 +1,14 @@
 ---
-title: "Best Science Kits for 10 Year Olds: Top STEM Toys for Curious Kids"
-description: "Science kits make learning fun and hands-on for 10 year olds. They help kids explore science through exciting experiments. Choosing the best science kit can spa"
+title: 'Best Science Kits for 10 Year Olds: Top STEM Toys for Curious Kids'
+description: Science kits make learning fun and hands-on for 10 year olds. They help
+  kids explore science through exciting experiments. Choosing the best science kit
+  can spa
 pubDate: 2025-10-14
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-science-kits-for-10-year-olds-top-stem-toys-for-curious-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=best-science-kits-for-10-year-olds-top-stem-toys-for-curious-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Science kits make learning fun and hands-on for 10 year olds. They help kids explore science through exciting experiments.**

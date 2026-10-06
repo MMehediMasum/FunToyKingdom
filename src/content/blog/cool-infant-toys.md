@@ -1,10 +1,14 @@
 ---
-title: "Cool Infant Toys That Spark Joy and Boost Baby Development"
-description: "Choosing the right toys for infants can be a delightful yet challenging task. Cool infant toys not only entertain but also support early development. From senso"
+title: Cool Infant Toys That Spark Joy and Boost Baby Development
+description: Choosing the right toys for infants can be a delightful yet challenging
+  task. Cool infant toys not only entertain but also support early development. From
+  senso
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cool-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=cool-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for infants can be a delightful yet challenging task. Cool infant toys not only entertain but also support early development.**

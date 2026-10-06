@@ -1,10 +1,14 @@
 ---
-title: "Diy Electronic Toy Kits: Build Fun, Learn Tech, Save Money!"
-description: "Are you looking for a fun way to spark creativity and learn new skills? DIY electronic toy kits are the perfect choice for you. They let you build exciting gadg"
+title: 'Diy Electronic Toy Kits: Build Fun, Learn Tech, Save Money!'
+description: Are you looking for a fun way to spark creativity and learn new skills?
+  DIY electronic toy kits are the perfect choice for you. They let you build exciting
+  gadg
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-electronic-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=diy-electronic-toy-kits&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to spark creativity and learn new skills? DIY electronic toy kits are the perfect choice for you.**

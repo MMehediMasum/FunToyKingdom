@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Collectible Figurines Value: Ultimate Guide to Worth"
-description: "Are you curious about how much your Toy Story collectible figurines are really worth? Whether you’ve held onto them for years or just started collecting, knowin"
+title: 'Toy Story Collectible Figurines Value: Ultimate Guide to Worth'
+description: Are you curious about how much your Toy Story collectible figurines are
+  really worth? Whether you’ve held onto them for years or just started collecting,
+  knowin
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-collectible-figurines-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-collectible-figurines-value&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you curious about how much your Toy Story collectible figurines are really worth? Whether you’ve held onto them for years or just started collecting, knowing their value can be exciting and even surprising.**

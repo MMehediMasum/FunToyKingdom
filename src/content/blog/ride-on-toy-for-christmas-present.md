@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Christmas Present: Perfect Gift Ideas for Kids"
-description: "Looking for the perfect Christmas present that will light up your child’s face? A ride on toy might be exactly what you need. Imagine the joy your little one wi"
+title: 'Ride on Toy for Christmas Present: Perfect Gift Ideas for Kids'
+description: Looking for the perfect Christmas present that will light up your child’s
+  face? A ride on toy might be exactly what you need. Imagine the joy your little
+  one wi
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-christmas-present&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-christmas-present&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect Christmas present that will light up your child’s face? A ride on toy might be exactly what you need.**

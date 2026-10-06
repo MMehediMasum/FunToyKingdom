@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Train: Simple Steps for Beginners"
-description: "Have you ever wanted to create something special with your own hands? Making a wooden toy train is a fun and rewarding project that lets you bring a classic toy"
+title: 'How to Make a Wooden Toy Train: Simple Steps for Beginners'
+description: Have you ever wanted to create something special with your own hands?
+  Making a wooden toy train is a fun and rewarding project that lets you bring a classic
+  toy
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-train&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-train&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Making a wooden toy train is a fun and rewarding project that lets you bring a classic toy to life.**

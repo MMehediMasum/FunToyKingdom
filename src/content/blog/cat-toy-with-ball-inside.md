@@ -1,10 +1,14 @@
 ---
-title: "Cat Toy With Ball Inside: Ultimate Interactive Play for Active Cats"
-description: "Cat toys with a ball inside keep cats active and entertained for hours. These toys stimulate hunting instincts and encourage playful exercise. Cats love chasing"
+title: 'Cat Toy With Ball Inside: Ultimate Interactive Play for Active Cats'
+description: Cat toys with a ball inside keep cats active and entertained for hours.
+  These toys stimulate hunting instincts and encourage playful exercise. Cats love
+  chasing
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-with-ball-inside&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-with-ball-inside&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cat toys with a ball inside keep cats active and entertained for hours. These toys stimulate hunting instincts and encourage playful exercise.**

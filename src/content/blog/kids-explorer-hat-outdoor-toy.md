@@ -1,10 +1,14 @@
 ---
-title: "Kids Explorer Hat Outdoor Toy: Ultimate Adventure Gear for Kids"
-description: "Imagine your child stepping outside, ready to discover hidden treasures in the backyard or explore the wonders of the park. The right gear can turn every outdoo"
+title: 'Kids Explorer Hat Outdoor Toy: Ultimate Adventure Gear for Kids'
+description: Imagine your child stepping outside, ready to discover hidden treasures
+  in the backyard or explore the wonders of the park. The right gear can turn every
+  outdoo
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-explorer-hat-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=kids-explorer-hat-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child stepping outside, ready to discover hidden treasures in the backyard or explore the wonders of the park. The right gear can turn every outdoor moment into a thrilling adventure.**

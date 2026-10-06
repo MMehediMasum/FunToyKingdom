@@ -1,10 +1,14 @@
 ---
-title: "Cube World Toys: Ultimate Pocket-Sized 3D Puzzle & Fidget Collection"
-description: "Cube World Toys offer a wide range of fun and challenging puzzles for all ages. These toys help improve focus, problem-solving, and hand coordination. From the "
+title: 'Cube World Toys: Ultimate Pocket-Sized 3D Puzzle & Fidget Collection'
+description: 'Cube World Toys offer a wide range of fun and challenging puzzles for
+  all ages. These toys help improve focus, problem-solving, and hand coordination.
+  From the '
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cube-world-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy World Records
+heroImage: https://tse1.mm.bing.net/th?q=cube-world-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cube World Toys offer a wide range of fun and challenging puzzles for all ages. These toys help improve focus, problem-solving, and hand coordination.**

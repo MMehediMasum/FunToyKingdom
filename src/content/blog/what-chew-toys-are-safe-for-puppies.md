@@ -1,10 +1,14 @@
 ---
-title: "What Chew Toys are Safe for Puppies: Top Durable & Non-Toxic Picks"
-description: "Choosing the right chew toys for your puppy is more important than you might think. You want to keep your furry friend safe while satisfying their natural urge "
+title: 'What Chew Toys are Safe for Puppies: Top Durable & Non-Toxic Picks'
+description: 'Choosing the right chew toys for your puppy is more important than you
+  might think. You want to keep your furry friend safe while satisfying their natural
+  urge '
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-chew-toys-are-safe-for-puppies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=what-chew-toys-are-safe-for-puppies&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Choosing the right chew toys for your puppy is more important than you might think. You want to keep your furry friend safe while satisfying their natural urge to chew.**

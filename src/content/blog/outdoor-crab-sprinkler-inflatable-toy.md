@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Crab Sprinkler Inflatable Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Crab Sprinkler Inflatable Toy might be just what you need. Imagine your ya"
+title: 'Outdoor Crab Sprinkler Inflatable Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun way to keep your kids cool and entertained this summer?
+  The Outdoor Crab Sprinkler Inflatable Toy might be just what you need. Imagine your
+  ya
 pubDate: 2025-10-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crab-sprinkler-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crab-sprinkler-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Crab Sprinkler Inflatable Toy might be just what you need.**

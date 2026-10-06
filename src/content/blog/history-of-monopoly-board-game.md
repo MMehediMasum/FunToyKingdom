@@ -1,10 +1,14 @@
 ---
-title: "History of Monopoly Board Game: Unveiling Its Epic Legacy"
-description: "Have you ever wondered how Monopoly became the classic game you know today? Behind every roll of the dice and every property you buy lies a fascinating story. T"
+title: 'History of Monopoly Board Game: Unveiling Its Epic Legacy'
+description: Have you ever wondered how Monopoly became the classic game you know
+  today? Behind every roll of the dice and every property you buy lies a fascinating
+  story. T
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-monopoly-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=history-of-monopoly-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how Monopoly became the classic game you know today? Behind every roll of the dice and every property you buy lies a fascinating story.**

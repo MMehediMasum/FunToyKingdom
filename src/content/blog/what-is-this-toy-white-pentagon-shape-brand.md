@@ -1,10 +1,14 @@
 ---
-title: "What is This Toy White Pentagon Shape Brand: Ultimate Guide Revealed"
-description: "Have you ever come across a toy with a white pentagon shape and wondered what brand it belongs to? You’re not alone. That simple design hides a story and a uniq"
+title: 'What is This Toy White Pentagon Shape Brand: Ultimate Guide Revealed'
+description: Have you ever come across a toy with a white pentagon shape and wondered
+  what brand it belongs to? You’re not alone. That simple design hides a story and
+  a uniq
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-this-toy-white-pentagon-shape-brand&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-this-toy-white-pentagon-shape-brand&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever come across a toy with a white pentagon shape and wondered what brand it belongs to? You’re not alone.**

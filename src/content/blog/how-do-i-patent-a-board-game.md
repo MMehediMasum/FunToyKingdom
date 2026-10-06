@@ -1,10 +1,14 @@
 ---
-title: "How Do I Patent a Board Game: Step-by-Step Guide to Protect Your Idea"
-description: "Have you created a board game and wonder how to protect your unique idea? You might be asking yourself, \"How do I patent a board game?\" Securing a patent can be"
+title: 'How Do I Patent a Board Game: Step-by-Step Guide to Protect Your Idea'
+description: Have you created a board game and wonder how to protect your unique idea?
+  You might be asking yourself, "How do I patent a board game?" Securing a patent
+  can be
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-patent-a-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-patent-a-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you created a board game and wonder how to protect your unique idea? You might be asking yourself, "How do I patent a board game?"**

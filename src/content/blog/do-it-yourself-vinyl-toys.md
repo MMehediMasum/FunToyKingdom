@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Vinyl Toys: Creative Fun for All Ages"
-description: "Have you ever wanted to create your own unique vinyl toys but didn’t know where to start? Imagine holding a toy that you made with your own hands—something no o"
+title: 'Do It Yourself Vinyl Toys: Creative Fun for All Ages'
+description: Have you ever wanted to create your own unique vinyl toys but didn’t
+  know where to start? Imagine holding a toy that you made with your own hands—something
+  no o
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wanted to create your own unique vinyl toys but didn’t know where to start? Imagine holding a toy that you made with your own hands—something no one else has.**

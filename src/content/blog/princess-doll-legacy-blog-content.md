@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Princess Doll Legacy Blog Content: Ultimate Guide to Timeless Magic"
 description: "Are you ready to discover the magic behind Princess Doll Legacy? Whether you’re a collector, a parent, or simply curious, this blog will give you everything you"
 pubDate: 2025-12-14

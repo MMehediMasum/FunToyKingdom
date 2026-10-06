@@ -1,10 +1,14 @@
 ---
-title: "How to Frame a Jigsaw Puzzle: Easy Steps for Stunning Displays"
-description: "You’ve spent hours piecing together your jigsaw puzzle, and now it’s time to make it shine on your wall. But how do you frame a jigsaw puzzle without damaging i"
+title: 'How to Frame a Jigsaw Puzzle: Easy Steps for Stunning Displays'
+description: You’ve spent hours piecing together your jigsaw puzzle, and now it’s
+  time to make it shine on your wall. But how do you frame a jigsaw puzzle without
+  damaging i
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-frame-a-jigsaw-puzzle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Jigsaw Puzzle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-frame-a-jigsaw-puzzle&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **You’ve spent hours piecing together your jigsaw puzzle, and now it’s time to make it shine on your wall. But how do you frame a jigsaw puzzle without damaging it or losing its charm?**

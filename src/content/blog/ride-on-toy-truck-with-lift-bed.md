@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy Truck With Lift Bed: Ultimate Fun & Durable Playtime"
-description: "Looking for a fun and exciting toy that will keep your child entertained for hours? A ride on toy truck with a lift bed might be exactly what you need. Imagine "
+title: 'Ride on Toy Truck With Lift Bed: Ultimate Fun & Durable Playtime'
+description: 'Looking for a fun and exciting toy that will keep your child entertained
+  for hours? A ride on toy truck with a lift bed might be exactly what you need. Imagine '
 pubDate: 2025-09-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-truck-with-lift-bed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-truck-with-lift-bed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a fun and exciting toy that will keep your child entertained for hours? A ride on toy truck with a lift bed might be exactly what you need.**

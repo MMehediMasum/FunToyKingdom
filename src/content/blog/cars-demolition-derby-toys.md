@@ -1,10 +1,14 @@
 ---
-title: "Cars Demolition Derby Toys: Ultimate Guide to Exciting Diecast Racing Fun"
-description: "Cars demolition derby toys bring the excitement of crashing races into your home. These miniature vehicles capture the fun and chaos of demolition derby events."
+title: 'Cars Demolition Derby Toys: Ultimate Guide to Exciting Diecast Racing Fun'
+description: Cars demolition derby toys bring the excitement of crashing races into
+  your home. These miniature vehicles capture the fun and chaos of demolition derby
+  events.
 pubDate: 2026-08-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-demolition-derby-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-demolition-derby-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Cars demolition derby toys bring the excitement of crashing races into your home. These miniature vehicles capture the fun and chaos of demolition derby events.**

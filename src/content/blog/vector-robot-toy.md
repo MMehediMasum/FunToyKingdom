@@ -1,10 +1,13 @@
 ---
-title: "Vector Robot Toy: The Ultimate Smart AI Companion for Home Fun"
-description: "Vector Robot Toy offers a fun, interactive experience for kids and adults alike. It combines smart features with easy controls to bring a friendly robot compani"
+title: 'Vector Robot Toy: The Ultimate Smart AI Companion for Home Fun'
+description: Vector Robot Toy offers a fun, interactive experience for kids and adults
+  alike. It combines smart features with easy controls to bring a friendly robot compani
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vector-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=vector-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Vector Robot Toy offers a fun, interactive experience for kids and adults alike. It combines smart features with easy controls to bring a friendly robot companion home.**

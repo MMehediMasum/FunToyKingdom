@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Patio Door Kit: Easy Upgrade for Secure, Convenient Closure"
 description: "A Toy Hauler Patio Door Kit improves your RV’s outdoor living space quickly and easily. It offers a smart way to add convenience and comfort to your toy hauler."
 pubDate: 2026-08-24

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "American Football Junior Size: Ultimate Guide to Perfect Gear Choices"
 description: "Are you looking for the perfect American football junior size ball for your young athlete? Choosing the right size can make all the difference in their game and"
 pubDate: 2026-04-07

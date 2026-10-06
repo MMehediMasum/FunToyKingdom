@@ -1,10 +1,14 @@
 ---
-title: "Coding Toys for 4 Year Olds: Top Interactive STEM Picks for Kids"
-description: "Coding toys help young children learn basic programming skills in a fun way. They encourage problem-solving and creativity without needing screens. For 4 year o"
+title: 'Coding Toys for 4 Year Olds: Top Interactive STEM Picks for Kids'
+description: Coding toys help young children learn basic programming skills in a fun
+  way. They encourage problem-solving and creativity without needing screens. For
+  4 year o
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toys-for-4-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toys-for-4-year-olds&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Coding toys help young children learn basic programming skills in a fun way. They encourage problem-solving and creativity without needing screens.**

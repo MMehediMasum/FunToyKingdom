@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Making of Magic: Inside the Ultimate Creative Activity Book"
 description: "Toy Story changed animation forever with its creative story and new technology. Discover how Pixar and Disney brought toys to life on screen. The making of Toy "
 pubDate: 2026-08-25

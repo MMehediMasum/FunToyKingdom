@@ -1,10 +1,14 @@
 ---
-title: "Disney Princess Singing Dolls: Magical Melodies for Kids' Joy"
-description: "Imagine bringing your favorite Disney Princesses to life right in your own home. Disney Princess Singing Dolls do just that—they sing, charm, and create magical"
+title: 'Disney Princess Singing Dolls: Magical Melodies for Kids'' Joy'
+description: Imagine bringing your favorite Disney Princesses to life right in your
+  own home. Disney Princess Singing Dolls do just that—they sing, charm, and create
+  magical
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-princess-singing-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Old Princess Dolls
+heroImage: https://tse1.mm.bing.net/th?q=disney-princess-singing-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine bringing your favorite Disney Princesses to life right in your own home. Disney Princess Singing Dolls do just that—they sing, charm, and create magical moments that you and your loved ones will treasure.**

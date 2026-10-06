@@ -1,10 +1,14 @@
 ---
-title: "Soft Plush Toy With Crinkle Fabric: Irresistible Comfort & Fun"
-description: "Are you looking for the perfect toy that brings comfort and fun to your little one? A soft plush toy with crinkle fabric might be exactly what you need. Imagine"
+title: 'Soft Plush Toy With Crinkle Fabric: Irresistible Comfort & Fun'
+description: Are you looking for the perfect toy that brings comfort and fun to your
+  little one? A soft plush toy with crinkle fabric might be exactly what you need.
+  Imagine
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-plush-toy-with-crinkle-fabric&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=soft-plush-toy-with-crinkle-fabric&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect toy that brings comfort and fun to your little one? A soft plush toy with crinkle fabric might be exactly what you need.**

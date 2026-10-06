@@ -1,10 +1,14 @@
 ---
-title: "Toy Fire Truck Car: Top Realistic Lights & Sounds Rescue Vehicles"
-description: "Toy fire truck cars bring excitement and learning to young children. These toys combine fun features with safe, durable designs. Fire truck toys come in many si"
+title: 'Toy Fire Truck Car: Top Realistic Lights & Sounds Rescue Vehicles'
+description: Toy fire truck cars bring excitement and learning to young children.
+  These toys combine fun features with safe, durable designs. Fire truck toys come
+  in many si
 pubDate: 2026-03-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-fire-truck-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-fire-truck-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toy fire truck cars bring excitement and learning to young children. These toys combine fun features with safe, durable designs.**

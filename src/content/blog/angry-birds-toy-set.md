@@ -1,10 +1,14 @@
 ---
-title: "Angry Birds Toy Set: Unleash Fun with Interactive Playsets & Figures"
-description: "The Angry Birds Toy Set offers fun and creative play for kids and fans alike. These sets include action figures, building blocks, and launchers. Choose from var"
+title: 'Angry Birds Toy Set: Unleash Fun with Interactive Playsets & Figures'
+description: The Angry Birds Toy Set offers fun and creative play for kids and fans
+  alike. These sets include action figures, building blocks, and launchers. Choose
+  from var
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=angry-birds-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=angry-birds-toy-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Angry Birds Toy Set offers fun and creative play for kids and fans alike. These sets include action figures, building blocks, and launchers.**

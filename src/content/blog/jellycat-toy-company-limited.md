@@ -1,10 +1,13 @@
 ---
-title: "Jellycat Toy Company Limited: Top Plush Toys and Classic Children's Gifts"
-description: "Jellycat Toy Company Limited creates soft, cuddly stuffed animals loved by children worldwide. Their toys blend charm, quality, and comfort perfectly. Jellycat "
+title: 'Jellycat Toy Company Limited: Top Plush Toys and Classic Children''s Gifts'
+description: 'Jellycat Toy Company Limited creates soft, cuddly stuffed animals loved
+  by children worldwide. Their toys blend charm, quality, and comfort perfectly. Jellycat '
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jellycat-toy-company-limited&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=jellycat-toy-company-limited&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Jellycat Toy Company Limited creates soft, cuddly stuffed animals loved by children worldwide. Their toys blend charm, quality, and comfort perfectly.**

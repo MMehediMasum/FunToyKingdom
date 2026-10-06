@@ -1,10 +1,14 @@
 ---
-title: "Lego Creator Robot Toy Explorer Set: Ultimate STEM Adventure Kit"
-description: "Imagine building your very own robot that you can control and customize. The Lego Creator Robot Toy Explorer Set lets you do just that. If you love hands-on fun"
+title: 'Lego Creator Robot Toy Explorer Set: Ultimate STEM Adventure Kit'
+description: Imagine building your very own robot that you can control and customize.
+  The Lego Creator Robot Toy Explorer Set lets you do just that. If you love hands-on
+  fun
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-creator-robot-toy-explorer-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=lego-creator-robot-toy-explorer-set&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine building your very own robot that you can control and customize. The Lego Creator Robot Toy Explorer Set lets you do just that.**

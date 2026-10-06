@@ -1,10 +1,14 @@
 ---
-title: "Chemistry Lab Educational Toy Sets: Ignite Curiosity and Learning"
-description: "Are you looking for a fun and exciting way to spark your child’s interest in science? Chemistry lab educational toy sets are the perfect tool to do just that. T"
+title: 'Chemistry Lab Educational Toy Sets: Ignite Curiosity and Learning'
+description: Are you looking for a fun and exciting way to spark your child’s interest
+  in science? Chemistry lab educational toy sets are the perfect tool to do just that.
+  T
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=chemistry-lab-educational-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=chemistry-lab-educational-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s interest in science? Chemistry lab educational toy sets are the perfect tool to do just that.**

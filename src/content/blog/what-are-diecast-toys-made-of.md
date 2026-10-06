@@ -1,10 +1,14 @@
 ---
-title: "What are Diecast Toys Made of: Unveiling Their Surprising Materials"
-description: "Have you ever wondered what makes diecast toys so special? If you’ve held one in your hands, you know they feel solid and detailed, but what exactly are they ma"
+title: 'What are Diecast Toys Made of: Unveiling Their Surprising Materials'
+description: Have you ever wondered what makes diecast toys so special? If you’ve
+  held one in your hands, you know they feel solid and detailed, but what exactly
+  are they ma
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-diecast-toys-made-of&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=what-are-diecast-toys-made-of&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered what makes diecast toys so special? If you’ve held one in your hands, you know they feel solid and detailed, but what exactly are they made of?**

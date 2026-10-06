@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Reindeer Antler Toss Game: Ultimate Holiday Fun Challenge"
-description: "Looking for a fun and exciting way to spice up your holiday gatherings? The Inflatable Reindeer Antler Toss Game is exactly what you need to bring laughter and "
+title: 'Inflatable Reindeer Antler Toss Game: Ultimate Holiday Fun Challenge'
+description: 'Looking for a fun and exciting way to spice up your holiday gatherings?
+  The Inflatable Reindeer Antler Toss Game is exactly what you need to bring laughter
+  and '
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-reindeer-antler-toss-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-reindeer-antler-toss-game&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to spice up your holiday gatherings? The Inflatable Reindeer Antler Toss Game is exactly what you need to bring laughter and friendly competition to your party.**

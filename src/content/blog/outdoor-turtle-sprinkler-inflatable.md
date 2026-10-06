@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Turtle Sprinkler Inflatable: Ultimate Summer Fun for Kids"
-description: "Looking for a fun and refreshing way to keep your outdoor space cool this summer? An outdoor turtle sprinkler inflatable might be exactly what you need. Imagine"
+title: 'Outdoor Turtle Sprinkler Inflatable: Ultimate Summer Fun for Kids'
+description: Looking for a fun and refreshing way to keep your outdoor space cool
+  this summer? An outdoor turtle sprinkler inflatable might be exactly what you need.
+  Imagine
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-turtle-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-turtle-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and refreshing way to keep your outdoor space cool this summer? An outdoor turtle sprinkler inflatable might be exactly what you need.**

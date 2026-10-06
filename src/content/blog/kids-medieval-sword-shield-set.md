@@ -1,10 +1,14 @@
 ---
-title: "Kids Medieval Sword Shield Set: Ultimate Fun & Safety Guide"
-description: "Are you looking for a way to spark your child’s imagination and bring hours of fun to playtime? A Kids Medieval Sword Shield Set might be exactly what you need."
+title: 'Kids Medieval Sword Shield Set: Ultimate Fun & Safety Guide'
+description: Are you looking for a way to spark your child’s imagination and bring
+  hours of fun to playtime? A Kids Medieval Sword Shield Set might be exactly what
+  you need.
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-medieval-sword-shield-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=kids-medieval-sword-shield-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a way to spark your child’s imagination and bring hours of fun to playtime? A Kids Medieval Sword Shield Set might be exactly what you need.**

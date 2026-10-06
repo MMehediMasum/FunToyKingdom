@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Embroidery Design: Perfect Iron-On Patches for Kids’ Crafts"
 description: "Toy Story embroidery designs bring your favorite characters to life on fabric. These patches and patterns add charm to clothes and crafts easily. Toy Story fans"
 pubDate: 2026-02-28

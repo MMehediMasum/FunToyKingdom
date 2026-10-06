@@ -1,10 +1,14 @@
 ---
-title: "Vintage Mcdonalds Toy Figurines Value: Ultimate Guide to Collectors’ Gold"
-description: "Have you ever wondered how much your old McDonald’s toy figurines could be worth? Those colorful little characters from childhood might be hiding surprising val"
+title: 'Vintage Mcdonalds Toy Figurines Value: Ultimate Guide to Collectors’ Gold'
+description: Have you ever wondered how much your old McDonald’s toy figurines could
+  be worth? Those colorful little characters from childhood might be hiding surprising
+  val
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-mcdonalds-toy-figurines-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=vintage-mcdonalds-toy-figurines-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered how much your old McDonald’s toy figurines could be worth? Those colorful little characters from childhood might be hiding surprising value right in your attic or toy box.**

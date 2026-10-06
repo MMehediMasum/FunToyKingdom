@@ -1,10 +1,14 @@
 ---
-title: "Toy Train Model Sets: Top Diecast Locomotives for Kids’ Playtime"
-description: "Toy train models bring joy to kids and collectors alike. They combine fun, learning, and creativity in one small package. Toy train sets come in many styles, fr"
+title: 'Toy Train Model Sets: Top Diecast Locomotives for Kids’ Playtime'
+description: Toy train models bring joy to kids and collectors alike. They combine
+  fun, learning, and creativity in one small package. Toy train sets come in many
+  styles, fr
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-train-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-train-model&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy train models bring joy to kids and collectors alike. They combine fun, learning, and creativity in one small package.**

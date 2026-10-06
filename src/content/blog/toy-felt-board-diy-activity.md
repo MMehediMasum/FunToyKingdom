@@ -1,10 +1,13 @@
 ---
-title: "Toy Felt Board Diy Activity: Creative Fun for Kids at Home"
-description: "Are you looking for a fun and creative way to keep your kids entertained while boosting their imagination? A Toy Felt Board DIY Activity is the perfect solution"
+title: 'Toy Felt Board Diy Activity: Creative Fun for Kids at Home'
+description: Are you looking for a fun and creative way to keep your kids entertained
+  while boosting their imagination? A Toy Felt Board DIY Activity is the perfect solution
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-felt-board-diy-activity&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=toy-felt-board-diy-activity&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to keep your kids entertained while boosting their imagination? A Toy Felt Board DIY Activity is the perfect solution for you.**

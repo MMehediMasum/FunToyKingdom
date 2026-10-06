@@ -1,10 +1,13 @@
 ---
-title: "Best Indoor Climbing Toys for Toddlers to Boost Motor Skills"
-description: "Indoor climbing toys keep toddlers active and entertained safely at home. These toys help develop motor skills, balance, and coordination through play. Toddlers"
+title: Best Indoor Climbing Toys for Toddlers to Boost Motor Skills
+description: Indoor climbing toys keep toddlers active and entertained safely at home.
+  These toys help develop motor skills, balance, and coordination through play. Toddlers
 pubDate: 2025-09-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-indoor-climbing-toys-for-toddlers-to-boost-motor-skills&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 4 Months
+heroImage: https://tse1.mm.bing.net/th?q=best-indoor-climbing-toys-for-toddlers-to-boost-motor-skills&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Indoor climbing toys keep toddlers active and entertained safely at home. These toys help develop motor skills, balance, and coordination through play.**

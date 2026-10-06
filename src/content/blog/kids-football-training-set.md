@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Football Training Set: Ultimate Guide for Skill Boosting Fun"
 description: "Are you looking for the perfect way to get your child excited about football? A Kids Football Training Set might be exactly what you need. It’s more than just g"
 pubDate: 2026-03-19

@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Compass: Create a Fun and Educational Craft"
-description: "Imagine holding a simple wooden toy compass you made yourself—something that sparks curiosity and brings hours of fun. You don’t need fancy tools or skills to c"
+title: 'Diy Wooden Toy Compass: Create a Fun and Educational Craft'
+description: Imagine holding a simple wooden toy compass you made yourself—something
+  that sparks curiosity and brings hours of fun. You don’t need fancy tools or skills
+  to c
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-compass&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-compass&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a simple wooden toy compass you made yourself—something that sparks curiosity and brings hours of fun. You don’t need fancy tools or skills to create this timeless piece.**

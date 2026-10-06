@@ -1,10 +1,14 @@
 ---
-title: "Anime Action Figures for Collectors: Ultimate Guide to Rare Finds"
-description: "Are you passionate about anime and looking to bring your favorite characters to life? Anime action figures for collectors offer a unique way to connect with the"
+title: 'Anime Action Figures for Collectors: Ultimate Guide to Rare Finds'
+description: Are you passionate about anime and looking to bring your favorite characters
+  to life? Anime action figures for collectors offer a unique way to connect with
+  the
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=anime-action-figures-for-collectors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=anime-action-figures-for-collectors&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you passionate about anime and looking to bring your favorite characters to life? Anime action figures for collectors offer a unique way to connect with the stories and heroes you love.**

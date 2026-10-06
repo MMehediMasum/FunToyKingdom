@@ -1,10 +1,14 @@
 ---
-title: "Dollar Tree Sensory Toys: Top Montessori Picks for Kids’ Learning Fun"
-description: "Dollar Tree offers a variety of sensory toys that support children's learning and play. These affordable toys help develop fine motor skills and calm restless m"
+title: 'Dollar Tree Sensory Toys: Top Montessori Picks for Kids’ Learning Fun'
+description: Dollar Tree offers a variety of sensory toys that support children's
+  learning and play. These affordable toys help develop fine motor skills and calm
+  restless m
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dollar-tree-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=dollar-tree-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Dollar Tree offers a variety of sensory toys that support children's learning and play. These affordable toys help develop fine motor skills and calm restless minds.**

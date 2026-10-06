@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Get Chlamydia from Toys? Essential Facts Revealed"
 description: "Have you ever wondered if you can catch chlamydia from toys? It’s a question that might seem surprising, but it’s important to know the facts to keep yourself s"
 pubDate: 2026-01-03

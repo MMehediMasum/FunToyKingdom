@@ -1,10 +1,14 @@
 ---
-title: "Wwe Ring Toy: Ultimate Playset for Epic Wrestling Action and Fun"
-description: "WWE ring toys bring wrestling action to your home. These playsets let kids recreate exciting WWE matches. Mattel WWE Superstar Rings and WWE Wrekkin' Kickout Ri"
+title: 'Wwe Ring Toy: Ultimate Playset for Epic Wrestling Action and Fun'
+description: WWE ring toys bring wrestling action to your home. These playsets let
+  kids recreate exciting WWE matches. Mattel WWE Superstar Rings and WWE Wrekkin'
+  Kickout Ri
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wwe-ring-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=wwe-ring-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **WWE ring toys bring wrestling action to your home. These playsets let kids recreate exciting WWE matches.**

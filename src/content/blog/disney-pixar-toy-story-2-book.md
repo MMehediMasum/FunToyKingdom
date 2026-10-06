@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Disney Pixar Toy Story 2 Book: Must-Have Magical Storytime Adventure"
 description: "Toy Story 2 from Disney Pixar is a timeless tale. It delights readers of all ages with its heartwarming adventure. This beloved story follows Woody, Buzz, and t"
 pubDate: 2025-11-02

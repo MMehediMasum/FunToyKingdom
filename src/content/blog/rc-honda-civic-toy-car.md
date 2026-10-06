@@ -1,10 +1,14 @@
 ---
-title: "Rc Honda Civic Toy Car: Ultimate Guide to Speed and Style"
-description: "Are you looking for a fun and exciting way to enjoy your love for cars right at home? The RC Honda Civic Toy Car is exactly what you need. This miniature marvel"
+title: 'Rc Honda Civic Toy Car: Ultimate Guide to Speed and Style'
+description: Are you looking for a fun and exciting way to enjoy your love for cars
+  right at home? The RC Honda Civic Toy Car is exactly what you need. This miniature
+  marvel
 pubDate: 2025-09-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-honda-civic-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-honda-civic-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting way to enjoy your love for cars right at home? The RC Honda Civic Toy Car is exactly what you need.**

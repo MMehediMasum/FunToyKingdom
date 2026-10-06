@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Trucks: Creative, Eco-Friendly Fun Ideas"
-description: "Imagine giving your child a toy that sparks creativity, teaches patience, and brings endless joy—all made from simple cardboard. Handmade cardboard toy trucks a"
+title: 'Handmade Cardboard Toy Trucks: Creative, Eco-Friendly Fun Ideas'
+description: Imagine giving your child a toy that sparks creativity, teaches patience,
+  and brings endless joy—all made from simple cardboard. Handmade cardboard toy trucks
+  a
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, teaches patience, and brings endless joy—all made from simple cardboard. Handmade cardboard toy trucks are not just toys; they are a chance for you and your child to connect, build, and play together in a way that feels personal and special.**

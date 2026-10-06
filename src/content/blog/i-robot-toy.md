@@ -1,10 +1,14 @@
 ---
-title: "I Robot Toy: Top Remote Control and Programmable Robots for Kids"
-description: "Robots captivate young minds with their fascinating features and interactive play. The I Robot Toy is a fantastic choice for kids. These toys offer more than ju"
+title: 'I Robot Toy: Top Remote Control and Programmable Robots for Kids'
+description: Robots captivate young minds with their fascinating features and interactive
+  play. The I Robot Toy is a fantastic choice for kids. These toys offer more than
+  ju
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=i-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=i-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robots captivate young minds with their fascinating features and interactive play. The I Robot Toy is a fantastic choice for kids.**

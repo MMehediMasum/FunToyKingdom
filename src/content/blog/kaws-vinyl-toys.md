@@ -1,10 +1,13 @@
 ---
-title: "Kaws Vinyl Toys: Collectible Multi-Jointed Action Figures for Creative Gifts"
-description: "Kaws vinyl toys have become popular collectibles worldwide. These art-inspired figures combine creativity with unique design. Kaws vinyl toys attract fans with "
+title: 'Kaws Vinyl Toys: Collectible Multi-Jointed Action Figures for Creative Gifts'
+description: 'Kaws vinyl toys have become popular collectibles worldwide. These art-inspired
+  figures combine creativity with unique design. Kaws vinyl toys attract fans with '
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=kaws-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=kaws-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Kaws vinyl toys have become popular collectibles worldwide. These art-inspired figures combine creativity with unique design.**

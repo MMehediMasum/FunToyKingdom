@@ -1,10 +1,14 @@
 ---
-title: "Best Stuffed Toys for Newborns: Safe, Soft & Adorable Picks"
-description: "Choosing the perfect stuffed toy for your newborn can feel overwhelming. You want something soft, safe, and comforting—something that becomes your baby’s first "
+title: 'Best Stuffed Toys for Newborns: Safe, Soft & Adorable Picks'
+description: 'Choosing the perfect stuffed toy for your newborn can feel overwhelming.
+  You want something soft, safe, and comforting—something that becomes your baby’s
+  first '
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-stuffed-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=best-stuffed-toys-for-newborns&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Choosing the perfect stuffed toy for your newborn can feel overwhelming. You want something soft, safe, and comforting—something that becomes your baby’s first best friend.**

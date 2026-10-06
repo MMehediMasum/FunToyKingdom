@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Mailbox With Cardboard: Easy DIY Craft Guide"
-description: "Looking for a fun and simple craft project that you can do with your kids or on your own? Making a toy mailbox with cardboard is a creative way to spark imagina"
+title: 'How to Make Toy Mailbox With Cardboard: Easy DIY Craft Guide'
+description: Looking for a fun and simple craft project that you can do with your
+  kids or on your own? Making a toy mailbox with cardboard is a creative way to spark
+  imagina
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-mailbox-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-mailbox-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and simple craft project that you can do with your kids or on your own? Making a toy mailbox with cardboard is a creative way to spark imagination and bring a little joy to your home.**

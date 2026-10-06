@@ -1,10 +1,14 @@
 ---
-title: "Funko Pop Collectible Toy Figurines: Ultimate Guide to Must-Haves"
-description: "Are you ready to dive into a world where your favorite movies, games, and heroes come to life in tiny, collectible forms? Funko Pop collectible toy figurines ar"
+title: 'Funko Pop Collectible Toy Figurines: Ultimate Guide to Must-Haves'
+description: Are you ready to dive into a world where your favorite movies, games,
+  and heroes come to life in tiny, collectible forms? Funko Pop collectible toy figurines
+  ar
 pubDate: 2026-09-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=funko-pop-collectible-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=funko-pop-collectible-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to dive into a world where your favorite movies, games, and heroes come to life in tiny, collectible forms? Funko Pop collectible toy figurines are more than just toys—they’re a way to express your passions and bring a bit of magic into your everyday space.**

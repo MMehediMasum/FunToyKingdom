@@ -1,10 +1,14 @@
 ---
-title: "Hess Truck Display Case: Protect and Showcase Your Collectibles Perfectly"
-description: "Collectors of Hess trucks know the value of a quality display case. Protecting these cherished items is essential. A good display case ensures your Hess trucks "
+title: 'Hess Truck Display Case: Protect and Showcase Your Collectibles Perfectly'
+description: 'Collectors of Hess trucks know the value of a quality display case.
+  Protecting these cherished items is essential. A good display case ensures your
+  Hess trucks '
 pubDate: 2026-03-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hess-truck-display-case&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=hess-truck-display-case&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Collectors of Hess trucks know the value of a quality display case. Protecting these cherished items is essential.**

@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Backyard Play: Ultimate Fun and Adventure Guide"
-description: "Looking for a fun way to keep your kids active and entertained right in your backyard? A ride-on toy might be exactly what you need. Imagine your child zooming "
+title: 'Ride on Toy for Backyard Play: Ultimate Fun and Adventure Guide'
+description: 'Looking for a fun way to keep your kids active and entertained right
+  in your backyard? A ride-on toy might be exactly what you need. Imagine your child
+  zooming '
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-backyard-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-backyard-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids active and entertained right in your backyard? A ride-on toy might be exactly what you need.**

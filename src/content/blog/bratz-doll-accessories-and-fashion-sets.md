@@ -1,10 +1,14 @@
 ---
-title: "Bratz Doll Accessories And Fashion Sets: Ultimate Style Guide 2025"
-description: "Are you ready to take your Bratz dolls to the next level? Bratz doll accessories and fashion sets are the secret to unlocking endless fun and creativity. Imagin"
+title: 'Bratz Doll Accessories And Fashion Sets: Ultimate Style Guide 2025'
+description: Are you ready to take your Bratz dolls to the next level? Bratz doll
+  accessories and fashion sets are the secret to unlocking endless fun and creativity.
+  Imagin
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=bratz-doll-accessories-and-fashion-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=bratz-doll-accessories-and-fashion-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to take your Bratz dolls to the next level? Bratz doll accessories and fashion sets are the secret to unlocking endless fun and creativity.**

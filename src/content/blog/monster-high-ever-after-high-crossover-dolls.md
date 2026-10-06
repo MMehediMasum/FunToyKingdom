@@ -1,10 +1,14 @@
 ---
-title: "Monster High Ever After High Crossover Dolls: Ultimate Collector’s Guide"
-description: "Are you ready to discover a magical world where two of your favorite doll lines come together? Monster High Ever After High Crossover Dolls bring the best of bo"
+title: 'Monster High Ever After High Crossover Dolls: Ultimate Collector’s Guide'
+description: Are you ready to discover a magical world where two of your favorite
+  doll lines come together? Monster High Ever After High Crossover Dolls bring the
+  best of bo
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-ever-after-high-crossover-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Old Princess Dolls
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-ever-after-high-crossover-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to discover a magical world where two of your favorite doll lines come together? Monster High Ever After High Crossover Dolls bring the best of both worlds right into your hands.**

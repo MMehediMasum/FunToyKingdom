@@ -1,10 +1,13 @@
 ---
-title: "Scrabble As an Educational Toy: Boost Learning and Fun Instantly"
-description: "Imagine a game that turns learning into fun and sparks your brain’s creativity every time you play. Scrabble is more than just a board game—it’s a powerful educ"
+title: 'Scrabble As an Educational Toy: Boost Learning and Fun Instantly'
+description: Imagine a game that turns learning into fun and sparks your brain’s creativity
+  every time you play. Scrabble is more than just a board game—it’s a powerful educ
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=scrabble-as-an-educational-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=scrabble-as-an-educational-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine a game that turns learning into fun and sparks your brain’s creativity every time you play. Scrabble is more than just a board game—it’s a powerful educational tool that can boost your vocabulary, sharpen your spelling, and improve your strategic thinking.**

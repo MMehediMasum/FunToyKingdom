@@ -1,10 +1,14 @@
 ---
-title: "Kids Ride on Car With Opening Doors: Ultimate Fun and Safety Guide"
-description: "Imagine your child’s face lighting up as they zoom around in their very own ride-on car—with doors that actually open! You want to give your little one not just"
+title: 'Kids Ride on Car With Opening Doors: Ultimate Fun and Safety Guide'
+description: Imagine your child’s face lighting up as they zoom around in their very
+  own ride-on car—with doors that actually open! You want to give your little one
+  not just
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-ride-on-car-with-opening-doors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=kids-ride-on-car-with-opening-doors&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they zoom around in their very own ride-on car—with doors that actually open! You want to give your little one not just fun, but an exciting experience that feels real and special.**

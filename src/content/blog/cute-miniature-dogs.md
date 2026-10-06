@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Cute Miniature Dogs: Ultimate Guide to Choosing and Caring for Your Pup"
 description: "Miniature dogs have captured the hearts of pet lovers worldwide. Their small size and big personalities make them irresistible companions. Teacup Yorkies, Dachs"
 pubDate: 2026-08-20

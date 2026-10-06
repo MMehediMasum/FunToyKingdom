@@ -1,10 +1,14 @@
 ---
-title: "Vintage Toy Cars: Top Diecast Classic Models for Collectors and Kids"
-description: "Vintage toy cars hold a special place in many hearts. They capture the charm of classic vehicles in small, detailed models. These collectible toy cars, like the"
+title: 'Vintage Toy Cars: Top Diecast Classic Models for Collectors and Kids'
+description: Vintage toy cars hold a special place in many hearts. They capture the
+  charm of classic vehicles in small, detailed models. These collectible toy cars,
+  like the
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=vintage-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Vintage toy cars hold a special place in many hearts. They capture the charm of classic vehicles in small, detailed models.**

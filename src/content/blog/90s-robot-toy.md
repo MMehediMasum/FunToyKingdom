@@ -1,10 +1,14 @@
 ---
-title: "90S Robot Toy: Top Retro Picks for Kids’ Fun and Collectibles"
-description: "Robot toys from the 90s bring nostalgia and joy to both collectors and kids alike. These vintage and modern robotic playthings captivate with their simplicity a"
+title: '90S Robot Toy: Top Retro Picks for Kids’ Fun and Collectibles'
+description: Robot toys from the 90s bring nostalgia and joy to both collectors and
+  kids alike. These vintage and modern robotic playthings captivate with their simplicity
+  a
 pubDate: 2026-02-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=90s-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=90s-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot toys from the 90s bring nostalgia and joy to both collectors and kids alike. These vintage and modern robotic playthings captivate with their simplicity and charm.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Travelling: Compact, Fun, and Family-Friendly Picks"
-description: "Traveling often means long waits and downtime. Compact board games make trips more fun and keep everyone entertained. Choosing the right travel board game can b"
+title: 'Best Board Games for Travelling: Compact, Fun, and Family-Friendly Picks'
+description: Traveling often means long waits and downtime. Compact board games make
+  trips more fun and keep everyone entertained. Choosing the right travel board game
+  can b
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-travelling-compact-fun-and-family-friendly-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-travelling-compact-fun-and-family-friendly-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Traveling often means long waits and downtime. Compact board games make trips more fun and keep everyone entertained.**

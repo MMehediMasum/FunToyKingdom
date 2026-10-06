@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Soccer Net for Kids: Ultimate Fun & Durable Play Gear"
-description: "Looking for the perfect outdoor soccer net for kids? You want something safe, durable, and fun that keeps your little ones excited to play outside. Choosing the"
+title: 'Outdoor Soccer Net for Kids: Ultimate Fun & Durable Play Gear'
+description: Looking for the perfect outdoor soccer net for kids? You want something
+  safe, durable, and fun that keeps your little ones excited to play outside. Choosing
+  the
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-soccer-net-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-soccer-net-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect outdoor soccer net for kids? You want something safe, durable, and fun that keeps your little ones excited to play outside.**

@@ -1,10 +1,14 @@
 ---
-title: "Motor Skill Toys for 6 Month Old: Boost Growth with Top Picks"
-description: "Are you looking for the perfect toys to help your 6-month-old grow and learn? Choosing the right motor skill toys can make a big difference in your baby’s devel"
+title: 'Motor Skill Toys for 6 Month Old: Boost Growth with Top Picks'
+description: Are you looking for the perfect toys to help your 6-month-old grow and
+  learn? Choosing the right motor skill toys can make a big difference in your baby’s
+  devel
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=motor-skill-toys-for-6-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Motor Skill Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=motor-skill-toys-for-6-month-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toys to help your 6-month-old grow and learn? Choosing the right motor skill toys can make a big difference in your baby’s development.**

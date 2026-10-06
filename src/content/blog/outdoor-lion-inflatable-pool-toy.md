@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Lion Inflatable Pool Toy: Ultimate Summer Fun for Kids"
-description: "Looking for a fun and exciting way to make your pool time unforgettable? The Outdoor Lion Inflatable Pool Toy is just what you need to turn your backyard into a"
+title: 'Outdoor Lion Inflatable Pool Toy: Ultimate Summer Fun for Kids'
+description: Looking for a fun and exciting way to make your pool time unforgettable?
+  The Outdoor Lion Inflatable Pool Toy is just what you need to turn your backyard
+  into a
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-lion-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-lion-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to make your pool time unforgettable? The Outdoor Lion Inflatable Pool Toy is just what you need to turn your backyard into a splash-filled adventure.**

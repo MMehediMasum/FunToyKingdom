@@ -1,10 +1,14 @@
 ---
-title: "Barbie Princess Dolls Collection: Ultimate Guide for Collectors"
-description: "Are you ready to discover a world where imagination meets elegance? The Barbie Princess Dolls Collection is designed to bring magic right into your hands. Wheth"
+title: 'Barbie Princess Dolls Collection: Ultimate Guide for Collectors'
+description: Are you ready to discover a world where imagination meets elegance? The
+  Barbie Princess Dolls Collection is designed to bring magic right into your hands.
+  Wheth
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-princess-dolls-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=barbie-princess-dolls-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to discover a world where imagination meets elegance? The Barbie Princess Dolls Collection is designed to bring magic right into your hands.**

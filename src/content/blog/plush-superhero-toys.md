@@ -1,10 +1,14 @@
 ---
-title: "Plush Superhero Toys: Soft, Collectible Heroes Kids Absolutely Love"
-description: "Plush superhero toys bring favorite heroes to life in a soft, cuddly form. Kids and collectors love their charm and detail. These toys offer more than just fun."
+title: 'Plush Superhero Toys: Soft, Collectible Heroes Kids Absolutely Love'
+description: Plush superhero toys bring favorite heroes to life in a soft, cuddly
+  form. Kids and collectors love their charm and detail. These toys offer more than
+  just fun.
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=plush-superhero-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=plush-superhero-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Plush superhero toys bring favorite heroes to life in a soft, cuddly form. Kids and collectors love their charm and detail.**

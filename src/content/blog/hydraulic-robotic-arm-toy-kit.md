@@ -1,10 +1,14 @@
 ---
-title: "Hydraulic Robotic Arm Toy Kit: Build, Learn & Innovate Fast!"
-description: "Have you ever wanted to build your own robot and see it move with just the power of water? The Hydraulic Robotic Arm Toy Kit lets you do exactly that. It’s a fu"
+title: 'Hydraulic Robotic Arm Toy Kit: Build, Learn & Innovate Fast!'
+description: Have you ever wanted to build your own robot and see it move with just
+  the power of water? The Hydraulic Robotic Arm Toy Kit lets you do exactly that.
+  It’s a fu
 pubDate: 2025-10-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hydraulic-robotic-arm-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=hydraulic-robotic-arm-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to build your own robot and see it move with just the power of water? The Hydraulic Robotic Arm Toy Kit lets you do exactly that.**

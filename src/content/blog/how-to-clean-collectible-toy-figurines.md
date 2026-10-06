@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Collectible Toy Figurines: Ultimate Step-by-Step Guide"
-description: "You’ve spent time and care building your collection of toy figurines. Each piece holds memories and value, and keeping them clean is key to preserving that. But"
+title: 'How to Clean Collectible Toy Figurines: Ultimate Step-by-Step Guide'
+description: You’ve spent time and care building your collection of toy figurines.
+  Each piece holds memories and value, and keeping them clean is key to preserving
+  that. But
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-collectible-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-collectible-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **You’ve spent time and care building your collection of toy figurines. Each piece holds memories and value, and keeping them clean is key to preserving that.**

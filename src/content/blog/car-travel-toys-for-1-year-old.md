@@ -1,10 +1,14 @@
 ---
-title: "Car Travel Toys for 1 Year Old: Best Montessori Activity Cubes Reviewed"
-description: "Keeping a 1-year-old entertained during car trips can be challenging. Choosing the right travel toys helps make the journey smooth and fun. Car travel toys for "
+title: 'Car Travel Toys for 1 Year Old: Best Montessori Activity Cubes Reviewed'
+description: 'Keeping a 1-year-old entertained during car trips can be challenging.
+  Choosing the right travel toys helps make the journey smooth and fun. Car travel
+  toys for '
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=car-travel-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=car-travel-toys-for-1-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Keeping a 1-year-old entertained during car trips can be challenging. Choosing the right travel toys helps make the journey smooth and fun.**

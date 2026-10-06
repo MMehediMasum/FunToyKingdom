@@ -1,10 +1,14 @@
 ---
-title: "Activity Gyms for Infants: Top Picks to Boost Baby Development"
-description: "Are you looking for a fun and safe way to help your baby grow and explore? Activity gyms for infants might be just what you need. These colorful play spaces are"
+title: 'Activity Gyms for Infants: Top Picks to Boost Baby Development'
+description: Are you looking for a fun and safe way to help your baby grow and explore?
+  Activity gyms for infants might be just what you need. These colorful play spaces
+  are
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=activity-gyms-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=activity-gyms-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe way to help your baby grow and explore? Activity gyms for infants might be just what you need.**

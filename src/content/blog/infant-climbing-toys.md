@@ -1,10 +1,13 @@
 ---
-title: "Infant Climbing Toys: Safe, Fun, and Educational Playsets for Toddlers"
-description: "Infant climbing toys help babies develop strength and coordination safely. These toys encourage crawling, climbing, and sliding in a fun way. Soft foam blocks, "
+title: 'Infant Climbing Toys: Safe, Fun, and Educational Playsets for Toddlers'
+description: 'Infant climbing toys help babies develop strength and coordination safely.
+  These toys encourage crawling, climbing, and sliding in a fun way. Soft foam blocks, '
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-climbing-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=infant-climbing-toys&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Infant climbing toys help babies develop strength and coordination safely. These toys encourage crawling, climbing, and sliding in a fun way.**

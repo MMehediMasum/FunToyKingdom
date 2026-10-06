@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Toy Box: Easy, Fun, and Budget-Friendly Ideas"
-description: "Are you tired of stepping on scattered toys every day? Imagine having a special place where all those toys can be neatly stored, making your home tidier and you"
+title: 'Do It Yourself Toy Box: Easy, Fun, and Budget-Friendly Ideas'
+description: Are you tired of stepping on scattered toys every day? Imagine having
+  a special place where all those toys can be neatly stored, making your home tidier
+  and you
 pubDate: 2025-09-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-toy-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-toy-box&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you tired of stepping on scattered toys every day? Imagine having a special place where all those toys can be neatly stored, making your home tidier and your life easier.**

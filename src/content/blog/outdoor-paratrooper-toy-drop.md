@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Paratrooper Toy Drop: Ultimate Fun for Kids Outdoors"
-description: "Imagine the thrill of watching tiny paratroopers float gently from the sky right into your backyard. The Outdoor Paratrooper Toy Drop brings excitement and adve"
+title: 'Outdoor Paratrooper Toy Drop: Ultimate Fun for Kids Outdoors'
+description: Imagine the thrill of watching tiny paratroopers float gently from the
+  sky right into your backyard. The Outdoor Paratrooper Toy Drop brings excitement
+  and adve
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-paratrooper-toy-drop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-paratrooper-toy-drop&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the thrill of watching tiny paratroopers float gently from the sky right into your backyard. The Outdoor Paratrooper Toy Drop brings excitement and adventure to your outdoor playtime like never before.**

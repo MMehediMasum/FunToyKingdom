@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Water Slide Outdoor Toy: Ultimate Summer Fun for Kids"
-description: "Looking for a fun way to turn your backyard into the ultimate summer playground? An inflatable water slide outdoor toy might be exactly what you need. Imagine t"
+title: 'Inflatable Water Slide Outdoor Toy: Ultimate Summer Fun for Kids'
+description: Looking for a fun way to turn your backyard into the ultimate summer
+  playground? An inflatable water slide outdoor toy might be exactly what you need.
+  Imagine t
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-water-slide-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-water-slide-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to turn your backyard into the ultimate summer playground? An inflatable water slide outdoor toy might be exactly what you need.**

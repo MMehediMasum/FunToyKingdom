@@ -1,10 +1,14 @@
 ---
-title: "Dog Ball Throwing Toy: Top Launchers for Fun and Active Fetch Play"
-description: "A dog ball throwing toy makes fetch more fun and easier for you and your dog. It helps throw balls farther and faster with less effort. These toys come in many "
+title: 'Dog Ball Throwing Toy: Top Launchers for Fun and Active Fetch Play'
+description: 'A dog ball throwing toy makes fetch more fun and easier for you and
+  your dog. It helps throw balls farther and faster with less effort. These toys come
+  in many '
 pubDate: 2026-03-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-ball-throwing-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=dog-ball-throwing-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog ball throwing toy makes fetch more fun and easier for you and your dog. It helps throw balls farther and faster with less effort.**

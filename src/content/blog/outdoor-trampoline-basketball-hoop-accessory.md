@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Trampoline Basketball Hoop Accessory: Ultimate Fun Upgrade"
-description: "Are you ready to take your outdoor trampoline fun to the next level? Imagine combining the thrill of bouncing with the excitement of shooting hoops—all in one p"
+title: 'Outdoor Trampoline Basketball Hoop Accessory: Ultimate Fun Upgrade'
+description: Are you ready to take your outdoor trampoline fun to the next level?
+  Imagine combining the thrill of bouncing with the excitement of shooting hoops—all
+  in one p
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-trampoline-basketball-hoop-accessory&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-trampoline-basketball-hoop-accessory&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your outdoor trampoline fun to the next level? Imagine combining the thrill of bouncing with the excitement of shooting hoops—all in one place.**

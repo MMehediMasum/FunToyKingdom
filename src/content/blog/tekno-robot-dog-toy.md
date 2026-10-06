@@ -1,10 +1,14 @@
 ---
-title: "Tekno Robot Dog Toy: Ultimate Interactive RC Pet for Kids’ Fun"
-description: "The Tekno Robot Dog Toy captivates with its interactive features and smart technology. Kids love its lifelike movements and playful actions. This robotic pet of"
+title: 'Tekno Robot Dog Toy: Ultimate Interactive RC Pet for Kids’ Fun'
+description: The Tekno Robot Dog Toy captivates with its interactive features and
+  smart technology. Kids love its lifelike movements and playful actions. This robotic
+  pet of
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tekno-robot-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=tekno-robot-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Tekno Robot Dog Toy captivates with its interactive features and smart technology. Kids love its lifelike movements and playful actions.**

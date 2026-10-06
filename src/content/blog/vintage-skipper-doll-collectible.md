@@ -1,10 +1,14 @@
 ---
-title: "Vintage Skipper Doll Collectible: Ultimate Guide to Rare Treasures"
-description: "Are you a fan of unique collectibles that tell a story? The Vintage Skipper Doll collectible might be just what you’re looking for. This charming doll holds a s"
+title: 'Vintage Skipper Doll Collectible: Ultimate Guide to Rare Treasures'
+description: Are you a fan of unique collectibles that tell a story? The Vintage Skipper
+  Doll collectible might be just what you’re looking for. This charming doll holds
+  a s
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-skipper-doll-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=vintage-skipper-doll-collectible&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of unique collectibles that tell a story? The Vintage Skipper Doll collectible might be just what you’re looking for.**

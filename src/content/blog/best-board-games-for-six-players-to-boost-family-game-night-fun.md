@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Six Players to Boost Family Game Night Fun"
-description: "Finding the best board games for six players can be challenging. This guide highlights top games that work well with six people. Playing board games with six pl"
+title: Best Board Games for Six Players to Boost Family Game Night Fun
+description: Finding the best board games for six players can be challenging. This
+  guide highlights top games that work well with six people. Playing board games with
+  six pl
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-six-players-to-boost-family-game-night-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-six-players-to-boost-family-game-night-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for six players can be challenging. This guide highlights top games that work well with six people.**

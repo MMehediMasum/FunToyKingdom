@@ -1,10 +1,14 @@
 ---
-title: "Foam Dart Bow And Arrow Set: Ultimate Fun for Kids Outdoors"
-description: "Are you looking for a fun and safe way to enjoy outdoor play? The Foam Dart Bow And Arrow Set could be exactly what you need. This exciting toy lets you experie"
+title: 'Foam Dart Bow And Arrow Set: Ultimate Fun for Kids Outdoors'
+description: Are you looking for a fun and safe way to enjoy outdoor play? The Foam
+  Dart Bow And Arrow Set could be exactly what you need. This exciting toy lets you
+  experie
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=foam-dart-bow-and-arrow-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=foam-dart-bow-and-arrow-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to enjoy outdoor play? The Foam Dart Bow And Arrow Set could be exactly what you need.**

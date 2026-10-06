@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Car Inflatable Sprinkler Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun and exciting way to cool down your kids this summer? The Outdoor Car Inflatable Sprinkler Toy is exactly what you need. Imagine your backyard "
+title: 'Outdoor Car Inflatable Sprinkler Toy: Ultimate Summer Fun Guide'
+description: 'Looking for a fun and exciting way to cool down your kids this summer?
+  The Outdoor Car Inflatable Sprinkler Toy is exactly what you need. Imagine your
+  backyard '
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-car-inflatable-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-car-inflatable-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to cool down your kids this summer? The Outdoor Car Inflatable Sprinkler Toy is exactly what you need.**

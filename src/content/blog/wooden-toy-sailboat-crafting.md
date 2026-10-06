@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Sailboat Crafting: Easy Steps for Perfect Handmade Gifts"
-description: "Imagine holding a beautiful wooden toy sailboat that you made with your own hands. There’s something special about crafting a toy that’s not just fun to play wi"
+title: 'Wooden Toy Sailboat Crafting: Easy Steps for Perfect Handmade Gifts'
+description: Imagine holding a beautiful wooden toy sailboat that you made with your
+  own hands. There’s something special about crafting a toy that’s not just fun to
+  play wi
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-sailboat-crafting&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-sailboat-crafting&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a beautiful wooden toy sailboat that you made with your own hands. There’s something special about crafting a toy that’s not just fun to play with but also a work of art.**

@@ -1,10 +1,14 @@
 ---
-title: "Hudson Hornet Toy Car: Ultimate Collectible Diecast for Disney Fans"
-description: "The Hudson Hornet toy car is a beloved collectible among Disney Pixar Cars enthusiasts. Its timeless design captures nostalgia and excitement. This toy car symb"
+title: 'Hudson Hornet Toy Car: Ultimate Collectible Diecast for Disney Fans'
+description: The Hudson Hornet toy car is a beloved collectible among Disney Pixar
+  Cars enthusiasts. Its timeless design captures nostalgia and excitement. This toy
+  car symb
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hudson-hornet-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=hudson-hornet-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Hudson Hornet toy car is a beloved collectible among Disney Pixar Cars enthusiasts. Its timeless design captures nostalgia and excitement.**

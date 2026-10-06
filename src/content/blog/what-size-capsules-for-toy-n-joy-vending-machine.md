@@ -1,10 +1,14 @@
 ---
-title: "What Size Capsules for Toy N Joy Vending Machine: Ultimate Guide"
-description: "Are you ready to make your Toy N Joy vending machine a hit? One key to success is choosing the right capsule size. Picking the perfect capsules not only keeps y"
+title: 'What Size Capsules for Toy N Joy Vending Machine: Ultimate Guide'
+description: Are you ready to make your Toy N Joy vending machine a hit? One key to
+  success is choosing the right capsule size. Picking the perfect capsules not only
+  keeps y
 pubDate: 2026-09-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-capsules-for-toy-n-joy-vending-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=what-size-capsules-for-toy-n-joy-vending-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to make your Toy N Joy vending machine a hit? One key to success is choosing the right capsule size.**

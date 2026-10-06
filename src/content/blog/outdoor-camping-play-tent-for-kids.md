@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Camping Play Tent for Kids: Ultimate Fun & Adventure Guide"
-description: "Imagine giving your kids a special place where their imagination can run wild, right in your backyard or even indoors. An outdoor camping play tent for kids isn"
+title: 'Outdoor Camping Play Tent for Kids: Ultimate Fun & Adventure Guide'
+description: Imagine giving your kids a special place where their imagination can
+  run wild, right in your backyard or even indoors. An outdoor camping play tent for
+  kids isn
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-camping-play-tent-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-camping-play-tent-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids a special place where their imagination can run wild, right in your backyard or even indoors. An outdoor camping play tent for kids isn’t just a toy—it’s a gateway to adventure, creativity, and endless fun.**

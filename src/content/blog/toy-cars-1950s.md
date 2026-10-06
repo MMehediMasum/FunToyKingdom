@@ -1,10 +1,14 @@
 ---
-title: "Toy Cars 1950S: Top Classic Die Cast Models for Collectors"
-description: "Toy cars from the 1950s hold a special charm for collectors and enthusiasts. They capture the essence of classic automotive design. These miniature vehicles, li"
+title: 'Toy Cars 1950S: Top Classic Die Cast Models for Collectors'
+description: Toy cars from the 1950s hold a special charm for collectors and enthusiasts.
+  They capture the essence of classic automotive design. These miniature vehicles,
+  li
 pubDate: 2026-02-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cars-1950s&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toy-cars-1950s&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy cars from the 1950s hold a special charm for collectors and enthusiasts. They capture the essence of classic automotive design.**

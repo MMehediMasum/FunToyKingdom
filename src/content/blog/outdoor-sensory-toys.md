@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Sensory Toys That Boost Creativity and Motor Skills for Kids"
-description: "Outdoor sensory toys help children explore their senses while playing outside. These toys encourage movement, coordination, and creativity in a fun way. Playing"
+title: Outdoor Sensory Toys That Boost Creativity and Motor Skills for Kids
+description: Outdoor sensory toys help children explore their senses while playing
+  outside. These toys encourage movement, coordination, and creativity in a fun way.
+  Playing
 pubDate: 2026-03-06
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Outdoor sensory toys help children explore their senses while playing outside. These toys encourage movement, coordination, and creativity in a fun way.**

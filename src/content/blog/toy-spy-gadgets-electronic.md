@@ -1,10 +1,14 @@
 ---
-title: "Toy Spy Gadgets Electronic: Top Must-Have Cool Devices 2025"
-description: "Are you ready to turn your playtime into a thrilling secret mission? Toy spy gadgets electronic bring excitement and mystery right to your fingertips. Imagine h"
+title: 'Toy Spy Gadgets Electronic: Top Must-Have Cool Devices 2025'
+description: Are you ready to turn your playtime into a thrilling secret mission?
+  Toy spy gadgets electronic bring excitement and mystery right to your fingertips.
+  Imagine h
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-spy-gadgets-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=toy-spy-gadgets-electronic&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to turn your playtime into a thrilling secret mission? Toy spy gadgets electronic bring excitement and mystery right to your fingertips.**

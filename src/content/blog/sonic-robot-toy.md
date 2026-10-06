@@ -1,10 +1,14 @@
 ---
-title: "Sonic Robot Toy: Ultimate Action Figures and Battle Playsets for Kids"
-description: "Sonic Robot Toy offers thrilling play with dynamic action figures and exciting battle sets. Fans can enjoy interactive features and detailed designs inspired by"
+title: 'Sonic Robot Toy: Ultimate Action Figures and Battle Playsets for Kids'
+description: Sonic Robot Toy offers thrilling play with dynamic action figures and
+  exciting battle sets. Fans can enjoy interactive features and detailed designs inspired
+  by
 pubDate: 2026-08-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sonic-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=sonic-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Sonic Robot Toy offers thrilling play with dynamic action figures and exciting battle sets. Fans can enjoy interactive features and detailed designs inspired by Sonic movies and games.**

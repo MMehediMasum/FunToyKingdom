@@ -1,10 +1,13 @@
 ---
-title: "Infant Stroller Toys: Top Picks for Fun and Safety on the Go"
-description: "Are you looking for a simple way to keep your little one happy and entertained during stroller rides? Infant stroller toys can be the perfect solution. These sm"
+title: 'Infant Stroller Toys: Top Picks for Fun and Safety on the Go'
+description: Are you looking for a simple way to keep your little one happy and entertained
+  during stroller rides? Infant stroller toys can be the perfect solution. These sm
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-stroller-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=infant-stroller-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a simple way to keep your little one happy and entertained during stroller rides? Infant stroller toys can be the perfect solution.**

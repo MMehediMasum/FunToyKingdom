@@ -1,10 +1,13 @@
 ---
-title: "Best Wagon for Airplane Travel: Lightweight, Foldable Stroller for Two Kids"
-description: "Choosing the best wagon for airplane travel can make family trips easier and more comfortable. A good travel wagon combines convenience, safety, and lightweight"
+title: 'Best Wagon for Airplane Travel: Lightweight, Foldable Stroller for Two Kids'
+description: Choosing the best wagon for airplane travel can make family trips easier
+  and more comfortable. A good travel wagon combines convenience, safety, and lightweight
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wagon-for-airplane-travel-lightweight-foldable-stroller-for-two-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toys For Airplane Travel
+heroImage: https://tse1.mm.bing.net/th?q=best-wagon-for-airplane-travel-lightweight-foldable-stroller-for-two-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best wagon for airplane travel can make family trips easier and more comfortable. A good travel wagon combines convenience, safety, and lightweight design.**

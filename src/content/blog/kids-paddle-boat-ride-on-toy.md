@@ -1,10 +1,14 @@
 ---
-title: "Kids Paddle Boat Ride on Toy: Ultimate Fun and Safety Tips"
-description: "Imagine your child’s eyes lighting up as they take control of their very own paddle boat ride—right in your backyard or at the park. A kids paddle boat ride on "
+title: 'Kids Paddle Boat Ride on Toy: Ultimate Fun and Safety Tips'
+description: 'Imagine your child’s eyes lighting up as they take control of their
+  very own paddle boat ride—right in your backyard or at the park. A kids paddle boat
+  ride on '
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-paddle-boat-ride-on-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=kids-paddle-boat-ride-on-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they take control of their very own paddle boat ride—right in your backyard or at the park. A kids paddle boat ride on a toy isn’t just fun; it’s a chance for your little one to explore, learn, and build confidence all at once.**

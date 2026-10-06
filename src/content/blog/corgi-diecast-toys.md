@@ -1,10 +1,14 @@
 ---
-title: "Corgi Diecast Toys: Iconic Collectible Models for Car Enthusiasts"
-description: "Corgi diecast toys offer detailed model vehicles made from metal. They capture iconic cars and aircraft from movies and TV shows. These collectible diecast mode"
+title: 'Corgi Diecast Toys: Iconic Collectible Models for Car Enthusiasts'
+description: Corgi diecast toys offer detailed model vehicles made from metal. They
+  capture iconic cars and aircraft from movies and TV shows. These collectible diecast
+  mode
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=corgi-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=corgi-diecast-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Corgi diecast toys offer detailed model vehicles made from metal. They capture iconic cars and aircraft from movies and TV shows.**

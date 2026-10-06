@@ -1,10 +1,14 @@
 ---
-title: "Educational Board Games for Classrooms: Boost Learning & Fun Fast"
-description: "Are you looking for a fun and effective way to boost learning in your classroom? Educational board games might be exactly what you need. These games turn lesson"
+title: 'Educational Board Games for Classrooms: Boost Learning & Fun Fast'
+description: Are you looking for a fun and effective way to boost learning in your
+  classroom? Educational board games might be exactly what you need. These games turn
+  lesson
 pubDate: 2026-05-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-board-games-for-classrooms&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=educational-board-games-for-classrooms&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and effective way to boost learning in your classroom? Educational board games might be exactly what you need.**

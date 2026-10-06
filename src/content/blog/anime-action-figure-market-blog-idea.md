@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Anime Action Figure Market Blog Idea: Ultimate Trends & Insights"
 description: "Are you a fan of anime and action figures? Imagine having the coolest collection that not only shows off your favorite characters but also grows in value over t"
 pubDate: 2025-12-17

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Splash Pad for Toddlers: Ultimate Fun and Safety Guide"
-description: "Imagine your toddler’s laughter filling the air as they splash and play under the sun. An outdoor splash pad is the perfect way to keep your little one cool, en"
+title: 'Outdoor Splash Pad for Toddlers: Ultimate Fun and Safety Guide'
+description: Imagine your toddler’s laughter filling the air as they splash and play
+  under the sun. An outdoor splash pad is the perfect way to keep your little one
+  cool, en
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-splash-pad-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-splash-pad-for-toddlers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your toddler’s laughter filling the air as they splash and play under the sun. An outdoor splash pad is the perfect way to keep your little one cool, entertained, and active during warm days.**

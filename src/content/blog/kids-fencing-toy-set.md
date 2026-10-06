@@ -1,10 +1,13 @@
 ---
-title: "Kids Fencing Toy Set: Ultimate Fun and Safety Guide for Parents"
-description: "Are you looking for a fun and safe way to keep your kids active and entertained? A Kids Fencing Toy Set might be exactly what you need. It’s more than just a to"
+title: 'Kids Fencing Toy Set: Ultimate Fun and Safety Guide for Parents'
+description: Are you looking for a fun and safe way to keep your kids active and entertained?
+  A Kids Fencing Toy Set might be exactly what you need. It’s more than just a to
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-fencing-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=kids-fencing-toy-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and safe way to keep your kids active and entertained? A Kids Fencing Toy Set might be exactly what you need.**

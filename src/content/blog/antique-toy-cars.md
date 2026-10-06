@@ -1,10 +1,14 @@
 ---
-title: "Antique Toy Cars: Top Die-Cast Classic Models for Collectors"
-description: "Antique toy cars captivate collectors with their rich history and intricate craftsmanship. These miniature replicas tell stories of automotive innovation and no"
+title: 'Antique Toy Cars: Top Die-Cast Classic Models for Collectors'
+description: Antique toy cars captivate collectors with their rich history and intricate
+  craftsmanship. These miniature replicas tell stories of automotive innovation and
+  no
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=antique-toy-cars&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Antique toy cars captivate collectors with their rich history and intricate craftsmanship. These miniature replicas tell stories of automotive innovation and nostalgia.**

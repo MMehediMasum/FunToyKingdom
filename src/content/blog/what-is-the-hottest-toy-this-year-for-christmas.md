@@ -1,10 +1,14 @@
 ---
-title: "What is the Hottest Toy This Year for Christmas: Top Trending Picks!"
-description: "Are you wondering what the hottest toy this year for Christmas is? You’re not alone. Every year, finding the perfect gift that lights up your loved one’s face c"
+title: 'What is the Hottest Toy This Year for Christmas: Top Trending Picks!'
+description: Are you wondering what the hottest toy this year for Christmas is? You’re
+  not alone. Every year, finding the perfect gift that lights up your loved one’s
+  face c
 pubDate: 2025-11-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-hottest-toy-this-year-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-hottest-toy-this-year-for-christmas&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering what the hottest toy this year for Christmas is? You’re not alone.**

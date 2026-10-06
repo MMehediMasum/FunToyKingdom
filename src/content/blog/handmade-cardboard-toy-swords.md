@@ -1,10 +1,13 @@
 ---
-title: "Handmade Cardboard Toy Swords: Creative Fun for Kids & Adults"
-description: "Looking for a fun and creative way to spark your child’s imagination? Handmade cardboard toy swords are the perfect choice. These swords are safe, eco-friendly,"
+title: 'Handmade Cardboard Toy Swords: Creative Fun for Kids & Adults'
+description: Looking for a fun and creative way to spark your child’s imagination?
+  Handmade cardboard toy swords are the perfect choice. These swords are safe, eco-friendly,
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-swords&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-swords&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative way to spark your child’s imagination? Handmade cardboard toy swords are the perfect choice.**

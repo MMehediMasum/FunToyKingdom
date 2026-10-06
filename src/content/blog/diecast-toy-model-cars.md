@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Model Cars: Top Collectible Muscle & Sports Car Models Reviewed"
-description: "Diecast toy model cars capture the charm of real vehicles in small, detailed forms. Collectors and kids enjoy these precise, sturdy replicas. Diecast cars come "
+title: 'Diecast Toy Model Cars: Top Collectible Muscle & Sports Car Models Reviewed'
+description: 'Diecast toy model cars capture the charm of real vehicles in small,
+  detailed forms. Collectors and kids enjoy these precise, sturdy replicas. Diecast
+  cars come '
 pubDate: 2026-08-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-model-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-model-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy model cars capture the charm of real vehicles in small, detailed forms. Collectors and kids enjoy these precise, sturdy replicas.**

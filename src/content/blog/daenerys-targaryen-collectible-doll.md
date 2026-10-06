@@ -1,10 +1,14 @@
 ---
-title: "Daenerys Targaryen Collectible Doll: Must-Have for Fans!"
-description: "Are you a fan of Daenerys Targaryen and want to bring a piece of her fiery spirit into your home? The Daenerys Targaryen collectible doll is more than just a to"
+title: 'Daenerys Targaryen Collectible Doll: Must-Have for Fans!'
+description: Are you a fan of Daenerys Targaryen and want to bring a piece of her
+  fiery spirit into your home? The Daenerys Targaryen collectible doll is more than
+  just a to
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=daenerys-targaryen-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=daenerys-targaryen-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Daenerys Targaryen and want to bring a piece of her fiery spirit into your home? The Daenerys Targaryen collectible doll is more than just a toy—it’s a treasure for any true fan.**

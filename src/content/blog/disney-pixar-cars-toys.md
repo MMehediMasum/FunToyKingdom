@@ -1,10 +1,14 @@
 ---
-title: "Disney Pixar Cars Toys: Top Collectible Sets and Playsets for Kids"
-description: "Disney Pixar Cars toys captivate fans with their vibrant designs and thrilling features. These toys bring the beloved movie characters to life. The enchanting w"
+title: 'Disney Pixar Cars Toys: Top Collectible Sets and Playsets for Kids'
+description: Disney Pixar Cars toys captivate fans with their vibrant designs and
+  thrilling features. These toys bring the beloved movie characters to life. The enchanting
+  w
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-pixar-cars-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-pixar-cars-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Pixar Cars toys captivate fans with their vibrant designs and thrilling features. These toys bring the beloved movie characters to life.**

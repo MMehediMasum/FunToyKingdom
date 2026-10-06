@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Three People: Top Picks for Fun and Strategy"
-description: "Finding the best board games for three people can make game night fun and fair. Three-player games need balance and excitement for everyone. Playing board games"
+title: 'Best Board Games for Three People: Top Picks for Fun and Strategy'
+description: Finding the best board games for three people can make game night fun
+  and fair. Three-player games need balance and excitement for everyone. Playing board
+  games
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-three-people-top-picks-for-fun-and-strategy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-three-people-top-picks-for-fun-and-strategy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for three people can make game night fun and fair. Three-player games need balance and excitement for everyone.**

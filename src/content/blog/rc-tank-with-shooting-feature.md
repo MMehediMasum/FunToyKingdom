@@ -1,10 +1,14 @@
 ---
-title: "Rc Tank With Shooting Feature: Ultimate Battle Toy for Kids"
-description: "Are you ready to take your remote control fun to the next level? Imagine controlling a tank that not only moves smoothly across your living room or backyard but"
+title: 'Rc Tank With Shooting Feature: Ultimate Battle Toy for Kids'
+description: Are you ready to take your remote control fun to the next level? Imagine
+  controlling a tank that not only moves smoothly across your living room or backyard
+  but
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-tank-with-shooting-feature&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-tank-with-shooting-feature&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your remote control fun to the next level? Imagine controlling a tank that not only moves smoothly across your living room or backyard but also shoots just like the real deal.**

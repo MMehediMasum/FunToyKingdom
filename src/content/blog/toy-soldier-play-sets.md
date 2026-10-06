@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Play Sets: Ultimate Military Battle Fun for Kids"
-description: "Toy soldier play sets offer hours of imaginative fun for kids who love action and adventure. These sets include soldiers, vehicles, and accessories to create ex"
+title: 'Toy Soldier Play Sets: Ultimate Military Battle Fun for Kids'
+description: Toy soldier play sets offer hours of imaginative fun for kids who love
+  action and adventure. These sets include soldiers, vehicles, and accessories to
+  create ex
 pubDate: 2026-07-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-play-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-play-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy soldier play sets offer hours of imaginative fun for kids who love action and adventure. These sets include soldiers, vehicles, and accessories to create exciting battle scenes.**

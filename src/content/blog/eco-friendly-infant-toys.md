@@ -1,10 +1,14 @@
 ---
-title: "Eco Friendly Infant Toys: Safe, Natural Montessori Picks for Babies"
-description: "Eco-friendly infant toys offer a safe, sustainable option for your child's playtime. They are crafted from natural materials. These toys not only nurture your c"
+title: 'Eco Friendly Infant Toys: Safe, Natural Montessori Picks for Babies'
+description: Eco-friendly infant toys offer a safe, sustainable option for your child's
+  playtime. They are crafted from natural materials. These toys not only nurture your
+  c
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=eco-friendly-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=eco-friendly-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Eco-friendly infant toys offer a safe, sustainable option for your child's playtime. They are crafted from natural materials.**

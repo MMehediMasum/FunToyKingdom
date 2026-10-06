@@ -1,10 +1,14 @@
 ---
-title: "Monster High Draculaura Doll: Ultimate Collector’s Must-Have Guide"
-description: "Are you ready to meet a doll that’s as bold and unique as you are? The Monster High Draculaura Doll isn’t just any toy—it’s a style icon with a spook-tacular tw"
+title: 'Monster High Draculaura Doll: Ultimate Collector’s Must-Have Guide'
+description: Are you ready to meet a doll that’s as bold and unique as you are? The
+  Monster High Draculaura Doll isn’t just any toy—it’s a style icon with a spook-tacular
+  tw
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-draculaura-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-draculaura-doll&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to meet a doll that’s as bold and unique as you are? The Monster High Draculaura Doll isn’t just any toy—it’s a style icon with a spook-tacular twist.**

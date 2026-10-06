@@ -1,10 +1,14 @@
 ---
-title: "Newborn Toy Gift Set Ideas: Perfect Picks for Happy Babies"
-description: "Looking for the perfect gift for a newborn can feel overwhelming. You want something safe, fun, and meaningful—something that will bring joy to both baby and pa"
+title: 'Newborn Toy Gift Set Ideas: Perfect Picks for Happy Babies'
+description: Looking for the perfect gift for a newborn can feel overwhelming. You
+  want something safe, fun, and meaningful—something that will bring joy to both baby
+  and pa
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=newborn-toy-gift-set-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=newborn-toy-gift-set-ideas&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect gift for a newborn can feel overwhelming. You want something safe, fun, and meaningful—something that will bring joy to both baby and parents.**

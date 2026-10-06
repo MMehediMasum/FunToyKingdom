@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Bring Stuffed Animals to a Mental Hospital? Essential Guide"
 description: "If you’re preparing for a stay at a mental hospital, you might be wondering what personal items you can bring with you. One question that often comes up is, can"
 pubDate: 2025-10-19

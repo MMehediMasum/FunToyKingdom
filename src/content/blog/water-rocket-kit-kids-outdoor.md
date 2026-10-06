@@ -1,10 +1,14 @@
 ---
-title: "Water Rocket Kit Kids Outdoor: Exciting Fun for Active Playtime"
-description: "Are you looking for a fun and exciting way to get your kids outdoors? A water rocket kit is just what you need! It’s a hands-on activity that lets your kids bui"
+title: 'Water Rocket Kit Kids Outdoor: Exciting Fun for Active Playtime'
+description: Are you looking for a fun and exciting way to get your kids outdoors?
+  A water rocket kit is just what you need! It’s a hands-on activity that lets your
+  kids bui
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=water-rocket-kit-kids-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=water-rocket-kit-kids-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to get your kids outdoors? A water rocket kit is just what you need!**

@@ -1,10 +1,14 @@
 ---
-title: "Soft Rattles for Newborns: Safe, Soothing, and Sensory Fun"
-description: "If you’re looking for the perfect toy to keep your newborn happy and engaged, soft rattles are a fantastic choice. These gentle, safe toys do more than just mak"
+title: 'Soft Rattles for Newborns: Safe, Soothing, and Sensory Fun'
+description: If you’re looking for the perfect toy to keep your newborn happy and
+  engaged, soft rattles are a fantastic choice. These gentle, safe toys do more than
+  just mak
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-rattles-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Babies
+heroImage: https://tse1.mm.bing.net/th?q=soft-rattles-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re looking for the perfect toy to keep your newborn happy and engaged, soft rattles are a fantastic choice. These gentle, safe toys do more than just make noise—they help your baby explore new sounds and develop important skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Collectible Toy Trains Price Guide: Ultimate Value & Buying Tips"
-description: "Are you curious about the value of your collectible toy trains? Whether you’re just starting your collection or looking to sell, knowing the right prices can ma"
+title: 'Collectible Toy Trains Price Guide: Ultimate Value & Buying Tips'
+description: Are you curious about the value of your collectible toy trains? Whether
+  you’re just starting your collection or looking to sell, knowing the right prices
+  can ma
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-toy-trains-price-guide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=collectible-toy-trains-price-guide&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you curious about the value of your collectible toy trains? Whether you’re just starting your collection or looking to sell, knowing the right prices can make a big difference.**

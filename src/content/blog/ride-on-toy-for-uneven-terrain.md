@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Uneven Terrain: Ultimate Off-Road Adventure Guide"
-description: "Looking for a ride on toy that can handle rough and bumpy ground without stopping? You want your child to have fun and stay safe, no matter where they ride. Une"
+title: 'Ride on Toy for Uneven Terrain: Ultimate Off-Road Adventure Guide'
+description: Looking for a ride on toy that can handle rough and bumpy ground without
+  stopping? You want your child to have fun and stay safe, no matter where they ride.
+  Une
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-uneven-terrain&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-uneven-terrain&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a ride on toy that can handle rough and bumpy ground without stopping? You want your child to have fun and stay safe, no matter where they ride.**

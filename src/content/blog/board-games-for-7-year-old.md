@@ -1,10 +1,14 @@
 ---
-title: "Board Games for 7 Year Old: Fun and Educational Picks"
-description: "Looking for the perfect board games for your 7-year-old? You want games that are fun, easy to learn, and help your child grow. Choosing the right game can turn "
+title: 'Board Games for 7 Year Old: Fun and Educational Picks'
+description: 'Looking for the perfect board games for your 7-year-old? You want games
+  that are fun, easy to learn, and help your child grow. Choosing the right game can
+  turn '
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-7-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect board games for your 7-year-old? You want games that are fun, easy to learn, and help your child grow.**

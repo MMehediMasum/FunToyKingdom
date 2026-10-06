@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Star Gazing Kit Kids: Ultimate Fun for Young Explorers"
-description: "Have you ever wanted to share the magic of the night sky with your kids? An Outdoor Star Gazing Kit for kids can turn a simple evening into an unforgettable adv"
+title: 'Outdoor Star Gazing Kit Kids: Ultimate Fun for Young Explorers'
+description: Have you ever wanted to share the magic of the night sky with your kids?
+  An Outdoor Star Gazing Kit for kids can turn a simple evening into an unforgettable
+  adv
 pubDate: 2026-05-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-star-gazing-kit-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-star-gazing-kit-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wanted to share the magic of the night sky with your kids? An Outdoor Star Gazing Kit for kids can turn a simple evening into an unforgettable adventure.**

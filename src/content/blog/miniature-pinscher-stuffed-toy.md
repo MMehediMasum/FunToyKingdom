@@ -1,10 +1,14 @@
 ---
-title: "Miniature Pinscher Stuffed Toy: Perfect Plush Gift for Dog Lovers"
-description: "A Miniature Pinscher stuffed toy brings joy and companionship to dog lovers of all ages. These plush toys are perfect gifts. Miniature Pinscher stuffed toys cap"
+title: 'Miniature Pinscher Stuffed Toy: Perfect Plush Gift for Dog Lovers'
+description: A Miniature Pinscher stuffed toy brings joy and companionship to dog
+  lovers of all ages. These plush toys are perfect gifts. Miniature Pinscher stuffed
+  toys cap
 pubDate: 2026-08-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-pinscher-stuffed-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=miniature-pinscher-stuffed-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A Miniature Pinscher stuffed toy brings joy and companionship to dog lovers of all ages. These plush toys are perfect gifts.**

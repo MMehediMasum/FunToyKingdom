@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Playstation Game History: Unveiling Classic Gaming Magic"
 description: "Have you ever wondered how the Toy Story PlayStation game came to be and why it still holds a special place in your gaming memories? Whether you played it as a "
 pubDate: 2026-05-30

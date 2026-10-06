@@ -1,10 +1,14 @@
 ---
-title: "Best Christmas Puzzles for Adults: Top 1000-Piece Holiday Jigsaw Picks"
-description: "Christmas puzzles offer a fun way for adults to enjoy the holiday spirit. These puzzles combine festive scenes with a satisfying challenge. Puzzles bring people"
+title: 'Best Christmas Puzzles for Adults: Top 1000-Piece Holiday Jigsaw Picks'
+description: Christmas puzzles offer a fun way for adults to enjoy the holiday spirit.
+  These puzzles combine festive scenes with a satisfying challenge. Puzzles bring
+  people
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-christmas-puzzles-for-adults-top-1000-piece-holiday-jigsaw-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Puzzles For Toddlers Top
+heroImage: https://tse1.mm.bing.net/th?q=best-christmas-puzzles-for-adults-top-1000-piece-holiday-jigsaw-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Christmas puzzles offer a fun way for adults to enjoy the holiday spirit. These puzzles combine festive scenes with a satisfying challenge.**

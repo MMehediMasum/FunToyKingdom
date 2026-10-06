@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Alligator Ride on Float: Ultimate Fun for All Ages"
-description: "Imagine yourself lounging on a giant alligator, floating gently on the water, feeling the sun on your skin and the breeze in your hair. Sounds fun, right? The O"
+title: 'Outdoor Alligator Ride on Float: Ultimate Fun for All Ages'
+description: Imagine yourself lounging on a giant alligator, floating gently on the
+  water, feeling the sun on your skin and the breeze in your hair. Sounds fun, right?
+  The O
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-alligator-ride-on-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-alligator-ride-on-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself lounging on a giant alligator, floating gently on the water, feeling the sun on your skin and the breeze in your hair. Sounds fun, right?**

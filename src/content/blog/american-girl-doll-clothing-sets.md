@@ -1,10 +1,14 @@
 ---
-title: "American Girl Doll Clothing Sets: Stylish Outfits for Every Occasion"
-description: "If you love dressing up your American Girl doll, finding the perfect clothing sets can make playtime even more special. Imagine your doll wearing stylish outfit"
+title: 'American Girl Doll Clothing Sets: Stylish Outfits for Every Occasion'
+description: If you love dressing up your American Girl doll, finding the perfect
+  clothing sets can make playtime even more special. Imagine your doll wearing stylish
+  outfit
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=american-girl-doll-clothing-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=american-girl-doll-clothing-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you love dressing up your American Girl doll, finding the perfect clothing sets can make playtime even more special. Imagine your doll wearing stylish outfits that match her personality and your creativity.**

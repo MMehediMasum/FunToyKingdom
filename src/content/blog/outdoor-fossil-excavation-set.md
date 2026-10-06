@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Fossil Excavation Set: Ultimate Fun for Young Paleontologists"
-description: "Imagine holding a real fossil in your hands—feeling the excitement as you uncover a piece of history buried beneath the earth. With the Outdoor Fossil Excavatio"
+title: 'Outdoor Fossil Excavation Set: Ultimate Fun for Young Paleontologists'
+description: Imagine holding a real fossil in your hands—feeling the excitement as
+  you uncover a piece of history buried beneath the earth. With the Outdoor Fossil
+  Excavatio
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-fossil-excavation-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-fossil-excavation-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine holding a real fossil in your hands—feeling the excitement as you uncover a piece of history buried beneath the earth. With the Outdoor Fossil Excavation Set, you don’t just learn about dinosaurs and ancient creatures—you become a young explorer, digging up your own discoveries.**

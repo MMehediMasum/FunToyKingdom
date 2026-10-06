@@ -1,10 +1,13 @@
 ---
-title: "Best Sensory Toys for 1 Year Old to Boost Motor Skills Fast"
-description: "Choosing the best sensory toys for a 1-year-old helps support early learning and fine motor skills. Sensory toys engage toddlers through touch, sight, and sound"
+title: Best Sensory Toys for 1 Year Old to Boost Motor Skills Fast
+description: Choosing the best sensory toys for a 1-year-old helps support early learning
+  and fine motor skills. Sensory toys engage toddlers through touch, sight, and sound
 pubDate: 2026-08-06
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sensory-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-sensory-toys-for-1-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best sensory toys for a 1-year-old helps support early learning and fine motor skills. Sensory toys engage toddlers through touch, sight, and sound, making playtime both fun and educational.**

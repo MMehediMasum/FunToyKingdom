@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Connect Four Giant Game: Ultimate Fun for All Ages"
-description: "Imagine turning your backyard into the ultimate fun zone with a game that everyone loves—Connect Four. But this isn’t the usual tabletop version. It’s big, bold"
+title: 'Outdoor Connect Four Giant Game: Ultimate Fun for All Ages'
+description: Imagine turning your backyard into the ultimate fun zone with a game
+  that everyone loves—Connect Four. But this isn’t the usual tabletop version. It’s
+  big, bold
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-connect-four-giant-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-connect-four-giant-game&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone with a game that everyone loves—Connect Four. But this isn’t the usual tabletop version.**

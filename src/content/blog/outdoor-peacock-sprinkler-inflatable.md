@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Peacock Sprinkler Inflatable: Ultimate Summer Garden Fun"
-description: "Imagine turning your garden into a lively, fun space that instantly grabs attention. With an Outdoor Peacock Sprinkler Inflatable, you can do just that. This co"
+title: 'Outdoor Peacock Sprinkler Inflatable: Ultimate Summer Garden Fun'
+description: Imagine turning your garden into a lively, fun space that instantly grabs
+  attention. With an Outdoor Peacock Sprinkler Inflatable, you can do just that. This
+  co
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-peacock-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-peacock-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your garden into a lively, fun space that instantly grabs attention. With an Outdoor Peacock Sprinkler Inflatable, you can do just that.**

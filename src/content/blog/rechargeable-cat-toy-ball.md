@@ -1,10 +1,14 @@
 ---
-title: "Rechargeable Cat Toy Ball: Interactive Fun to Keep Your Cat Engaged"
-description: "Rechargeable cat toy balls are perfect for keeping your feline friend entertained. These toys provide endless fun and mental stimulation. Cats love to play, and"
+title: 'Rechargeable Cat Toy Ball: Interactive Fun to Keep Your Cat Engaged'
+description: Rechargeable cat toy balls are perfect for keeping your feline friend
+  entertained. These toys provide endless fun and mental stimulation. Cats love to
+  play, and
 pubDate: 2026-08-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rechargeable-cat-toy-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=rechargeable-cat-toy-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Rechargeable cat toy balls are perfect for keeping your feline friend entertained. These toys provide endless fun and mental stimulation.**

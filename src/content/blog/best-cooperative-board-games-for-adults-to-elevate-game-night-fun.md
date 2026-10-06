@@ -1,10 +1,14 @@
 ---
-title: "Best Cooperative Board Games for Adults to Elevate Game Night Fun"
-description: "Cooperative board games bring adults together for fun and teamwork. These games create shared challenges to solve as a group. Playing cooperative board games he"
+title: Best Cooperative Board Games for Adults to Elevate Game Night Fun
+description: Cooperative board games bring adults together for fun and teamwork. These
+  games create shared challenges to solve as a group. Playing cooperative board games
+  he
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cooperative-board-games-for-adults-to-elevate-game-night-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-cooperative-board-games-for-adults-to-elevate-game-night-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Cooperative board games bring adults together for fun and teamwork. These games create shared challenges to solve as a group.**

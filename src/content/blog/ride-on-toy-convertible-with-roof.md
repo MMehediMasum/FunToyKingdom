@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Convertible With Roof: Ultimate Fun for Kids!"
-description: "Imagine your child cruising around in their very own ride on toy convertible with a roof. It’s not just a toy—it’s a ticket to endless fun and adventure right i"
+title: 'Ride on Toy Convertible With Roof: Ultimate Fun for Kids!'
+description: Imagine your child cruising around in their very own ride on toy convertible
+  with a roof. It’s not just a toy—it’s a ticket to endless fun and adventure right
+  i
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-convertible-with-roof&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-convertible-with-roof&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child cruising around in their very own ride on toy convertible with a roof. It’s not just a toy—it’s a ticket to endless fun and adventure right in your backyard.**

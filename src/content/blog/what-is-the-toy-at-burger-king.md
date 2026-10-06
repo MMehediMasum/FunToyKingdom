@@ -1,10 +1,14 @@
 ---
-title: "What is the Toy at Burger King: Ultimate Guide to Collectibles"
-description: "Have you ever wondered what the toy at Burger King really is and why it catches your eye every time? These small surprises aren’t just for kids—they hold a spec"
+title: 'What is the Toy at Burger King: Ultimate Guide to Collectibles'
+description: Have you ever wondered what the toy at Burger King really is and why
+  it catches your eye every time? These small surprises aren’t just for kids—they
+  hold a spec
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-toy-at-burger-king&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Burger King Toy Promotions
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-toy-at-burger-king&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what the toy at Burger King really is and why it catches your eye every time? These small surprises aren’t just for kids—they hold a special place in your meal experience.**

@@ -1,10 +1,13 @@
 ---
-title: "Lego Robotics Toy Kit: Ignite Creativity and STEM Skills Fast"
-description: "Imagine giving your child a toy that sparks creativity, builds problem-solving skills, and turns learning into an exciting adventure. The Lego Robotics Toy Kit "
+title: 'Lego Robotics Toy Kit: Ignite Creativity and STEM Skills Fast'
+description: 'Imagine giving your child a toy that sparks creativity, builds problem-solving
+  skills, and turns learning into an exciting adventure. The Lego Robotics Toy Kit '
 pubDate: 2026-07-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-robotics-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=lego-robotics-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, builds problem-solving skills, and turns learning into an exciting adventure. The Lego Robotics Toy Kit does exactly that.**

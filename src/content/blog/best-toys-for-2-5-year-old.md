@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 2.5 Year Old: Top Picks for Fun & Learning"
-description: "Choosing the best toys for your 2.5-year-old can feel overwhelming. You want something that sparks their curiosity, helps them learn, and keeps them happily eng"
+title: 'Best Toys for 2.5 Year Old: Top Picks for Fun & Learning'
+description: Choosing the best toys for your 2.5-year-old can feel overwhelming. You
+  want something that sparks their curiosity, helps them learn, and keeps them happily
+  eng
 pubDate: 2025-08-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-2-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-2-5-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for your 2.5-year-old can feel overwhelming. You want something that sparks their curiosity, helps them learn, and keeps them happily engaged.**

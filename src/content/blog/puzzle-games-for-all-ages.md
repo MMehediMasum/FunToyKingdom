@@ -1,10 +1,14 @@
 ---
-title: "Puzzle Games for All Ages: Ultimate Fun and Brain Boosters"
-description: "Are you looking for a fun way to challenge your mind and enjoy quality time with family or friends? Puzzle games are the perfect choice for you. Whether you’re "
+title: 'Puzzle Games for All Ages: Ultimate Fun and Brain Boosters'
+description: 'Are you looking for a fun way to challenge your mind and enjoy quality
+  time with family or friends? Puzzle games are the perfect choice for you. Whether
+  you’re '
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzle-games-for-all-ages&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=puzzle-games-for-all-ages&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to challenge your mind and enjoy quality time with family or friends? Puzzle games are the perfect choice for you.**

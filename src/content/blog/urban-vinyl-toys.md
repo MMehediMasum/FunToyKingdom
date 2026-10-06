@@ -1,10 +1,13 @@
 ---
-title: "Urban Vinyl Toys: Must-Have Collectible Figures for Every Pop Culture Fan"
-description: "Urban vinyl toys have become popular collectibles around the world. These figures blend art, pop culture, and fun in one small package. Urban vinyl toys include"
+title: 'Urban Vinyl Toys: Must-Have Collectible Figures for Every Pop Culture Fan'
+description: Urban vinyl toys have become popular collectibles around the world. These
+  figures blend art, pop culture, and fun in one small package. Urban vinyl toys include
 pubDate: 2026-08-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=urban-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=urban-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Urban vinyl toys have become popular collectibles around the world. These figures blend art, pop culture, and fun in one small package.**

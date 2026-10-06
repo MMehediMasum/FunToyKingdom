@@ -1,10 +1,14 @@
 ---
-title: "Mini Drone Toy With Altitude Hold: Ultimate Fun and Stability Guide"
-description: "Are you looking for a fun and easy way to experience flying a drone? A mini drone toy with altitude hold could be exactly what you need. Imagine controlling a s"
+title: 'Mini Drone Toy With Altitude Hold: Ultimate Fun and Stability Guide'
+description: Are you looking for a fun and easy way to experience flying a drone?
+  A mini drone toy with altitude hold could be exactly what you need. Imagine controlling
+  a s
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-drone-toy-with-altitude-hold&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mini Toy Drone With Camera
+heroImage: https://tse1.mm.bing.net/th?q=mini-drone-toy-with-altitude-hold&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and easy way to experience flying a drone? A mini drone toy with altitude hold could be exactly what you need.**

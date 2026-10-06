@@ -1,10 +1,14 @@
 ---
-title: "Are Old Toy Blocks Safe for Kids: Essential Safety Tips Revealed"
-description: "Are you wondering if those old toy blocks gathering dust in your attic are safe for your kids to play with? You want the best for your child, and safety is alwa"
+title: 'Are Old Toy Blocks Safe for Kids: Essential Safety Tips Revealed'
+description: Are you wondering if those old toy blocks gathering dust in your attic
+  are safe for your kids to play with? You want the best for your child, and safety
+  is alwa
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-old-toy-blocks-safe-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=are-old-toy-blocks-safe-for-kids&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you wondering if those old toy blocks gathering dust in your attic are safe for your kids to play with? You want the best for your child, and safety is always a top priority.**

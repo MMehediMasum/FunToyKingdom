@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Barbie Doll Cameo Collectibles: Must-Have Limited Edition Gems"
-description: "If you’re a fan of both Toy Story and Barbie, you’re in for a real treat. The Toy Story Barbie Doll Cameo Collectibles bring together two iconic worlds in one s"
+title: 'Toy Story Barbie Doll Cameo Collectibles: Must-Have Limited Edition Gems'
+description: If you’re a fan of both Toy Story and Barbie, you’re in for a real treat.
+  The Toy Story Barbie Doll Cameo Collectibles bring together two iconic worlds in
+  one s
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-barbie-doll-cameo-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-barbie-doll-cameo-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of both Toy Story and Barbie, you’re in for a real treat. The Toy Story Barbie Doll Cameo Collectibles bring together two iconic worlds in one stunning collection.**

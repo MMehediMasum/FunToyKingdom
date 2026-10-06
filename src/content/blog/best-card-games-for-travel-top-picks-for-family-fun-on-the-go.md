@@ -1,10 +1,13 @@
 ---
-title: "Best Card Games for Travel: Top Picks for Family Fun On-the-Go"
-description: "Choosing the best card games for travel makes trips more fun and entertaining. These games are easy to carry and perfect for all ages. Traveling can get boring,"
+title: 'Best Card Games for Travel: Top Picks for Family Fun On-the-Go'
+description: Choosing the best card games for travel makes trips more fun and entertaining.
+  These games are easy to carry and perfect for all ages. Traveling can get boring,
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-travel-top-picks-for-family-fun-on-the-go&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-travel-top-picks-for-family-fun-on-the-go&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best card games for travel makes trips more fun and entertaining. These games are easy to carry and perfect for all ages.**

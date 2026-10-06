@@ -1,10 +1,14 @@
 ---
-title: "Toy Cube With Mirrors for Infants: Boost Learning & Playtime Fun"
-description: "Are you looking for a simple toy that can keep your infant both entertained and engaged? A toy cube with mirrors might be exactly what you need. This clever lit"
+title: 'Toy Cube With Mirrors for Infants: Boost Learning & Playtime Fun'
+description: Are you looking for a simple toy that can keep your infant both entertained
+  and engaged? A toy cube with mirrors might be exactly what you need. This clever
+  lit
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cube-with-mirrors-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=toy-cube-with-mirrors-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a simple toy that can keep your infant both entertained and engaged? A toy cube with mirrors might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Math Games With Abacus Toys: Boost Brainpower & Fun Learning"
-description: "Are you looking for a fun and effective way to boost your math skills? Math games with abacus toys could be just what you need. These colorful tools turn number"
+title: 'Math Games With Abacus Toys: Boost Brainpower & Fun Learning'
+description: Are you looking for a fun and effective way to boost your math skills?
+  Math games with abacus toys could be just what you need. These colorful tools turn
+  number
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=math-games-with-abacus-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=math-games-with-abacus-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and effective way to boost your math skills? Math games with abacus toys could be just what you need.**

@@ -1,10 +1,13 @@
 ---
-title: "Big J'S Diecast: Ultimate Hot Wheels J-Imports & Collectible Cars Guide"
-description: "Big J'S Diecast offers a wide range of collectible diecast cars and accessories. These models appeal to both kids and adult collectors alike. This collection in"
+title: 'Big J''S Diecast: Ultimate Hot Wheels J-Imports & Collectible Cars Guide'
+description: Big J'S Diecast offers a wide range of collectible diecast cars and accessories.
+  These models appeal to both kids and adult collectors alike. This collection in
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=big-js-diecast&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=big-js-diecast&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Big J'S Diecast offers a wide range of collectible diecast cars and accessories. These models appeal to both kids and adult collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for 4 Year Old: Top Fun Picks to Boost Playtime"
-description: "Looking for the perfect outdoor toys for your 4-year-old? You want something that keeps your little one active, happy, and curious. Choosing the right toy can m"
+title: 'Outdoor Toys for 4 Year Old: Top Fun Picks to Boost Playtime'
+description: Looking for the perfect outdoor toys for your 4-year-old? You want something
+  that keeps your little one active, happy, and curious. Choosing the right toy can
+  m
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-4-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect outdoor toys for your 4-year-old? You want something that keeps your little one active, happy, and curious.**

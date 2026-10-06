@@ -1,10 +1,14 @@
 ---
-title: "What is the Most Dangerous Toy in the World: Shocking Truth Revealed"
-description: "Have you ever wondered if the toy your child loves could actually be dangerous? What if the most exciting plaything hides risks you never imagined? You might be"
+title: 'What is the Most Dangerous Toy in the World: Shocking Truth Revealed'
+description: Have you ever wondered if the toy your child loves could actually be
+  dangerous? What if the most exciting plaything hides risks you never imagined? You
+  might be
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-most-dangerous-toy-in-the-world&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy World Records
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-most-dangerous-toy-in-the-world&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered if the toy your child loves could actually be dangerous? What if the most exciting plaything hides risks you never imagined?**

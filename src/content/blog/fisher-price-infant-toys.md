@@ -1,10 +1,14 @@
 ---
-title: "Fisher-Price Infant Toys: Best Interactive Learning Toys for Baby Development"
-description: "Fisher-Price infant toys offer engaging playtime activities for babies. These toys support early learning and development. Parents often seek toys that are both"
+title: 'Fisher-Price Infant Toys: Best Interactive Learning Toys for Baby Development'
+description: Fisher-Price infant toys offer engaging playtime activities for babies.
+  These toys support early learning and development. Parents often seek toys that
+  are both
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=fisher-price-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=fisher-price-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Fisher-Price infant toys offer engaging playtime activities for babies. These toys support early learning and development.**

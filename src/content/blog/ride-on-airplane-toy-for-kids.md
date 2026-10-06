@@ -1,10 +1,14 @@
 ---
-title: "Ride on Airplane Toy for Kids: Ultimate Fun and Learning Guide"
-description: "Are you looking for a fun and exciting way to keep your kids entertained? A ride on airplane toy for kids might be just what you need. Imagine your child zoomin"
+title: 'Ride on Airplane Toy for Kids: Ultimate Fun and Learning Guide'
+description: Are you looking for a fun and exciting way to keep your kids entertained?
+  A ride on airplane toy for kids might be just what you need. Imagine your child
+  zoomin
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-airplane-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-airplane-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids entertained? A ride on airplane toy for kids might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Cardboard Toy Car: Easy Steps for Kids’ Fun"
-description: "Have you ever wanted to create a fun toy car using just cardboard? Imagine turning simple materials into something you can play with, customize, and proudly sho"
+title: 'How to Make a Cardboard Toy Car: Easy Steps for Kids’ Fun'
+description: Have you ever wanted to create a fun toy car using just cardboard? Imagine
+  turning simple materials into something you can play with, customize, and proudly
+  sho
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-cardboard-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-cardboard-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a fun toy car using just cardboard? Imagine turning simple materials into something you can play with, customize, and proudly show off.**

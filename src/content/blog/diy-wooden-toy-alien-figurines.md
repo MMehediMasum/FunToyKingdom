@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Alien Figurines: Craft Unique Galactic Creations"
-description: "Imagine holding a small, charming alien figurine that you made with your own hands. DIY wooden toy alien figurines are not just fun to create—they bring a uniqu"
+title: 'Diy Wooden Toy Alien Figurines: Craft Unique Galactic Creations'
+description: Imagine holding a small, charming alien figurine that you made with your
+  own hands. DIY wooden toy alien figurines are not just fun to create—they bring
+  a uniqu
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-alien-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-alien-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine holding a small, charming alien figurine that you made with your own hands. DIY wooden toy alien figurines are not just fun to create—they bring a unique touch to your space and spark your imagination.**

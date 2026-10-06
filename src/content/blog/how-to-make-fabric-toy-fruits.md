@@ -1,10 +1,14 @@
 ---
-title: "How to Make Fabric Toy Fruits: Easy DIY Steps for Creative Fun"
-description: "Are you looking for a fun and creative way to add charm to your home or surprise a little one with a unique gift? Making fabric toy fruits is easier than you th"
+title: 'How to Make Fabric Toy Fruits: Easy DIY Steps for Creative Fun'
+description: Are you looking for a fun and creative way to add charm to your home
+  or surprise a little one with a unique gift? Making fabric toy fruits is easier
+  than you th
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-fabric-toy-fruits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Fabric Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-fabric-toy-fruits&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to add charm to your home or surprise a little one with a unique gift? Making fabric toy fruits is easier than you think, and you don’t need fancy materials or skills to get started.**

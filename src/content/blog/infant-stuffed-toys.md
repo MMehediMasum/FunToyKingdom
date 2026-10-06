@@ -1,10 +1,14 @@
 ---
-title: "Infant Stuffed Toys: Soft, Safe, and Adorable Plush for Baby Development"
-description: "Infant stuffed toys offer comfort and stimulation for babies, supporting their development through play. These cuddly companions are essential for every nursery"
+title: 'Infant Stuffed Toys: Soft, Safe, and Adorable Plush for Baby Development'
+description: Infant stuffed toys offer comfort and stimulation for babies, supporting
+  their development through play. These cuddly companions are essential for every
+  nursery
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-stuffed-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=infant-stuffed-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Infant stuffed toys offer comfort and stimulation for babies, supporting their development through play. These cuddly companions are essential for every nursery.**

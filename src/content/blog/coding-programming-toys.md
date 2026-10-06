@@ -1,10 +1,13 @@
 ---
-title: "Coding Programming Toys: Top STEM Robots and Games for Kids’ Learning Fun"
-description: "Coding programming toys offer an exciting way for kids to learn essential tech skills. They merge fun and education seamlessly. These innovative toys introduce "
+title: 'Coding Programming Toys: Top STEM Robots and Games for Kids’ Learning Fun'
+description: 'Coding programming toys offer an exciting way for kids to learn essential
+  tech skills. They merge fun and education seamlessly. These innovative toys introduce '
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-programming-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-programming-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Coding programming toys offer an exciting way for kids to learn essential tech skills. They merge fun and education seamlessly.**

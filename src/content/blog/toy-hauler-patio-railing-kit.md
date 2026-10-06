@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Patio Railing Kit: Easy Installation for Ultimate Outdoor Safety"
 description: "A toy hauler patio railing kit adds safety and style to your outdoor space. It creates a secure area for relaxing or entertaining. These kits include posts, cab"
 pubDate: 2026-08-16

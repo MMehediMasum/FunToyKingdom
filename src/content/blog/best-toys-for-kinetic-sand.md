@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for Kinetic Sand: Top Sensory Sets and Creative Tools"
-description: "Kinetic sand offers endless fun and creativity for children of all ages. Choosing the right toys enhances playtime and sensory experiences. Kinetic sand feels s"
+title: 'Best Toys for Kinetic Sand: Top Sensory Sets and Creative Tools'
+description: Kinetic sand offers endless fun and creativity for children of all ages.
+  Choosing the right toys enhances playtime and sensory experiences. Kinetic sand
+  feels s
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-kinetic-sand&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Wooden Pirate
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-kinetic-sand&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Kinetic sand offers endless fun and creativity for children of all ages. Choosing the right toys enhances playtime and sensory experiences.**

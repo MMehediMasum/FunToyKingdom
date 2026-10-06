@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Minecraft Collectible Dolls And Figures: Ultimate Guide for Fans"
 description: "If you love Minecraft, you know how exciting it is to bring your favorite characters to life. Minecraft collectible dolls and figures let you hold a piece of yo"
 pubDate: 2025-12-19

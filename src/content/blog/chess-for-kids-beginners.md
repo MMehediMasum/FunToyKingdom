@@ -1,10 +1,14 @@
 ---
-title: "Chess for Kids Beginners: Ultimate Guide to Fun & Easy Learning"
-description: "Are you looking for a fun and smart way to boost your child’s thinking skills? Chess for kids beginners is the perfect start. It’s more than just a game—it help"
+title: 'Chess for Kids Beginners: Ultimate Guide to Fun & Easy Learning'
+description: Are you looking for a fun and smart way to boost your child’s thinking
+  skills? Chess for kids beginners is the perfect start. It’s more than just a game—it
+  help
 pubDate: 2026-06-20
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=chess-for-kids-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=chess-for-kids-beginners&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and smart way to boost your child’s thinking skills? Chess for kids beginners is the perfect start.**

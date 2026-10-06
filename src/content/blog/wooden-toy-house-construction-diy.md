@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy House Construction DIY: Ultimate Guide for Creative Builders"
-description: "Are you looking for a fun and rewarding project that you can build with your own hands? Imagine creating a beautiful wooden toy house that not only sparks creat"
+title: 'Wooden Toy House Construction DIY: Ultimate Guide for Creative Builders'
+description: Are you looking for a fun and rewarding project that you can build with
+  your own hands? Imagine creating a beautiful wooden toy house that not only sparks
+  creat
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-house-construction-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-house-construction-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and rewarding project that you can build with your own hands? Imagine creating a beautiful wooden toy house that not only sparks creativity but also becomes a cherished keepsake.**

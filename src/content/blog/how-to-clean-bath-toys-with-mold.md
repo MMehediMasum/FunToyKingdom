@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bath Toys With Mold: Easy, Safe, and Effective Tips"
-description: "You love giving your kids fun bath time, but have you noticed that your bath toys are starting to look dirty or even moldy? Mold on bath toys isn’t just gross—i"
+title: 'How to Clean Bath Toys With Mold: Easy, Safe, and Effective Tips'
+description: You love giving your kids fun bath time, but have you noticed that your
+  bath toys are starting to look dirty or even moldy? Mold on bath toys isn’t just
+  gross—i
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-with-mold&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-with-mold&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **You love giving your kids fun bath time, but have you noticed that your bath toys are starting to look dirty or even moldy? Mold on bath toys isn’t just gross—it can be harmful to your family’s health.**

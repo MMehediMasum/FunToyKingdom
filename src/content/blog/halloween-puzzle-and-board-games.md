@@ -1,10 +1,14 @@
 ---
-title: "Halloween Puzzle And Board Games: Spooktacular Fun for Everyone!"
-description: "Are you ready to add a spooky twist to your game night? Halloween puzzle and board games are the perfect way to bring fun, mystery, and a little chill to your c"
+title: 'Halloween Puzzle And Board Games: Spooktacular Fun for Everyone!'
+description: Are you ready to add a spooky twist to your game night? Halloween puzzle
+  and board games are the perfect way to bring fun, mystery, and a little chill to
+  your c
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=halloween-puzzle-and-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=halloween-puzzle-and-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to add a spooky twist to your game night? Halloween puzzle and board games are the perfect way to bring fun, mystery, and a little chill to your celebrations.**

@@ -1,10 +1,14 @@
 ---
-title: "Gundam Action Figure Collectibles: Ultimate Guide to Top Picks 2025"
-description: "Are you a fan of Gundam or someone looking to start an exciting new hobby? Gundam action figure collectibles offer more than just toys—they bring iconic robots "
+title: 'Gundam Action Figure Collectibles: Ultimate Guide to Top Picks 2025'
+description: 'Are you a fan of Gundam or someone looking to start an exciting new
+  hobby? Gundam action figure collectibles offer more than just toys—they bring iconic
+  robots '
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=gundam-action-figure-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=gundam-action-figure-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Gundam or someone looking to start an exciting new hobby? Gundam action figure collectibles offer more than just toys—they bring iconic robots to life right in your hands.**

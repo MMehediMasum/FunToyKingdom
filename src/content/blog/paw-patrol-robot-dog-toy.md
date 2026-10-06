@@ -1,10 +1,14 @@
 ---
-title: "Paw Patrol Robot Dog Toy: Build, Play, and Transform Fun for Kids"
-description: "The Paw Patrol Robot Dog Toy brings adventure and learning together in one fun package. Kids can build and control their favorite robotic pups with ease. This t"
+title: 'Paw Patrol Robot Dog Toy: Build, Play, and Transform Fun for Kids'
+description: The Paw Patrol Robot Dog Toy brings adventure and learning together in
+  one fun package. Kids can build and control their favorite robotic pups with ease.
+  This t
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=paw-patrol-robot-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=paw-patrol-robot-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Paw Patrol Robot Dog Toy brings adventure and learning together in one fun package. Kids can build and control their favorite robotic pups with ease.**

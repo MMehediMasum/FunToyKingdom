@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for Preschoolers: Top Fun Picks for Active Play"
-description: "Looking for the perfect outdoor toys for preschoolers? You want your little one to have fun, stay active, and learn new skills—all while playing outside. Choosi"
+title: 'Outdoor Toys for Preschoolers: Top Fun Picks for Active Play'
+description: Looking for the perfect outdoor toys for preschoolers? You want your
+  little one to have fun, stay active, and learn new skills—all while playing outside.
+  Choosi
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-preschoolers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Preschoolers
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-preschoolers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for the perfect outdoor toys for preschoolers? You want your little one to have fun, stay active, and learn new skills—all while playing outside.**

@@ -1,10 +1,14 @@
 ---
-title: "What are Good Toys for 1 Year Olds: Top Picks for Fun & Learning"
-description: "Choosing the right toys for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one grow. But with so many options, "
+title: 'What are Good Toys for 1 Year Olds: Top Picks for Fun & Learning'
+description: 'Choosing the right toys for your 1-year-old can feel overwhelming. You
+  want something safe, fun, and that helps your little one grow. But with so many
+  options, '
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-good-toys-for-1-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=what-are-good-toys-for-1-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one grow.**

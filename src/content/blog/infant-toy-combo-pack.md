@@ -1,10 +1,14 @@
 ---
-title: "Infant Toy Combo Pack: Top Sensory Rattles and Teethers for Babies"
-description: "An infant toy combo pack offers a variety of toys designed to support baby’s growth and play. These sets include rattles, teethers, stacking blocks, and sensory"
+title: 'Infant Toy Combo Pack: Top Sensory Rattles and Teethers for Babies'
+description: An infant toy combo pack offers a variety of toys designed to support
+  baby’s growth and play. These sets include rattles, teethers, stacking blocks, and
+  sensory
 pubDate: 2026-01-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toy-combo-pack&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-toy-combo-pack&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **An infant toy combo pack offers a variety of toys designed to support baby’s growth and play. These sets include rattles, teethers, stacking blocks, and sensory toys for different ages.**

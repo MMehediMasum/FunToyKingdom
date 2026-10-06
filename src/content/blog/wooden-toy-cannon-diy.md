@@ -1,10 +1,13 @@
 ---
-title: "Wooden Toy Cannon Diy: Easy Step-by-Step Guide for Kids"
-description: "Are you looking for a fun and creative project that you can build with your own hands? A wooden toy cannon DIY is the perfect way to bring a touch of old-fashio"
+title: 'Wooden Toy Cannon Diy: Easy Step-by-Step Guide for Kids'
+description: Are you looking for a fun and creative project that you can build with
+  your own hands? A wooden toy cannon DIY is the perfect way to bring a touch of old-fashio
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-cannon-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-cannon-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can build with your own hands? A wooden toy cannon DIY is the perfect way to bring a touch of old-fashioned charm into your home.**

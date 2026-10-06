@@ -1,10 +1,14 @@
 ---
-title: "Rc Submarine Toy for Kids: Ultimate Fun and Adventure Guide"
-description: "Are you looking for a fun and exciting toy that will keep your kids entertained for hours? An RC submarine toy for kids might be exactly what you need. Imagine "
+title: 'Rc Submarine Toy for Kids: Ultimate Fun and Adventure Guide'
+description: 'Are you looking for a fun and exciting toy that will keep your kids
+  entertained for hours? An RC submarine toy for kids might be exactly what you need.
+  Imagine '
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-submarine-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-submarine-toy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting toy that will keep your kids entertained for hours? An RC submarine toy for kids might be exactly what you need.**

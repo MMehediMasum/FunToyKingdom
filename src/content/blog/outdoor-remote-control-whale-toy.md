@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Remote Control Whale Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine the joy on your child’s face as they watch a playful whale glide smoothly across the water, all controlled by a simple remote in their hand. The Outdoor"
+title: 'Outdoor Remote Control Whale Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine the joy on your child’s face as they watch a playful whale glide
+  smoothly across the water, all controlled by a simple remote in their hand. The
+  Outdoor
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-remote-control-whale-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-remote-control-whale-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine the joy on your child’s face as they watch a playful whale glide smoothly across the water, all controlled by a simple remote in their hand. The Outdoor Remote Control Whale Toy is more than just a toy—it’s a gateway to endless fun, learning, and outdoor adventures.**

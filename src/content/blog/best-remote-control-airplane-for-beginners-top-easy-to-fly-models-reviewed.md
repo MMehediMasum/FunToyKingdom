@@ -1,10 +1,14 @@
 ---
-title: "Best Remote Control Airplane for Beginners: Top Easy-to-Fly Models Reviewed"
-description: "Choosing the best remote control airplane for beginners can be tricky. This guide simplifies your search by highlighting easy-to-fly models. Remote control airp"
+title: 'Best Remote Control Airplane for Beginners: Top Easy-to-Fly Models Reviewed'
+description: Choosing the best remote control airplane for beginners can be tricky.
+  This guide simplifies your search by highlighting easy-to-fly models. Remote control
+  airp
 pubDate: 2025-12-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-remote-control-airplane-for-beginners-top-easy-to-fly-models-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=best-remote-control-airplane-for-beginners-top-easy-to-fly-models-reviewed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best remote control airplane for beginners can be tricky. This guide simplifies your search by highlighting easy-to-fly models.**

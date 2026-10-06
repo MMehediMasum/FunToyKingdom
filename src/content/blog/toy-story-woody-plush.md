@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Woody Plush: The Ultimate Cuddly Companion for Kids"
-description: "Toy Story Woody Plush toys bring the beloved cowboy character to life in soft, cuddly form. These plushies come in various sizes and styles, perfect for fans of"
+title: 'Toy Story Woody Plush: The Ultimate Cuddly Companion for Kids'
+description: Toy Story Woody Plush toys bring the beloved cowboy character to life
+  in soft, cuddly form. These plushies come in various sizes and styles, perfect for
+  fans of
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-woody-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-woody-plush&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story Woody Plush toys bring the beloved cowboy character to life in soft, cuddly form. These plushies come in various sizes and styles, perfect for fans of all ages.**

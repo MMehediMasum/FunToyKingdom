@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Mold from Bath Toys: Easy, Safe, and Effective Tips"
-description: "Mold on bath toys is more common than you might think—and it can be a hidden health risk for your little ones. If you’ve noticed that slimy, dark spots creeping"
+title: 'How to Clean Mold from Bath Toys: Easy, Safe, and Effective Tips'
+description: Mold on bath toys is more common than you might think—and it can be a
+  hidden health risk for your little ones. If you’ve noticed that slimy, dark spots
+  creeping
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-mold-from-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-mold-from-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Mold on bath toys is more common than you might think—and it can be a hidden health risk for your little ones. If you’ve noticed that slimy, dark spots creeping on your child’s favorite toys, you probably want a quick and safe way to clean them.**

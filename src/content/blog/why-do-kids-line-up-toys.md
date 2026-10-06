@@ -1,10 +1,14 @@
 ---
-title: "Why Do Kids Line Up Toys: Surprising Reasons Revealed"
-description: "Have you ever noticed your child carefully lining up their toys, one by one? It might seem like a simple game, but there’s more to it than meets the eye. Unders"
+title: 'Why Do Kids Line Up Toys: Surprising Reasons Revealed'
+description: Have you ever noticed your child carefully lining up their toys, one
+  by one? It might seem like a simple game, but there’s more to it than meets the
+  eye. Unders
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=why-do-kids-line-up-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=why-do-kids-line-up-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever noticed your child carefully lining up their toys, one by one? It might seem like a simple game, but there’s more to it than meets the eye.**

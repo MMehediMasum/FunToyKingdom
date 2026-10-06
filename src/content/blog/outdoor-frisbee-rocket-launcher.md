@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Frisbee Rocket Launcher: Ultimate Fun for Outdoor Play"
-description: "Are you ready to take your outdoor fun to a whole new level? Imagine launching your frisbee farther and faster than ever before with just a simple flick. The Ou"
+title: 'Outdoor Frisbee Rocket Launcher: Ultimate Fun for Outdoor Play'
+description: Are you ready to take your outdoor fun to a whole new level? Imagine
+  launching your frisbee farther and faster than ever before with just a simple flick.
+  The Ou
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-frisbee-rocket-launcher&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Frisbee Kids Play
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-frisbee-rocket-launcher&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your outdoor fun to a whole new level? Imagine launching your frisbee farther and faster than ever before with just a simple flick.**

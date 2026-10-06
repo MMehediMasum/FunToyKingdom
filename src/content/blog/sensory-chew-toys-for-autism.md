@@ -1,10 +1,14 @@
 ---
-title: "Sensory Chew Toys for Autism: Top Silicone Necklaces to Reduce Anxiety"
-description: "Sensory chew toys provide comfort and relief for individuals with autism. They help manage anxiety and promote focus. These toys, like chew necklaces and teethi"
+title: 'Sensory Chew Toys for Autism: Top Silicone Necklaces to Reduce Anxiety'
+description: Sensory chew toys provide comfort and relief for individuals with autism.
+  They help manage anxiety and promote focus. These toys, like chew necklaces and
+  teethi
 pubDate: 2026-09-02
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-autism&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Chew Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-autism&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory chew toys provide comfort and relief for individuals with autism. They help manage anxiety and promote focus.**

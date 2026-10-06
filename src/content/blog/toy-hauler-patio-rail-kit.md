@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Patio Rail Kit: Essential Upgrade for Secure Outdoor Living"
 description: "A Toy Hauler Patio Rail Kit adds safety and style to your outdoor space. It helps create a secure, comfortable area for relaxing outside your RV. This kit fits "
 pubDate: 2026-08-24

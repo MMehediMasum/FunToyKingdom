@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Campers: Perfect Pull Back RVs for Kids’ Adventure Play"
-description: "Miniature toy campers bring endless fun and imagination to children's playtime. These tiny vehicles captivate young adventurers. Miniature toy campers are perfe"
+title: 'Miniature Toy Campers: Perfect Pull Back RVs for Kids’ Adventure Play'
+description: Miniature toy campers bring endless fun and imagination to children's
+  playtime. These tiny vehicles captivate young adventurers. Miniature toy campers
+  are perfe
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-campers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-campers&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature toy campers bring endless fun and imagination to children's playtime. These tiny vehicles captivate young adventurers.**

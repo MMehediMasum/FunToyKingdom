@@ -1,10 +1,14 @@
 ---
-title: "Dinky Toy Cars: Top Collectible Diecast Models for Enthusiasts"
-description: "Dinky Toy Cars are small diecast models loved by collectors worldwide. They capture classic vehicles with great detail and charm. These miniature cars come in v"
+title: 'Dinky Toy Cars: Top Collectible Diecast Models for Enthusiasts'
+description: Dinky Toy Cars are small diecast models loved by collectors worldwide.
+  They capture classic vehicles with great detail and charm. These miniature cars
+  come in v
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dinky-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=dinky-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Dinky Toy Cars are small diecast models loved by collectors worldwide. They capture classic vehicles with great detail and charm.**

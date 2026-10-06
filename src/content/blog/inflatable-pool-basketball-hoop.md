@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Pool Basketball Hoop: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to upgrade your pool time? An inflatable pool basketball hoop could be just what you need. Imagine shooting hoops while splashing in the w"
+title: 'Inflatable Pool Basketball Hoop: Ultimate Summer Fun Guide'
+description: Looking for a fun way to upgrade your pool time? An inflatable pool basketball
+  hoop could be just what you need. Imagine shooting hoops while splashing in the
+  w
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-pool-basketball-hoop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-pool-basketball-hoop&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to upgrade your pool time? An inflatable pool basketball hoop could be just what you need.**

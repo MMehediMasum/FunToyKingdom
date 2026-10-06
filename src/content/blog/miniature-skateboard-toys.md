@@ -1,10 +1,14 @@
 ---
-title: "Miniature Skateboard Toys: Top Picks for Kids’ Fingerboard Fun"
-description: "Miniature skateboard toys bring fun and creativity to kids and collectors alike. These tiny boards offer hours of entertainment with simple, skillful finger mov"
+title: 'Miniature Skateboard Toys: Top Picks for Kids’ Fingerboard Fun'
+description: Miniature skateboard toys bring fun and creativity to kids and collectors
+  alike. These tiny boards offer hours of entertainment with simple, skillful finger
+  mov
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-skateboard-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-skateboard-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature skateboard toys bring fun and creativity to kids and collectors alike. These tiny boards offer hours of entertainment with simple, skillful finger movements.**

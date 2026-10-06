@@ -1,10 +1,14 @@
 ---
-title: "Do Salvation Army Take Toys: What You Need to Know Today"
-description: "Are you wondering if the Salvation Army takes toys? Maybe you have some gently used toys at home and want to give them a new life. Or perhaps you’re looking for"
+title: 'Do Salvation Army Take Toys: What You Need to Know Today'
+description: Are you wondering if the Salvation Army takes toys? Maybe you have some
+  gently used toys at home and want to give them a new life. Or perhaps you’re looking
+  for
 pubDate: 2025-10-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-salvation-army-take-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drop Off Toys For Christmas
+heroImage: https://tse1.mm.bing.net/th?q=do-salvation-army-take-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering if the Salvation Army takes toys? Maybe you have some gently used toys at home and want to give them a new life.**

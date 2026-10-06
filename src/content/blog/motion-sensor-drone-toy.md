@@ -1,10 +1,14 @@
 ---
-title: "Motion Sensor Drone Toy: Ultimate Fun with Smart Flying Tech"
-description: "Imagine controlling a drone just by moving your hand—no remote needed. A motion sensor drone toy lets you do exactly that, making playtime more exciting and int"
+title: 'Motion Sensor Drone Toy: Ultimate Fun with Smart Flying Tech'
+description: Imagine controlling a drone just by moving your hand—no remote needed.
+  A motion sensor drone toy lets you do exactly that, making playtime more exciting
+  and int
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=motion-sensor-drone-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=motion-sensor-drone-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling a drone just by moving your hand—no remote needed. A motion sensor drone toy lets you do exactly that, making playtime more exciting and interactive.**

@@ -1,10 +1,14 @@
 ---
-title: "Stacking Toys for Toddlers: Top Educational Picks to Boost Motor Skills"
-description: "Stacking toys help toddlers develop motor skills and learn colors, shapes, and sizes. These toys offer fun, hands-on learning for young children. Stacking toys "
+title: 'Stacking Toys for Toddlers: Top Educational Picks to Boost Motor Skills'
+description: 'Stacking toys help toddlers develop motor skills and learn colors, shapes,
+  and sizes. These toys offer fun, hands-on learning for young children. Stacking
+  toys '
 pubDate: 2025-11-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-toys-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Stacking Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stacking-toys-for-toddlers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Stacking toys help toddlers develop motor skills and learn colors, shapes, and sizes. These toys offer fun, hands-on learning for young children.**

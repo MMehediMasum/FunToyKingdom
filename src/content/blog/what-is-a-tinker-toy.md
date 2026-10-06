@@ -1,10 +1,14 @@
 ---
-title: "What is a Tinker Toy: Discover Its Timeless Creative Magic"
-description: "Have you ever wondered what makes Tinker Toys so special? Whether you’re a parent looking for a creative play option, or just curious about this classic constru"
+title: 'What is a Tinker Toy: Discover Its Timeless Creative Magic'
+description: Have you ever wondered what makes Tinker Toys so special? Whether you’re
+  a parent looking for a creative play option, or just curious about this classic
+  constru
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-tinker-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-tinker-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what makes Tinker Toys so special? Whether you’re a parent looking for a creative play option, or just curious about this classic construction set, understanding what a Tinker Toy is can open up a world of fun and learning for you.**

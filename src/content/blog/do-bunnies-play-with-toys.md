@@ -1,10 +1,14 @@
 ---
-title: "Do Bunnies Play With Toys: Discover Fun & Safe Bunny Toys!"
-description: "Have you ever wondered if your bunny enjoys playing with toys? You might think toys are just for dogs or cats, but bunnies actually love them too! Giving your f"
+title: 'Do Bunnies Play With Toys: Discover Fun & Safe Bunny Toys!'
+description: Have you ever wondered if your bunny enjoys playing with toys? You might
+  think toys are just for dogs or cats, but bunnies actually love them too! Giving
+  your f
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-bunnies-play-with-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=do-bunnies-play-with-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered if your bunny enjoys playing with toys? You might think toys are just for dogs or cats, but bunnies actually love them too!**

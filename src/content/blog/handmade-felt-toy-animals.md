@@ -1,10 +1,14 @@
 ---
-title: "Handmade Felt Toy Animals: Charming Gifts for Kids and Collectors"
-description: "Are you looking for a unique gift or a charming decoration that brings warmth and character to any space? Handmade felt toy animals might be just what you need."
+title: 'Handmade Felt Toy Animals: Charming Gifts for Kids and Collectors'
+description: Are you looking for a unique gift or a charming decoration that brings
+  warmth and character to any space? Handmade felt toy animals might be just what
+  you need.
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-felt-toy-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-felt-toy-animals&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a unique gift or a charming decoration that brings warmth and character to any space? Handmade felt toy animals might be just what you need.**

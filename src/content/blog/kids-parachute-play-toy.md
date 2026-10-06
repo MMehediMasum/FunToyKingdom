@@ -1,10 +1,14 @@
 ---
-title: "Kids Parachute Play Toy: Ultimate Fun for Active Kids Outdoors"
-description: "Are you looking for a fun and exciting way to keep your kids active and entertained? The Kids Parachute Play Toy might be exactly what you need. This colorful, "
+title: 'Kids Parachute Play Toy: Ultimate Fun for Active Kids Outdoors'
+description: 'Are you looking for a fun and exciting way to keep your kids active
+  and entertained? The Kids Parachute Play Toy might be exactly what you need. This
+  colorful, '
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-parachute-play-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=kids-parachute-play-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active and entertained? The Kids Parachute Play Toy might be exactly what you need.**

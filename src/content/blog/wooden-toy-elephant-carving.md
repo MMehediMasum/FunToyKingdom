@@ -1,10 +1,13 @@
 ---
-title: "Wooden Toy Elephant Carving: Timeless Craftsmanship Unveiled"
-description: "Imagine holding a beautifully crafted wooden toy elephant in your hands—smooth, sturdy, and full of charm. This isn’t just any toy; it’s a piece of art that spa"
+title: 'Wooden Toy Elephant Carving: Timeless Craftsmanship Unveiled'
+description: Imagine holding a beautifully crafted wooden toy elephant in your hands—smooth,
+  sturdy, and full of charm. This isn’t just any toy; it’s a piece of art that spa
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-elephant-carving&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-elephant-carving&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a beautifully crafted wooden toy elephant in your hands—smooth, sturdy, and full of charm. This isn’t just any toy; it’s a piece of art that sparks joy and creativity every time you see it.**

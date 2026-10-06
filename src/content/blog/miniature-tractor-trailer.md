@@ -1,10 +1,14 @@
 ---
-title: "Miniature Tractor Trailer: Top Diecast and Model Trucks for Collectors"
-description: "Miniature tractor trailers capture the charm of real trucks in small, detailed models. They offer fun and learning for kids and collectors alike. These tiny tra"
+title: 'Miniature Tractor Trailer: Top Diecast and Model Trucks for Collectors'
+description: Miniature tractor trailers capture the charm of real trucks in small,
+  detailed models. They offer fun and learning for kids and collectors alike. These
+  tiny tra
 pubDate: 2026-02-24
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-tractor-trailer&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-tractor-trailer&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature tractor trailers capture the charm of real trucks in small, detailed models. They offer fun and learning for kids and collectors alike.**

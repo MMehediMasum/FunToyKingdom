@@ -1,10 +1,14 @@
 ---
-title: "Best Air Hockey Toy Table: Ultimate Fun for Kids & Families"
-description: "Looking for the best air hockey toy table to bring fun and excitement right into your home? You want a game that’s easy to set up, durable, and perfect for frie"
+title: 'Best Air Hockey Toy Table: Ultimate Fun for Kids & Families'
+description: Looking for the best air hockey toy table to bring fun and excitement
+  right into your home? You want a game that’s easy to set up, durable, and perfect
+  for frie
 pubDate: 2026-07-10
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-air-hockey-toy-table&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=best-air-hockey-toy-table&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the best air hockey toy table to bring fun and excitement right into your home? You want a game that’s easy to set up, durable, and perfect for friendly competition with family or friends.**

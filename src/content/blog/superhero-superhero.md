@@ -1,10 +1,14 @@
 ---
-title: "Superhero Superhero Funko Pop Figures: Ultimate Collectible Marvel Toys Guide"
-description: "Superhero fans love collecting figures and fun items that bring their favorite characters to life. Funko Pop offers a wide range of Marvel and DC superhero coll"
+title: 'Superhero Superhero Funko Pop Figures: Ultimate Collectible Marvel Toys Guide'
+description: Superhero fans love collecting figures and fun items that bring their
+  favorite characters to life. Funko Pop offers a wide range of Marvel and DC superhero
+  coll
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=superhero-superhero&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=superhero-superhero&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Superhero fans love collecting figures and fun items that bring their favorite characters to life. Funko Pop offers a wide range of Marvel and DC superhero collectibles.**

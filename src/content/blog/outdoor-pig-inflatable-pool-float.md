@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Pig Inflatable Pool Float: Ultimate Summer Fun Guide"
-description: "Imagine yourself lounging on a sunny day, floating effortlessly on a giant, colorful pig in your pool. Sounds fun, right? The Outdoor Pig Inflatable Pool Float "
+title: 'Outdoor Pig Inflatable Pool Float: Ultimate Summer Fun Guide'
+description: 'Imagine yourself lounging on a sunny day, floating effortlessly on a
+  giant, colorful pig in your pool. Sounds fun, right? The Outdoor Pig Inflatable
+  Pool Float '
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-pig-inflatable-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-pig-inflatable-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself lounging on a sunny day, floating effortlessly on a giant, colorful pig in your pool. Sounds fun, right?**

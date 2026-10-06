@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Virtual Reality Escape Game Toy: Ultimate Immersive Adventure Fun"
 description: "Imagine stepping into a world where your living room transforms into an exciting escape room. With a Virtual Reality Escape Game Toy, you hold the key to unlock"
 pubDate: 2026-07-12

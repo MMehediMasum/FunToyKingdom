@@ -1,10 +1,13 @@
 ---
-title: "Vintage Vinyl Toys: Top Collectible Retro Figures and Miniature Music Players"
-description: "Vintage vinyl toys bring back the charm of past decades with unique designs and nostalgic appeal. Collectors and kids alike enjoy their classic style and playfu"
+title: 'Vintage Vinyl Toys: Top Collectible Retro Figures and Miniature Music Players'
+description: Vintage vinyl toys bring back the charm of past decades with unique designs
+  and nostalgic appeal. Collectors and kids alike enjoy their classic style and playfu
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=vintage-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vintage vinyl toys bring back the charm of past decades with unique designs and nostalgic appeal. Collectors and kids alike enjoy their classic style and playful features.**

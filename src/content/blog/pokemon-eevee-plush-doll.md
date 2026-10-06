@@ -1,10 +1,14 @@
 ---
-title: "Pokemon Eevee Plush Doll: Ultimate Cuddle Buddy for Fans"
-description: "Are you looking to add a touch of magic and comfort to your collection? The Pokémon Eevee Plush Doll is more than just a toy—it’s a cuddly companion that brings"
+title: 'Pokemon Eevee Plush Doll: Ultimate Cuddle Buddy for Fans'
+description: Are you looking to add a touch of magic and comfort to your collection?
+  The Pokémon Eevee Plush Doll is more than just a toy—it’s a cuddly companion that
+  brings
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=pokemon-eevee-plush-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=pokemon-eevee-plush-doll&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking to add a touch of magic and comfort to your collection? The Pokémon Eevee Plush Doll is more than just a toy—it’s a cuddly companion that brings joy and nostalgia right into your hands.**

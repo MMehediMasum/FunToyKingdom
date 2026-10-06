@@ -1,10 +1,14 @@
 ---
-title: "Sack Race Bags for Kids Party: Fun, Durable & Colorful Choices"
-description: "Are you planning a kids party and want to add a fun, exciting game that everyone will enjoy? Sack race bags are the perfect choice to bring laughter and energy "
+title: 'Sack Race Bags for Kids Party: Fun, Durable & Colorful Choices'
+description: 'Are you planning a kids party and want to add a fun, exciting game that
+  everyone will enjoy? Sack race bags are the perfect choice to bring laughter and
+  energy '
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sack-race-bags-for-kids-party&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=sack-race-bags-for-kids-party&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you planning a kids party and want to add a fun, exciting game that everyone will enjoy? Sack race bags are the perfect choice to bring laughter and energy to your celebration.**

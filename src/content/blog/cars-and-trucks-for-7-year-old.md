@@ -1,10 +1,14 @@
 ---
-title: "Cars And Trucks for 7 Year Old: Best Picks for Endless Fun"
-description: "Are you looking for the perfect cars and trucks for your 7-year-old? Choosing toys that match your child’s interests can spark their imagination and keep them e"
+title: 'Cars And Trucks for 7 Year Old: Best Picks for Endless Fun'
+description: Are you looking for the perfect cars and trucks for your 7-year-old?
+  Choosing toys that match your child’s interests can spark their imagination and
+  keep them e
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-and-trucks-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-and-trucks-for-7-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect cars and trucks for your 7-year-old? Choosing toys that match your child’s interests can spark their imagination and keep them entertained for hours.**

@@ -1,10 +1,14 @@
 ---
-title: "Ride on Police Car With Lights: Ultimate Kids' Adventure Toy Guide"
-description: "Imagine the thrill of zooming around in a police car, lights flashing and sirens blaring. You can feel the power at your fingertips and the excitement building "
+title: 'Ride on Police Car With Lights: Ultimate Kids'' Adventure Toy Guide'
+description: 'Imagine the thrill of zooming around in a police car, lights flashing
+  and sirens blaring. You can feel the power at your fingertips and the excitement
+  building '
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-police-car-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy With Police
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-police-car-with-lights&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the thrill of zooming around in a police car, lights flashing and sirens blaring. You can feel the power at your fingertips and the excitement building with every turn.**

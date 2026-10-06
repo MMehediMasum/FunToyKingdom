@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Stunt Kite Teens: Ultimate Guide to Thrilling Sky Tricks"
-description: "Are you looking for a fun way to enjoy the outdoors and show off your skills? Outdoor stunt kites are perfect for teens like you who want excitement, challenge,"
+title: 'Outdoor Stunt Kite Teens: Ultimate Guide to Thrilling Sky Tricks'
+description: Are you looking for a fun way to enjoy the outdoors and show off your
+  skills? Outdoor stunt kites are perfect for teens like you who want excitement,
+  challenge,
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-stunt-kite-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-stunt-kite-teens&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to enjoy the outdoors and show off your skills? Outdoor stunt kites are perfect for teens like you who want excitement, challenge, and a cool hobby all in one.**

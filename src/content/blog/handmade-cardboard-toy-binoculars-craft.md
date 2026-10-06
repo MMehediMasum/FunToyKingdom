@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Binoculars Craft: Fun DIY Adventure Toy"
-description: "Imagine turning simple cardboard into a fun, imaginative toy that you can hold in your hands. With this Handmade Cardboard Toy Binoculars Craft, you’re not just"
+title: 'Handmade Cardboard Toy Binoculars Craft: Fun DIY Adventure Toy'
+description: Imagine turning simple cardboard into a fun, imaginative toy that you
+  can hold in your hands. With this Handmade Cardboard Toy Binoculars Craft, you’re
+  not just
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-binoculars-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Rocket Cardboard Craft
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-binoculars-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning simple cardboard into a fun, imaginative toy that you can hold in your hands. With this Handmade Cardboard Toy Binoculars Craft, you’re not just making a toy—you’re creating a world of adventure right at home.**

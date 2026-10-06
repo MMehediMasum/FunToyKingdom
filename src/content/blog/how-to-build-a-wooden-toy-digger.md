@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wooden Toy Digger: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create a toy that sparks imagination and brings endless fun? Building a wooden toy digger is a perfect way to do just that. Not only wil"
+title: 'How to Build a Wooden Toy Digger: Easy Step-by-Step Guide'
+description: Have you ever wanted to create a toy that sparks imagination and brings
+  endless fun? Building a wooden toy digger is a perfect way to do just that. Not
+  only wil
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-digger&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-digger&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a toy that sparks imagination and brings endless fun? Building a wooden toy digger is a perfect way to do just that.**

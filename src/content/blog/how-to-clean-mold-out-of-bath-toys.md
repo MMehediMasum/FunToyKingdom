@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Mold Out of Bath Toys: Quick & Easy Tips"
-description: "Mold in your child's bath toys is more common than you might think—and it’s not just gross, it can be harmful too. If you’ve noticed a musty smell or dark spots"
+title: 'How to Clean Mold Out of Bath Toys: Quick & Easy Tips'
+description: Mold in your child's bath toys is more common than you might think—and
+  it’s not just gross, it can be harmful too. If you’ve noticed a musty smell or dark
+  spots
 pubDate: 2025-12-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-mold-out-of-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-mold-out-of-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Mold in your child's bath toys is more common than you might think—and it’s not just gross, it can be harmful too. If you’ve noticed a musty smell or dark spots on those toys, it’s time to act.**

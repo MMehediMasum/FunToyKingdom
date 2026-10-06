@@ -1,10 +1,14 @@
 ---
-title: "Who Invented Scrabble: Unveiling the Genius Behind the Game"
-description: "Have you ever wondered who invented Scrabble, the game that turns simple letters into a battle of words and wits? If you love playing Scrabble or are curious ab"
+title: 'Who Invented Scrabble: Unveiling the Genius Behind the Game'
+description: Have you ever wondered who invented Scrabble, the game that turns simple
+  letters into a battle of words and wits? If you love playing Scrabble or are curious
+  ab
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-invented-scrabble&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=who-invented-scrabble&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered who invented Scrabble, the game that turns simple letters into a battle of words and wits? If you love playing Scrabble or are curious about the story behind it, you’re in the right place.**

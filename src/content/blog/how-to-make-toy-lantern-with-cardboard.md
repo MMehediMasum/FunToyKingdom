@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Lantern With Cardboard: Easy DIY Craft Guide"
-description: "Looking for a fun and simple craft project you can do at home? Making a toy lantern with cardboard is a great way to get creative and bring a little light into "
+title: 'How to Make Toy Lantern With Cardboard: Easy DIY Craft Guide'
+description: 'Looking for a fun and simple craft project you can do at home? Making
+  a toy lantern with cardboard is a great way to get creative and bring a little light
+  into '
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-lantern-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-lantern-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and simple craft project you can do at home? Making a toy lantern with cardboard is a great way to get creative and bring a little light into your day.**

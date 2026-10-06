@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Range Rover Replica: Ultimate Fun for Kids!"
-description: "Imagine your child cruising around in a sleek, stylish car that looks just like a real Range Rover. The Ride on Toy Range Rover Replica brings that dream to lif"
+title: 'Ride on Toy Range Rover Replica: Ultimate Fun for Kids!'
+description: Imagine your child cruising around in a sleek, stylish car that looks
+  just like a real Range Rover. The Ride on Toy Range Rover Replica brings that dream
+  to lif
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-range-rover-replica&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-range-rover-replica&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child cruising around in a sleek, stylish car that looks just like a real Range Rover. The Ride on Toy Range Rover Replica brings that dream to life, giving your little one a chance to feel like a true driver.**

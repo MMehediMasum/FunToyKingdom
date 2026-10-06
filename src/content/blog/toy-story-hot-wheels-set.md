@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Hot Wheels Set: Ultimate Collection for Kids and Collectors"
-description: "The Toy Story Hot Wheels Set brings favorite characters to life with exciting die-cast cars. Kids and collectors enjoy driving these detailed 1:64 scale vehicle"
+title: 'Toy Story Hot Wheels Set: Ultimate Collection for Kids and Collectors'
+description: The Toy Story Hot Wheels Set brings favorite characters to life with
+  exciting die-cast cars. Kids and collectors enjoy driving these detailed 1:64 scale
+  vehicle
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-hot-wheels-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-hot-wheels-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Hot Wheels Set brings favorite characters to life with exciting die-cast cars. Kids and collectors enjoy driving these detailed 1:64 scale vehicles on tracks or displaying them proudly.**

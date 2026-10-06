@@ -1,10 +1,14 @@
 ---
-title: "Collectible Anime Toy Figurines: Ultimate Guide to Rare Treasures"
-description: "Are you a fan of anime and love collecting unique items? Collectible anime toy figurines can be the perfect addition to your collection. These small, detailed f"
+title: 'Collectible Anime Toy Figurines: Ultimate Guide to Rare Treasures'
+description: Are you a fan of anime and love collecting unique items? Collectible
+  anime toy figurines can be the perfect addition to your collection. These small,
+  detailed f
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-anime-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=collectible-anime-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of anime and love collecting unique items? Collectible anime toy figurines can be the perfect addition to your collection.**

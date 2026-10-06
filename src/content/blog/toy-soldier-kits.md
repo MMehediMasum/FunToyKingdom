@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Kits: Top Military Playsets for Creative Kids’ Adventures"
-description: "Toy soldier kits spark creativity and adventure in children. They offer an engaging way for kids to learn history. Toy soldier kits provide a fantastic way to i"
+title: 'Toy Soldier Kits: Top Military Playsets for Creative Kids’ Adventures'
+description: Toy soldier kits spark creativity and adventure in children. They offer
+  an engaging way for kids to learn history. Toy soldier kits provide a fantastic
+  way to i
 pubDate: 2026-02-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-kits&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy soldier kits spark creativity and adventure in children. They offer an engaging way for kids to learn history.**

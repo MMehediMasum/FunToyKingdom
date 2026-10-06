@@ -1,10 +1,14 @@
 ---
-title: "Handmade Fabric Toy Fish: Charming Gifts for Kids & Collectors"
-description: "Imagine holding a soft, colorful fish that’s not just a toy but a piece of art made just for you. Handmade fabric toy fish bring warmth and charm into your home"
+title: 'Handmade Fabric Toy Fish: Charming Gifts for Kids & Collectors'
+description: Imagine holding a soft, colorful fish that’s not just a toy but a piece
+  of art made just for you. Handmade fabric toy fish bring warmth and charm into your
+  home
 pubDate: 2026-06-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-fabric-toy-fish&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Fabric Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-fabric-toy-fish&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a soft, colorful fish that’s not just a toy but a piece of art made just for you. Handmade fabric toy fish bring warmth and charm into your home, perfect for your child or as a unique gift.**

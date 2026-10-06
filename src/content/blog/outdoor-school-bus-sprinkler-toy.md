@@ -1,10 +1,13 @@
 ---
-title: "Outdoor School Bus Sprinkler Toy: Ultimate Summer Fun for Kids"
-description: "Imagine turning your backyard into a fun, splash-filled playground with just one simple toy. The Outdoor School Bus Sprinkler Toy is not just any sprinkler—it’s"
+title: 'Outdoor School Bus Sprinkler Toy: Ultimate Summer Fun for Kids'
+description: Imagine turning your backyard into a fun, splash-filled playground with
+  just one simple toy. The Outdoor School Bus Sprinkler Toy is not just any sprinkler—it’s
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-school-bus-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-school-bus-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun, splash-filled playground with just one simple toy. The Outdoor School Bus Sprinkler Toy is not just any sprinkler—it’s a vibrant, exciting way to keep your kids cool and entertained during hot days.**

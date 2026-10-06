@@ -1,10 +1,14 @@
 ---
-title: "Science Kits for 11 Year Old: Top Engaging STEM Picks 2025"
-description: "Are you looking for a fun and educational gift that sparks curiosity in your 11-year-old? Science kits are a perfect choice to keep your child excited about lea"
+title: 'Science Kits for 11 Year Old: Top Engaging STEM Picks 2025'
+description: Are you looking for a fun and educational gift that sparks curiosity
+  in your 11-year-old? Science kits are a perfect choice to keep your child excited
+  about lea
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kits-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kits-for-11-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and educational gift that sparks curiosity in your 11-year-old? Science kits are a perfect choice to keep your child excited about learning while having a blast.**

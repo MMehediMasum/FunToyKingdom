@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Water Play Table for Kids: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to keep your kids entertained outdoors? An outdoor water play table for kids might be exactly what you need. It’s more than just a toy—it "
+title: 'Outdoor Water Play Table for Kids: Ultimate Summer Fun Guide'
+description: 'Looking for a fun way to keep your kids entertained outdoors? An outdoor
+  water play table for kids might be exactly what you need. It’s more than just a
+  toy—it '
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-water-play-table-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-water-play-table-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids entertained outdoors? An outdoor water play table for kids might be exactly what you need.**

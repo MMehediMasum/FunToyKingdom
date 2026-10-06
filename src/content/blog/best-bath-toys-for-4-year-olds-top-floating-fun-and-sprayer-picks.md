@@ -1,10 +1,13 @@
 ---
-title: "Best Bath Toys for 4 Year Olds: Top Floating Fun and Sprayer Picks"
-description: "Bath time becomes exciting with the best bath toys for 4 year olds. These toys keep children happy and engaged while they bathe. Choosing safe, fun, and colorfu"
+title: 'Best Bath Toys for 4 Year Olds: Top Floating Fun and Sprayer Picks'
+description: Bath time becomes exciting with the best bath toys for 4 year olds. These
+  toys keep children happy and engaged while they bathe. Choosing safe, fun, and colorfu
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bath-toys-for-4-year-olds-top-floating-fun-and-sprayer-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-bath-toys-for-4-year-olds-top-floating-fun-and-sprayer-picks&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Bath time becomes exciting with the best bath toys for 4 year olds. These toys keep children happy and engaged while they bathe.**

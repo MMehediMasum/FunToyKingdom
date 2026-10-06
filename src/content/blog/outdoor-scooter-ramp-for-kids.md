@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Scooter Ramp for Kids: Ultimate Fun and Safety Guide"
-description: "Are you looking for a fun and safe way to boost your kid’s scooter skills right in your backyard? An outdoor scooter ramp for kids could be exactly what you nee"
+title: 'Outdoor Scooter Ramp for Kids: Ultimate Fun and Safety Guide'
+description: Are you looking for a fun and safe way to boost your kid’s scooter skills
+  right in your backyard? An outdoor scooter ramp for kids could be exactly what you
+  nee
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-scooter-ramp-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-scooter-ramp-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to boost your kid’s scooter skills right in your backyard? An outdoor scooter ramp for kids could be exactly what you need.**

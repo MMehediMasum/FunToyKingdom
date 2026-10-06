@@ -1,10 +1,14 @@
 ---
-title: "Infant Ball Toy: Top Easy-Grasp Sensory Balls for Baby Development"
-description: "Infant ball toys help babies explore colors, shapes, and textures while developing motor skills. These toys offer safe, easy-to-grasp designs for little hands. "
+title: 'Infant Ball Toy: Top Easy-Grasp Sensory Balls for Baby Development'
+description: 'Infant ball toys help babies explore colors, shapes, and textures while
+  developing motor skills. These toys offer safe, easy-to-grasp designs for little
+  hands. '
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-ball-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=infant-ball-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant ball toys help babies explore colors, shapes, and textures while developing motor skills. These toys offer safe, easy-to-grasp designs for little hands.**

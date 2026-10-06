@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Toy Animal Figurines: Top Trusted Stores Revealed"
-description: "Are you looking to add charming toy animal figurines to your collection or find the perfect gift for someone special? Knowing exactly where to buy these tiny tr"
+title: 'Where to Buy Toy Animal Figurines: Top Trusted Stores Revealed'
+description: Are you looking to add charming toy animal figurines to your collection
+  or find the perfect gift for someone special? Knowing exactly where to buy these
+  tiny tr
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-toy-animal-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-toy-animal-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking to add charming toy animal figurines to your collection or find the perfect gift for someone special? Knowing exactly where to buy these tiny treasures can save you time and ensure you get the best quality and price.**

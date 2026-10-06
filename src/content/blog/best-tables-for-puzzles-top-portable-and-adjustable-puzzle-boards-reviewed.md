@@ -1,10 +1,14 @@
 ---
-title: "Best Tables for Puzzles: Top Portable and Adjustable Puzzle Boards Reviewed"
-description: "Choosing the best table for puzzles makes assembling large jigsaw puzzles easier and more fun. A good puzzle table offers space, storage, and comfort for hours "
+title: 'Best Tables for Puzzles: Top Portable and Adjustable Puzzle Boards Reviewed'
+description: 'Choosing the best table for puzzles makes assembling large jigsaw puzzles
+  easier and more fun. A good puzzle table offers space, storage, and comfort for
+  hours '
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-tables-for-puzzles-top-portable-and-adjustable-puzzle-boards-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Jigsaw Puzzle
+heroImage: https://tse1.mm.bing.net/th?q=best-tables-for-puzzles-top-portable-and-adjustable-puzzle-boards-reviewed&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best table for puzzles makes assembling large jigsaw puzzles easier and more fun. A good puzzle table offers space, storage, and comfort for hours of puzzling.**

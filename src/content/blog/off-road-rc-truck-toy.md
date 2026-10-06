@@ -1,10 +1,14 @@
 ---
-title: "Off Road Rc Truck Toy: Ultimate Guide to Thrilling Adventures"
-description: "Are you ready to take your playtime to the next level? An Off Road RC Truck Toy isn’t just a toy—it’s your ticket to thrilling adventures right in your backyard"
+title: 'Off Road Rc Truck Toy: Ultimate Guide to Thrilling Adventures'
+description: Are you ready to take your playtime to the next level? An Off Road RC
+  Truck Toy isn’t just a toy—it’s your ticket to thrilling adventures right in your
+  backyard
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=off-road-rc-truck-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Bashing Top
+heroImage: https://tse1.mm.bing.net/th?q=off-road-rc-truck-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your playtime to the next level? An Off Road RC Truck Toy isn’t just a toy—it’s your ticket to thrilling adventures right in your backyard.**

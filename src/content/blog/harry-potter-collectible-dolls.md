@@ -1,10 +1,14 @@
 ---
-title: "Harry Potter Collectible Dolls: Ultimate Guide to Rare Treasures"
-description: "Are you a Harry Potter fan who loves collecting unique items? Imagine holding your favorite characters in your hands, each doll bringing the magic of Hogwarts r"
+title: 'Harry Potter Collectible Dolls: Ultimate Guide to Rare Treasures'
+description: Are you a Harry Potter fan who loves collecting unique items? Imagine
+  holding your favorite characters in your hands, each doll bringing the magic of
+  Hogwarts r
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=harry-potter-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=harry-potter-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Harry Potter fan who loves collecting unique items? Imagine holding your favorite characters in your hands, each doll bringing the magic of Hogwarts right to your room.**

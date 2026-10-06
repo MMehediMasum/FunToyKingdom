@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Airplane: Easy Steps for a Perfect Build"
-description: "Imagine holding a beautifully crafted wooden toy airplane made by your own hands. You can see every detail, feel its smooth edges, and know it’s built with care"
+title: 'Diy Wooden Toy Airplane: Easy Steps for a Perfect Build'
+description: Imagine holding a beautifully crafted wooden toy airplane made by your
+  own hands. You can see every detail, feel its smooth edges, and know it’s built
+  with care
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-airplane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-airplane&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine holding a beautifully crafted wooden toy airplane made by your own hands. You can see every detail, feel its smooth edges, and know it’s built with care and creativity.**

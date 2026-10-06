@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy Dune Buggy for Kids: Ultimate Fun & Safety Guide"
-description: "Looking for a fun and exciting way to keep your child active and entertained? A ride on toy dune buggy for kids might be exactly what you need. Imagine your lit"
+title: 'Ride on Toy Dune Buggy for Kids: Ultimate Fun & Safety Guide'
+description: Looking for a fun and exciting way to keep your child active and entertained?
+  A ride on toy dune buggy for kids might be exactly what you need. Imagine your lit
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-dune-buggy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-dune-buggy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your child active and entertained? A ride on toy dune buggy for kids might be exactly what you need.**

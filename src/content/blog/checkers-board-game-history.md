@@ -1,10 +1,14 @@
 ---
-title: "Checkers Board Game History: Unveiling Timeless Strategy Secrets"
-description: "Have you ever wondered where the checkers board game really came from? What if I told you that this simple game you enjoy has a rich history filled with fascina"
+title: 'Checkers Board Game History: Unveiling Timeless Strategy Secrets'
+description: Have you ever wondered where the checkers board game really came from?
+  What if I told you that this simple game you enjoy has a rich history filled with
+  fascina
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=checkers-board-game-history&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=checkers-board-game-history&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered where the checkers board game really came from? What if I told you that this simple game you enjoy has a rich history filled with fascinating stories and surprising facts?**

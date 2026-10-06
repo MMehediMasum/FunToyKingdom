@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rocket Launcher Stomp Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine the joy on your child’s face as they launch colorful rockets high into the sky with just a stomp. The Outdoor Rocket Launcher Stomp Toy is not just a to"
+title: 'Outdoor Rocket Launcher Stomp Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine the joy on your child’s face as they launch colorful rockets
+  high into the sky with just a stomp. The Outdoor Rocket Launcher Stomp Toy is not
+  just a to
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rocket-launcher-stomp-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rocket-launcher-stomp-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the joy on your child’s face as they launch colorful rockets high into the sky with just a stomp. The Outdoor Rocket Launcher Stomp Toy is not just a toy—it’s an exciting way to get your kids moving, playing, and exploring outside.**

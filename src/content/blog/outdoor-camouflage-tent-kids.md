@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Camouflage Tent Kids: Ultimate Fun & Adventure Gear"
-description: "Imagine giving your kids a secret hideout right in your backyard—a place where their imagination runs wild and adventure never ends. An outdoor camouflage tent "
+title: 'Outdoor Camouflage Tent Kids: Ultimate Fun & Adventure Gear'
+description: 'Imagine giving your kids a secret hideout right in your backyard—a place
+  where their imagination runs wild and adventure never ends. An outdoor camouflage
+  tent '
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-camouflage-tent-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-camouflage-tent-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids a secret hideout right in your backyard—a place where their imagination runs wild and adventure never ends. An outdoor camouflage tent for kids is more than just a play space; it’s a gateway to creativity, fun, and unforgettable memories.**

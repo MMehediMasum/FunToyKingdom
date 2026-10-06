@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck With Aluminum Chassis: Ultimate Durability & Performance Boost"
-description: "If you love RC trucks, you know how important a strong, lightweight frame is. An RC truck with an aluminum chassis gives you just that—durability and speed in o"
+title: 'Rc Truck With Aluminum Chassis: Ultimate Durability & Performance Boost'
+description: If you love RC trucks, you know how important a strong, lightweight frame
+  is. An RC truck with an aluminum chassis gives you just that—durability and speed
+  in o
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-with-aluminum-chassis&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-with-aluminum-chassis&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **If you love RC trucks, you know how important a strong, lightweight frame is. An RC truck with an aluminum chassis gives you just that—durability and speed in one package.**

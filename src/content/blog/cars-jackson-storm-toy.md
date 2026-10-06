@@ -1,10 +1,14 @@
 ---
-title: "Cars Jackson Storm Toy: Ultimate Gift for Young Racing Enthusiasts"
-description: "Jackson Storm toy cars bring the thrill of the Cars movie to life. Kids enjoy racing and collecting these exciting die-cast vehicles. Jackson Storm stands out a"
+title: 'Cars Jackson Storm Toy: Ultimate Gift for Young Racing Enthusiasts'
+description: Jackson Storm toy cars bring the thrill of the Cars movie to life. Kids
+  enjoy racing and collecting these exciting die-cast vehicles. Jackson Storm stands
+  out a
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-jackson-storm-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-jackson-storm-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jackson Storm toy cars bring the thrill of the Cars movie to life. Kids enjoy racing and collecting these exciting die-cast vehicles.**

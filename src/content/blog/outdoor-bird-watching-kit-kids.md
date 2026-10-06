@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bird Watching Kit Kids: Ultimate Guide for Young Explorers"
-description: "Are you looking for a fun and educational way to get your kids outside and exploring nature? An outdoor bird watching kit for kids is the perfect tool to spark "
+title: 'Outdoor Bird Watching Kit Kids: Ultimate Guide for Young Explorers'
+description: 'Are you looking for a fun and educational way to get your kids outside
+  and exploring nature? An outdoor bird watching kit for kids is the perfect tool
+  to spark '
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bird-watching-kit-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bird-watching-kit-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and educational way to get your kids outside and exploring nature? An outdoor bird watching kit for kids is the perfect tool to spark their curiosity and keep them engaged.**

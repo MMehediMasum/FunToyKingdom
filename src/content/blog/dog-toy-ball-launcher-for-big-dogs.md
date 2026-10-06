@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Ball Launcher for Big Dogs: Ultimate Fetch Fun and Exercise"
-description: "A dog toy ball launcher helps big dogs stay active and entertained. It throws balls automatically, making fetch easier and more fun. Big dogs need plenty of exe"
+title: 'Dog Toy Ball Launcher for Big Dogs: Ultimate Fetch Fun and Exercise'
+description: A dog toy ball launcher helps big dogs stay active and entertained. It
+  throws balls automatically, making fetch easier and more fun. Big dogs need plenty
+  of exe
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-ball-launcher-for-big-dogs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-ball-launcher-for-big-dogs&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog toy ball launcher helps big dogs stay active and entertained. It throws balls automatically, making fetch easier and more fun.**

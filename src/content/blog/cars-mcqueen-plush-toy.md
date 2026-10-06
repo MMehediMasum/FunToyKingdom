@@ -1,10 +1,14 @@
 ---
-title: "Cars Mcqueen Plush Toy: Soft, Cuddly Lightning McQueen for Kids"
-description: "Lightning McQueen plush toys bring the beloved Cars character to life in a cuddly and soft form. Perfect for kids and Disney fans, these plush toys offer both c"
+title: 'Cars Mcqueen Plush Toy: Soft, Cuddly Lightning McQueen for Kids'
+description: Lightning McQueen plush toys bring the beloved Cars character to life
+  in a cuddly and soft form. Perfect for kids and Disney fans, these plush toys offer
+  both c
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mcqueen-plush-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=cars-mcqueen-plush-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Lightning McQueen plush toys bring the beloved Cars character to life in a cuddly and soft form. Perfect for kids and Disney fans, these plush toys offer both comfort and companionship.**

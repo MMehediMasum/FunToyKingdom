@@ -1,10 +1,14 @@
 ---
-title: "Toy Fishing Rod With Magnetic Fish: Ultimate Fun for Kids"
-description: "Are you looking for a fun and safe way to bring the excitement of fishing right into your home? A Toy Fishing Rod With Magnetic Fish might be exactly what you n"
+title: 'Toy Fishing Rod With Magnetic Fish: Ultimate Fun for Kids'
+description: Are you looking for a fun and safe way to bring the excitement of fishing
+  right into your home? A Toy Fishing Rod With Magnetic Fish might be exactly what
+  you n
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-fishing-rod-with-magnetic-fish&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=toy-fishing-rod-with-magnetic-fish&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and safe way to bring the excitement of fishing right into your home? A Toy Fishing Rod With Magnetic Fish might be exactly what you need.**

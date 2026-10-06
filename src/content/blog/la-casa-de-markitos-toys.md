@@ -1,10 +1,14 @@
 ---
-title: "La Casa De Markitos Toys: KidKraft Pirate’s Cove Play Set Review"
-description: "La Casa De Markitos Toys offers fun and creative playsets for kids. One popular toy is the KidKraft Pirate's Cove Wooden Ship Play Set. This playset brings pira"
+title: 'La Casa De Markitos Toys: KidKraft Pirate’s Cove Play Set Review'
+description: La Casa De Markitos Toys offers fun and creative playsets for kids. One
+  popular toy is the KidKraft Pirate's Cove Wooden Ship Play Set. This playset brings
+  pira
 pubDate: 2026-08-18
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=la-casa-de-markitos-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=la-casa-de-markitos-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **La Casa De Markitos Toys offers fun and creative playsets for kids. One popular toy is the KidKraft Pirate's Cove Wooden Ship Play Set.**

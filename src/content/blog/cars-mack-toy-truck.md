@@ -1,10 +1,14 @@
 ---
-title: "Cars Mack Toy Truck: Ultimate Transforming Playset for Kids’ Imaginative Fun"
-description: "The Cars Mack Toy Truck collection brings the beloved Disney and Pixar Cars characters to life in miniature form. These toy trucks offer endless fun and imagina"
+title: 'Cars Mack Toy Truck: Ultimate Transforming Playset for Kids’ Imaginative Fun'
+description: The Cars Mack Toy Truck collection brings the beloved Disney and Pixar
+  Cars characters to life in miniature form. These toy trucks offer endless fun and
+  imagina
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mack-toy-truck&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=cars-mack-toy-truck&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Cars Mack Toy Truck collection brings the beloved Disney and Pixar Cars characters to life in miniature form. These toy trucks offer endless fun and imaginative play for children.**

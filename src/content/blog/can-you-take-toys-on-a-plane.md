@@ -1,10 +1,14 @@
 ---
-title: "Can You Take Toys on a Plane: Ultimate Guide for Stress-Free Travel"
-description: "Are you wondering if you can bring your favorite toys with you when you fly? Whether it’s a beloved stuffed animal for your child or a special collectible you d"
+title: 'Can You Take Toys on a Plane: Ultimate Guide for Stress-Free Travel'
+description: Are you wondering if you can bring your favorite toys with you when you
+  fly? Whether it’s a beloved stuffed animal for your child or a special collectible
+  you d
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-take-toys-on-a-plane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-take-toys-on-a-plane&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering if you can bring your favorite toys with you when you fly? Whether it’s a beloved stuffed animal for your child or a special collectible you don’t want to leave behind, knowing the rules can save you a lot of stress at the airport.**

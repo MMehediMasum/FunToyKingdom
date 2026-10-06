@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Treasure Map: Creative Fun for Kids at Home"
-description: "Are you ready to turn simple cardboard into an exciting adventure? Your kids will love creating their very own treasure map toy that sparks imagination and endl"
+title: 'Diy Cardboard Toy Treasure Map: Creative Fun for Kids at Home'
+description: Are you ready to turn simple cardboard into an exciting adventure? Your
+  kids will love creating their very own treasure map toy that sparks imagination
+  and endl
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-treasure-map&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-treasure-map&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to turn simple cardboard into an exciting adventure? Your kids will love creating their very own treasure map toy that sparks imagination and endless fun.**

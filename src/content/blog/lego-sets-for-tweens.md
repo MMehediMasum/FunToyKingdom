@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for Tweens: Ultimate Fun and Creativity Boosters"
-description: "Are you looking for the perfect Lego sets that keep your tween engaged and excited? Finding the right Lego set can be tricky, especially when your child is read"
+title: 'Lego Sets for Tweens: Ultimate Fun and Creativity Boosters'
+description: Are you looking for the perfect Lego sets that keep your tween engaged
+  and excited? Finding the right Lego set can be tricky, especially when your child
+  is read
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-tweens&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect Lego sets that keep your tween engaged and excited? Finding the right Lego set can be tricky, especially when your child is ready for more challenging and creative builds.**

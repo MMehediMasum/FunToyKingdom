@@ -1,10 +1,14 @@
 ---
-title: "Toys for 2 Month Old Infant: Best Sensory and Developmental Picks"
-description: "Selecting the right toys for a 2-month-old infant is crucial for their early development. At this stage, babies benefit from toys that stimulate their senses an"
+title: 'Toys for 2 Month Old Infant: Best Sensory and Developmental Picks'
+description: Selecting the right toys for a 2-month-old infant is crucial for their
+  early development. At this stage, babies benefit from toys that stimulate their
+  senses an
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-2-month-old-infant&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-2-month-old-infant&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Selecting the right toys for a 2-month-old infant is crucial for their early development. At this stage, babies benefit from toys that stimulate their senses and encourage interaction.**

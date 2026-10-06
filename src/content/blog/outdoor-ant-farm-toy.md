@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Ant Farm Toy: Explore Nature with Fun & Learning"
-description: "Imagine having a tiny world right in your hands, where you can watch busy ants dig tunnels, build chambers, and work together like a real team. An Outdoor Ant F"
+title: 'Outdoor Ant Farm Toy: Explore Nature with Fun & Learning'
+description: Imagine having a tiny world right in your hands, where you can watch
+  busy ants dig tunnels, build chambers, and work together like a real team. An Outdoor
+  Ant F
 pubDate: 2025-09-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ant-farm-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ant-farm-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine having a tiny world right in your hands, where you can watch busy ants dig tunnels, build chambers, and work together like a real team. An Outdoor Ant Farm Toy lets you do just that, giving you a fascinating peek into nature’s little engineers.**

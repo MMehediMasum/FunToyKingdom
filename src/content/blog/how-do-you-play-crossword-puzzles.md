@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Do You Play Crossword Puzzles: Master Tips for Beginners"
 description: "Have you ever stared at a crossword puzzle and wondered where to start? Playing crossword puzzles might seem tricky at first, but once you know the simple steps"
 pubDate: 2025-09-18

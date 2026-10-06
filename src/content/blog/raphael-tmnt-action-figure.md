@@ -1,10 +1,14 @@
 ---
-title: "Raphael Tmnt Action Figure: Ultimate Collectible for Fans"
-description: "If you're a fan of Teenage Mutant Ninja Turtles, then the Raphael TMNT action figure is a must-have for your collection. This figure captures the fierce spirit "
+title: 'Raphael Tmnt Action Figure: Ultimate Collectible for Fans'
+description: 'If you''re a fan of Teenage Mutant Ninja Turtles, then the Raphael TMNT
+  action figure is a must-have for your collection. This figure captures the fierce
+  spirit '
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=raphael-tmnt-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=raphael-tmnt-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you're a fan of Teenage Mutant Ninja Turtles, then the Raphael TMNT action figure is a must-have for your collection. This figure captures the fierce spirit and attitude of Raphael, making it more than just a toy—it's a piece of your favorite ninja’s story.**

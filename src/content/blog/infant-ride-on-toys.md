@@ -1,10 +1,14 @@
 ---
-title: "Infant Ride on Toys: Top Picks for Fun and Safe Toddler Adventures"
-description: "Infant ride on toys help babies learn balance and coordination while having fun. These toys suit toddlers aged 6 months to 4 years. Ride on toys come in many st"
+title: 'Infant Ride on Toys: Top Picks for Fun and Safe Toddler Adventures'
+description: Infant ride on toys help babies learn balance and coordination while
+  having fun. These toys suit toddlers aged 6 months to 4 years. Ride on toys come
+  in many st
 pubDate: 2026-01-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-ride-on-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-ride-on-toys&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Infant ride on toys help babies learn balance and coordination while having fun. These toys suit toddlers aged 6 months to 4 years.**

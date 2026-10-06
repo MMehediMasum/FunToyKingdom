@@ -1,10 +1,14 @@
 ---
-title: "What Toy Company Makes Monopoly: Discover the Iconic Brand Behind It"
-description: "Have you ever wondered who is behind the classic game Monopoly that has brought fun to millions of families worldwide? If you love Monopoly or have played it co"
+title: 'What Toy Company Makes Monopoly: Discover the Iconic Brand Behind It'
+description: Have you ever wondered who is behind the classic game Monopoly that has
+  brought fun to millions of families worldwide? If you love Monopoly or have played
+  it co
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toy-company-makes-monopoly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-toy-company-makes-monopoly&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered who is behind the classic game Monopoly that has brought fun to millions of families worldwide? If you love Monopoly or have played it countless times, knowing the company that makes it can give you a new appreciation for the game.**

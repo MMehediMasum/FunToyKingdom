@@ -1,10 +1,14 @@
 ---
-title: "Kids Dodgeball Set With Soft Balls: Safe, Fun, and Durable Play!"
-description: "Looking for a fun and safe way to get your kids moving and laughing? A kids dodgeball set with soft balls might be exactly what you need. Imagine your children "
+title: 'Kids Dodgeball Set With Soft Balls: Safe, Fun, and Durable Play!'
+description: 'Looking for a fun and safe way to get your kids moving and laughing?
+  A kids dodgeball set with soft balls might be exactly what you need. Imagine your
+  children '
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-dodgeball-set-with-soft-balls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=kids-dodgeball-set-with-soft-balls&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to get your kids moving and laughing? A kids dodgeball set with soft balls might be exactly what you need.**

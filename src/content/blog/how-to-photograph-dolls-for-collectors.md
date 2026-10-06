@@ -1,10 +1,14 @@
 ---
-title: "How to Photograph Dolls for Collectors: Expert Tips for Stunning Shots"
-description: "Are you struggling to capture the true beauty of your doll collection? Taking great photos of dolls isn’t just about snapping a quick picture—it’s about showing"
+title: 'How to Photograph Dolls for Collectors: Expert Tips for Stunning Shots'
+description: Are you struggling to capture the true beauty of your doll collection?
+  Taking great photos of dolls isn’t just about snapping a quick picture—it’s about
+  showing
 pubDate: 2025-09-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-photograph-dolls-for-collectors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-to-photograph-dolls-for-collectors&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you struggling to capture the true beauty of your doll collection? Taking great photos of dolls isn’t just about snapping a quick picture—it’s about showing every detail and personality that makes your dolls special.**

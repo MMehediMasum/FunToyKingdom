@@ -1,10 +1,13 @@
 ---
-title: "Diecast Collectible Toy Cars: Ultimate Guide to Rare Finds & Value"
-description: "Are you fascinated by the tiny details of cars but wish you could hold that passion in your hands? Diecast collectible toy cars offer you exactly that—miniature"
+title: 'Diecast Collectible Toy Cars: Ultimate Guide to Rare Finds & Value'
+description: Are you fascinated by the tiny details of cars but wish you could hold
+  that passion in your hands? Diecast collectible toy cars offer you exactly that—miniature
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-collectible-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-collectible-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you fascinated by the tiny details of cars but wish you could hold that passion in your hands? Diecast collectible toy cars offer you exactly that—miniature masterpieces that bring your favorite vehicles to life.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Comic Book: Must-Have Collectors’ Edition and Fun Reads"
 description: "Toy Story Comic Book brings the beloved Toy Story characters to life on colorful pages. Fans can enjoy new stories and adventures beyond the movies. This collec"
 pubDate: 2026-02-15

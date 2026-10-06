@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Kangaroo Inflatable Kids Toy: Ultimate Fun & Safe Playtime"
-description: "Looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Kangaroo Inflatable Kids Toy might be just what you need. Imagine your child b"
+title: 'Outdoor Kangaroo Inflatable Kids Toy: Ultimate Fun & Safe Playtime'
+description: Looking for a fun and exciting way to keep your kids active outdoors?
+  The Outdoor Kangaroo Inflatable Kids Toy might be just what you need. Imagine your
+  child b
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-kangaroo-inflatable-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-kangaroo-inflatable-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Kangaroo Inflatable Kids Toy might be just what you need.**

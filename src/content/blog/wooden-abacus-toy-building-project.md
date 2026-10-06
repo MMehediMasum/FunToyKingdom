@@ -1,10 +1,14 @@
 ---
-title: "Wooden Abacus Toy Building Project: Create, Learn, and Play Fun!"
-description: "Are you looking for a fun and rewarding project that brings learning and creativity together? Building your own wooden abacus toy is the perfect way to do just "
+title: 'Wooden Abacus Toy Building Project: Create, Learn, and Play Fun!'
+description: 'Are you looking for a fun and rewarding project that brings learning
+  and creativity together? Building your own wooden abacus toy is the perfect way
+  to do just '
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-abacus-toy-building-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=wooden-abacus-toy-building-project&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and rewarding project that brings learning and creativity together? Building your own wooden abacus toy is the perfect way to do just that.**

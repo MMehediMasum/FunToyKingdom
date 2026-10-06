@@ -1,10 +1,14 @@
 ---
-title: "Best Airplane Toys for 5 Year Olds: Top STEM and Remote Control Picks"
-description: "Choosing the best airplane toys for 5 year olds can boost their creativity and playtime fun. These toys offer exciting ways to learn about flying and build skil"
+title: 'Best Airplane Toys for 5 Year Olds: Top STEM and Remote Control Picks'
+description: Choosing the best airplane toys for 5 year olds can boost their creativity
+  and playtime fun. These toys offer exciting ways to learn about flying and build
+  skil
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-airplane-toys-for-5-year-olds-top-stem-and-remote-control-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=best-airplane-toys-for-5-year-olds-top-stem-and-remote-control-picks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best airplane toys for 5 year olds can boost their creativity and playtime fun. These toys offer exciting ways to learn about flying and build skills.**

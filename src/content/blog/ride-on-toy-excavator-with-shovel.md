@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Excavator With Shovel: Ultimate Fun for Kids!"
-description: "Imagine your child’s eyes lighting up as they take control of their very own ride on toy excavator with a shovel. This isn’t just any toy—it’s a chance for your"
+title: 'Ride on Toy Excavator With Shovel: Ultimate Fun for Kids!'
+description: Imagine your child’s eyes lighting up as they take control of their very
+  own ride on toy excavator with a shovel. This isn’t just any toy—it’s a chance for
+  your
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-excavator-with-shovel&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-excavator-with-shovel&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they take control of their very own ride on toy excavator with a shovel. This isn’t just any toy—it’s a chance for your little one to explore, create, and build while having endless fun.**

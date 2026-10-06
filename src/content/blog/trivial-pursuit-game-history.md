@@ -1,10 +1,14 @@
 ---
-title: "Trivial Pursuit Game History: Uncovering Its Timeless Appeal"
-description: "Have you ever wondered how Trivial Pursuit became one of the most beloved board games in the world? Whether you’ve played it countless times or just heard about"
+title: 'Trivial Pursuit Game History: Uncovering Its Timeless Appeal'
+description: Have you ever wondered how Trivial Pursuit became one of the most beloved
+  board games in the world? Whether you’ve played it countless times or just heard
+  about
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=trivial-pursuit-game-history&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=trivial-pursuit-game-history&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered how Trivial Pursuit became one of the most beloved board games in the world? Whether you’ve played it countless times or just heard about it, the story behind this game is full of surprises.**

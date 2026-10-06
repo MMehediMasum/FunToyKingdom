@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Clown Costumes: Unique, Colorful, and Playful Designs"
-description: "Are you looking to stand out at your next party or event? Handmade toy clown costumes offer a unique way to bring fun and color to any occasion. Imagine slippin"
+title: 'Handmade Toy Clown Costumes: Unique, Colorful, and Playful Designs'
+description: Are you looking to stand out at your next party or event? Handmade toy
+  clown costumes offer a unique way to bring fun and color to any occasion. Imagine
+  slippin
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-clown-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-clown-costumes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking to stand out at your next party or event? Handmade toy clown costumes offer a unique way to bring fun and color to any occasion.**

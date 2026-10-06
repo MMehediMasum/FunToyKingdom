@@ -1,10 +1,14 @@
 ---
-title: "Woody Doll Toy Story Collection: Ultimate Guide to Iconic Action Figures"
-description: "The Woody Doll Toy Story Collection brings the beloved cowboy to life in many forms. These toys capture Woody’s charm from the Disney Pixar movies with great de"
+title: 'Woody Doll Toy Story Collection: Ultimate Guide to Iconic Action Figures'
+description: The Woody Doll Toy Story Collection brings the beloved cowboy to life
+  in many forms. These toys capture Woody’s charm from the Disney Pixar movies with
+  great de
 pubDate: 2026-08-28
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=woody-doll-toy-story-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=woody-doll-toy-story-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Woody Doll Toy Story Collection brings the beloved cowboy to life in many forms. These toys capture Woody’s charm from the Disney Pixar movies with great detail and fun features.**

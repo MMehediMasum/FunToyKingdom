@@ -1,10 +1,14 @@
 ---
-title: "Toy Ride on Car Mercedes: Top Features for Kids’ Ultimate Driving Fun"
-description: "Toy ride on cars Mercedes offer fun and safe driving experiences for young children. These mini electric cars look like real Mercedes models, making playtime ex"
+title: 'Toy Ride on Car Mercedes: Top Features for Kids’ Ultimate Driving Fun'
+description: Toy ride on cars Mercedes offer fun and safe driving experiences for
+  young children. These mini electric cars look like real Mercedes models, making
+  playtime ex
 pubDate: 2026-01-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-ride-on-car-mercedes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-ride-on-car-mercedes&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Toy ride on cars Mercedes offer fun and safe driving experiences for young children. These mini electric cars look like real Mercedes models, making playtime exciting.**

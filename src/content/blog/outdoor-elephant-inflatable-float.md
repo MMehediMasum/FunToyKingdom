@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Elephant Inflatable Float: Ultimate Summer Pool Fun Guide"
-description: "Imagine your next outdoor adventure made unforgettable with an Outdoor Elephant Inflatable Float. Whether you’re lounging by the pool, drifting on a lake, or ad"
+title: 'Outdoor Elephant Inflatable Float: Ultimate Summer Pool Fun Guide'
+description: Imagine your next outdoor adventure made unforgettable with an Outdoor
+  Elephant Inflatable Float. Whether you’re lounging by the pool, drifting on a lake,
+  or ad
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-elephant-inflatable-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-elephant-inflatable-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your next outdoor adventure made unforgettable with an Outdoor Elephant Inflatable Float. Whether you’re lounging by the pool, drifting on a lake, or adding fun to a beach day, this playful float instantly turns ordinary water time into a joyful escape.**

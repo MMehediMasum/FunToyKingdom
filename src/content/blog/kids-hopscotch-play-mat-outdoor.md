@@ -1,10 +1,14 @@
 ---
-title: "Kids Hopscotch Play Mat Outdoor: Ultimate Fun for Active Kids"
-description: "Looking for a fun and safe way to keep your kids active outdoors? A Kids Hopscotch Play Mat Outdoor might be exactly what you need. Imagine your child laughing "
+title: 'Kids Hopscotch Play Mat Outdoor: Ultimate Fun for Active Kids'
+description: 'Looking for a fun and safe way to keep your kids active outdoors? A
+  Kids Hopscotch Play Mat Outdoor might be exactly what you need. Imagine your child
+  laughing '
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-hopscotch-play-mat-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=kids-hopscotch-play-mat-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids active outdoors? A Kids Hopscotch Play Mat Outdoor might be exactly what you need.**

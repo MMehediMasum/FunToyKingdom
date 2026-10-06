@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for 10 Year Old: Top Fun Picks for Active Kids"
-description: "Looking for the perfect outdoor toys for your 10-year-old? You want something that sparks their imagination, keeps them active, and brings out their sense of ad"
+title: 'Outdoor Toys for 10 Year Old: Top Fun Picks for Active Kids'
+description: Looking for the perfect outdoor toys for your 10-year-old? You want something
+  that sparks their imagination, keeps them active, and brings out their sense of
+  ad
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-10-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect outdoor toys for your 10-year-old? You want something that sparks their imagination, keeps them active, and brings out their sense of adventure.**

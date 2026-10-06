@@ -1,10 +1,14 @@
 ---
-title: "Indestructible Dog Rope Toys for Aggressive Chewers: Durable & Fun"
-description: "Indestructible dog rope toys offer tough playtime for aggressive chewers. These toys last longer and help clean teeth while preventing boredom. Strong rope toys"
+title: 'Indestructible Dog Rope Toys for Aggressive Chewers: Durable & Fun'
+description: Indestructible dog rope toys offer tough playtime for aggressive chewers.
+  These toys last longer and help clean teeth while preventing boredom. Strong rope
+  toys
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=indestructible-dog-rope-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=indestructible-dog-rope-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Indestructible dog rope toys offer tough playtime for aggressive chewers. These toys last longer and help clean teeth while preventing boredom.**

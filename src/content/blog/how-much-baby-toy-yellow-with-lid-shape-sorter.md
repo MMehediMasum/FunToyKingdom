@@ -1,10 +1,13 @@
 ---
-title: "How Much Baby Toy Yellow With Lid Shape Sorter: Ultimate Price Guide"
-description: "Are you looking for the perfect baby toy that keeps your little one engaged and learning? The Baby Toy Yellow With Lid Shape Sorter might be just what you need."
+title: 'How Much Baby Toy Yellow With Lid Shape Sorter: Ultimate Price Guide'
+description: Are you looking for the perfect baby toy that keeps your little one engaged
+  and learning? The Baby Toy Yellow With Lid Shape Sorter might be just what you need.
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-baby-toy-yellow-with-lid-shape-sorter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Shape Sorter Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-much-baby-toy-yellow-with-lid-shape-sorter&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect baby toy that keeps your little one engaged and learning? The Baby Toy Yellow With Lid Shape Sorter might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Car Parking Garage: Ultimate Glow-in-the-Dark Playset for Kids"
-description: "Toy car parking garages provide endless fun and creativity for children. They stimulate imagination and improve motor skills. These playsets come in various sty"
+title: 'Toy Car Parking Garage: Ultimate Glow-in-the-Dark Playset for Kids'
+description: Toy car parking garages provide endless fun and creativity for children.
+  They stimulate imagination and improve motor skills. These playsets come in various
+  sty
 pubDate: 2026-03-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-parking-garage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-parking-garage&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Toy car parking garages provide endless fun and creativity for children. They stimulate imagination and improve motor skills.**

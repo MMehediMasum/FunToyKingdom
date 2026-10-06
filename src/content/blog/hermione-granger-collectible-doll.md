@@ -1,10 +1,14 @@
 ---
-title: "Hermione Granger Collectible Doll: Ultimate Guide for True Fans"
-description: "Are you a fan of Hermione Granger and looking to add something special to your collection? The Hermione Granger collectible doll is more than just a toy—it’s a "
+title: 'Hermione Granger Collectible Doll: Ultimate Guide for True Fans'
+description: 'Are you a fan of Hermione Granger and looking to add something special
+  to your collection? The Hermione Granger collectible doll is more than just a toy—it’s
+  a '
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=hermione-granger-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=hermione-granger-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Hermione Granger and looking to add something special to your collection? The Hermione Granger collectible doll is more than just a toy—it’s a piece of magic you can hold in your hands.**

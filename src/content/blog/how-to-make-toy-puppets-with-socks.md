@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Puppets With Socks: Easy & Fun DIY Guide"
-description: "Have you ever looked at a simple sock and wondered how it could turn into a fun, playful puppet? Making toy puppets with socks is easier than you think—and it’s"
+title: 'How to Make Toy Puppets With Socks: Easy & Fun DIY Guide'
+description: Have you ever looked at a simple sock and wondered how it could turn
+  into a fun, playful puppet? Making toy puppets with socks is easier than you think—and
+  it’s
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-puppets-with-socks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-puppets-with-socks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever looked at a simple sock and wondered how it could turn into a fun, playful puppet? Making toy puppets with socks is easier than you think—and it’s a great way to spark creativity, save money, and enjoy quality time with your kids or friends.**

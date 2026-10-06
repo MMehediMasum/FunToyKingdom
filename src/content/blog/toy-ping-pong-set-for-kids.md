@@ -1,10 +1,14 @@
 ---
-title: "Toy Ping Pong Set for Kids: Ultimate Fun and Skill Builder"
-description: "Are you looking for a fun and engaging way to keep your kids active and entertained? A toy ping pong set for kids could be just what you need. Imagine your chil"
+title: 'Toy Ping Pong Set for Kids: Ultimate Fun and Skill Builder'
+description: Are you looking for a fun and engaging way to keep your kids active and
+  entertained? A toy ping pong set for kids could be just what you need. Imagine your
+  chil
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-ping-pong-set-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=toy-ping-pong-set-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and engaging way to keep your kids active and entertained? A toy ping pong set for kids could be just what you need.**

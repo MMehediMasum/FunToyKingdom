@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Squirrel Inflatable Pool Toy: Ultimate Summer Fun Essential"
-description: "Looking for a fun and unique way to enjoy your pool this summer? The Outdoor Squirrel Inflatable Pool Toy is exactly what you need to turn your backyard into a "
+title: 'Outdoor Squirrel Inflatable Pool Toy: Ultimate Summer Fun Essential'
+description: 'Looking for a fun and unique way to enjoy your pool this summer? The
+  Outdoor Squirrel Inflatable Pool Toy is exactly what you need to turn your backyard
+  into a '
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-squirrel-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-squirrel-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to enjoy your pool this summer? The Outdoor Squirrel Inflatable Pool Toy is exactly what you need to turn your backyard into a playful paradise.**

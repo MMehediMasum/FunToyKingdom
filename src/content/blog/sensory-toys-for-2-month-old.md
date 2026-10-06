@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 2 Month Old Babies to Boost Early Development"
-description: "Choosing the right sensory toys helps your 2-month-old baby explore and learn safely. Sensory toys support early brain and muscle development through touch, sig"
+title: Sensory Toys for 2 Month Old Babies to Boost Early Development
+description: Choosing the right sensory toys helps your 2-month-old baby explore and
+  learn safely. Sensory toys support early brain and muscle development through touch,
+  sig
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-2-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toy Types
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-2-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right sensory toys helps your 2-month-old baby explore and learn safely. Sensory toys support early brain and muscle development through touch, sight, and sound.**

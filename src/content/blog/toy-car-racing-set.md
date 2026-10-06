@@ -1,10 +1,13 @@
 ---
-title: "Toy Car Racing Set: Ultimate High-Speed Fun for Kids and Beginners"
-description: "Toy car racing sets offer hours of fun for kids who love speed and competition. These sets include fast cars and exciting tracks for thrilling races. A toy car "
+title: 'Toy Car Racing Set: Ultimate High-Speed Fun for Kids and Beginners'
+description: 'Toy car racing sets offer hours of fun for kids who love speed and competition.
+  These sets include fast cars and exciting tracks for thrilling races. A toy car '
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-racing-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-racing-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Toy car racing sets offer hours of fun for kids who love speed and competition. These sets include fast cars and exciting tracks for thrilling races.**

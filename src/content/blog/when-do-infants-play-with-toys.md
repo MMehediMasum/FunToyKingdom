@@ -1,10 +1,14 @@
 ---
-title: "When Do Infants Play With Toys: Key Milestones & Tips Explained"
-description: "Have you ever wondered when your little one will start playing with toys? Watching your infant discover new objects is one of the most exciting moments for any "
+title: 'When Do Infants Play With Toys: Key Milestones & Tips Explained'
+description: 'Have you ever wondered when your little one will start playing with
+  toys? Watching your infant discover new objects is one of the most exciting moments
+  for any '
 pubDate: 2025-09-02
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-do-infants-play-with-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=when-do-infants-play-with-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever wondered when your little one will start playing with toys? Watching your infant discover new objects is one of the most exciting moments for any parent.**

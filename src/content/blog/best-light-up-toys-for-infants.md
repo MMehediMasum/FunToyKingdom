@@ -1,10 +1,14 @@
 ---
-title: "Best Light Up Toys for Infants to Boost Sensory and Motor Skills"
-description: "Bright lights and engaging sounds captivate infants' senses. Light up toys offer entertainment and developmental benefits for little ones. These toys stimulate "
+title: Best Light Up Toys for Infants to Boost Sensory and Motor Skills
+description: 'Bright lights and engaging sounds captivate infants'' senses. Light
+  up toys offer entertainment and developmental benefits for little ones. These toys
+  stimulate '
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-light-up-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=best-light-up-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Bright lights and engaging sounds captivate infants' senses. Light up toys offer entertainment and developmental benefits for little ones.**

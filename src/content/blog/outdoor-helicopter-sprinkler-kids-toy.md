@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Helicopter Sprinkler Kids Toy: Ultimate Summer Fun Guide"
-description: "Imagine your kids laughing and running through a cool spray of water on a warm day, all while chasing a fun helicopter that spins and sprinkles water everywhere"
+title: 'Outdoor Helicopter Sprinkler Kids Toy: Ultimate Summer Fun Guide'
+description: Imagine your kids laughing and running through a cool spray of water
+  on a warm day, all while chasing a fun helicopter that spins and sprinkles water
+  everywhere
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-helicopter-sprinkler-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-helicopter-sprinkler-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids laughing and running through a cool spray of water on a warm day, all while chasing a fun helicopter that spins and sprinkles water everywhere. That’s exactly what an Outdoor Helicopter Sprinkler Kids Toy can do for your backyard fun.**

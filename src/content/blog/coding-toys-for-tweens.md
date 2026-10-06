@@ -1,10 +1,14 @@
 ---
-title: "Coding Toys for Tweens: Boost Creativity and Learning Fun"
-description: "Are you looking for a fun way to boost your tween’s problem-solving skills and creativity? Coding toys can be the perfect choice. They make learning to code exc"
+title: 'Coding Toys for Tweens: Boost Creativity and Learning Fun'
+description: Are you looking for a fun way to boost your tween’s problem-solving skills
+  and creativity? Coding toys can be the perfect choice. They make learning to code
+  exc
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toys-for-tweens&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to boost your tween’s problem-solving skills and creativity? Coding toys can be the perfect choice.**

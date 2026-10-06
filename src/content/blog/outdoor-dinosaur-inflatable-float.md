@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dinosaur Inflatable Float: Ultimate Summer Pool Fun Guide"
-description: "Imagine turning your outdoor fun into an unforgettable adventure with a splash of prehistoric excitement. Your next pool day, beach trip, or backyard party can "
+title: 'Outdoor Dinosaur Inflatable Float: Ultimate Summer Pool Fun Guide'
+description: 'Imagine turning your outdoor fun into an unforgettable adventure with
+  a splash of prehistoric excitement. Your next pool day, beach trip, or backyard
+  party can '
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dinosaur-inflatable-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dinosaur-inflatable-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your outdoor fun into an unforgettable adventure with a splash of prehistoric excitement. Your next pool day, beach trip, or backyard party can instantly become more thrilling with an Outdoor Dinosaur Inflatable Float.**

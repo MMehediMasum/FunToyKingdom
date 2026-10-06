@@ -1,10 +1,13 @@
 ---
-title: "Boxing Gloves Toy Set for Kids: Ultimate Fun & Safe Playtime"
-description: "Are you looking for a fun and safe way to keep your kids active and entertained? A Boxing Gloves Toy Set for Kids might be just what you need. Imagine your chil"
+title: 'Boxing Gloves Toy Set for Kids: Ultimate Fun & Safe Playtime'
+description: Are you looking for a fun and safe way to keep your kids active and entertained?
+  A Boxing Gloves Toy Set for Kids might be just what you need. Imagine your chil
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=boxing-gloves-toy-set-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=boxing-gloves-toy-set-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to keep your kids active and entertained? A Boxing Gloves Toy Set for Kids might be just what you need.**

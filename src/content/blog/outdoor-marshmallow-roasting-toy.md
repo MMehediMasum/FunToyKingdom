@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Marshmallow Roasting Toy: Ultimate Fun for Family Nights"
-description: "Imagine gathering around a cozy campfire with your family or friends, the sweet smell of roasting marshmallows filling the air. What if you could bring that fun"
+title: 'Outdoor Marshmallow Roasting Toy: Ultimate Fun for Family Nights'
+description: Imagine gathering around a cozy campfire with your family or friends,
+  the sweet smell of roasting marshmallows filling the air. What if you could bring
+  that fun
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-marshmallow-roasting-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-marshmallow-roasting-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine gathering around a cozy campfire with your family or friends, the sweet smell of roasting marshmallows filling the air. What if you could bring that fun indoors or anywhere you like, safely and easily?**

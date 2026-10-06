@@ -1,10 +1,14 @@
 ---
-title: "Knee Pads Elbow Pads Kids Set: Ultimate Protection for Active Play"
-description: "When your kids are out there running, jumping, and exploring, their safety should always come first. You want to protect their little knees and elbows from scra"
+title: 'Knee Pads Elbow Pads Kids Set: Ultimate Protection for Active Play'
+description: When your kids are out there running, jumping, and exploring, their safety
+  should always come first. You want to protect their little knees and elbows from
+  scra
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=knee-pads-elbow-pads-kids-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=knee-pads-elbow-pads-kids-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **When your kids are out there running, jumping, and exploring, their safety should always come first. You want to protect their little knees and elbows from scrapes and bruises without slowing down their fun.**

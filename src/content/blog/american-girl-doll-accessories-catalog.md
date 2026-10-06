@@ -1,10 +1,14 @@
 ---
-title: "American Girl Doll Accessories Catalog: Ultimate Guide to Must-Have Items"
-description: "Are you looking to make your American Girl doll even more special? The right accessories can bring your doll’s story to life and spark endless hours of fun. Fro"
+title: 'American Girl Doll Accessories Catalog: Ultimate Guide to Must-Have Items'
+description: Are you looking to make your American Girl doll even more special? The
+  right accessories can bring your doll’s story to life and spark endless hours of
+  fun. Fro
 pubDate: 2025-09-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=american-girl-doll-accessories-catalog&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=american-girl-doll-accessories-catalog&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking to make your American Girl doll even more special? The right accessories can bring your doll’s story to life and spark endless hours of fun.**

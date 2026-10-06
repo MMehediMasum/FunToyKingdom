@@ -1,10 +1,14 @@
 ---
-title: "Rc Speed Boat With High Speed: Ultimate Thrill on Water!"
-description: "Are you ready to take your hobby to the next level? Imagine controlling an RC speed boat that zips across the water with thrilling speed and precision. Whether "
+title: 'Rc Speed Boat With High Speed: Ultimate Thrill on Water!'
+description: 'Are you ready to take your hobby to the next level? Imagine controlling
+  an RC speed boat that zips across the water with thrilling speed and precision.
+  Whether '
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-speed-boat-with-high-speed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Bashing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-speed-boat-with-high-speed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your hobby to the next level? Imagine controlling an RC speed boat that zips across the water with thrilling speed and precision.**

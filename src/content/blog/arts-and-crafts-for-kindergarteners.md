@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for Kindergarteners: Fun, Easy, and Creative Ideas"
-description: "Are you looking for fun and simple ways to boost your kindergartener’s creativity? Arts and crafts are the perfect way to do just that. Not only do they keep yo"
+title: 'Arts And Crafts for Kindergarteners: Fun, Easy, and Creative Ideas'
+description: Are you looking for fun and simple ways to boost your kindergartener’s
+  creativity? Arts and crafts are the perfect way to do just that. Not only do they
+  keep yo
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-kindergarteners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-kindergarteners&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and simple ways to boost your kindergartener’s creativity? Arts and crafts are the perfect way to do just that.**

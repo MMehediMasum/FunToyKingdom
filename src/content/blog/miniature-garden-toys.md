@@ -1,10 +1,14 @@
 ---
-title: "Miniature Garden Toys: Top Accessories for Magical Fairy Landscapes"
-description: "Miniature garden toys add charm and life to small outdoor spaces. They create magical scenes that delight both kids and adults. These tiny garden accessories co"
+title: 'Miniature Garden Toys: Top Accessories for Magical Fairy Landscapes'
+description: Miniature garden toys add charm and life to small outdoor spaces. They
+  create magical scenes that delight both kids and adults. These tiny garden accessories
+  co
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-garden-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-garden-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature garden toys add charm and life to small outdoor spaces. They create magical scenes that delight both kids and adults.**

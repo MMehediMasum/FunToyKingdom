@@ -1,10 +1,14 @@
 ---
-title: "Best Electric Train Set for Adults: Top Realistic HO Scale Models Reviewed"
-description: "Electric train sets offer hours of fun and nostalgia for adult hobbyists. Choosing the best set can bring joy and a relaxing pastime. Electric train sets combin"
+title: 'Best Electric Train Set for Adults: Top Realistic HO Scale Models Reviewed'
+description: Electric train sets offer hours of fun and nostalgia for adult hobbyists.
+  Choosing the best set can bring joy and a relaxing pastime. Electric train sets
+  combin
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electric-train-set-for-adults-top-realistic-ho-scale-models-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-electric-train-set-for-adults-top-realistic-ho-scale-models-reviewed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Electric train sets offer hours of fun and nostalgia for adult hobbyists. Choosing the best set can bring joy and a relaxing pastime.**

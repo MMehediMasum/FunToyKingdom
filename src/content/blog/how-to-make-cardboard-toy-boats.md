@@ -1,10 +1,14 @@
 ---
-title: "How to Make Cardboard Toy Boats: Easy Steps for Fun DIY Play"
-description: "Have you ever wanted to create something fun and simple with your own hands? Making cardboard toy boats is a perfect way to do just that. You don’t need fancy t"
+title: 'How to Make Cardboard Toy Boats: Easy Steps for Fun DIY Play'
+description: Have you ever wanted to create something fun and simple with your own
+  hands? Making cardboard toy boats is a perfect way to do just that. You don’t need
+  fancy t
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-cardboard-toy-boats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-cardboard-toy-boats&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and simple with your own hands? Making cardboard toy boats is a perfect way to do just that.**

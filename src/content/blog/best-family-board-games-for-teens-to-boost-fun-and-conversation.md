@@ -1,10 +1,14 @@
 ---
-title: "Best Family Board Games for Teens to Boost Fun and Conversation"
-description: "Family board games create fun moments and bring teens closer to their families. These games mix laughter, teamwork, and friendly competition for all ages. Choos"
+title: Best Family Board Games for Teens to Boost Fun and Conversation
+description: Family board games create fun moments and bring teens closer to their
+  families. These games mix laughter, teamwork, and friendly competition for all ages.
+  Choos
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-family-board-games-for-teens-to-boost-fun-and-conversation&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-family-board-games-for-teens-to-boost-fun-and-conversation&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Family board games create fun moments and bring teens closer to their families. These games mix laughter, teamwork, and friendly competition for all ages.**

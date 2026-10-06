@@ -1,10 +1,14 @@
 ---
-title: "Jackson Storm Diecast Toy: Ultimate Racing Fun for Kids and Collectors"
-description: "Jackson Storm diecast toys bring excitement from the Disney Pixar Cars movies to life. These detailed vehicles let kids race and play with their favorite charac"
+title: 'Jackson Storm Diecast Toy: Ultimate Racing Fun for Kids and Collectors'
+description: Jackson Storm diecast toys bring excitement from the Disney Pixar Cars
+  movies to life. These detailed vehicles let kids race and play with their favorite
+  charac
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jackson-storm-diecast-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=jackson-storm-diecast-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jackson Storm diecast toys bring excitement from the Disney Pixar Cars movies to life. These detailed vehicles let kids race and play with their favorite characters.**

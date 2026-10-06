@@ -1,10 +1,14 @@
 ---
-title: "Build Your Own Toy Car: Top DIY Kits for Creative Kids and Gifts"
-description: "Building your own toy car sparks creativity and teaches basic engineering skills. These kits offer fun, hands-on learning for kids of all ages. Toy car kits com"
+title: 'Build Your Own Toy Car: Top DIY Kits for Creative Kids and Gifts'
+description: Building your own toy car sparks creativity and teaches basic engineering
+  skills. These kits offer fun, hands-on learning for kids of all ages. Toy car kits
+  com
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=build-your-own-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=build-your-own-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Building your own toy car sparks creativity and teaches basic engineering skills. These kits offer fun, hands-on learning for kids of all ages.**

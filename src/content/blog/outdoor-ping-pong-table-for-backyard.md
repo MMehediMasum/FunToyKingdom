@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Ping Pong Table for Backyard: Ultimate Fun & Durability Guide"
-description: "Looking to add fun and excitement to your backyard? An outdoor ping pong table might be just what you need. Imagine spending sunny afternoons playing fast-paced"
+title: 'Outdoor Ping Pong Table for Backyard: Ultimate Fun & Durability Guide'
+description: Looking to add fun and excitement to your backyard? An outdoor ping pong
+  table might be just what you need. Imagine spending sunny afternoons playing fast-paced
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ping-pong-table-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ping-pong-table-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking to add fun and excitement to your backyard? An outdoor ping pong table might be just what you need.**

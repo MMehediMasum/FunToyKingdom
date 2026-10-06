@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Holiday Yard Games for Kids: Fun & Easy Activities"
-description: "Looking for fun ways to keep your kids active and entertained during the holidays? Outdoor holiday yard games are the perfect solution! These games not only bri"
+title: 'Outdoor Holiday Yard Games for Kids: Fun & Easy Activities'
+description: Looking for fun ways to keep your kids active and entertained during
+  the holidays? Outdoor holiday yard games are the perfect solution! These games not
+  only bri
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-holiday-yard-games-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-holiday-yard-games-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for fun ways to keep your kids active and entertained during the holidays? Outdoor holiday yard games are the perfect solution!**

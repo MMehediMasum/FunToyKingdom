@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Toy Wooden Pirate Ship: Step-by-Step Guide"
-description: "Are you ready to create something truly special with your own hands? Building a toy wooden pirate ship is a fun and rewarding project that brings your imaginati"
+title: 'How to Build a Toy Wooden Pirate Ship: Step-by-Step Guide'
+description: Are you ready to create something truly special with your own hands?
+  Building a toy wooden pirate ship is a fun and rewarding project that brings your
+  imaginati
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-toy-wooden-pirate-ship&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Wooden Pirate
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-toy-wooden-pirate-ship&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something truly special with your own hands? Building a toy wooden pirate ship is a fun and rewarding project that brings your imagination to life.**

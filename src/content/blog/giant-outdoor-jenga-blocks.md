@@ -1,10 +1,14 @@
 ---
-title: "Giant Outdoor Jenga Blocks: Ultimate Fun for Backyard Parties"
-description: "Imagine turning your backyard into the ultimate game zone with just one simple addition. Giant Outdoor Jenga Blocks are more than just oversized wooden pieces—t"
+title: 'Giant Outdoor Jenga Blocks: Ultimate Fun for Backyard Parties'
+description: Imagine turning your backyard into the ultimate game zone with just one
+  simple addition. Giant Outdoor Jenga Blocks are more than just oversized wooden
+  pieces—t
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-outdoor-jenga-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=giant-outdoor-jenga-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning your backyard into the ultimate game zone with just one simple addition. Giant Outdoor Jenga Blocks are more than just oversized wooden pieces—they’re a ticket to endless fun, laughter, and unforgettable moments with your friends and family.**

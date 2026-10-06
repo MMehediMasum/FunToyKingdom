@@ -1,10 +1,14 @@
 ---
-title: "Toy Slot Cars: Ultimate High-Speed Race Track Sets for Kids Fun"
-description: "Toy slot cars offer exciting racing fun for kids and collectors alike. These miniature cars zoom on electric tracks, creating thrilling competitions. Slot car r"
+title: 'Toy Slot Cars: Ultimate High-Speed Race Track Sets for Kids Fun'
+description: Toy slot cars offer exciting racing fun for kids and collectors alike.
+  These miniature cars zoom on electric tracks, creating thrilling competitions. Slot
+  car r
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-slot-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=toy-slot-cars&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy slot cars offer exciting racing fun for kids and collectors alike. These miniature cars zoom on electric tracks, creating thrilling competitions.**

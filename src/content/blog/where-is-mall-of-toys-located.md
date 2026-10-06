@@ -1,10 +1,14 @@
 ---
-title: "Where is Mall of Toys Located: Discover the Ultimate Toy Destination!"
-description: "Are you searching for the ultimate place to find toys that spark joy and imagination? Wondering where the Mall of Toys is located so you can plan your visit or "
+title: 'Where is Mall of Toys Located: Discover the Ultimate Toy Destination!'
+description: 'Are you searching for the ultimate place to find toys that spark joy
+  and imagination? Wondering where the Mall of Toys is located so you can plan your
+  visit or '
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-mall-of-toys-located&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=where-is-mall-of-toys-located&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you searching for the ultimate place to find toys that spark joy and imagination? Wondering where the Mall of Toys is located so you can plan your visit or order your favorites?**

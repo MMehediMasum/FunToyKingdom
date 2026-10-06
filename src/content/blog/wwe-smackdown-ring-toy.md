@@ -1,10 +1,14 @@
 ---
-title: "Wwe Smackdown Ring Toy: Ultimate Playset for Wrestling Action Fans"
-description: "The WWE Smackdown Ring Toy brings the excitement of wrestling right to your home. It lets kids and fans act out their favorite WWE moments with real-looking rin"
+title: 'Wwe Smackdown Ring Toy: Ultimate Playset for Wrestling Action Fans'
+description: The WWE Smackdown Ring Toy brings the excitement of wrestling right to
+  your home. It lets kids and fans act out their favorite WWE moments with real-looking
+  rin
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wwe-smackdown-ring-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=wwe-smackdown-ring-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The WWE Smackdown Ring Toy brings the excitement of wrestling right to your home. It lets kids and fans act out their favorite WWE moments with real-looking rings and figures.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 10Th Anniversary Edition: Ultimate Collector’s DVD Set Review"
 description: "Toy Story 10th Anniversary Edition brings back the magic of the beloved animated film. This special release offers fans a chance to enjoy the classic story with"
 pubDate: 2026-08-04

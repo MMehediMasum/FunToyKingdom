@@ -1,10 +1,14 @@
 ---
-title: "Transformers Robots in Disguise Bumblebee Toy: Ultimate Action Figure Review"
-description: "Transformers Robots in Disguise Bumblebee toys bring exciting action and fun to fans of all ages. These figures capture Bumblebee’s heroic spirit and cool robot"
+title: 'Transformers Robots in Disguise Bumblebee Toy: Ultimate Action Figure Review'
+description: Transformers Robots in Disguise Bumblebee toys bring exciting action
+  and fun to fans of all ages. These figures capture Bumblebee’s heroic spirit and
+  cool robot
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-bumblebee-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-bumblebee-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Transformers Robots in Disguise Bumblebee toys bring exciting action and fun to fans of all ages. These figures capture Bumblebee’s heroic spirit and cool robot transformations.**

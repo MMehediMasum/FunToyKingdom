@@ -1,10 +1,14 @@
 ---
-title: "What Year Did the Tupperware Shape-O Toy Come Out: Discover the History"
-description: "Have you ever wondered about the story behind the Tupperware Shape-O toy? If you grew up playing with it or have seen it in vintage collections, you might be cu"
+title: 'What Year Did the Tupperware Shape-O Toy Come Out: Discover the History'
+description: Have you ever wondered about the story behind the Tupperware Shape-O
+  toy? If you grew up playing with it or have seen it in vintage collections, you
+  might be cu
 pubDate: 2026-07-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-year-did-the-tupperware-shape-o-toy-come-out&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=what-year-did-the-tupperware-shape-o-toy-come-out&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered about the story behind the Tupperware Shape-O toy? If you grew up playing with it or have seen it in vintage collections, you might be curious about when this classic toy first appeared.**

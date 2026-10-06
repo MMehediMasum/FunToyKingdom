@@ -1,10 +1,14 @@
 ---
-title: "Electronic Frog Catching Toy: Ultimate Fun for Kids and Adults"
-description: "Have you ever wished for a fun way to challenge your reflexes and enjoy some lighthearted competition? The Electronic Frog Catching Toy is exactly what you need"
+title: 'Electronic Frog Catching Toy: Ultimate Fun for Kids and Adults'
+description: Have you ever wished for a fun way to challenge your reflexes and enjoy
+  some lighthearted competition? The Electronic Frog Catching Toy is exactly what
+  you need
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-frog-catching-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=electronic-frog-catching-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wished for a fun way to challenge your reflexes and enjoy some lighthearted competition? The Electronic Frog Catching Toy is exactly what you need.**

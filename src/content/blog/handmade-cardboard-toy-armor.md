@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Armor: Creative DIY Fun for Kids"
-description: "Imagine your child stepping into a world of imagination, wearing armor they helped create with their own hands. Handmade cardboard toy armor isn’t just a fun cr"
+title: 'Handmade Cardboard Toy Armor: Creative DIY Fun for Kids'
+description: Imagine your child stepping into a world of imagination, wearing armor
+  they helped create with their own hands. Handmade cardboard toy armor isn’t just
+  a fun cr
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-armor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-armor&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine your child stepping into a world of imagination, wearing armor they helped create with their own hands. Handmade cardboard toy armor isn’t just a fun craft—it’s a way to boost creativity, encourage play, and make memories that last.**

@@ -1,10 +1,14 @@
 ---
-title: "Anki Cozmo Robot Toy Collectible: Ultimate Guide to Fun & Tech"
-description: "Imagine having a tiny robot companion that feels alive, learns from you, and brings endless fun right to your fingertips. The Anki Cozmo Robot Toy Collectible i"
+title: 'Anki Cozmo Robot Toy Collectible: Ultimate Guide to Fun & Tech'
+description: Imagine having a tiny robot companion that feels alive, learns from you,
+  and brings endless fun right to your fingertips. The Anki Cozmo Robot Toy Collectible
+  i
 pubDate: 2025-09-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=anki-cozmo-robot-toy-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=anki-cozmo-robot-toy-collectible&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having a tiny robot companion that feels alive, learns from you, and brings endless fun right to your fingertips. The Anki Cozmo Robot Toy Collectible is not just a toy—it’s an experience that sparks curiosity and joy every time you interact with it.**

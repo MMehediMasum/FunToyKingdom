@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Carla Veloso Toy Review: Best Diecast Racer for Kids"
-description: "The Cars 2 Carla Veloso toy captures the excitement of the popular Disney Pixar movie. This detailed diecast car brings Carla Veloso’s racing spirit to life for"
+title: 'Cars 2 Carla Veloso Toy Review: Best Diecast Racer for Kids'
+description: The Cars 2 Carla Veloso toy captures the excitement of the popular Disney
+  Pixar movie. This detailed diecast car brings Carla Veloso’s racing spirit to life
+  for
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-carla-veloso-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-carla-veloso-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 Carla Veloso toy captures the excitement of the popular Disney Pixar movie. This detailed diecast car brings Carla Veloso’s racing spirit to life for fans of all ages.**

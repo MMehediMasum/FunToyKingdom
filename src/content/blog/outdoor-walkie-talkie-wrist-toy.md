@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Walkie Talkie Wrist Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine having a fun gadget right on your wrist that lets you talk to your friends anytime, anywhere. The Outdoor Walkie Talkie Wrist Toy is just that – a cool,"
+title: 'Outdoor Walkie Talkie Wrist Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine having a fun gadget right on your wrist that lets you talk to
+  your friends anytime, anywhere. The Outdoor Walkie Talkie Wrist Toy is just that
+  – a cool,
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-walkie-talkie-wrist-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-walkie-talkie-wrist-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine having a fun gadget right on your wrist that lets you talk to your friends anytime, anywhere. The Outdoor Walkie Talkie Wrist Toy is just that – a cool, easy-to-use device designed for adventure and play.**

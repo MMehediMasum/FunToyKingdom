@@ -1,10 +1,14 @@
 ---
-title: "Where Can You Donate Toys for Christmas: Top Charities to Help Kids"
-description: "Are you wondering where you can donate toys for Christmas this year? Giving a toy can light up a child’s holiday like nothing else. But finding the right place "
+title: 'Where Can You Donate Toys for Christmas: Top Charities to Help Kids'
+description: 'Are you wondering where you can donate toys for Christmas this year?
+  Giving a toy can light up a child’s holiday like nothing else. But finding the right
+  place '
 pubDate: 2025-09-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-you-donate-toys-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-you-donate-toys-for-christmas&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can donate toys for Christmas this year? Giving a toy can light up a child’s holiday like nothing else.**

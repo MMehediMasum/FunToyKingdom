@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Autism 3 Year Old: Top Calming Fidget Options"
-description: "Sensory toys can greatly benefit a 3-year-old with autism by providing comfort and enhancing focus. These toys help manage anxiety and encourage developmental p"
+title: 'Sensory Toys for Autism 3 Year Old: Top Calming Fidget Options'
+description: Sensory toys can greatly benefit a 3-year-old with autism by providing
+  comfort and enhancing focus. These toys help manage anxiety and encourage developmental
+  p
 pubDate: 2026-02-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-autism-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-autism-3-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys can greatly benefit a 3-year-old with autism by providing comfort and enhancing focus. These toys help manage anxiety and encourage developmental progress.**

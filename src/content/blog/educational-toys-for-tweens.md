@@ -1,10 +1,14 @@
 ---
-title: "Educational Toys for Tweens: Unlock Creativity and Learning Fun"
-description: "Are you looking for toys that do more than just entertain your tween? Imagine giving your child something that sparks curiosity, boosts creativity, and builds i"
+title: 'Educational Toys for Tweens: Unlock Creativity and Learning Fun'
+description: Are you looking for toys that do more than just entertain your tween?
+  Imagine giving your child something that sparks curiosity, boosts creativity, and
+  builds i
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-tweens&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for toys that do more than just entertain your tween? Imagine giving your child something that sparks curiosity, boosts creativity, and builds important skills—all while having fun.**

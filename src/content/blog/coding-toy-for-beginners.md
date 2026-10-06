@@ -1,10 +1,14 @@
 ---
-title: "Coding Toy for Beginners: Ultimate Fun Learning Guide 2025"
-description: "Are you looking for a fun and simple way to start learning coding? A coding toy for beginners might be exactly what you need. Imagine playing with a toy that te"
+title: 'Coding Toy for Beginners: Ultimate Fun Learning Guide 2025'
+description: Are you looking for a fun and simple way to start learning coding? A
+  coding toy for beginners might be exactly what you need. Imagine playing with a
+  toy that te
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toy-for-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toy-for-beginners&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and simple way to start learning coding? A coding toy for beginners might be exactly what you need.**

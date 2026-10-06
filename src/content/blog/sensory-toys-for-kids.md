@@ -1,10 +1,13 @@
 ---
-title: "Sensory Toys for Kids: Top Fidget Sets to Relieve Stress and Anxiety"
-description: "Sensory toys help children explore touch, sight, and sound while supporting focus and calmness. These toys suit kids with autism, anxiety, and attention challen"
+title: 'Sensory Toys for Kids: Top Fidget Sets to Relieve Stress and Anxiety'
+description: Sensory toys help children explore touch, sight, and sound while supporting
+  focus and calmness. These toys suit kids with autism, anxiety, and attention challen
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help children explore touch, sight, and sound while supporting focus and calmness. These toys suit kids with autism, anxiety, and attention challenges.**

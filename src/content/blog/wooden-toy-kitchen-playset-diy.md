@@ -1,10 +1,13 @@
 ---
-title: "Wooden Toy Kitchen Playset DIY: Create a Magical Playtime Experience"
-description: "Imagine giving your child a toy that sparks creativity, encourages role-playing, and lasts for years. A wooden toy kitchen playset DIY project lets you do just "
+title: 'Wooden Toy Kitchen Playset DIY: Create a Magical Playtime Experience'
+description: 'Imagine giving your child a toy that sparks creativity, encourages role-playing,
+  and lasts for years. A wooden toy kitchen playset DIY project lets you do just '
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-kitchen-playset-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-kitchen-playset-diy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages role-playing, and lasts for years. A wooden toy kitchen playset DIY project lets you do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Elderly: Top Calming Fidget Tools for Dementia Relief"
-description: "Sensory toys for the elderly help improve focus, reduce anxiety, and provide calming comfort. These tools support seniors with dementia, Alzheimer’s, and other "
+title: 'Sensory Toys for Elderly: Top Calming Fidget Tools for Dementia Relief'
+description: 'Sensory toys for the elderly help improve focus, reduce anxiety, and
+  provide calming comfort. These tools support seniors with dementia, Alzheimer’s,
+  and other '
 pubDate: 2026-08-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-elderly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-elderly&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys for the elderly help improve focus, reduce anxiety, and provide calming comfort. These tools support seniors with dementia, Alzheimer’s, and other special needs.**

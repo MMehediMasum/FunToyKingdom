@@ -1,10 +1,14 @@
 ---
-title: "Aircraft Toys Models: Top Collectible Planes and Kits for Enthusiasts"
-description: "Aircraft toy models captivate enthusiasts and collectors of all ages. These detailed replicas offer a glimpse into aviation history. From classic fighter jets t"
+title: 'Aircraft Toys Models: Top Collectible Planes and Kits for Enthusiasts'
+description: Aircraft toy models captivate enthusiasts and collectors of all ages.
+  These detailed replicas offer a glimpse into aviation history. From classic fighter
+  jets t
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=aircraft-toys-models&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=aircraft-toys-models&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Aircraft toy models captivate enthusiasts and collectors of all ages. These detailed replicas offer a glimpse into aviation history.**

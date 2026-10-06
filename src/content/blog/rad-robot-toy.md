@@ -1,10 +1,14 @@
 ---
-title: "Rad Robot Toy Review: Ultimate Farting Remote Control Robot Fun"
-description: "Rad Robot Toy offers fun and interactive play for kids of all ages. These remote control robots come with cool sounds and movements. Rad Robot Toys combine tech"
+title: 'Rad Robot Toy Review: Ultimate Farting Remote Control Robot Fun'
+description: Rad Robot Toy offers fun and interactive play for kids of all ages. These
+  remote control robots come with cool sounds and movements. Rad Robot Toys combine
+  tech
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rad-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=rad-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Rad Robot Toy offers fun and interactive play for kids of all ages. These remote control robots come with cool sounds and movements.**

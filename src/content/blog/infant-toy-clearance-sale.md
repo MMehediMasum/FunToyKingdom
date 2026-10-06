@@ -1,10 +1,13 @@
 ---
-title: "Infant Toy Clearance Sale: Top Silicone Teething Rings for Babies"
-description: "Discover incredible deals on essential toys for your baby in our Infant Toy Clearance Sale. Perfect for keeping your little one engaged and happy. Our clearance"
+title: 'Infant Toy Clearance Sale: Top Silicone Teething Rings for Babies'
+description: Discover incredible deals on essential toys for your baby in our Infant
+  Toy Clearance Sale. Perfect for keeping your little one engaged and happy. Our clearance
 pubDate: 2026-03-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toy-clearance-sale&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=infant-toy-clearance-sale&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Discover incredible deals on essential toys for your baby in our Infant Toy Clearance Sale. Perfect for keeping your little one engaged and happy.**

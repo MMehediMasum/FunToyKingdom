@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Flying Saucer Toy: Ultimate Fun for Kids & Adults"
-description: "Imagine holding a flying saucer in your hand that you can control with just a click. Sounds fun, right? The Remote Control Flying Saucer Toy brings that excitem"
+title: 'Remote Control Flying Saucer Toy: Ultimate Fun for Kids & Adults'
+description: Imagine holding a flying saucer in your hand that you can control with
+  just a click. Sounds fun, right? The Remote Control Flying Saucer Toy brings that
+  excitem
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-flying-saucer-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-flying-saucer-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine holding a flying saucer in your hand that you can control with just a click. Sounds fun, right?**

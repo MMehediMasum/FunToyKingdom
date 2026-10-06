@@ -1,10 +1,14 @@
 ---
-title: "Building Sets for 7 Year Old: Top Picks for Creative Playtime"
-description: "Are you looking for the perfect building sets for your 7-year-old? Choosing the right one can spark their creativity, improve problem-solving skills, and keep t"
+title: 'Building Sets for 7 Year Old: Top Picks for Creative Playtime'
+description: Are you looking for the perfect building sets for your 7-year-old? Choosing
+  the right one can spark their creativity, improve problem-solving skills, and keep
+  t
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=building-sets-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=building-sets-for-7-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect building sets for your 7-year-old? Choosing the right one can spark their creativity, improve problem-solving skills, and keep them happily busy for hours.**

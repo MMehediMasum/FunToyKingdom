@@ -1,10 +1,14 @@
 ---
-title: "Newborn Grasping Toys: Top Picks for Early Development Fun"
-description: "Your newborn’s tiny hands are more powerful than you might think. When they grasp a toy, it’s not just a simple reflex—it’s a crucial step in their growth and l"
+title: 'Newborn Grasping Toys: Top Picks for Early Development Fun'
+description: Your newborn’s tiny hands are more powerful than you might think. When
+  they grasp a toy, it’s not just a simple reflex—it’s a crucial step in their growth
+  and l
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=newborn-grasping-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=newborn-grasping-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Your newborn’s tiny hands are more powerful than you might think. When they grasp a toy, it’s not just a simple reflex—it’s a crucial step in their growth and learning.**

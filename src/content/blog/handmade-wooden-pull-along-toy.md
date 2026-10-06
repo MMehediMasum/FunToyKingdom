@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Pull along Toy: Timeless Fun for Kids"
-description: "Are you looking for a toy that sparks joy and creativity in your child? A handmade wooden pull along toy might be exactly what you need. These simple yet charmi"
+title: 'Handmade Wooden Pull along Toy: Timeless Fun for Kids'
+description: Are you looking for a toy that sparks joy and creativity in your child?
+  A handmade wooden pull along toy might be exactly what you need. These simple yet
+  charmi
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-pull-along-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Wooden Pirate
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-pull-along-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a toy that sparks joy and creativity in your child? A handmade wooden pull along toy might be exactly what you need.**

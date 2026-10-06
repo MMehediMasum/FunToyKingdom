@@ -1,10 +1,14 @@
 ---
-title: "Toy Police Set With Gun: Ultimate Kids’ Role Play Adventure Kit"
-description: "Children love to immerse themselves in imaginative play, and toy police sets are a favorite choice. These sets inspire creativity and teach role-playing skills."
+title: 'Toy Police Set With Gun: Ultimate Kids’ Role Play Adventure Kit'
+description: Children love to immerse themselves in imaginative play, and toy police
+  sets are a favorite choice. These sets inspire creativity and teach role-playing
+  skills.
 pubDate: 2026-02-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-police-set-with-gun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=toy-police-set-with-gun&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Children love to immerse themselves in imaginative play, and toy police sets are a favorite choice. These sets inspire creativity and teach role-playing skills.**

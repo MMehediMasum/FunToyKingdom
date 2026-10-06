@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Skateboard Helmets Safety Gear: Ultimate Protection for Riders"
 description: "When you’re out skating, the thrill of speed and tricks can take over. But have you ever stopped to think about how important your safety gear really is? Your s"
 pubDate: 2026-04-18

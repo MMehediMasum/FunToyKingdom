@@ -1,10 +1,13 @@
 ---
-title: "Science Kits for Tweens: Ignite Curiosity with Fun Experiments"
-description: "Are you looking for a fun and exciting way to spark your tween’s curiosity? Science kits for tweens can turn everyday learning into an adventure right at home. "
+title: 'Science Kits for Tweens: Ignite Curiosity with Fun Experiments'
+description: 'Are you looking for a fun and exciting way to spark your tween’s curiosity?
+  Science kits for tweens can turn everyday learning into an adventure right at home. '
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kits-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kits-for-tweens&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your tween’s curiosity? Science kits for tweens can turn everyday learning into an adventure right at home.**

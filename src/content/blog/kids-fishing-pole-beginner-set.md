@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Fishing Pole Beginner Set: Ultimate Guide for Young Anglers"
 description: "Are you looking for the perfect way to introduce your child to the fun of fishing? A Kids Fishing Pole Beginner Set could be just what you need. Imagine the exc"
 pubDate: 2025-09-26

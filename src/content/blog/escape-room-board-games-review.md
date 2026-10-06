@@ -1,10 +1,14 @@
 ---
-title: "Escape Room Board Games Review: Ultimate Fun & Brain-Teasing Picks"
-description: "Have you ever wanted to bring the thrill of an escape room right into your living room? Escape room board games let you do just that. They challenge your mind, "
+title: 'Escape Room Board Games Review: Ultimate Fun & Brain-Teasing Picks'
+description: 'Have you ever wanted to bring the thrill of an escape room right into
+  your living room? Escape room board games let you do just that. They challenge your
+  mind, '
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=escape-room-board-games-review&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=escape-room-board-games-review&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wanted to bring the thrill of an escape room right into your living room? Escape room board games let you do just that.**

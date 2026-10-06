@@ -1,10 +1,14 @@
 ---
-title: "Collectible Toy Cars: Top Picks for Enthusiasts and Rare Finds"
-description: "Collectible toy cars captivate enthusiasts with their intricate designs and nostalgic appeal. They offer a window into automotive history and culture. Toy car c"
+title: 'Collectible Toy Cars: Top Picks for Enthusiasts and Rare Finds'
+description: Collectible toy cars captivate enthusiasts with their intricate designs
+  and nostalgic appeal. They offer a window into automotive history and culture. Toy
+  car c
 pubDate: 2026-02-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=collectible-toy-cars&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Collectible toy cars captivate enthusiasts with their intricate designs and nostalgic appeal. They offer a window into automotive history and culture.**

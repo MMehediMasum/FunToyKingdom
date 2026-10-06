@@ -1,10 +1,14 @@
 ---
-title: "Rattle Toys for Infants: Top Picks for Sensory and Developmental Play"
-description: "Rattle toys play a crucial role in an infant's early development. They provide sensory stimulation and encourage motor skills. Choosing the right rattle toys ca"
+title: 'Rattle Toys for Infants: Top Picks for Sensory and Developmental Play'
+description: Rattle toys play a crucial role in an infant's early development. They
+  provide sensory stimulation and encourage motor skills. Choosing the right rattle
+  toys ca
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=rattle-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=rattle-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Rattle toys play a crucial role in an infant's early development. They provide sensory stimulation and encourage motor skills.**

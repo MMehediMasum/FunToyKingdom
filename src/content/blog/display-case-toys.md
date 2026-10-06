@@ -1,10 +1,14 @@
 ---
-title: "Display Case Toys: Top Acrylic Display Boxes for Collectibles Showcase"
-description: "Display case toys protect and showcase your favorite collectibles neatly. They keep figures safe from dust, moisture, and damage. Acrylic display cases come in "
+title: 'Display Case Toys: Top Acrylic Display Boxes for Collectibles Showcase'
+description: 'Display case toys protect and showcase your favorite collectibles neatly.
+  They keep figures safe from dust, moisture, and damage. Acrylic display cases come
+  in '
 pubDate: 2026-09-05
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=display-case-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=display-case-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Display case toys protect and showcase your favorite collectibles neatly. They keep figures safe from dust, moisture, and damage.**

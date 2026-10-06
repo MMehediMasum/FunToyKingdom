@@ -1,10 +1,14 @@
 ---
-title: "Cat Robot Toy: Interactive, Programmable Fun for Kids and Pet Lovers"
-description: "Introducing the delightful world of cat robot toys! These interactive companions engage kids with endless fun and learning. Designed for children aged 3 to 9, t"
+title: 'Cat Robot Toy: Interactive, Programmable Fun for Kids and Pet Lovers'
+description: Introducing the delightful world of cat robot toys! These interactive
+  companions engage kids with endless fun and learning. Designed for children aged
+  3 to 9, t
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=cat-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Introducing the delightful world of cat robot toys! These interactive companions engage kids with endless fun and learning.**

@@ -1,10 +1,13 @@
 ---
-title: "Eva Robot Toy: The Ultimate Interactive Companion for Kids and Adults"
-description: "Eva Robot Toy offers fun and learning in one friendly package. This robot toy suits kids of all ages and interests. Eva Robot Toy stands out with its interactiv"
+title: 'Eva Robot Toy: The Ultimate Interactive Companion for Kids and Adults'
+description: Eva Robot Toy offers fun and learning in one friendly package. This robot
+  toy suits kids of all ages and interests. Eva Robot Toy stands out with its interactiv
 pubDate: 2026-02-12
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=eva-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=eva-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Eva Robot Toy offers fun and learning in one friendly package. This robot toy suits kids of all ages and interests.**

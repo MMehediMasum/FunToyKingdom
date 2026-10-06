@@ -1,10 +1,14 @@
 ---
-title: "Lego City Express Passenger Train Toy Rc Lights Set 60337 Review"
-description: "The Lego City Express Passenger Train Toy RC Lights Set 60337 brings realistic details to your train model. It adds bright, colorful lights that make playtime m"
+title: Lego City Express Passenger Train Toy Rc Lights Set 60337 Review
+description: The Lego City Express Passenger Train Toy RC Lights Set 60337 brings
+  realistic details to your train model. It adds bright, colorful lights that make
+  playtime m
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-city-express-passenger-train-toy-rc-lights-set-60337&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=lego-city-express-passenger-train-toy-rc-lights-set-60337&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Lego City Express Passenger Train Toy RC Lights Set 60337 brings realistic details to your train model. It adds bright, colorful lights that make playtime more exciting.**

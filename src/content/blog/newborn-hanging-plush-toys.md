@@ -1,10 +1,14 @@
 ---
-title: "Newborn Hanging Plush Toys: Must-Have Comfort & Fun Essentials"
-description: "Are you looking for the perfect way to keep your newborn entertained and comforted? Newborn hanging plush toys might be just what you need. These soft, colorful"
+title: 'Newborn Hanging Plush Toys: Must-Have Comfort & Fun Essentials'
+description: Are you looking for the perfect way to keep your newborn entertained
+  and comforted? Newborn hanging plush toys might be just what you need. These soft,
+  colorful
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=newborn-hanging-plush-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=newborn-hanging-plush-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect way to keep your newborn entertained and comforted? Newborn hanging plush toys might be just what you need.**

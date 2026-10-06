@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Seahorse Inflatable Toy: Ultimate Fun for Summer Pools"
-description: "Looking for a fun way to brighten up your outdoor time? The Outdoor Seahorse Inflatable Toy might be just what you need. Imagine lounging on a colorful, giant s"
+title: 'Outdoor Seahorse Inflatable Toy: Ultimate Fun for Summer Pools'
+description: Looking for a fun way to brighten up your outdoor time? The Outdoor Seahorse
+  Inflatable Toy might be just what you need. Imagine lounging on a colorful, giant
+  s
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-seahorse-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-seahorse-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to brighten up your outdoor time? The Outdoor Seahorse Inflatable Toy might be just what you need.**

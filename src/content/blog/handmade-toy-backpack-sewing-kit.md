@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Backpack Sewing Kit: Create Fun, Unique Gifts Easily"
-description: "Are you looking for a fun and creative way to keep your child entertained while boosting their skills? The Handmade Toy Backpack Sewing Kit is exactly what you "
+title: 'Handmade Toy Backpack Sewing Kit: Create Fun, Unique Gifts Easily'
+description: 'Are you looking for a fun and creative way to keep your child entertained
+  while boosting their skills? The Handmade Toy Backpack Sewing Kit is exactly what
+  you '
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-backpack-sewing-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-backpack-sewing-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to keep your child entertained while boosting their skills? The Handmade Toy Backpack Sewing Kit is exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Ferris Wheel: Easy Step-by-Step Fun Project"
-description: "Imagine creating a fun, colorful Ferris wheel right at home using just cardboard and a few simple supplies. You don’t need fancy tools or a big budget—just your"
+title: 'Diy Cardboard Toy Ferris Wheel: Easy Step-by-Step Fun Project'
+description: Imagine creating a fun, colorful Ferris wheel right at home using just
+  cardboard and a few simple supplies. You don’t need fancy tools or a big budget—just
+  your
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-ferris-wheel&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-ferris-wheel&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a fun, colorful Ferris wheel right at home using just cardboard and a few simple supplies. You don’t need fancy tools or a big budget—just your creativity and a little time.**

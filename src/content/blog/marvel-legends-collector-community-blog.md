@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Marvel Legends Collector Community Blog: Ultimate Guide & Insights"
 description: "Are you a Marvel Legends fan looking to connect with others who share your passion? The Marvel Legends Collector Community Blog is your go-to place for the late"
 pubDate: 2025-10-09

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Camping Stove Kids Pretend Play: Ultimate Fun & Learning Guide"
-description: "Imagine your child’s face lighting up as they gather around their very own outdoor camping stove, ready to cook up a pretend meal just like the grown-ups. You w"
+title: 'Outdoor Camping Stove Kids Pretend Play: Ultimate Fun & Learning Guide'
+description: Imagine your child’s face lighting up as they gather around their very
+  own outdoor camping stove, ready to cook up a pretend meal just like the grown-ups.
+  You w
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-camping-stove-kids-pretend-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-camping-stove-kids-pretend-play&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine your child’s face lighting up as they gather around their very own outdoor camping stove, ready to cook up a pretend meal just like the grown-ups. You want to encourage their creativity and love for adventure, but also keep playtime safe and fun.**

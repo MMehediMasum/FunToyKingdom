@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Toys for 3 Year Old: Top Fun Picks for Active Playtime"
-description: "Looking for the perfect outdoor toys for your 3-year-old? You want something that sparks their imagination, keeps them active, and is safe to use. Choosing the "
+title: 'Outdoor Toys for 3 Year Old: Top Fun Picks for Active Playtime'
+description: 'Looking for the perfect outdoor toys for your 3-year-old? You want something
+  that sparks their imagination, keeps them active, and is safe to use. Choosing the '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-3-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect outdoor toys for your 3-year-old? You want something that sparks their imagination, keeps them active, and is safe to use.**

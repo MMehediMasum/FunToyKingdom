@@ -1,10 +1,14 @@
 ---
-title: "Kids Pedal Go Kart With Rubber Tires: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun and safe way to keep your kids active outdoors? A kids pedal go kart with rubber tires might be just what you need. Imagine your child"
+title: 'Kids Pedal Go Kart With Rubber Tires: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun and safe way to keep your kids active outdoors?
+  A kids pedal go kart with rubber tires might be just what you need. Imagine your
+  child
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-pedal-go-kart-with-rubber-tires&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=kids-pedal-go-kart-with-rubber-tires&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe way to keep your kids active outdoors? A kids pedal go kart with rubber tires might be just what you need.**

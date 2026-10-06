@@ -1,10 +1,14 @@
 ---
-title: "Lego City Arctic Explorer Ship Floatable Building Toy Set 60368 Review"
-description: "The Lego City Arctic Explorer Ship 60368 is a captivating building toy set for young adventurers. It offers hours of imaginative play with its floatable boat an"
+title: Lego City Arctic Explorer Ship Floatable Building Toy Set 60368 Review
+description: The Lego City Arctic Explorer Ship 60368 is a captivating building toy
+  set for young adventurers. It offers hours of imaginative play with its floatable
+  boat an
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-city-arctic-explorer-ship-floatable-building-toy-set-60368&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-city-arctic-explorer-ship-floatable-building-toy-set-60368&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Lego City Arctic Explorer Ship 60368 is a captivating building toy set for young adventurers. It offers hours of imaginative play with its floatable boat and exciting accessories.**

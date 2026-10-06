@@ -1,10 +1,14 @@
 ---
-title: "Ai Powered Dinosaur Toy: The Ultimate Interactive Playtime Experience"
-description: "Imagine holding a dinosaur toy that doesn’t just sit still but reacts to your touch, talks back, and even learns from you. Sounds exciting, right? An AI powered"
+title: 'Ai Powered Dinosaur Toy: The Ultimate Interactive Playtime Experience'
+description: Imagine holding a dinosaur toy that doesn’t just sit still but reacts
+  to your touch, talks back, and even learns from you. Sounds exciting, right? An
+  AI powered
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ai-powered-dinosaur-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=ai-powered-dinosaur-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine holding a dinosaur toy that doesn’t just sit still but reacts to your touch, talks back, and even learns from you. Sounds exciting, right?**

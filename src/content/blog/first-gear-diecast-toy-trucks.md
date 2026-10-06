@@ -1,10 +1,13 @@
 ---
-title: "First Gear Diecast Toy Trucks: Ultimate Collectible Models for Enthusiasts"
-description: "First Gear diecast toy trucks offer detailed mini models of real trucks. Collectors and kids enjoy their quality and realism. These trucks come in many styles, "
+title: 'First Gear Diecast Toy Trucks: Ultimate Collectible Models for Enthusiasts'
+description: 'First Gear diecast toy trucks offer detailed mini models of real trucks.
+  Collectors and kids enjoy their quality and realism. These trucks come in many styles, '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=first-gear-diecast-toy-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=first-gear-diecast-toy-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **First Gear diecast toy trucks offer detailed mini models of real trucks. Collectors and kids enjoy their quality and realism.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Top 10 Rare Action Figures Blog Post: Ultimate Collector's Guide"
 description: "Are you a collector or just curious about the most valuable action figures out there? You might be surprised by how rare some toys can get—and how much they’re "
 pubDate: 2025-12-06

@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Jessie Interactive Talking Doll: Fun Sounds and Phrases Included"
-description: "Toy Story Jessie Interactive toys bring the beloved cowgirl to life with sounds and movements. Fans can enjoy Jessie’s phrases, poses, and playful features insp"
+title: 'Toy Story Jessie Interactive Talking Doll: Fun Sounds and Phrases Included'
+description: Toy Story Jessie Interactive toys bring the beloved cowgirl to life with
+  sounds and movements. Fans can enjoy Jessie’s phrases, poses, and playful features
+  insp
 pubDate: 2026-08-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-jessie-interactive&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Interactive Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-jessie-interactive&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Toy Story Jessie Interactive toys bring the beloved cowgirl to life with sounds and movements. Fans can enjoy Jessie’s phrases, poses, and playful features inspired by the movies.**

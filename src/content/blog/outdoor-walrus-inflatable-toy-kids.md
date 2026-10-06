@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Walrus Inflatable Toy Kids: Ultimate Fun for Summer Play"
-description: "Looking for a fun and exciting way to brighten your kids’ outdoor playtime? The Outdoor Walrus Inflatable Toy is just what you need. Imagine your children laugh"
+title: 'Outdoor Walrus Inflatable Toy Kids: Ultimate Fun for Summer Play'
+description: Looking for a fun and exciting way to brighten your kids’ outdoor playtime?
+  The Outdoor Walrus Inflatable Toy is just what you need. Imagine your children laugh
 pubDate: 2025-09-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-walrus-inflatable-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-walrus-inflatable-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to brighten your kids’ outdoor playtime? The Outdoor Walrus Inflatable Toy is just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "What are the Toys at Burger King Right Now: Must-Have Collectibles!"
-description: "Are you curious about the latest toys you can get with your Burger King meal? You’re in the right place. These toys aren’t just fun—they’re a great way to make "
+title: 'What are the Toys at Burger King Right Now: Must-Have Collectibles!'
+description: 'Are you curious about the latest toys you can get with your Burger King
+  meal? You’re in the right place. These toys aren’t just fun—they’re a great way
+  to make '
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-toys-at-burger-king-right-now&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Burger King Toy Promotions
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-toys-at-burger-king-right-now&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you curious about the latest toys you can get with your Burger King meal? You’re in the right place.**

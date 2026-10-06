@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Toys Mcqueen Crash: Ultimate Die-Cast Collectible Cars Guide"
-description: "Cars 3 Toys McQueen Crash captures the thrilling excitement of racing crashes in the popular Cars 3 movie. These toys bring Lightning McQueen and his friends to"
+title: 'Cars 3 Toys Mcqueen Crash: Ultimate Die-Cast Collectible Cars Guide'
+description: Cars 3 Toys McQueen Crash captures the thrilling excitement of racing
+  crashes in the popular Cars 3 movie. These toys bring Lightning McQueen and his
+  friends to
 pubDate: 2026-02-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-toys-mcqueen-crash&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-toys-mcqueen-crash&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 3 Toys McQueen Crash captures the thrilling excitement of racing crashes in the popular Cars 3 movie. These toys bring Lightning McQueen and his friends to life with detailed designs and fun features.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 11 Year Old: Top Picks for Fun & Learning"
-description: "Finding the perfect toy for an 11-year-old can feel tricky. You want something fun, engaging, and just right for their age. Whether you’re shopping for a birthd"
+title: 'Best Toys for 11 Year Old: Top Picks for Fun & Learning'
+description: Finding the perfect toy for an 11-year-old can feel tricky. You want
+  something fun, engaging, and just right for their age. Whether you’re shopping for
+  a birthd
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-11-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the perfect toy for an 11-year-old can feel tricky. You want something fun, engaging, and just right for their age.**

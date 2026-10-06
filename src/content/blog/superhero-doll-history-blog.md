@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Superhero Doll History Blog: Unveiling Iconic Collectible Legends"
 description: "Have you ever wondered how superhero dolls became a beloved part of your childhood? These tiny heroes have a fascinating story that goes beyond just toys on a s"
 pubDate: 2025-12-14

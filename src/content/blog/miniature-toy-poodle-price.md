@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Toy Poodle Price: Affordable Accessories and Essentials for Your Pup"
 description: "Miniature Toy Poodle price varies based on factors like breeder, location, and health. Understanding these costs helps in making a smart purchase. Miniature Toy"
 pubDate: 2026-08-05

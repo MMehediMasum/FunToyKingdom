@@ -1,10 +1,14 @@
 ---
-title: "Transformers Bumblebee Action Figure: Ultimate Collector’s Guide"
-description: "If you’re a fan of Transformers or looking for the perfect collectible, the Transformers Bumblebee Action Figure is a must-have. Imagine holding a detailed, hig"
+title: 'Transformers Bumblebee Action Figure: Ultimate Collector’s Guide'
+description: If you’re a fan of Transformers or looking for the perfect collectible,
+  the Transformers Bumblebee Action Figure is a must-have. Imagine holding a detailed,
+  hig
 pubDate: 2026-07-29
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=transformers-bumblebee-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=transformers-bumblebee-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Transformers or looking for the perfect collectible, the Transformers Bumblebee Action Figure is a must-have. Imagine holding a detailed, high-quality toy that brings your favorite hero to life right in your hands.**

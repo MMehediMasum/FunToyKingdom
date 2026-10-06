@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Paddle Pool With Slide: Ultimate Summer Fun for Kids"
-description: "Imagine turning your backyard into a fun-filled water park where your kids can splash, slide, and laugh for hours. An inflatable paddle pool with a slide offers"
+title: 'Inflatable Paddle Pool With Slide: Ultimate Summer Fun for Kids'
+description: Imagine turning your backyard into a fun-filled water park where your
+  kids can splash, slide, and laugh for hours. An inflatable paddle pool with a slide
+  offers
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-paddle-pool-with-slide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Slide For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-paddle-pool-with-slide&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun-filled water park where your kids can splash, slide, and laugh for hours. An inflatable paddle pool with a slide offers just that – endless summer fun right at home.**

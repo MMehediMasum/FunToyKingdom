@@ -1,10 +1,14 @@
 ---
-title: "Toyota Corolla Toy Car: Realistic Die-Cast Pull Back Model with Lights"
-description: "The Toyota Corolla toy car delights both collectors and kids with its realistic design and engaging features. From pull-back action to sound and light effects, "
+title: 'Toyota Corolla Toy Car: Realistic Die-Cast Pull Back Model with Lights'
+description: 'The Toyota Corolla toy car delights both collectors and kids with its
+  realistic design and engaging features. From pull-back action to sound and light
+  effects, '
 pubDate: 2026-01-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyota-corolla-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toyota-corolla-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **The Toyota Corolla toy car delights both collectors and kids with its realistic design and engaging features. From pull-back action to sound and light effects, these models offer endless fun.**

@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 18 Month Old Toddlers to Boost Learning and Play"
-description: "Sensory toys help 18-month-olds explore and learn through touch, sight, and sound. These toys support fine motor skills and cognitive growth. At 18 months, todd"
+title: Sensory Toys for 18 Month Old Toddlers to Boost Learning and Play
+description: Sensory toys help 18-month-olds explore and learn through touch, sight,
+  and sound. These toys support fine motor skills and cognitive growth. At 18 months,
+  todd
 pubDate: 2026-02-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-18-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-18-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 18-month-olds explore and learn through touch, sight, and sound. These toys support fine motor skills and cognitive growth.**

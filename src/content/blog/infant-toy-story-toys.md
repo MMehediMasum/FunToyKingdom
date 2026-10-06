@@ -1,10 +1,14 @@
 ---
-title: "Infant Toy Story Toys: Top Plush Characters for Baby’s Playtime Fun"
-description: "Infant Toy Story toys bring favorite Disney characters to your child’s playtime. These soft, colorful toys are perfect for babies and toddlers. Disney Baby Toy "
+title: 'Infant Toy Story Toys: Top Plush Characters for Baby’s Playtime Fun'
+description: 'Infant Toy Story toys bring favorite Disney characters to your child’s
+  playtime. These soft, colorful toys are perfect for babies and toddlers. Disney
+  Baby Toy '
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toy-story-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-toy-story-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Infant Toy Story toys bring favorite Disney characters to your child’s playtime. These soft, colorful toys are perfect for babies and toddlers.**

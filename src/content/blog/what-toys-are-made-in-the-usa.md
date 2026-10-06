@@ -1,10 +1,14 @@
 ---
-title: "What Toys are Made in the Usa: Top Safe & Durable Picks"
-description: "Are you looking for safe, high-quality toys made right here in the USA? Choosing toys made locally means you get products that meet strict safety standards and "
+title: 'What Toys are Made in the Usa: Top Safe & Durable Picks'
+description: 'Are you looking for safe, high-quality toys made right here in the USA?
+  Choosing toys made locally means you get products that meet strict safety standards
+  and '
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-are-made-in-the-usa&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-are-made-in-the-usa&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for safe, high-quality toys made right here in the USA? Choosing toys made locally means you get products that meet strict safety standards and support American workers.**

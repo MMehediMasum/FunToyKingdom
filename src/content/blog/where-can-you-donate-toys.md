@@ -1,10 +1,14 @@
 ---
-title: "Where Can You Donate Toys: Top Places to Spread Joy Today"
-description: "Are you wondering where you can donate toys that your kids have outgrown? You might have a box of gently used toys gathering dust, and giving them away can brin"
+title: 'Where Can You Donate Toys: Top Places to Spread Joy Today'
+description: Are you wondering where you can donate toys that your kids have outgrown?
+  You might have a box of gently used toys gathering dust, and giving them away can
+  brin
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-you-donate-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-you-donate-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can donate toys that your kids have outgrown? You might have a box of gently used toys gathering dust, and giving them away can bring joy to children who need them most.**

@@ -1,10 +1,14 @@
 ---
-title: "Classic Monopoly Vs Monopoly Junior: Ultimate Family Game Showdown"
-description: "Are you trying to decide between Classic Monopoly and Monopoly Junior for your next game night? Both versions bring fun and excitement, but they offer very diff"
+title: 'Classic Monopoly Vs Monopoly Junior: Ultimate Family Game Showdown'
+description: Are you trying to decide between Classic Monopoly and Monopoly Junior
+  for your next game night? Both versions bring fun and excitement, but they offer
+  very diff
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=classic-monopoly-vs-monopoly-junior&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=classic-monopoly-vs-monopoly-junior&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you trying to decide between Classic Monopoly and Monopoly Junior for your next game night? Both versions bring fun and excitement, but they offer very different experiences.**

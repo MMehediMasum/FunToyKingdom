@@ -1,10 +1,14 @@
 ---
-title: "Shape Sorters for 1 Year Old: Best Picks to Boost Baby’s Skills"
-description: "Are you looking for the perfect toy to help your 1-year-old learn and grow? Shape sorters are a fantastic choice that can boost your child’s brain development w"
+title: 'Shape Sorters for 1 Year Old: Best Picks to Boost Baby’s Skills'
+description: Are you looking for the perfect toy to help your 1-year-old learn and
+  grow? Shape sorters are a fantastic choice that can boost your child’s brain development
+  w
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=shape-sorters-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Shape Sorter Toy
+heroImage: https://tse1.mm.bing.net/th?q=shape-sorters-for-1-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toy to help your 1-year-old learn and grow? Shape sorters are a fantastic choice that can boost your child’s brain development while keeping them happily engaged.**

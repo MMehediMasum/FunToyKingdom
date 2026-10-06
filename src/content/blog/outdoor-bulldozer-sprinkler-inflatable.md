@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Bulldozer Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into the ultimate fun zone where kids and friends can't stop laughing and playing. With an Outdoor Bulldozer Sprinkler Inflatable,"
+title: 'Outdoor Bulldozer Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into the ultimate fun zone where kids and
+  friends can't stop laughing and playing. With an Outdoor Bulldozer Sprinkler Inflatable,
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bulldozer-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bulldozer-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where kids and friends can't stop laughing and playing. With an Outdoor Bulldozer Sprinkler Inflatable, you bring excitement, cool water sprays, and endless joy right to your doorstep.**

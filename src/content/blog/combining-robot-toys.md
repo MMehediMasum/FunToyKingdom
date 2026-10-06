@@ -1,10 +1,14 @@
 ---
-title: "Combining Robot Toys: Top Transforming STEM Sets for Kids’ Imaginative Play"
-description: "Combining robot toys creates exciting new play experiences for kids and adults alike. These toys offer multiple ways to build, transform, and connect. Robot toy"
+title: 'Combining Robot Toys: Top Transforming STEM Sets for Kids’ Imaginative Play'
+description: Combining robot toys creates exciting new play experiences for kids and
+  adults alike. These toys offer multiple ways to build, transform, and connect. Robot
+  toy
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=combining-robot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=combining-robot-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Combining robot toys creates exciting new play experiences for kids and adults alike. These toys offer multiple ways to build, transform, and connect.**

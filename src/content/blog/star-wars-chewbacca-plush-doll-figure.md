@@ -1,10 +1,14 @@
 ---
-title: "Star Wars Chewbacca Plush Doll Figure: Ultimate Collector’s Must-Have"
-description: "Are you a true Star Wars fan looking to add something special to your collection? The Star Wars Chewbacca Plush Doll Figure is more than just a toy—it's a piece"
+title: 'Star Wars Chewbacca Plush Doll Figure: Ultimate Collector’s Must-Have'
+description: Are you a true Star Wars fan looking to add something special to your
+  collection? The Star Wars Chewbacca Plush Doll Figure is more than just a toy—it's
+  a piece
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=star-wars-chewbacca-plush-doll-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=star-wars-chewbacca-plush-doll-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a true Star Wars fan looking to add something special to your collection? The Star Wars Chewbacca Plush Doll Figure is more than just a toy—it's a piece of the galaxy you can hold in your hands.**

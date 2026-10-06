@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Farmer Market Pretend Play: Boost Creativity & Fun!"
-description: "Imagine your child stepping into a lively outdoor farmer market, where colorful fruits, fresh veggies, and friendly vendors come to life—all without leaving hom"
+title: 'Outdoor Farmer Market Pretend Play: Boost Creativity & Fun!'
+description: Imagine your child stepping into a lively outdoor farmer market, where
+  colorful fruits, fresh veggies, and friendly vendors come to life—all without leaving
+  hom
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-farmer-market-pretend-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-farmer-market-pretend-play&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine your child stepping into a lively outdoor farmer market, where colorful fruits, fresh veggies, and friendly vendors come to life—all without leaving home. Outdoor Farmer Market Pretend Play lets your little one explore, learn, and have fun in a world full of imagination.**

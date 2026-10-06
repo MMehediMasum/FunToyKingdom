@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Led Headlights: Ultimate Night Racing Experience"
-description: "Are you ready to take your RC car experience to the next level? Imagine zooming through your backyard or neighborhood streets, with bright LED headlights lighti"
+title: 'Rc Car With Led Headlights: Ultimate Night Racing Experience'
+description: Are you ready to take your RC car experience to the next level? Imagine
+  zooming through your backyard or neighborhood streets, with bright LED headlights
+  lighti
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-led-headlights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-led-headlights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to the next level? Imagine zooming through your backyard or neighborhood streets, with bright LED headlights lighting up the path ahead.**

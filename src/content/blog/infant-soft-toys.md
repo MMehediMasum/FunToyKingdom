@@ -1,10 +1,14 @@
 ---
-title: "Infant Soft Toys: Safe, Cozy, and Perfect for Early Playtime"
-description: "Choosing the perfect soft toy for your infant is more important than you might think. Your little one’s first toys do more than just entertain—they help build c"
+title: 'Infant Soft Toys: Safe, Cozy, and Perfect for Early Playtime'
+description: Choosing the perfect soft toy for your infant is more important than
+  you might think. Your little one’s first toys do more than just entertain—they help
+  build c
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-soft-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=infant-soft-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Choosing the perfect soft toy for your infant is more important than you might think. Your little one’s first toys do more than just entertain—they help build comfort, spark curiosity, and create a sense of security.**

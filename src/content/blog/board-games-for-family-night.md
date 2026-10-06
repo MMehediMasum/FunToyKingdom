@@ -1,10 +1,14 @@
 ---
-title: "Board Games for Family Night: Ultimate Fun and Bonding Picks"
-description: "Looking for the perfect way to bring your family closer this weekend? Board games for family night are the secret weapon you didn’t know you needed. Imagine lau"
+title: 'Board Games for Family Night: Ultimate Fun and Bonding Picks'
+description: Looking for the perfect way to bring your family closer this weekend?
+  Board games for family night are the secret weapon you didn’t know you needed. Imagine
+  lau
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-family-night&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-family-night&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect way to bring your family closer this weekend? Board games for family night are the secret weapon you didn’t know you needed.**

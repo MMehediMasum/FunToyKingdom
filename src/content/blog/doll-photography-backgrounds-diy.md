@@ -1,10 +1,14 @@
 ---
-title: "Doll Photography Backgrounds DIY: Creative Ideas for Stunning Shots"
-description: "Are you ready to take your doll photography to the next level? The right background can make your photos stand out and bring your dolls to life. But buying prof"
+title: 'Doll Photography Backgrounds DIY: Creative Ideas for Stunning Shots'
+description: Are you ready to take your doll photography to the next level? The right
+  background can make your photos stand out and bring your dolls to life. But buying
+  prof
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=doll-photography-backgrounds-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=doll-photography-backgrounds-diy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to take your doll photography to the next level? The right background can make your photos stand out and bring your dolls to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Flamingo Pool Float: Ultimate Summer Fun Essential"
-description: "Imagine yourself lounging on a bright, fun inflatable flamingo pool float, feeling the warm sun on your skin and the cool water all around you. This isn’t just "
+title: 'Inflatable Flamingo Pool Float: Ultimate Summer Fun Essential'
+description: 'Imagine yourself lounging on a bright, fun inflatable flamingo pool
+  float, feeling the warm sun on your skin and the cool water all around you. This
+  isn’t just '
 pubDate: 2025-09-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-flamingo-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-flamingo-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself lounging on a bright, fun inflatable flamingo pool float, feeling the warm sun on your skin and the cool water all around you. This isn’t just any float—it’s your ticket to turning an ordinary pool day into a memorable escape.**

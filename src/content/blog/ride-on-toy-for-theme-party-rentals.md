@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Theme Party Rentals: Ultimate Fun & Excitement"
-description: "Are you planning a theme party and want to make it unforgettable? Imagine your guests’ excitement when they see colorful ride-on toys ready to zoom around. Ride"
+title: 'Ride on Toy for Theme Party Rentals: Ultimate Fun & Excitement'
+description: Are you planning a theme party and want to make it unforgettable? Imagine
+  your guests’ excitement when they see colorful ride-on toys ready to zoom around.
+  Ride
 pubDate: 2025-09-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-theme-party-rentals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy With Police
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-theme-party-rentals&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you planning a theme party and want to make it unforgettable? Imagine your guests’ excitement when they see colorful ride-on toys ready to zoom around.**

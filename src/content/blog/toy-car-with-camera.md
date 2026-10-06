@@ -1,10 +1,13 @@
 ---
-title: "Toy Car With Camera: Top Remote Control Cars for Fun and Adventure"
-description: "A toy car with a camera combines fun driving with real-time video capture. These remote control cars let kids and adults enjoy racing and filming simultaneously"
+title: 'Toy Car With Camera: Top Remote Control Cars for Fun and Adventure'
+description: A toy car with a camera combines fun driving with real-time video capture.
+  These remote control cars let kids and adults enjoy racing and filming simultaneously
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-with-camera&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **A toy car with a camera combines fun driving with real-time video capture. These remote control cars let kids and adults enjoy racing and filming simultaneously.**

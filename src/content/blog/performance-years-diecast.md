@@ -1,10 +1,14 @@
 ---
-title: "Performance Years Diecast: Ultimate Collectible Toy Cars for Kids and Enthusiasts"
-description: "Diecast toy cars capture the charm and nostalgia of classic and modern vehicles. These miniature models offer endless fun. Diecast cars appeal to both collector"
+title: 'Performance Years Diecast: Ultimate Collectible Toy Cars for Kids and Enthusiasts'
+description: Diecast toy cars capture the charm and nostalgia of classic and modern
+  vehicles. These miniature models offer endless fun. Diecast cars appeal to both
+  collector
 pubDate: 2026-08-31
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=performance-years-diecast&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=performance-years-diecast&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy cars capture the charm and nostalgia of classic and modern vehicles. These miniature models offer endless fun.**

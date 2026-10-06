@@ -1,10 +1,14 @@
 ---
-title: "Galactic Toys & Games: Top Space-Themed Gifts for Kids and Teens"
-description: "Galactic Toys & Games offers exciting space-themed toys for kids and teens. These toys spark fun and creativity with unique designs. Explore a variety of galact"
+title: 'Galactic Toys & Games: Top Space-Themed Gifts for Kids and Teens'
+description: Galactic Toys & Games offers exciting space-themed toys for kids and
+  teens. These toys spark fun and creativity with unique designs. Explore a variety
+  of galact
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=galactic-toys-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=galactic-toys-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Galactic Toys & Games offers exciting space-themed toys for kids and teens. These toys spark fun and creativity with unique designs.**

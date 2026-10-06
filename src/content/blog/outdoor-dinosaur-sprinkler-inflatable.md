@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dinosaur Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine your backyard turning into a fun-filled dinosaur adventure every time you turn on the water. The Outdoor Dinosaur Sprinkler Inflatable is just what you "
+title: 'Outdoor Dinosaur Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: 'Imagine your backyard turning into a fun-filled dinosaur adventure every
+  time you turn on the water. The Outdoor Dinosaur Sprinkler Inflatable is just what
+  you '
 pubDate: 2026-05-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dinosaur-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dinosaur-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your backyard turning into a fun-filled dinosaur adventure every time you turn on the water. The Outdoor Dinosaur Sprinkler Inflatable is just what you need to make hot days exciting for your kids and guests.**

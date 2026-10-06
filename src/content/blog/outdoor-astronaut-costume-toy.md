@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Astronaut Costume Toy: Ultimate Space Play Adventure Guide"
-description: "Imagine your child stepping into the shoes of an astronaut, exploring the stars right in your backyard. An Outdoor Astronaut Costume Toy isn’t just a fun outfit"
+title: 'Outdoor Astronaut Costume Toy: Ultimate Space Play Adventure Guide'
+description: Imagine your child stepping into the shoes of an astronaut, exploring
+  the stars right in your backyard. An Outdoor Astronaut Costume Toy isn’t just a
+  fun outfit
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-astronaut-costume-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-astronaut-costume-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child stepping into the shoes of an astronaut, exploring the stars right in your backyard. An Outdoor Astronaut Costume Toy isn’t just a fun outfit—it’s a ticket to endless adventure and creativity.**

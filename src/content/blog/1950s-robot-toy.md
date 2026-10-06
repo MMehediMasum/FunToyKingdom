@@ -1,10 +1,14 @@
 ---
-title: "1950S Robot Toy: Classic Retro Wind-Up Collectible for Nostalgic Fans"
-description: "The 1950s robot toy brings back memories of a fun, simpler time. These wind-up robots blend retro charm with classic design. Vintage robot toys from the 1950s r"
+title: '1950S Robot Toy: Classic Retro Wind-Up Collectible for Nostalgic Fans'
+description: The 1950s robot toy brings back memories of a fun, simpler time. These
+  wind-up robots blend retro charm with classic design. Vintage robot toys from the
+  1950s r
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1950s-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=1950s-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The 1950s robot toy brings back memories of a fun, simpler time. These wind-up robots blend retro charm with classic design.**

@@ -1,10 +1,14 @@
 ---
-title: "Coding Toys for 7 Year Olds: Top STEM Robot Kits for Creative Learning"
-description: "Introducing young minds to coding at an early age can spark creativity and problem-solving skills. Coding toys for 7-year-olds offer a fun and educational way t"
+title: 'Coding Toys for 7 Year Olds: Top STEM Robot Kits for Creative Learning'
+description: Introducing young minds to coding at an early age can spark creativity
+  and problem-solving skills. Coding toys for 7-year-olds offer a fun and educational
+  way t
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toys-for-7-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toys-for-7-year-olds&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Introducing young minds to coding at an early age can spark creativity and problem-solving skills. Coding toys for 7-year-olds offer a fun and educational way to explore this.**

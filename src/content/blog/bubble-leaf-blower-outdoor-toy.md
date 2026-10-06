@@ -1,10 +1,14 @@
 ---
-title: "Bubble Leaf Blower Outdoor Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine your child’s laughter filling the air as colorful bubbles float all around. The Bubble Leaf Blower Outdoor Toy is not just a toy; it’s a gateway to endl"
+title: 'Bubble Leaf Blower Outdoor Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine your child’s laughter filling the air as colorful bubbles float
+  all around. The Bubble Leaf Blower Outdoor Toy is not just a toy; it’s a gateway
+  to endl
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=bubble-leaf-blower-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=bubble-leaf-blower-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s laughter filling the air as colorful bubbles float all around. The Bubble Leaf Blower Outdoor Toy is not just a toy; it’s a gateway to endless fun and fresh air.**

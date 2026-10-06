@@ -1,10 +1,13 @@
 ---
-title: "Handmade Toy Lunch Bag: Unique, Durable, and Kid-Friendly Choices"
-description: "Looking for a lunch bag that’s as unique as you are? A handmade toy lunch bag isn’t just a way to carry your meals—it’s a fun, creative statement that brightens"
+title: 'Handmade Toy Lunch Bag: Unique, Durable, and Kid-Friendly Choices'
+description: Looking for a lunch bag that’s as unique as you are? A handmade toy lunch
+  bag isn’t just a way to carry your meals—it’s a fun, creative statement that brightens
 pubDate: 2026-07-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-lunch-bag&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Crowns
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-lunch-bag&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a lunch bag that’s as unique as you are? A handmade toy lunch bag isn’t just a way to carry your meals—it’s a fun, creative statement that brightens your day.**

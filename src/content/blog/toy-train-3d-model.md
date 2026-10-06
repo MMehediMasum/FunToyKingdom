@@ -1,10 +1,14 @@
 ---
-title: "Toy Train 3D Model: Build, Paint, and Enjoy Unique Wooden Puzzles"
-description: "Toy train 3D models offer a fun way to build detailed wooden or metal trains at home. These kits suit both kids and adults who enjoy hands-on projects. A toy tr"
+title: 'Toy Train 3D Model: Build, Paint, and Enjoy Unique Wooden Puzzles'
+description: Toy train 3D models offer a fun way to build detailed wooden or metal
+  trains at home. These kits suit both kids and adults who enjoy hands-on projects.
+  A toy tr
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-train-3d-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-train-3d-model&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy train 3D models offer a fun way to build detailed wooden or metal trains at home. These kits suit both kids and adults who enjoy hands-on projects.**

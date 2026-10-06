@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Toy Robot Action Figure: Ultimate DIY Guide"
-description: "Have you ever wanted to create your own toy robot action figure? Imagine holding a cool robot you built with your own hands—something unique that no one else ha"
+title: 'How to Build a Toy Robot Action Figure: Ultimate DIY Guide'
+description: Have you ever wanted to create your own toy robot action figure? Imagine
+  holding a cool robot you built with your own hands—something unique that no one
+  else ha
 pubDate: 2025-09-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-toy-robot-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-toy-robot-action-figure&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to create your own toy robot action figure? Imagine holding a cool robot you built with your own hands—something unique that no one else has.**

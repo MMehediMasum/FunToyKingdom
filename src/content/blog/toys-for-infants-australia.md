@@ -1,10 +1,14 @@
 ---
-title: "Toys for Infants Australia: Soft, Safe, and Sensory Baby Must-Haves"
-description: "Choosing the right toys for infants in Australia helps support early growth and keeps babies happily engaged. Soft, safe, and sensory-rich toys suit newborns an"
+title: 'Toys for Infants Australia: Soft, Safe, and Sensory Baby Must-Haves'
+description: Choosing the right toys for infants in Australia helps support early
+  growth and keeps babies happily engaged. Soft, safe, and sensory-rich toys suit
+  newborns an
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-infants-australia&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-infants-australia&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for infants in Australia helps support early growth and keeps babies happily engaged. Soft, safe, and sensory-rich toys suit newborns and toddlers perfectly.**

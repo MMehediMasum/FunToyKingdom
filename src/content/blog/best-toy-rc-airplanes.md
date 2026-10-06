@@ -1,10 +1,14 @@
 ---
-title: "Best Toy Rc Airplanes: Top Picks for Ultimate Flying Fun"
-description: "Are you ready to take your fun to new heights? Finding the best toy RC airplane can turn any ordinary day into an exciting adventure. Whether you’re a beginner "
+title: 'Best Toy Rc Airplanes: Top Picks for Ultimate Flying Fun'
+description: 'Are you ready to take your fun to new heights? Finding the best toy
+  RC airplane can turn any ordinary day into an exciting adventure. Whether you’re
+  a beginner '
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toy-rc-airplanes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-toy-rc-airplanes&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your fun to new heights? Finding the best toy RC airplane can turn any ordinary day into an exciting adventure.**

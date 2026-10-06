@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Satellite: Creative Fun for Kids & Adults"
-description: "Have you ever wanted to bring space exploration right into your home? Imagine creating your very own satellite toy using simple cardboard. This handmade cardboa"
+title: 'Handmade Cardboard Toy Satellite: Creative Fun for Kids & Adults'
+description: Have you ever wanted to bring space exploration right into your home?
+  Imagine creating your very own satellite toy using simple cardboard. This handmade
+  cardboa
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-satellite&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-satellite&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to bring space exploration right into your home? Imagine creating your very own satellite toy using simple cardboard.**

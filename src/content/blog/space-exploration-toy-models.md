@@ -1,10 +1,14 @@
 ---
-title: "Space Exploration Toy Models: Ultimate Guide to Collecting & Fun"
-description: "Have you ever dreamed of touching the stars or piloting a spaceship? Space exploration toy models can bring that excitement right into your hands. These models "
+title: 'Space Exploration Toy Models: Ultimate Guide to Collecting & Fun'
+description: 'Have you ever dreamed of touching the stars or piloting a spaceship?
+  Space exploration toy models can bring that excitement right into your hands. These
+  models '
 pubDate: 2026-05-27
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=space-exploration-toy-models&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=space-exploration-toy-models&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever dreamed of touching the stars or piloting a spaceship? Space exploration toy models can bring that excitement right into your hands.**

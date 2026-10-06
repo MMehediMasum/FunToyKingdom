@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat for River Use: Top Picks for Ultimate River Adventures"
-description: "Are you ready to add some excitement to your time by the river? An RC boat for river use can bring hours of fun right to your fingertips. Whether you’re a begin"
+title: 'Rc Boat for River Use: Top Picks for Ultimate River Adventures'
+description: Are you ready to add some excitement to your time by the river? An RC
+  boat for river use can bring hours of fun right to your fingertips. Whether you’re
+  a begin
 pubDate: 2025-09-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-for-river-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-for-river-use&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to add some excitement to your time by the river? An RC boat for river use can bring hours of fun right to your fingertips.**

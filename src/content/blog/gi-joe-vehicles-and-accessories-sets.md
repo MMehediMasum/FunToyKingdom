@@ -1,10 +1,14 @@
 ---
-title: "Gi Joe Vehicles And Accessories Sets: Ultimate Collectors' Guide"
-description: "Are you ready to take your G.I. Joe collection to the next level? G. I. Joe Vehicles and Accessories Sets bring the action right to your fingertips. Imagine the"
+title: 'Gi Joe Vehicles And Accessories Sets: Ultimate Collectors'' Guide'
+description: Are you ready to take your G.I. Joe collection to the next level? G.
+  I. Joe Vehicles and Accessories Sets bring the action right to your fingertips.
+  Imagine the
 pubDate: 2025-09-02
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=gi-joe-vehicles-and-accessories-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=gi-joe-vehicles-and-accessories-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to take your G.I. Joe collection to the next level?**

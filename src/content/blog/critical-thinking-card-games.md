@@ -1,10 +1,14 @@
 ---
-title: "Critical Thinking Card Games: Boost Brainpower with Fun Challenges"
-description: "Do you want to boost your mind while having fun? Critical thinking card games are the perfect way to challenge your brain and sharpen your decision-making skill"
+title: 'Critical Thinking Card Games: Boost Brainpower with Fun Challenges'
+description: Do you want to boost your mind while having fun? Critical thinking card
+  games are the perfect way to challenge your brain and sharpen your decision-making
+  skill
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=critical-thinking-card-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=critical-thinking-card-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Do you want to boost your mind while having fun? Critical thinking card games are the perfect way to challenge your brain and sharpen your decision-making skills.**

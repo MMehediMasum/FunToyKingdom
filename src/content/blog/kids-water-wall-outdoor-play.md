@@ -1,10 +1,14 @@
 ---
-title: "Kids Water Wall Outdoor Play: Ultimate Fun for Active Learning"
-description: "Are you looking for a fun and creative way to keep your kids entertained outdoors? A kids water wall outdoor play setup might be just what you need. Imagine you"
+title: 'Kids Water Wall Outdoor Play: Ultimate Fun for Active Learning'
+description: Are you looking for a fun and creative way to keep your kids entertained
+  outdoors? A kids water wall outdoor play setup might be just what you need. Imagine
+  you
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-water-wall-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=kids-water-wall-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and creative way to keep your kids entertained outdoors? A kids water wall outdoor play setup might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Bath Toys for 2 Year Olds: Top Picks for Fun & Safe Play"
-description: "Bath time becomes fun and safe with the best bath toys for 2 year olds. These toys help toddlers enjoy water play while developing skills. Choosing the right ba"
+title: 'Best Bath Toys for 2 Year Olds: Top Picks for Fun & Safe Play'
+description: Bath time becomes fun and safe with the best bath toys for 2 year olds.
+  These toys help toddlers enjoy water play while developing skills. Choosing the
+  right ba
 pubDate: 2025-11-03
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bath-toys-for-2-year-olds-top-picks-for-fun-safe-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-bath-toys-for-2-year-olds-top-picks-for-fun-safe-play&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Bath time becomes fun and safe with the best bath toys for 2 year olds. These toys help toddlers enjoy water play while developing skills.**

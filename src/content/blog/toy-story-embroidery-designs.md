@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Embroidery Designs: Creative Patterns for Kids’ Craft Projects"
 description: "Toy Story embroidery designs bring your favorite characters to life on fabric. These patterns suit kids’ crafts and sewing projects alike. Toy Story fans enjoy "
 pubDate: 2026-03-06

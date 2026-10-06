@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Bedroom Set Ideas to Transform Your Child’s Playroom"
-description: "A Toy Story bedroom set brings fun and comfort to any child’s room. It creates a playful space inspired by favorite characters like Woody and Buzz Lightyear. Th"
+title: Toy Story Bedroom Set Ideas to Transform Your Child’s Playroom
+description: A Toy Story bedroom set brings fun and comfort to any child’s room. It
+  creates a playful space inspired by favorite characters like Woody and Buzz Lightyear.
+  Th
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-bedroom-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-bedroom-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **A Toy Story bedroom set brings fun and comfort to any child’s room. It creates a playful space inspired by favorite characters like Woody and Buzz Lightyear.**

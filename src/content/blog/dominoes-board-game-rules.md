@@ -1,10 +1,14 @@
 ---
-title: "Dominoes Board Game Rules: Master the Game Quickly and Easily"
-description: "Are you ready to dive into a game that’s simple to learn but full of fun and strategy? Dominoes is more than just matching tiles—it’s a game that challenges you"
+title: 'Dominoes Board Game Rules: Master the Game Quickly and Easily'
+description: Are you ready to dive into a game that’s simple to learn but full of
+  fun and strategy? Dominoes is more than just matching tiles—it’s a game that challenges
+  you
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=dominoes-board-game-rules&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=dominoes-board-game-rules&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to dive into a game that’s simple to learn but full of fun and strategy? Dominoes is more than just matching tiles—it’s a game that challenges your thinking and sharpens your skills.**

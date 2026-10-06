@@ -1,10 +1,14 @@
 ---
-title: "Lego Toy Story 3 Sets: Ultimate Building Fun for Kids and Collectors"
-description: "Lego Toy Story 3 sets bring the magic of Pixar's beloved film to life in brick form. These sets offer fun, creativity, and endless play for young builders. Lego"
+title: 'Lego Toy Story 3 Sets: Ultimate Building Fun for Kids and Collectors'
+description: Lego Toy Story 3 sets bring the magic of Pixar's beloved film to life
+  in brick form. These sets offer fun, creativity, and endless play for young builders.
+  Lego
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-toy-story-3-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- How Much Money Do You
+heroImage: https://tse1.mm.bing.net/th?q=lego-toy-story-3-sets&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Lego Toy Story 3 sets bring the magic of Pixar's beloved film to life in brick form. These sets offer fun, creativity, and endless play for young builders.**

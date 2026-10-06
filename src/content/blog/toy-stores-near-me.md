@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Stores Near Me: Top Kids Ride-On & Sensory Toys for Fun"
 description: "Finding toy stores near me helps parents and kids discover fun and safe playthings nearby. Local shops offer a variety of toys for different ages and interests."
 pubDate: 2026-02-10

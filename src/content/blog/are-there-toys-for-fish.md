@@ -1,10 +1,14 @@
 ---
-title: "Are There Toys for Fish: Fun Ideas to Keep Your Aquarium Active"
-description: "Have you ever wondered if your fish get bored swimming around the same tank every day? Just like you, fish need stimulation to stay happy and healthy. You might"
+title: 'Are There Toys for Fish: Fun Ideas to Keep Your Aquarium Active'
+description: Have you ever wondered if your fish get bored swimming around the same
+  tank every day? Just like you, fish need stimulation to stay happy and healthy.
+  You might
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-there-toys-for-fish&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=are-there-toys-for-fish&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered if your fish get bored swimming around the same tank every day? Just like you, fish need stimulation to stay happy and healthy.**

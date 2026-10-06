@@ -1,10 +1,14 @@
 ---
-title: "Ufc Toy Ring: Ultimate Wrestling Playset for Kids’ Action Figure Battles"
-description: "UFC toy rings bring the thrill of mixed martial arts to playtime. These sets offer realistic rings and action figures for kids and collectors alike. Playing wit"
+title: 'Ufc Toy Ring: Ultimate Wrestling Playset for Kids’ Action Figure Battles'
+description: UFC toy rings bring the thrill of mixed martial arts to playtime. These
+  sets offer realistic rings and action figures for kids and collectors alike. Playing
+  wit
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ufc-toy-ring&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=ufc-toy-ring&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **UFC toy rings bring the thrill of mixed martial arts to playtime. These sets offer realistic rings and action figures for kids and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Toys for Long Car Trips: Top Travel Activities to Keep Kids Entertained"
-description: "Long car trips with kids can be challenging. Keeping them entertained is crucial for a peaceful journey. Choosing the right toys can make the difference between"
+title: 'Toys for Long Car Trips: Top Travel Activities to Keep Kids Entertained'
+description: Long car trips with kids can be challenging. Keeping them entertained
+  is crucial for a peaceful journey. Choosing the right toys can make the difference
+  between
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-long-car-trips&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-long-car-trips&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Long car trips with kids can be challenging. Keeping them entertained is crucial for a peaceful journey.**

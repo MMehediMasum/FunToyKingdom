@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Helicopter: Easy Step-by-Step Guide for Kids"
-description: "Are you ready to create something fun and special with your own hands? Building a DIY wooden toy helicopter is a perfect way to do just that. Not only will you "
+title: 'Diy Wooden Toy Helicopter: Easy Step-by-Step Guide for Kids'
+description: 'Are you ready to create something fun and special with your own hands?
+  Building a DIY wooden toy helicopter is a perfect way to do just that. Not only
+  will you '
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-helicopter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-helicopter&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something fun and special with your own hands? Building a DIY wooden toy helicopter is a perfect way to do just that.**

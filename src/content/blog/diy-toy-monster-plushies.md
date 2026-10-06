@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Monster Plushies: Create Adorable, Fun Handmade Friends"
-description: "Are you ready to bring some fun and creativity into your home? Making your own DIY toy monster plushies is easier than you think—and it’s a perfect way to turn "
+title: 'Diy Toy Monster Plushies: Create Adorable, Fun Handmade Friends'
+description: 'Are you ready to bring some fun and creativity into your home? Making
+  your own DIY toy monster plushies is easier than you think—and it’s a perfect way
+  to turn '
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-monster-plushies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-monster-plushies&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to bring some fun and creativity into your home? Making your own DIY toy monster plushies is easier than you think—and it’s a perfect way to turn your ideas into cuddly, one-of-a-kind friends.**

@@ -1,10 +1,14 @@
 ---
-title: "Tire Swing for Kids Outdoor: Ultimate Fun & Safety Guide"
-description: "Looking for a fun and simple way to bring endless joy to your kids’ outdoor playtime? A tire swing for kids outdoor is a perfect choice. It’s not just a swing; "
+title: 'Tire Swing for Kids Outdoor: Ultimate Fun & Safety Guide'
+description: 'Looking for a fun and simple way to bring endless joy to your kids’
+  outdoor playtime? A tire swing for kids outdoor is a perfect choice. It’s not just
+  a swing; '
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tire-swing-for-kids-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=tire-swing-for-kids-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and simple way to bring endless joy to your kids’ outdoor playtime? A tire swing for kids outdoor is a perfect choice.**

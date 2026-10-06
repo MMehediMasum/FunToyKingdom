@@ -1,10 +1,13 @@
 ---
-title: "Cat Diecast Construction Toys: Durable Mini Vehicles Kids Love to Collect"
-description: "Cat diecast construction toys offer a miniature world of heavy machinery for kids and collectors alike. These models replicate real-life construction equipment "
+title: 'Cat Diecast Construction Toys: Durable Mini Vehicles Kids Love to Collect'
+description: 'Cat diecast construction toys offer a miniature world of heavy machinery
+  for kids and collectors alike. These models replicate real-life construction equipment '
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-diecast-construction-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=cat-diecast-construction-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Cat diecast construction toys offer a miniature world of heavy machinery for kids and collectors alike. These models replicate real-life construction equipment with impressive detail and durability.**

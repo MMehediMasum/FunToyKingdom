@@ -1,10 +1,14 @@
 ---
-title: "Walking Dead Action Figure Collection: Ultimate Guide & Top Picks"
-description: "Are you a fan of The Walking Dead? Imagine having your favorite characters right at your fingertips, ready to bring your collection to life. A Walking Dead acti"
+title: 'Walking Dead Action Figure Collection: Ultimate Guide & Top Picks'
+description: Are you a fan of The Walking Dead? Imagine having your favorite characters
+  right at your fingertips, ready to bring your collection to life. A Walking Dead
+  acti
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=walking-dead-action-figure-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=walking-dead-action-figure-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of The Walking Dead? Imagine having your favorite characters right at your fingertips, ready to bring your collection to life.**

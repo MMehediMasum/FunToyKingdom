@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Marching Nutcracker Dolls: Ultimate Holiday Collectibles Guide"
-description: "Imagine bringing a timeless holiday tradition right into your home with Toy Soldier Marching Nutcracker Dolls. These charming figures don’t just decorate your s"
+title: 'Toy Soldier Marching Nutcracker Dolls: Ultimate Holiday Collectibles Guide'
+description: Imagine bringing a timeless holiday tradition right into your home with
+  Toy Soldier Marching Nutcracker Dolls. These charming figures don’t just decorate
+  your s
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-marching-nutcracker-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Old Princess Dolls
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-marching-nutcracker-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine bringing a timeless holiday tradition right into your home with Toy Soldier Marching Nutcracker Dolls. These charming figures don’t just decorate your space—they add a magical touch that captures the spirit of the season.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Electronic Toy Gifts for Kids: Top Picks for 2025 Fun"
-description: "Looking for the best electronic toy gifts for kids? You want something fun, safe, and that sparks their creativity. Choosing the right toy can be tricky with so"
+title: 'Best Electronic Toy Gifts for Kids: Top Picks for 2025 Fun'
+description: Looking for the best electronic toy gifts for kids? You want something
+  fun, safe, and that sparks their creativity. Choosing the right toy can be tricky
+  with so
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electronic-toy-gifts-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=best-electronic-toy-gifts-for-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for the best electronic toy gifts for kids? You want something fun, safe, and that sparks their creativity.**

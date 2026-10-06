@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Oyster Farm Toy Kids: Exciting Educational Playset Fun"
-description: "Looking for a fun and educational toy that gets your kids excited about nature? The Outdoor Oyster Farm Toy is just what you need. It’s more than a toy—it’s a h"
+title: 'Outdoor Oyster Farm Toy Kids: Exciting Educational Playset Fun'
+description: Looking for a fun and educational toy that gets your kids excited about
+  nature? The Outdoor Oyster Farm Toy is just what you need. It’s more than a toy—it’s
+  a h
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-oyster-farm-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-oyster-farm-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and educational toy that gets your kids excited about nature? The Outdoor Oyster Farm Toy is just what you need.**

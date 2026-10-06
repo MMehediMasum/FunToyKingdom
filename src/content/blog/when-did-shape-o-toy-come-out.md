@@ -1,10 +1,13 @@
 ---
-title: "When Did Shape-O Toy Come Out: Discover Its Fascinating History"
-description: "Have you ever wondered when the Shape-O toy first made its way into your hands or your childhood memories? This simple yet captivating toy has sparked curiosity"
+title: 'When Did Shape-O Toy Come Out: Discover Its Fascinating History'
+description: Have you ever wondered when the Shape-O toy first made its way into your
+  hands or your childhood memories? This simple yet captivating toy has sparked curiosity
 pubDate: 2026-09-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-did-shape-o-toy-come-out&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=when-did-shape-o-toy-come-out&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered when the Shape-O toy first made its way into your hands or your childhood memories? This simple yet captivating toy has sparked curiosity and joy for years, but do you know exactly when it came out?**

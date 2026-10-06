@@ -1,10 +1,14 @@
 ---
-title: "Dollhouse Furniture Diy Tutorials: Easy Steps for Stunning Miniatures"
-description: "Are you ready to bring your dollhouse to life with beautiful, custom furniture that you made yourself? Creating your own dollhouse furniture is not only fun but"
+title: 'Dollhouse Furniture Diy Tutorials: Easy Steps for Stunning Miniatures'
+description: Are you ready to bring your dollhouse to life with beautiful, custom
+  furniture that you made yourself? Creating your own dollhouse furniture is not only
+  fun but
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=dollhouse-furniture-diy-tutorials&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouses For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=dollhouse-furniture-diy-tutorials&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring your dollhouse to life with beautiful, custom furniture that you made yourself? Creating your own dollhouse furniture is not only fun but also a fantastic way to add a personal touch to every tiny room.**

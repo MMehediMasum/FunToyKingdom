@@ -1,10 +1,14 @@
 ---
-title: "Best Fidget Toys for Skin Picking: Top Stress Relief Picks"
-description: "Skin picking can cause discomfort and stress. Using the right fidget toys helps reduce these urges effectively. Many people struggle with skin picking, also cal"
+title: 'Best Fidget Toys for Skin Picking: Top Stress Relief Picks'
+description: Skin picking can cause discomfort and stress. Using the right fidget
+  toys helps reduce these urges effectively. Many people struggle with skin picking,
+  also cal
 pubDate: 2025-12-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fidget-toys-for-skin-picking-top-stress-relief-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Fidget Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=best-fidget-toys-for-skin-picking-top-stress-relief-picks&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Skin picking can cause discomfort and stress. Using the right fidget toys helps reduce these urges effectively.**

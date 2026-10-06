@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Old Princess Dolls: Expert Tips for Safe Restoration"
-description: "Do you have an old princess doll that holds a special place in your heart but looks a little dusty and worn? Cleaning these delicate dolls can feel tricky, and "
+title: 'How to Clean Old Princess Dolls: Expert Tips for Safe Restoration'
+description: 'Do you have an old princess doll that holds a special place in your
+  heart but looks a little dusty and worn? Cleaning these delicate dolls can feel
+  tricky, and '
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-old-princess-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Old Princess Dolls
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-old-princess-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Do you have an old princess doll that holds a special place in your heart but looks a little dusty and worn? Cleaning these delicate dolls can feel tricky, and you might worry about damaging them.**

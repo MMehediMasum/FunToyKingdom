@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Furniture Plans: Easy Step-by-Step Guide for Beginners"
-description: "Are you looking for a fun and rewarding way to create something special for your little ones? DIY wooden toy furniture plans are just what you need. Imagine bui"
+title: 'Diy Wooden Toy Furniture Plans: Easy Step-by-Step Guide for Beginners'
+description: Are you looking for a fun and rewarding way to create something special
+  for your little ones? DIY wooden toy furniture plans are just what you need. Imagine
+  bui
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-furniture-plans&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-furniture-plans&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and rewarding way to create something special for your little ones? DIY wooden toy furniture plans are just what you need.**

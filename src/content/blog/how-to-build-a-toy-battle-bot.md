@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Toy Battle Bot: Ultimate DIY Guide for Kids"
-description: "Are you ready to bring your creativity to life and build something that’s fun, exciting, and full of action? Imagine controlling your very own toy battle bot, w"
+title: 'How to Build a Toy Battle Bot: Ultimate DIY Guide for Kids'
+description: Are you ready to bring your creativity to life and build something that’s
+  fun, exciting, and full of action? Imagine controlling your very own toy battle
+  bot, w
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-toy-battle-bot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-toy-battle-bot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to bring your creativity to life and build something that’s fun, exciting, and full of action? Imagine controlling your very own toy battle bot, watching it clash and conquer.**

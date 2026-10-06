@@ -1,10 +1,14 @@
 ---
-title: "Rc Crawler Truck for Rocky Terrain: Ultimate Off-Road Adventure Guide"
-description: "Are you ready to take your RC adventures to the next level? If you love challenging rocky landscapes and want an RC crawler truck that can handle every twist an"
+title: 'Rc Crawler Truck for Rocky Terrain: Ultimate Off-Road Adventure Guide'
+description: Are you ready to take your RC adventures to the next level? If you love
+  challenging rocky landscapes and want an RC crawler truck that can handle every
+  twist an
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-crawler-truck-for-rocky-terrain&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-crawler-truck-for-rocky-terrain&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC adventures to the next level? If you love challenging rocky landscapes and want an RC crawler truck that can handle every twist and turn, you’ve come to the right place.**

@@ -1,10 +1,14 @@
 ---
-title: "Vector Mini Robot Toy: Interactive Programmable Robot for Kids’ Fun and Learning"
-description: "The Vector Mini Robot Toy offers fun and learning in one small package. It moves, talks, and interacts with users of all ages. This compact robot stands about 1"
+title: 'Vector Mini Robot Toy: Interactive Programmable Robot for Kids’ Fun and Learning'
+description: The Vector Mini Robot Toy offers fun and learning in one small package.
+  It moves, talks, and interacts with users of all ages. This compact robot stands
+  about 1
 pubDate: 2026-08-24
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vector-mini-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=vector-mini-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Vector Mini Robot Toy offers fun and learning in one small package. It moves, talks, and interacts with users of all ages.**

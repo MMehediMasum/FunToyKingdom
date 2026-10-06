@@ -1,10 +1,14 @@
 ---
-title: "Musical Mobile Toys for Cribs: Soothing Sounds to Soothe Baby"
-description: "Are you looking for a way to keep your baby calm and entertained right in their crib? Musical mobile toys for cribs could be exactly what you need. These little"
+title: 'Musical Mobile Toys for Cribs: Soothing Sounds to Soothe Baby'
+description: Are you looking for a way to keep your baby calm and entertained right
+  in their crib? Musical mobile toys for cribs could be exactly what you need. These
+  little
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=musical-mobile-toys-for-cribs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=musical-mobile-toys-for-cribs&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a way to keep your baby calm and entertained right in their crib? Musical mobile toys for cribs could be exactly what you need.**

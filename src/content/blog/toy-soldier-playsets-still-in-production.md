@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Playsets Still in Production: Timeless Classics Unveiled"
-description: "Are you wondering if toy soldier playsets are still being made today? You might think they belong only to the past, but the truth will surprise you. These class"
+title: 'Toy Soldier Playsets Still in Production: Timeless Classics Unveiled'
+description: Are you wondering if toy soldier playsets are still being made today?
+  You might think they belong only to the past, but the truth will surprise you. These
+  class
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-playsets-still-in-production&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-playsets-still-in-production&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you wondering if toy soldier playsets are still being made today? You might think they belong only to the past, but the truth will surprise you.**

@@ -1,10 +1,14 @@
 ---
-title: "Transformers Robots in Disguise Toys: Ultimate Action Figures for Fans"
-description: "The \"Transformers Robots in Disguise 2001\" toys capture the magic of a beloved series. These figures bring iconic characters to life. Fans of all ages cherish t"
+title: 'Transformers Robots in Disguise Toys: Ultimate Action Figures for Fans'
+description: The "Transformers Robots in Disguise 2001" toys capture the magic of
+  a beloved series. These figures bring iconic characters to life. Fans of all ages
+  cherish t
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-2001-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=transformers-robots-in-disguise-2001-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The "Transformers Robots in Disguise 2001" toys capture the magic of a beloved series. These figures bring iconic characters to life.**

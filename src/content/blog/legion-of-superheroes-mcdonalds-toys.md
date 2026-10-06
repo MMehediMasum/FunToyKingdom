@@ -1,10 +1,14 @@
 ---
-title: "Legion of Superheroes Mcdonalds Toys: Lightning Lad Action Figure Review"
-description: "Legion of Superheroes McDonald’s toys bring fun to collectors and fans alike. The Lightning Lad action figure stands out as a popular choice. These toys capture"
+title: 'Legion of Superheroes Mcdonalds Toys: Lightning Lad Action Figure Review'
+description: Legion of Superheroes McDonald’s toys bring fun to collectors and fans
+  alike. The Lightning Lad action figure stands out as a popular choice. These toys
+  capture
 pubDate: 2026-02-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=legion-of-superheroes-mcdonalds-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=legion-of-superheroes-mcdonalds-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Legion of Superheroes McDonald’s toys bring fun to collectors and fans alike. The Lightning Lad action figure stands out as a popular choice.**

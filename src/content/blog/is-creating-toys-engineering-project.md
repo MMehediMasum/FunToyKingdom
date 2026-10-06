@@ -1,10 +1,14 @@
 ---
-title: "Is Creating Toys Engineering Project: Unlock Creativity & Innovation"
-description: "Have you ever wondered if making toys can actually be an engineering project? You might think toys are just for fun, but creating them involves much more than m"
+title: 'Is Creating Toys Engineering Project: Unlock Creativity & Innovation'
+description: Have you ever wondered if making toys can actually be an engineering
+  project? You might think toys are just for fun, but creating them involves much
+  more than m
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-creating-toys-engineering-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=is-creating-toys-engineering-project&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered if making toys can actually be an engineering project? You might think toys are just for fun, but creating them involves much more than meets the eye.**

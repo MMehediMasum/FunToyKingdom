@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone Compatible With Android: Top Picks for Ultimate Control"
-description: "Are you ready to take your drone flying experience to the next level? Imagine controlling your RC drone right from your Android phone, giving you total freedom "
+title: 'Rc Drone Compatible With Android: Top Picks for Ultimate Control'
+description: 'Are you ready to take your drone flying experience to the next level?
+  Imagine controlling your RC drone right from your Android phone, giving you total
+  freedom '
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-compatible-with-android&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-compatible-with-android&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your drone flying experience to the next level? Imagine controlling your RC drone right from your Android phone, giving you total freedom and convenience.**

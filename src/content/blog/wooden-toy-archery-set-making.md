@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Archery Set Making: Craft Stunning DIY Bow & Arrow"
-description: "Are you ready to create something fun and unique with your own hands? Making a wooden toy archery set is a perfect way to combine creativity, skill, and a bit o"
+title: 'Wooden Toy Archery Set Making: Craft Stunning DIY Bow & Arrow'
+description: Are you ready to create something fun and unique with your own hands?
+  Making a wooden toy archery set is a perfect way to combine creativity, skill, and
+  a bit o
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-archery-set-making&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-archery-set-making&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something fun and unique with your own hands? Making a wooden toy archery set is a perfect way to combine creativity, skill, and a bit of adventure.**

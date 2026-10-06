@@ -1,10 +1,14 @@
 ---
-title: "How to Host a Family Board Game Night: Fun Tips for Lasting Memories"
-description: "Are you ready to create unforgettable memories with your loved ones? Hosting a family board game night is the perfect way to bring everyone together, laugh out "
+title: 'How to Host a Family Board Game Night: Fun Tips for Lasting Memories'
+description: 'Are you ready to create unforgettable memories with your loved ones?
+  Hosting a family board game night is the perfect way to bring everyone together,
+  laugh out '
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-host-a-family-board-game-night&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=how-to-host-a-family-board-game-night&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to create unforgettable memories with your loved ones? Hosting a family board game night is the perfect way to bring everyone together, laugh out loud, and enjoy quality time without distractions.**

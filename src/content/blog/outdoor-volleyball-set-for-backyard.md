@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Volleyball Set for Backyard: Ultimate Fun & Fitness Guide"
-description: "Imagine turning your backyard into the ultimate fun zone where you and your friends can enjoy hours of excitement and exercise. An outdoor volleyball set for yo"
+title: 'Outdoor Volleyball Set for Backyard: Ultimate Fun & Fitness Guide'
+description: Imagine turning your backyard into the ultimate fun zone where you and
+  your friends can enjoy hours of excitement and exercise. An outdoor volleyball set
+  for yo
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-volleyball-set-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-volleyball-set-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where you and your friends can enjoy hours of excitement and exercise. An outdoor volleyball set for your backyard is the perfect way to bring everyone together for friendly competition and unforgettable memories.**

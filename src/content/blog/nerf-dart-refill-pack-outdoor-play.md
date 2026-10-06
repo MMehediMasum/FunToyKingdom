@@ -1,10 +1,14 @@
 ---
-title: "Nerf Dart Refill Pack Outdoor Play: Ultimate Fun Boosters"
-description: "Are you ready to take your Nerf battles to the next level? Having enough darts on hand can make all the difference between a quick game and hours of nonstop fun"
+title: 'Nerf Dart Refill Pack Outdoor Play: Ultimate Fun Boosters'
+description: Are you ready to take your Nerf battles to the next level? Having enough
+  darts on hand can make all the difference between a quick game and hours of nonstop
+  fun
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nerf-dart-refill-pack-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=nerf-dart-refill-pack-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your Nerf battles to the next level? Having enough darts on hand can make all the difference between a quick game and hours of nonstop fun.**

@@ -1,10 +1,13 @@
 ---
-title: "Toy Golf Set: Best Retractable Clubs and Indoor Outdoor Fun for Kids"
-description: "A toy golf set offers fun and learning for young children. It helps develop hand-eye coordination and encourages outdoor play. Toy golf sets come in many styles"
+title: 'Toy Golf Set: Best Retractable Clubs and Indoor Outdoor Fun for Kids'
+description: A toy golf set offers fun and learning for young children. It helps develop
+  hand-eye coordination and encourages outdoor play. Toy golf sets come in many styles
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-golf-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=toy-golf-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **A toy golf set offers fun and learning for young children. It helps develop hand-eye coordination and encourages outdoor play.**

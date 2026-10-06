@@ -1,10 +1,14 @@
 ---
-title: "Toy Race Car Track: Ultimate Flexible Racing Set for Kids’ Fun"
-description: "Toy race car tracks are a timeless source of fun and excitement for children. These tracks come in various shapes and designs, catering to different age groups "
+title: 'Toy Race Car Track: Ultimate Flexible Racing Set for Kids’ Fun'
+description: 'Toy race car tracks are a timeless source of fun and excitement for
+  children. These tracks come in various shapes and designs, catering to different
+  age groups '
 pubDate: 2026-03-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-race-car-track&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-race-car-track&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toy race car tracks are a timeless source of fun and excitement for children. These tracks come in various shapes and designs, catering to different age groups and interests.**

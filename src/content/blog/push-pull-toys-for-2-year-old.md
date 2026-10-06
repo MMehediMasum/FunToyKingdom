@@ -1,10 +1,14 @@
 ---
-title: "Push Pull Toys for 2 Year Old: Top Picks for Fun & Learning"
-description: "Are you looking for the perfect push pull toy for your energetic 2-year-old? Choosing the right toy can make a big difference in your child’s development and da"
+title: 'Push Pull Toys for 2 Year Old: Top Picks for Fun & Learning'
+description: Are you looking for the perfect push pull toy for your energetic 2-year-old?
+  Choosing the right toy can make a big difference in your child’s development and
+  da
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=push-pull-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=push-pull-toys-for-2-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect push pull toy for your energetic 2-year-old? Choosing the right toy can make a big difference in your child’s development and daily fun.**

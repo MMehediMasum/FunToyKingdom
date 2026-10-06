@@ -1,10 +1,14 @@
 ---
-title: "Toy Cars from the 80S: Top Classic Die-Cast Models to Collect Now"
-description: "Toy cars from the 80s hold a special place in many hearts. These miniature vehicles remind us of fun times and classic designs. The 1980s brought unique toy car"
+title: 'Toy Cars from the 80S: Top Classic Die-Cast Models to Collect Now'
+description: Toy cars from the 80s hold a special place in many hearts. These miniature
+  vehicles remind us of fun times and classic designs. The 1980s brought unique toy
+  car
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cars-from-the-80s&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=toy-cars-from-the-80s&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy cars from the 80s hold a special place in many hearts. These miniature vehicles remind us of fun times and classic designs.**

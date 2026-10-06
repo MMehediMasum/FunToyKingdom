@@ -1,10 +1,14 @@
 ---
-title: "Best Board Party Games for Adults to Ignite Fun and Laughter"
-description: "Finding the best board party games for adults can make any gathering more fun and exciting. These games create laughter, connection, and unforgettable moments. "
+title: Best Board Party Games for Adults to Ignite Fun and Laughter
+description: 'Finding the best board party games for adults can make any gathering
+  more fun and exciting. These games create laughter, connection, and unforgettable
+  moments. '
 pubDate: 2025-10-07
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-party-games-for-adults-to-ignite-fun-and-laughter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Party
+heroImage: https://tse1.mm.bing.net/th?q=best-board-party-games-for-adults-to-ignite-fun-and-laughter&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board party games for adults can make any gathering more fun and exciting. These games create laughter, connection, and unforgettable moments.**

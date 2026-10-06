@@ -1,10 +1,14 @@
 ---
-title: "Best Travel Board Games for 2: Portable Fun and Strategy Adventures"
-description: "Traveling with a companion calls for fun, quick board games made for two players. These games keep you entertained anytime, anywhere. Choosing the best travel b"
+title: 'Best Travel Board Games for 2: Portable Fun and Strategy Adventures'
+description: Traveling with a companion calls for fun, quick board games made for
+  two players. These games keep you entertained anytime, anywhere. Choosing the best
+  travel b
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-travel-board-games-for-2-portable-fun-and-strategy-adventures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-travel-board-games-for-2-portable-fun-and-strategy-adventures&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Traveling with a companion calls for fun, quick board games made for two players. These games keep you entertained anytime, anywhere.**

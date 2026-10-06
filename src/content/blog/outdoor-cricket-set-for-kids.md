@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Cricket Set for Kids: Ultimate Fun & Active Play Guide"
-description: "Are you looking for a fun and active way to keep your kids entertained outdoors? An outdoor cricket set for kids could be just what you need. Imagine your child"
+title: 'Outdoor Cricket Set for Kids: Ultimate Fun & Active Play Guide'
+description: Are you looking for a fun and active way to keep your kids entertained
+  outdoors? An outdoor cricket set for kids could be just what you need. Imagine your
+  child
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-cricket-set-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-cricket-set-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and active way to keep your kids entertained outdoors? An outdoor cricket set for kids could be just what you need.**

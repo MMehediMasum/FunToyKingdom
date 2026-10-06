@@ -1,10 +1,14 @@
 ---
-title: "Old Robot Toys: Top Vintage Wind-Up Collectibles for Unique Gifts"
-description: "Old robot toys capture the charm of past decades and bring joy to collectors and kids alike. These vintage wind-up and tin robots offer a glimpse into classic t"
+title: 'Old Robot Toys: Top Vintage Wind-Up Collectibles for Unique Gifts'
+description: Old robot toys capture the charm of past decades and bring joy to collectors
+  and kids alike. These vintage wind-up and tin robots offer a glimpse into classic
+  t
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=old-robot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=old-robot-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Old robot toys capture the charm of past decades and bring joy to collectors and kids alike. These vintage wind-up and tin robots offer a glimpse into classic toy design and simple mechanics.**

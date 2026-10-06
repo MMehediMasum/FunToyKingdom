@@ -1,10 +1,14 @@
 ---
-title: "Harry Potter Toy Figurines Collectibles: Ultimate Guide to Must-Haves"
-description: "Are you a Harry Potter fan looking to bring a bit of magic into your everyday life? Harry Potter toy figurines collectibles are more than just toys—they’re a wa"
+title: 'Harry Potter Toy Figurines Collectibles: Ultimate Guide to Must-Haves'
+description: Are you a Harry Potter fan looking to bring a bit of magic into your
+  everyday life? Harry Potter toy figurines collectibles are more than just toys—they’re
+  a wa
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=harry-potter-toy-figurines-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=harry-potter-toy-figurines-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Harry Potter fan looking to bring a bit of magic into your everyday life? Harry Potter toy figurines collectibles are more than just toys—they’re a way to hold onto your favorite moments from the wizarding world.**

@@ -1,10 +1,14 @@
 ---
-title: "What Does Forky Toy Story Figurine Do: Fun Features Uncovered"
-description: "Have you ever wondered what makes the Forky Toy Story figurine so special? If you’re a fan of Toy Story or looking to add a unique piece to your collection, und"
+title: 'What Does Forky Toy Story Figurine Do: Fun Features Uncovered'
+description: Have you ever wondered what makes the Forky Toy Story figurine so special?
+  If you’re a fan of Toy Story or looking to add a unique piece to your collection,
+  und
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-does-forky-toy-story-figurine-do&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=what-does-forky-toy-story-figurine-do&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered what makes the Forky Toy Story figurine so special? If you’re a fan of Toy Story or looking to add a unique piece to your collection, understanding what Forky does can make all the difference.**

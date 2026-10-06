@@ -1,10 +1,14 @@
 ---
-title: "Magnetic Travel Board Games: Ultimate Fun for On-the-Go Play"
-description: "Imagine having your favorite board games with you wherever you go—no more worrying about lost pieces or bumpy car rides ruining your fun. Magnetic travel board "
+title: 'Magnetic Travel Board Games: Ultimate Fun for On-the-Go Play'
+description: 'Imagine having your favorite board games with you wherever you go—no
+  more worrying about lost pieces or bumpy car rides ruining your fun. Magnetic travel
+  board '
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=magnetic-travel-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=magnetic-travel-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine having your favorite board games with you wherever you go—no more worrying about lost pieces or bumpy car rides ruining your fun. Magnetic travel board games make this possible, keeping every piece firmly in place so you can enjoy game time anytime, anywhere.**

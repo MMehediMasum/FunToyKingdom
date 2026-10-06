@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Resistance Bands for Kids Play: Fun Fitness Essentials"
-description: "Are you looking for a fun and active way to keep your kids moving outdoors? Outdoor resistance bands for kids play might be exactly what you need. These simple "
+title: 'Outdoor Resistance Bands for Kids Play: Fun Fitness Essentials'
+description: 'Are you looking for a fun and active way to keep your kids moving outdoors?
+  Outdoor resistance bands for kids play might be exactly what you need. These simple '
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-resistance-bands-for-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-resistance-bands-for-kids-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and active way to keep your kids moving outdoors? Outdoor resistance bands for kids play might be exactly what you need.**

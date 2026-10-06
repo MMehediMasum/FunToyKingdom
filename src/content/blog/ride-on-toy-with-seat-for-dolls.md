@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Seat for Dolls: Ultimate Fun and Comfort Guide"
-description: "Looking for a fun and safe way to boost your child’s playtime? A ride on toy with a seat for dolls might be just what you need. Imagine your little one zooming "
+title: 'Ride on Toy With Seat for Dolls: Ultimate Fun and Comfort Guide'
+description: 'Looking for a fun and safe way to boost your child’s playtime? A ride
+  on toy with a seat for dolls might be just what you need. Imagine your little one
+  zooming '
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-seat-for-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-seat-for-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Looking for a fun and safe way to boost your child’s playtime? A ride on toy with a seat for dolls might be just what you need.**

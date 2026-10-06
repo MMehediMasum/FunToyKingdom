@@ -1,10 +1,14 @@
 ---
-title: "Toy Cars for Kids: Top Pull Back and Light-Up Vehicles Set"
-description: "Toy cars delight kids with endless play possibilities and stimulate their imagination. They offer fun and educational benefits for children. In the world of chi"
+title: 'Toy Cars for Kids: Top Pull Back and Light-Up Vehicles Set'
+description: Toy cars delight kids with endless play possibilities and stimulate their
+  imagination. They offer fun and educational benefits for children. In the world
+  of chi
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cars-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=toy-cars-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy cars delight kids with endless play possibilities and stimulate their imagination. They offer fun and educational benefits for children.**

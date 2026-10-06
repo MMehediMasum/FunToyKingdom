@@ -1,10 +1,14 @@
 ---
-title: "Kids Space Tent Outdoor Play: Ultimate Fun and Adventure Guide"
-description: "Imagine giving your kids a magical outdoor space where their imagination can run wild. A Kids Space Tent Outdoor Play setup does just that—it creates a fun, saf"
+title: 'Kids Space Tent Outdoor Play: Ultimate Fun and Adventure Guide'
+description: Imagine giving your kids a magical outdoor space where their imagination
+  can run wild. A Kids Space Tent Outdoor Play setup does just that—it creates a fun,
+  saf
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-space-tent-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=kids-space-tent-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids a magical outdoor space where their imagination can run wild. A Kids Space Tent Outdoor Play setup does just that—it creates a fun, safe spot right in your backyard for endless adventures.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Car for Jumping: Top Off-Road Monster Trucks for Extreme Fun"
-description: "Choosing the best RC car for jumping can make your playtime thrilling and fun. Some RC trucks handle jumps better and last longer on rough terrain. Jumping RC c"
+title: 'Best Rc Car for Jumping: Top Off-Road Monster Trucks for Extreme Fun'
+description: Choosing the best RC car for jumping can make your playtime thrilling
+  and fun. Some RC trucks handle jumps better and last longer on rough terrain. Jumping
+  RC c
 pubDate: 2025-12-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-car-for-jumping-top-off-road-monster-trucks-for-extreme-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Bashing Top
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-car-for-jumping-top-off-road-monster-trucks-for-extreme-fun&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best RC car for jumping can make your playtime thrilling and fun. Some RC trucks handle jumps better and last longer on rough terrain.**

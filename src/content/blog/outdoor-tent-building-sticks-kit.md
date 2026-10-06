@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Tent Building Sticks Kit: Ultimate Guide for Easy Setup"
-description: "Are you ready to take your outdoor adventures to the next level? Imagine having everything you need right at your fingertips to build a sturdy, reliable tent wh"
+title: 'Outdoor Tent Building Sticks Kit: Ultimate Guide for Easy Setup'
+description: Are you ready to take your outdoor adventures to the next level? Imagine
+  having everything you need right at your fingertips to build a sturdy, reliable
+  tent wh
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-tent-building-sticks-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-tent-building-sticks-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your outdoor adventures to the next level? Imagine having everything you need right at your fingertips to build a sturdy, reliable tent wherever you go.**

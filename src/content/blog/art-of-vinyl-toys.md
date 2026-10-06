@@ -1,10 +1,14 @@
 ---
-title: "Art of Vinyl Toys: Ultimate Collectibles for Every Designer Toy Enthusiast"
-description: "Vinyl toys blend art and play, capturing imaginations worldwide. These collectibles offer a unique peek into creativity and design. From the iconic Mighty Jaxx "
+title: 'Art of Vinyl Toys: Ultimate Collectibles for Every Designer Toy Enthusiast'
+description: 'Vinyl toys blend art and play, capturing imaginations worldwide. These
+  collectibles offer a unique peek into creativity and design. From the iconic Mighty
+  Jaxx '
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=art-of-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=art-of-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vinyl toys blend art and play, capturing imaginations worldwide. These collectibles offer a unique peek into creativity and design.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Scrabble Word Strategies: Unlock Winning Moves Fast"
-description: "Are you ready to take your Scrabble game to the next level? Whether you’re playing with friends or competing in tournaments, knowing the best Scrabble word stra"
+title: 'Best Scrabble Word Strategies: Unlock Winning Moves Fast'
+description: Are you ready to take your Scrabble game to the next level? Whether you’re
+  playing with friends or competing in tournaments, knowing the best Scrabble word
+  stra
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-scrabble-word-strategies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=best-scrabble-word-strategies&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to take your Scrabble game to the next level? Whether you’re playing with friends or competing in tournaments, knowing the best Scrabble word strategies can make all the difference.**

@@ -1,10 +1,13 @@
 ---
-title: "Bubble Machine for Backyard Parties: Ultimate Fun & Easy Setup"
-description: "Imagine turning your backyard into a magical wonderland filled with shimmering bubbles that float and dance in the air. A bubble machine for backyard parties ca"
+title: 'Bubble Machine for Backyard Parties: Ultimate Fun & Easy Setup'
+description: Imagine turning your backyard into a magical wonderland filled with shimmering
+  bubbles that float and dance in the air. A bubble machine for backyard parties ca
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=bubble-machine-for-backyard-parties&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=bubble-machine-for-backyard-parties&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a magical wonderland filled with shimmering bubbles that float and dance in the air. A bubble machine for backyard parties can do just that, instantly adding fun and excitement for guests of all ages.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Playhouse With Kitchen Set: Ultimate Fun for Kids"
-description: "Imagine a place where your child’s creativity can run wild, right in your backyard. An outdoor playhouse with a kitchen set offers just that—a magical spot for "
+title: 'Outdoor Playhouse With Kitchen Set: Ultimate Fun for Kids'
+description: 'Imagine a place where your child’s creativity can run wild, right in
+  your backyard. An outdoor playhouse with a kitchen set offers just that—a magical
+  spot for '
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-playhouse-with-kitchen-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-playhouse-with-kitchen-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine a place where your child’s creativity can run wild, right in your backyard. An outdoor playhouse with a kitchen set offers just that—a magical spot for your little ones to cook up adventures, invite friends, and enjoy hours of imaginative fun.**

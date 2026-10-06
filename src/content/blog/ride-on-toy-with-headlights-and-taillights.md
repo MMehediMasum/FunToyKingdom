@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Headlights And Taillights: Ultimate Fun & Safety Guide"
-description: "Imagine your child’s face lighting up as they zoom around on a toy that looks just like a real car. A ride on toy with headlights and taillights doesn’t just ad"
+title: 'Ride on Toy With Headlights And Taillights: Ultimate Fun & Safety Guide'
+description: Imagine your child’s face lighting up as they zoom around on a toy that
+  looks just like a real car. A ride on toy with headlights and taillights doesn’t
+  just ad
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-headlights-and-taillights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-headlights-and-taillights&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they zoom around on a toy that looks just like a real car. A ride on toy with headlights and taillights doesn’t just add extra fun—it creates a thrilling, safe, and realistic play experience.**

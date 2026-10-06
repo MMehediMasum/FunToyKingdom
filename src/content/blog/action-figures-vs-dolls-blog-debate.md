@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Action Figures Vs Dolls Blog Debate: Ultimate Showdown Uncovered"
 description: "Are you torn between choosing action figures or dolls for your collection or gift? You’re not alone. This debate sparks strong opinions and surprising insights."
 pubDate: 2026-07-29

@@ -1,10 +1,14 @@
 ---
-title: "Electronic Murder Mystery Board Toy: Ultimate Suspense & Fun Game"
-description: "Imagine holding the power to solve a thrilling mystery right in your hands. The Electronic Murder Mystery Board Toy lets you dive into an exciting game where yo"
+title: 'Electronic Murder Mystery Board Toy: Ultimate Suspense & Fun Game'
+description: Imagine holding the power to solve a thrilling mystery right in your
+  hands. The Electronic Murder Mystery Board Toy lets you dive into an exciting game
+  where yo
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-murder-mystery-board-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=electronic-murder-mystery-board-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine holding the power to solve a thrilling mystery right in your hands. The Electronic Murder Mystery Board Toy lets you dive into an exciting game where your detective skills come alive.**

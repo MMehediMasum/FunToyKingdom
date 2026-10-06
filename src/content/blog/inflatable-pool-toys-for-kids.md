@@ -1,10 +1,13 @@
 ---
-title: "Inflatable Pool Toys for Kids: Ultimate Fun & Safety Guide"
-description: "Looking for the perfect way to make your kids’ pool time more fun and exciting? Inflatable pool toys are just what you need to turn any swim into a splash-fille"
+title: 'Inflatable Pool Toys for Kids: Ultimate Fun & Safety Guide'
+description: Looking for the perfect way to make your kids’ pool time more fun and
+  exciting? Inflatable pool toys are just what you need to turn any swim into a splash-fille
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-pool-toys-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-pool-toys-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect way to make your kids’ pool time more fun and exciting? Inflatable pool toys are just what you need to turn any swim into a splash-filled adventure.**

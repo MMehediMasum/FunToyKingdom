@@ -1,10 +1,14 @@
 ---
-title: "Lego Education Sets for Classrooms: Boost Learning with Fun Tools"
-description: "Imagine turning your classroom into a place where learning feels like play. With Lego Education Sets for Classrooms, you can do just that. These sets bring less"
+title: 'Lego Education Sets for Classrooms: Boost Learning with Fun Tools'
+description: Imagine turning your classroom into a place where learning feels like
+  play. With Lego Education Sets for Classrooms, you can do just that. These sets
+  bring less
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-education-sets-for-classrooms&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-education-sets-for-classrooms&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning your classroom into a place where learning feels like play. With Lego Education Sets for Classrooms, you can do just that.**

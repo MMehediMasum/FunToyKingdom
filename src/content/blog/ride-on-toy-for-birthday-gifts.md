@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Birthday Gifts: Top Picks Kids Will Love"
-description: "Looking for the perfect birthday gift that will light up your child’s face? A ride on toy might be exactly what you need. Imagine your little one zooming around"
+title: 'Ride on Toy for Birthday Gifts: Top Picks Kids Will Love'
+description: Looking for the perfect birthday gift that will light up your child’s
+  face? A ride on toy might be exactly what you need. Imagine your little one zooming
+  around
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-birthday-gifts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-birthday-gifts&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect birthday gift that will light up your child’s face? A ride on toy might be exactly what you need.**

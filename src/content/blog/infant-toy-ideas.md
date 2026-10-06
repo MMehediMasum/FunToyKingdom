@@ -1,10 +1,14 @@
 ---
-title: "Infant Toy Ideas: Top Sensory and Teething Toys for Baby Development"
-description: "Choosing the right toys helps babies learn and grow. Infant toy ideas support development and keep little ones happy. Toys designed for infants help develop the"
+title: 'Infant Toy Ideas: Top Sensory and Teething Toys for Baby Development'
+description: Choosing the right toys helps babies learn and grow. Infant toy ideas
+  support development and keep little ones happy. Toys designed for infants help develop
+  the
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toy-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=infant-toy-ideas&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys helps babies learn and grow. Infant toy ideas support development and keep little ones happy.**

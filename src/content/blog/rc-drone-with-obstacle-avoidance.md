@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With Obstacle Avoidance: Ultimate Guide to Safe Flying"
-description: "Imagine controlling a drone that flies smoothly without crashing into trees, walls, or power lines. An RC drone with obstacle avoidance does exactly that—it hel"
+title: 'Rc Drone With Obstacle Avoidance: Ultimate Guide to Safe Flying'
+description: Imagine controlling a drone that flies smoothly without crashing into
+  trees, walls, or power lines. An RC drone with obstacle avoidance does exactly that—it
+  hel
 pubDate: 2025-09-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-obstacle-avoidance&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-obstacle-avoidance&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling a drone that flies smoothly without crashing into trees, walls, or power lines. An RC drone with obstacle avoidance does exactly that—it helps you focus on flying, not worrying about collisions.**

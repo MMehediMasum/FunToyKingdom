@@ -1,10 +1,14 @@
 ---
-title: "Robot Toys for 8 Year Old: Top Fun & Educational Picks 2025"
-description: "Looking for the perfect robot toy for your 8-year-old? You want something fun, easy to use, and that sparks your child’s creativity. Choosing the right robot to"
+title: 'Robot Toys for 8 Year Old: Top Fun & Educational Picks 2025'
+description: Looking for the perfect robot toy for your 8-year-old? You want something
+  fun, easy to use, and that sparks your child’s creativity. Choosing the right robot
+  to
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-toys-for-8-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=robot-toys-for-8-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for the perfect robot toy for your 8-year-old? You want something fun, easy to use, and that sparks your child’s creativity.**

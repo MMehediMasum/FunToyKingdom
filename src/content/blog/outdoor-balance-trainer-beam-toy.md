@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Balance Trainer Beam Toy: Boost Fun and Fitness Outdoors"
-description: "Are you looking for a fun way to boost your child’s balance and coordination? The Outdoor Balance Trainer Beam Toy might be exactly what you need. This simple, "
+title: 'Outdoor Balance Trainer Beam Toy: Boost Fun and Fitness Outdoors'
+description: 'Are you looking for a fun way to boost your child’s balance and coordination?
+  The Outdoor Balance Trainer Beam Toy might be exactly what you need. This simple, '
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-balance-trainer-beam-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-balance-trainer-beam-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to boost your child’s balance and coordination? The Outdoor Balance Trainer Beam Toy might be exactly what you need.**

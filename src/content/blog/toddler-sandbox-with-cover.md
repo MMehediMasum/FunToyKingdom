@@ -1,10 +1,14 @@
 ---
-title: "Toddler Sandbox With Cover: Safe, Fun Outdoor Play Ideas"
-description: "If you want your toddler to enjoy endless outdoor fun while staying safe and clean, a toddler sandbox with cover is exactly what you need. Imagine your little o"
+title: 'Toddler Sandbox With Cover: Safe, Fun Outdoor Play Ideas'
+description: If you want your toddler to enjoy endless outdoor fun while staying safe
+  and clean, a toddler sandbox with cover is exactly what you need. Imagine your little
+  o
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toddler-sandbox-with-cover&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=toddler-sandbox-with-cover&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you want your toddler to enjoy endless outdoor fun while staying safe and clean, a toddler sandbox with cover is exactly what you need. Imagine your little one digging, building, and exploring without you worrying about dirt, bugs, or sudden weather changes.**

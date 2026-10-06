@@ -1,10 +1,14 @@
 ---
-title: "Leonardo Tmnt Action Figure: Ultimate Collectible for Fans"
-description: "If you’re a fan of Teenage Mutant Ninja Turtles, the Leonardo TMNT action figure is something you don’t want to miss. This figure brings your favorite turtle to"
+title: 'Leonardo Tmnt Action Figure: Ultimate Collectible for Fans'
+description: If you’re a fan of Teenage Mutant Ninja Turtles, the Leonardo TMNT action
+  figure is something you don’t want to miss. This figure brings your favorite turtle
+  to
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=leonardo-tmnt-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=leonardo-tmnt-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Teenage Mutant Ninja Turtles, the Leonardo TMNT action figure is something you don’t want to miss. This figure brings your favorite turtle to life with amazing details and cool accessories.**

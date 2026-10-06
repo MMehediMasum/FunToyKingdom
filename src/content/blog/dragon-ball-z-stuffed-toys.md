@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Stuffed Toys: Top Plush Figures Every Fan Must Have"
-description: "Dragon Ball Z stuffed toys bring favorite characters to life in soft, cuddly form. Fans can enjoy plush versions of Goku, Vegeta, Majin Buu, and more. These toy"
+title: 'Dragon Ball Z Stuffed Toys: Top Plush Figures Every Fan Must Have'
+description: Dragon Ball Z stuffed toys bring favorite characters to life in soft,
+  cuddly form. Fans can enjoy plush versions of Goku, Vegeta, Majin Buu, and more.
+  These toy
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-stuffed-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-stuffed-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z stuffed toys bring favorite characters to life in soft, cuddly form. Fans can enjoy plush versions of Goku, Vegeta, Majin Buu, and more.**

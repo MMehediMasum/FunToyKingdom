@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Lamborghini Replica: Ultimate Fun for Kids!"
-description: "Imagine your child’s eyes lighting up as they zoom around in their very own Ride on Toy Lamborghini Replica. You want to give them more than just a toy—you want"
+title: 'Ride on Toy Lamborghini Replica: Ultimate Fun for Kids!'
+description: Imagine your child’s eyes lighting up as they zoom around in their very
+  own Ride on Toy Lamborghini Replica. You want to give them more than just a toy—you
+  want
 pubDate: 2025-09-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-lamborghini-replica&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-lamborghini-replica&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they zoom around in their very own Ride on Toy Lamborghini Replica. You want to give them more than just a toy—you want to spark their imagination and confidence.**

@@ -1,10 +1,13 @@
 ---
-title: "Rc Quadcopter for Stunt Flips: Ultimate Guide to Aerial Tricks"
-description: "Are you ready to take your flying skills to the next level? An RC quadcopter for stunt flips is exactly what you need to wow your friends and master jaw-droppin"
+title: 'Rc Quadcopter for Stunt Flips: Ultimate Guide to Aerial Tricks'
+description: Are you ready to take your flying skills to the next level? An RC quadcopter
+  for stunt flips is exactly what you need to wow your friends and master jaw-droppin
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-quadcopter-for-stunt-flips&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-quadcopter-for-stunt-flips&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your flying skills to the next level? An RC quadcopter for stunt flips is exactly what you need to wow your friends and master jaw-dropping aerial tricks.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Vs Toy Poodle: Which Plush Poodle Toy Is Perfect For You?"
 description: "Miniature and Toy Poodles are beloved breeds with distinct characteristics. Both have unique traits that captivate dog lovers. Understanding the differences bet"
 pubDate: 2026-02-09

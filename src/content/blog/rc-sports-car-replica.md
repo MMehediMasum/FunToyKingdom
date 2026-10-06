@@ -1,10 +1,14 @@
 ---
-title: "Rc Sports Car Replica: Ultimate Guide to Speed and Style"
-description: "Have you ever dreamed of owning a sleek sports car but thought it was out of reach? What if you could experience the thrill, style, and speed without the high c"
+title: 'Rc Sports Car Replica: Ultimate Guide to Speed and Style'
+description: Have you ever dreamed of owning a sleek sports car but thought it was
+  out of reach? What if you could experience the thrill, style, and speed without
+  the high c
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-sports-car-replica&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-sports-car-replica&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever dreamed of owning a sleek sports car but thought it was out of reach? What if you could experience the thrill, style, and speed without the high cost or hassle?**

@@ -1,10 +1,14 @@
 ---
-title: "Disney Cars Diecast Toys: Ultimate Collectible Mini Racer Set Guide"
-description: "Disney Cars diecast toys bring favorite movie characters to life in detailed miniature form. These collectible cars offer fun for kids and fans alike. Disney Ca"
+title: 'Disney Cars Diecast Toys: Ultimate Collectible Mini Racer Set Guide'
+description: Disney Cars diecast toys bring favorite movie characters to life in detailed
+  miniature form. These collectible cars offer fun for kids and fans alike. Disney
+  Ca
 pubDate: 2026-08-23
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-cars-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-cars-diecast-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Cars diecast toys bring favorite movie characters to life in detailed miniature form. These collectible cars offer fun for kids and fans alike.**

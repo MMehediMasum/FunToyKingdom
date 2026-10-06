@@ -1,10 +1,13 @@
 ---
-title: "Disney Cars Plush Toys: Ultimate Soft and Cuddly Characters for Kids"
-description: "Disney Cars plush toys bring favorite characters to life with soft textures and bright colors. Kids love cuddling these friendly, detailed stuffed toys. Disney "
+title: 'Disney Cars Plush Toys: Ultimate Soft and Cuddly Characters for Kids'
+description: 'Disney Cars plush toys bring favorite characters to life with soft textures
+  and bright colors. Kids love cuddling these friendly, detailed stuffed toys. Disney '
 pubDate: 2026-01-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-cars-plush-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-cars-plush-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Cars plush toys bring favorite characters to life with soft textures and bright colors. Kids love cuddling these friendly, detailed stuffed toys.**

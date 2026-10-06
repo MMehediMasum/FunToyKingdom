@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate Toys in Chicago: Top Charities to Help Kids"
-description: "Looking to bring joy to a child’s life in Chicago? Donating toys is a simple way to make a big difference. But you might be wondering, “Where can I donate toys "
+title: 'Where Can I Donate Toys in Chicago: Top Charities to Help Kids'
+description: 'Looking to bring joy to a child’s life in Chicago? Donating toys is
+  a simple way to make a big difference. But you might be wondering, “Where can I
+  donate toys '
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-toys-in-chicago&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-toys-in-chicago&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Looking to bring joy to a child’s life in Chicago? Donating toys is a simple way to make a big difference.**

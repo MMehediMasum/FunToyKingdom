@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Jessie Costume Kit: Perfect Cowgirl Outfit for Every Age"
-description: "The Toy Story Jessie Costume Kit brings the beloved cowgirl character to life for fans of all ages. It includes outfits and accessories designed to match Jessie"
+title: 'Toy Story Jessie Costume Kit: Perfect Cowgirl Outfit for Every Age'
+description: The Toy Story Jessie Costume Kit brings the beloved cowgirl character
+  to life for fans of all ages. It includes outfits and accessories designed to match
+  Jessie
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-jessie-costume-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-jessie-costume-kit&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Jessie Costume Kit brings the beloved cowgirl character to life for fans of all ages. It includes outfits and accessories designed to match Jessie’s fun, wild west look from the movies.**

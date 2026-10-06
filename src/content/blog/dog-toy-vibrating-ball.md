@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Vibrating Ball: Interactive, Durable, and Automatic Rolling Fun"
-description: "Dog toy vibrating balls offer fun, active play for dogs of all sizes. These toys move, shake, and bounce to keep pets engaged. Vibrating dog balls provide menta"
+title: 'Dog Toy Vibrating Ball: Interactive, Durable, and Automatic Rolling Fun'
+description: Dog toy vibrating balls offer fun, active play for dogs of all sizes.
+  These toys move, shake, and bounce to keep pets engaged. Vibrating dog balls provide
+  menta
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-vibrating-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-vibrating-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy vibrating balls offer fun, active play for dogs of all sizes. These toys move, shake, and bounce to keep pets engaged.**

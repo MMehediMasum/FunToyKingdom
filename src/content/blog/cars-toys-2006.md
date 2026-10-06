@@ -1,10 +1,13 @@
 ---
-title: "Cars Toys 2006: Top Die-Cast Model Cars for Kids and Collectors"
-description: "Cars Toys 2006 bring excitement to collectors and kids alike. These detailed die-cast models capture popular 2006 car designs perfectly. This collection feature"
+title: 'Cars Toys 2006: Top Die-Cast Model Cars for Kids and Collectors'
+description: Cars Toys 2006 bring excitement to collectors and kids alike. These detailed
+  die-cast models capture popular 2006 car designs perfectly. This collection feature
 pubDate: 2026-02-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-2006&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-2006&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toys 2006 bring excitement to collectors and kids alike. These detailed die-cast models capture popular 2006 car designs perfectly.**

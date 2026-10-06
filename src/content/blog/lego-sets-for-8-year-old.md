@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for 8 Year Old: Top Fun & Educational Picks 2025"
-description: "Are you looking for the perfect Lego sets for an 8-year-old? Finding a toy that sparks creativity and keeps your child engaged can be tricky. You want something"
+title: 'Lego Sets for 8 Year Old: Top Fun & Educational Picks 2025'
+description: Are you looking for the perfect Lego sets for an 8-year-old? Finding
+  a toy that sparks creativity and keeps your child engaged can be tricky. You want
+  something
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-8-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-8-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect Lego sets for an 8-year-old? Finding a toy that sparks creativity and keeps your child engaged can be tricky.**

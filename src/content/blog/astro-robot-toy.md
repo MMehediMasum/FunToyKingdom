@@ -1,10 +1,14 @@
 ---
-title: "Astro Robot Toy: Top Interactive and Programmable Robots for Kids"
-description: "Astro Robot Toys captivate children and adults with their interactive features and playful designs. These toys offer endless entertainment and educational oppor"
+title: 'Astro Robot Toy: Top Interactive and Programmable Robots for Kids'
+description: Astro Robot Toys captivate children and adults with their interactive
+  features and playful designs. These toys offer endless entertainment and educational
+  oppor
 pubDate: 2026-08-02
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=astro-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=astro-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Astro Robot Toys captivate children and adults with their interactive features and playful designs. These toys offer endless entertainment and educational opportunities.**

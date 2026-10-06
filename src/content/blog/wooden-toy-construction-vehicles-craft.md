@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Construction Vehicles Craft: Build Fun & Creativity!"
-description: "Imagine giving your child a toy that sparks creativity, teaches basic building skills, and offers hours of fun—all without screens or batteries. Wooden toy cons"
+title: 'Wooden Toy Construction Vehicles Craft: Build Fun & Creativity!'
+description: Imagine giving your child a toy that sparks creativity, teaches basic
+  building skills, and offers hours of fun—all without screens or batteries. Wooden
+  toy cons
 pubDate: 2026-07-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-construction-vehicles-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-construction-vehicles-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, teaches basic building skills, and offers hours of fun—all without screens or batteries. Wooden toy construction vehicles craft brings exactly that to your hands.**

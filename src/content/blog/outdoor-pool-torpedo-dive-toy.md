@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Pool Torpedo Dive Toy: Ultimate Fun for Kids and Adults"
-description: "Imagine your next swim turning into an exciting underwater adventure. With the Outdoor Pool Torpedo Dive Toy, you can add a whole new level of fun to your pool "
+title: 'Outdoor Pool Torpedo Dive Toy: Ultimate Fun for Kids and Adults'
+description: 'Imagine your next swim turning into an exciting underwater adventure.
+  With the Outdoor Pool Torpedo Dive Toy, you can add a whole new level of fun to
+  your pool '
 pubDate: 2026-05-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-pool-torpedo-dive-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-pool-torpedo-dive-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your next swim turning into an exciting underwater adventure. With the Outdoor Pool Torpedo Dive Toy, you can add a whole new level of fun to your pool time.**

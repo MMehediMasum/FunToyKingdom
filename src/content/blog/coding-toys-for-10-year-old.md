@@ -1,10 +1,14 @@
 ---
-title: "Coding Toys for 10 Year Old: Top Fun and Educational Picks"
-description: "Are you looking for the perfect way to spark your 10-year-old’s interest in coding? Finding toys that make learning to code fun and easy can be a game-changer f"
+title: 'Coding Toys for 10 Year Old: Top Fun and Educational Picks'
+description: Are you looking for the perfect way to spark your 10-year-old’s interest
+  in coding? Finding toys that make learning to code fun and easy can be a game-changer
+  f
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toys-for-10-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect way to spark your 10-year-old’s interest in coding? Finding toys that make learning to code fun and easy can be a game-changer for your child’s future.**

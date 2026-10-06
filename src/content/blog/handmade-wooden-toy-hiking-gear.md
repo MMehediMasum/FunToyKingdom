@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Hiking Gear: Durable, Eco-Friendly Adventure Essentials"
-description: "Are you looking for a unique way to spark your child’s imagination and love for the outdoors? Handmade wooden toy hiking gear might be just what you need. These"
+title: 'Handmade Wooden Toy Hiking Gear: Durable, Eco-Friendly Adventure Essentials'
+description: Are you looking for a unique way to spark your child’s imagination and
+  love for the outdoors? Handmade wooden toy hiking gear might be just what you need.
+  These
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-hiking-gear&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-hiking-gear&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a unique way to spark your child’s imagination and love for the outdoors? Handmade wooden toy hiking gear might be just what you need.**

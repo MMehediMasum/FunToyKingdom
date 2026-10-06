@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Island With Cardboard: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create a fun and imaginative play space for your toys without spending a lot of money? Making a toy island with cardboard is a simple an"
+title: 'How to Make Toy Island With Cardboard: Easy Step-by-Step Guide'
+description: Have you ever wanted to create a fun and imaginative play space for your
+  toys without spending a lot of money? Making a toy island with cardboard is a simple
+  an
 pubDate: 2025-08-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-island-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-island-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a fun and imaginative play space for your toys without spending a lot of money? Making a toy island with cardboard is a simple and exciting way to bring your creativity to life.**

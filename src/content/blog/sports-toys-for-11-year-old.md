@@ -1,10 +1,14 @@
 ---
-title: "Sports Toys for 11 Year Old: Top Picks for Active Fun and Fitness"
-description: "Are you looking for the perfect sports toys for your 11-year-old? Finding toys that keep your child active and excited can be a challenge. You want something fu"
+title: 'Sports Toys for 11 Year Old: Top Picks for Active Fun and Fitness'
+description: Are you looking for the perfect sports toys for your 11-year-old? Finding
+  toys that keep your child active and excited can be a challenge. You want something
+  fu
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sports-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sports Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sports-toys-for-11-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect sports toys for your 11-year-old? Finding toys that keep your child active and excited can be a challenge.**

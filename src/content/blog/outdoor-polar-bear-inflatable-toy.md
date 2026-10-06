@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Polar Bear Inflatable Toy: Ultimate Fun for Your Backyard"
-description: "Imagine turning your backyard into a fun and exciting winter wonderland with just one simple addition. An outdoor polar bear inflatable toy isn’t just a decorat"
+title: 'Outdoor Polar Bear Inflatable Toy: Ultimate Fun for Your Backyard'
+description: Imagine turning your backyard into a fun and exciting winter wonderland
+  with just one simple addition. An outdoor polar bear inflatable toy isn’t just a
+  decorat
 pubDate: 2026-05-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-polar-bear-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-polar-bear-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun and exciting winter wonderland with just one simple addition. An outdoor polar bear inflatable toy isn’t just a decoration—it’s a way to bring joy, wonder, and a touch of magic to your space.**

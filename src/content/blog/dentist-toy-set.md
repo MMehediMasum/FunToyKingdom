@@ -1,10 +1,14 @@
 ---
-title: "Dentist Toy Set: Top Pretend Play Kits for Kids’ Dental Fun"
-description: "Dentist toy sets offer children a fun way to explore dental care through imaginative play. These sets inspire curiosity and learning. Dentist toy sets provide k"
+title: 'Dentist Toy Set: Top Pretend Play Kits for Kids’ Dental Fun'
+description: Dentist toy sets offer children a fun way to explore dental care through
+  imaginative play. These sets inspire curiosity and learning. Dentist toy sets provide
+  k
 pubDate: 2026-08-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dentist-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=dentist-toy-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Dentist toy sets offer children a fun way to explore dental care through imaginative play. These sets inspire curiosity and learning.**

@@ -1,10 +1,14 @@
 ---
-title: "Fpv Racing Drone Hobby Kids: Ultimate Fun & Skill-Building Guide"
-description: "Are you looking for a fun and exciting hobby that your kids can dive into? FPV racing drones might be just the perfect choice. Imagine your child controlling a "
+title: 'Fpv Racing Drone Hobby Kids: Ultimate Fun & Skill-Building Guide'
+description: 'Are you looking for a fun and exciting hobby that your kids can dive
+  into? FPV racing drones might be just the perfect choice. Imagine your child controlling
+  a '
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=fpv-racing-drone-hobby-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=fpv-racing-drone-hobby-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting hobby that your kids can dive into? FPV racing drones might be just the perfect choice.**

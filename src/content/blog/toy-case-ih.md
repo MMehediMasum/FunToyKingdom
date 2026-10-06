@@ -1,10 +1,14 @@
 ---
-title: "Toy Case IH Tractors and Vehicles: Top Collectible Sets for Enthusiasts"
-description: "Toy Case IH models bring the agricultural world to life for collectors and children alike. These miniature replicas capture the essence of farming machinery. Ca"
+title: 'Toy Case IH Tractors and Vehicles: Top Collectible Sets for Enthusiasts'
+description: Toy Case IH models bring the agricultural world to life for collectors
+  and children alike. These miniature replicas capture the essence of farming machinery.
+  Ca
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-case-ih&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=toy-case-ih&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy Case IH models bring the agricultural world to life for collectors and children alike. These miniature replicas capture the essence of farming machinery.**

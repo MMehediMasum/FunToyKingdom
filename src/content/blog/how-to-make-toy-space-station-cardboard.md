@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Space Station Cardboard: Easy DIY Fun Guide"
-description: "Are you looking for a fun and creative project that you can make right at home? Imagine building your very own toy space station out of simple cardboard. It’s n"
+title: 'How to Make Toy Space Station Cardboard: Easy DIY Fun Guide'
+description: Are you looking for a fun and creative project that you can make right
+  at home? Imagine building your very own toy space station out of simple cardboard.
+  It’s n
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-space-station-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-space-station-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make right at home? Imagine building your very own toy space station out of simple cardboard.**

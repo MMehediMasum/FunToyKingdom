@@ -1,10 +1,14 @@
 ---
-title: "Toy Rc Tanks With Infrared Battle: Ultimate Fun & Realistic Combat"
-description: "Are you ready to take your toy battles to a whole new level? Toy RC tanks with infrared battle technology let you control your own mini army and face off agains"
+title: 'Toy Rc Tanks With Infrared Battle: Ultimate Fun & Realistic Combat'
+description: Are you ready to take your toy battles to a whole new level? Toy RC tanks
+  with infrared battle technology let you control your own mini army and face off
+  agains
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-rc-tanks-with-infrared-battle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-rc-tanks-with-infrared-battle&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your toy battles to a whole new level? Toy RC tanks with infrared battle technology let you control your own mini army and face off against friends in exciting, action-packed duels.**

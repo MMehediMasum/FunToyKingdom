@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Skateboard Ramps for Kids Backyard: Ultimate Fun & Safety Guide"
 description: "Are you looking to turn your backyard into the ultimate skateboarding playground for your kids? Skateboard ramps for kids in your backyard are the perfect way t"
 pubDate: 2026-04-01

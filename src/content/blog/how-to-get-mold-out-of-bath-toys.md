@@ -1,10 +1,14 @@
 ---
-title: "How to Get Mold Out of Bath Toys: Quick & Safe Cleaning Tips"
-description: "Are your child’s bath toys covered in mold again? It’s a common problem that many parents face. Mold not only looks unpleasant but can also be harmful to your l"
+title: 'How to Get Mold Out of Bath Toys: Quick & Safe Cleaning Tips'
+description: Are your child’s bath toys covered in mold again? It’s a common problem
+  that many parents face. Mold not only looks unpleasant but can also be harmful to
+  your l
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-get-mold-out-of-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=how-to-get-mold-out-of-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are your child’s bath toys covered in mold again? It’s a common problem that many parents face.**

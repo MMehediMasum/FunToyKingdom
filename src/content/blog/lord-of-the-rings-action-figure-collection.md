@@ -1,10 +1,14 @@
 ---
-title: "Lord of the Rings Action Figure Collection: Ultimate Guide & Tips"
-description: "If you're a fan of the epic world of Middle-earth, then a Lord of the Rings action figure collection is something you don’t want to miss. Imagine holding your f"
+title: 'Lord of the Rings Action Figure Collection: Ultimate Guide & Tips'
+description: If you're a fan of the epic world of Middle-earth, then a Lord of the
+  Rings action figure collection is something you don’t want to miss. Imagine holding
+  your f
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=lord-of-the-rings-action-figure-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=lord-of-the-rings-action-figure-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you're a fan of the epic world of Middle-earth, then a Lord of the Rings action figure collection is something you don’t want to miss. Imagine holding your favorite characters in your hands, from brave hobbits to mighty wizards.**

@@ -1,10 +1,13 @@
 ---
-title: "Play Kitchen for 2 Year Old: Best Picks for Fun & Learning"
-description: "Looking for the perfect play kitchen for your 2-year-old? You want something safe, fun, and just right for their little hands. A play kitchen isn’t just a toy—i"
+title: 'Play Kitchen for 2 Year Old: Best Picks for Fun & Learning'
+description: Looking for the perfect play kitchen for your 2-year-old? You want something
+  safe, fun, and just right for their little hands. A play kitchen isn’t just a toy—i
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=play-kitchen-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=play-kitchen-for-2-year-old&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Looking for the perfect play kitchen for your 2-year-old? You want something safe, fun, and just right for their little hands.**

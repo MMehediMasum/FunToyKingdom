@@ -1,10 +1,14 @@
 ---
-title: "Toy Case Ih Tractors: Top Collectible Models for Every Farming Enthusiast"
-description: "Toy Case IH tractors capture the essence of farming in miniature form. These models are perfect for collectors and enthusiasts alike. From the ERTL 1/64 Case IH"
+title: 'Toy Case Ih Tractors: Top Collectible Models for Every Farming Enthusiast'
+description: Toy Case IH tractors capture the essence of farming in miniature form.
+  These models are perfect for collectors and enthusiasts alike. From the ERTL 1/64
+  Case IH
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-case-ih-tractors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=toy-case-ih-tractors&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy Case IH tractors capture the essence of farming in miniature form. These models are perfect for collectors and enthusiasts alike.**

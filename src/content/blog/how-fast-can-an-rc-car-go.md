@@ -1,10 +1,14 @@
 ---
-title: "How Fast Can an Rc Car Go: Unleashing Extreme Speed Limits"
-description: "Have you ever wondered just how fast an RC car can go? Whether you're a beginner or a seasoned hobbyist, knowing the speed limits of these tiny machines can mak"
+title: 'How Fast Can an Rc Car Go: Unleashing Extreme Speed Limits'
+description: Have you ever wondered just how fast an RC car can go? Whether you're
+  a beginner or a seasoned hobbyist, knowing the speed limits of these tiny machines
+  can mak
 pubDate: 2025-09-05
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-fast-can-an-rc-car-go&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=how-fast-can-an-rc-car-go&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered just how fast an RC car can go? Whether you're a beginner or a seasoned hobbyist, knowing the speed limits of these tiny machines can make your racing experience even more exciting.**

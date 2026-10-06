@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck for Backyard Racing: Ultimate Speed and Fun Guide"
-description: "Are you ready to turn your backyard into an exciting race track? An RC truck for backyard racing can bring hours of fun, speed, and thrills right to your doorst"
+title: 'Rc Truck for Backyard Racing: Ultimate Speed and Fun Guide'
+description: Are you ready to turn your backyard into an exciting race track? An RC
+  truck for backyard racing can bring hours of fun, speed, and thrills right to your
+  doorst
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-for-backyard-racing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-for-backyard-racing&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to turn your backyard into an exciting race track? An RC truck for backyard racing can bring hours of fun, speed, and thrills right to your doorstep.**

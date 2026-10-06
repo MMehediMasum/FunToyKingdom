@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dragon Inflatable Kids Toy: Ultimate Fun for Playtime"
-description: "Imagine your kids running outside, their laughter filling the air as they chase a giant, colorful dragon. An outdoor dragon inflatable kids toy can turn any bac"
+title: 'Outdoor Dragon Inflatable Kids Toy: Ultimate Fun for Playtime'
+description: Imagine your kids running outside, their laughter filling the air as
+  they chase a giant, colorful dragon. An outdoor dragon inflatable kids toy can turn
+  any bac
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dragon-inflatable-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dragon-inflatable-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids running outside, their laughter filling the air as they chase a giant, colorful dragon. An outdoor dragon inflatable kids toy can turn any backyard into a magical playground where fun never ends.**

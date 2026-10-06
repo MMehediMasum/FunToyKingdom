@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Boat Kids Version: Ultimate Fun & Safe Adventures"
-description: "Imagine your child’s face lighting up with pure joy as they glide around on a ride-on toy boat made just for kids. You want to give them hours of fun while help"
+title: 'Ride on Toy Boat Kids Version: Ultimate Fun & Safe Adventures'
+description: Imagine your child’s face lighting up with pure joy as they glide around
+  on a ride-on toy boat made just for kids. You want to give them hours of fun while
+  help
 pubDate: 2025-09-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-boat-kids-version&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-boat-kids-version&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with pure joy as they glide around on a ride-on toy boat made just for kids. You want to give them hours of fun while helping them build balance and confidence.**

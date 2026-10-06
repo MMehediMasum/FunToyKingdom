@@ -1,10 +1,13 @@
 ---
-title: "Rare Disney Store Dolls Value: Unlock Hidden Collector Treasures"
-description: "Are you curious about the hidden treasures sitting quietly on your shelf? Rare Disney Store dolls aren’t just cute collectibles—they can hold surprising value. "
+title: 'Rare Disney Store Dolls Value: Unlock Hidden Collector Treasures'
+description: 'Are you curious about the hidden treasures sitting quietly on your shelf?
+  Rare Disney Store dolls aren’t just cute collectibles—they can hold surprising value. '
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-disney-store-dolls-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Old Princess Dolls
+heroImage: https://tse1.mm.bing.net/th?q=rare-disney-store-dolls-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about the hidden treasures sitting quietly on your shelf? Rare Disney Store dolls aren’t just cute collectibles—they can hold surprising value.**

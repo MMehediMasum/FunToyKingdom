@@ -1,10 +1,13 @@
 ---
-title: "Shape Blocks Toy: Top Educational and Fun Sorting Sets for Toddlers"
-description: "Shape blocks toys are essential tools for infant development and learning. They help toddlers recognize shapes and improve motor skills. These toys are perfect "
+title: 'Shape Blocks Toy: Top Educational and Fun Sorting Sets for Toddlers'
+description: 'Shape blocks toys are essential tools for infant development and learning.
+  They help toddlers recognize shapes and improve motor skills. These toys are perfect '
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=shape-blocks-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=shape-blocks-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Shape blocks toys are essential tools for infant development and learning. They help toddlers recognize shapes and improve motor skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy R Us Wrestling Ring: Ultimate Playset for Action Figure Battles"
-description: "The \"Toy R Us Wrestling Ring\" collection offers an exciting world for young wrestling fans. These sets include action figures, rings, and accessories. Children "
+title: 'Toy R Us Wrestling Ring: Ultimate Playset for Action Figure Battles'
+description: 'The "Toy R Us Wrestling Ring" collection offers an exciting world for
+  young wrestling fans. These sets include action figures, rings, and accessories.
+  Children '
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-r-us-wrestling-ring&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=toy-r-us-wrestling-ring&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The "Toy R Us Wrestling Ring" collection offers an exciting world for young wrestling fans. These sets include action figures, rings, and accessories.**

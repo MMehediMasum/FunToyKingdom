@@ -1,10 +1,14 @@
 ---
-title: "Kids First Aid Play Kit Outdoor: Essential Fun for Safety Skills"
-description: "Imagine your child playing outside, full of energy and curiosity. Now, picture a small scrape or bump happening during their adventure. Would you feel confident"
+title: 'Kids First Aid Play Kit Outdoor: Essential Fun for Safety Skills'
+description: Imagine your child playing outside, full of energy and curiosity. Now,
+  picture a small scrape or bump happening during their adventure. Would you feel
+  confident
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-first-aid-play-kit-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=kids-first-aid-play-kit-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child playing outside, full of energy and curiosity. Now, picture a small scrape or bump happening during their adventure.**

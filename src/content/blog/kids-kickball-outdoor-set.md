@@ -1,10 +1,14 @@
 ---
-title: "Kids Kickball Outdoor Set: Ultimate Fun for Active Playtime"
-description: "Looking for a fun way to get your kids outside and moving? The Kids Kickball Outdoor Set is just what you need. It’s simple, exciting, and perfect for kids of a"
+title: 'Kids Kickball Outdoor Set: Ultimate Fun for Active Playtime'
+description: Looking for a fun way to get your kids outside and moving? The Kids Kickball
+  Outdoor Set is just what you need. It’s simple, exciting, and perfect for kids of
+  a
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-kickball-outdoor-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=kids-kickball-outdoor-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids outside and moving? The Kids Kickball Outdoor Set is just what you need.**

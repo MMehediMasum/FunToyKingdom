@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Moon Sprinkler Kids Float: Ultimate Summer Fun Guide"
-description: "Imagine your kids laughing and splashing under a gentle spray of water, all while floating comfortably in a fun, moon-shaped sprinkler. That’s exactly what the "
+title: 'Outdoor Moon Sprinkler Kids Float: Ultimate Summer Fun Guide'
+description: 'Imagine your kids laughing and splashing under a gentle spray of water,
+  all while floating comfortably in a fun, moon-shaped sprinkler. That’s exactly what
+  the '
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-moon-sprinkler-kids-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-moon-sprinkler-kids-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids laughing and splashing under a gentle spray of water, all while floating comfortably in a fun, moon-shaped sprinkler. That’s exactly what the Outdoor Moon Sprinkler Kids Float can bring to your backyard.**

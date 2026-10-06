@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Ninja Warrior Obstacle Course Kids: Ultimate Fun & Fitness Guide"
-description: "Are you looking for a fun and exciting way to keep your kids active outdoors? An Outdoor Ninja Warrior Obstacle Course for kids might be exactly what you need. "
+title: 'Outdoor Ninja Warrior Obstacle Course Kids: Ultimate Fun & Fitness Guide'
+description: 'Are you looking for a fun and exciting way to keep your kids active
+  outdoors? An Outdoor Ninja Warrior Obstacle Course for kids might be exactly what
+  you need. '
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ninja-warrior-obstacle-course-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ninja-warrior-obstacle-course-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active outdoors? An Outdoor Ninja Warrior Obstacle Course for kids might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Rc Car That Transforms into Robot: Ultimate Fun & Innovation!"
-description: "Have you ever wished your toy car could do more than just speed around? Imagine a toy RC car that suddenly transforms into a robot right before your eyes. This "
+title: 'Toy Rc Car That Transforms into Robot: Ultimate Fun & Innovation!'
+description: 'Have you ever wished your toy car could do more than just speed around?
+  Imagine a toy RC car that suddenly transforms into a robot right before your eyes.
+  This '
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-rc-car-that-transforms-into-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=toy-rc-car-that-transforms-into-robot&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wished your toy car could do more than just speed around? Imagine a toy RC car that suddenly transforms into a robot right before your eyes.**

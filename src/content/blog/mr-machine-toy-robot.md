@@ -1,10 +1,13 @@
 ---
-title: "Mr Machine Toy Robot: Ultimate Interactive Robot Toys for Kids’ Fun"
-description: "The Mr Machine Toy Robot brings classic mechanical fun to kids and collectors alike. This vintage-style robot combines simple design with engaging movement. Mr "
+title: 'Mr Machine Toy Robot: Ultimate Interactive Robot Toys for Kids’ Fun'
+description: 'The Mr Machine Toy Robot brings classic mechanical fun to kids and collectors
+  alike. This vintage-style robot combines simple design with engaging movement. Mr '
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mr-machine-toy-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=mr-machine-toy-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Mr Machine Toy Robot brings classic mechanical fun to kids and collectors alike. This vintage-style robot combines simple design with engaging movement.**

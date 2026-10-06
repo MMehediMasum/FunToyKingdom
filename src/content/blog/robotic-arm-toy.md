@@ -1,10 +1,14 @@
 ---
-title: "Robotic Arm Toy: Build, Learn, and Play with STEM Hydraulic Kits"
-description: "Robotic arm toys offer hands-on learning and fun for kids interested in science and engineering. These kits help build skills in mechanics and hydraulics withou"
+title: 'Robotic Arm Toy: Build, Learn, and Play with STEM Hydraulic Kits'
+description: Robotic arm toys offer hands-on learning and fun for kids interested
+  in science and engineering. These kits help build skills in mechanics and hydraulics
+  withou
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robotic-arm-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=robotic-arm-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robotic arm toys offer hands-on learning and fun for kids interested in science and engineering. These kits help build skills in mechanics and hydraulics without needing batteries.**

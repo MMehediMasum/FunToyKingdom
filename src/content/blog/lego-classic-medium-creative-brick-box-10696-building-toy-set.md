@@ -1,10 +1,14 @@
 ---
-title: "Lego Classic Medium Creative Brick Box 10696 Building Toy Set Review"
-description: "The LEGO Classic Medium Creative Brick Box 10696 offers a fun way to build and imagine. It includes colorful bricks and pieces to create cars, trains, and anima"
+title: Lego Classic Medium Creative Brick Box 10696 Building Toy Set Review
+description: The LEGO Classic Medium Creative Brick Box 10696 offers a fun way to
+  build and imagine. It includes colorful bricks and pieces to create cars, trains,
+  and anima
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-classic-medium-creative-brick-box-10696-building-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=lego-classic-medium-creative-brick-box-10696-building-toy-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The LEGO Classic Medium Creative Brick Box 10696 offers a fun way to build and imagine. It includes colorful bricks and pieces to create cars, trains, and animals.**

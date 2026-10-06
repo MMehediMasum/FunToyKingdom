@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate Toys: Top Places to Spread Joy Today"
-description: "Are you wondering where you can donate toys to make a real difference? Giving away toys you no longer need is a simple way to bring joy to children who might no"
+title: 'Where Can I Donate Toys: Top Places to Spread Joy Today'
+description: Are you wondering where you can donate toys to make a real difference?
+  Giving away toys you no longer need is a simple way to bring joy to children who
+  might no
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can donate toys to make a real difference? Giving away toys you no longer need is a simple way to bring joy to children who might not have many.**

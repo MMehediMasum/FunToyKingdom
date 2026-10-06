@@ -1,10 +1,14 @@
 ---
-title: "Bluey Stackable Sensory Case: Perfect Toddler Toy for Endless Fun"
-description: "The Bluey Stackable Sensory Case offers engaging sensory experiences for toddlers. Perfect for fun and learning, this set includes various interactive activitie"
+title: 'Bluey Stackable Sensory Case: Perfect Toddler Toy for Endless Fun'
+description: The Bluey Stackable Sensory Case offers engaging sensory experiences
+  for toddlers. Perfect for fun and learning, this set includes various interactive
+  activitie
 pubDate: 2026-03-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=bluey-stackable-sensory-case&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=bluey-stackable-sensory-case&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **The Bluey Stackable Sensory Case offers engaging sensory experiences for toddlers. Perfect for fun and learning, this set includes various interactive activities.**

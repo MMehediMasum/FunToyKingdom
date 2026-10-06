@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Mashup in Minecraft: Epic Adventure Meets Blocky Fun"
 description: "Imagine stepping into a world where your favorite Toy Story characters come to life inside Minecraft. What if Woody, Buzz Lightyear, and the gang were not just "
 pubDate: 2026-07-11

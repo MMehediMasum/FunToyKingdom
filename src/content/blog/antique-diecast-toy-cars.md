@@ -1,10 +1,14 @@
 ---
-title: "Antique Diecast Toy Cars: Classic Collectibles for Vintage Car Enthusiasts"
-description: "Antique diecast toy cars offer a nostalgic glimpse into automotive history. Collectors and enthusiasts cherish these miniature models. Diecast toy cars from the"
+title: 'Antique Diecast Toy Cars: Classic Collectibles for Vintage Car Enthusiasts'
+description: Antique diecast toy cars offer a nostalgic glimpse into automotive history.
+  Collectors and enthusiasts cherish these miniature models. Diecast toy cars from
+  the
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-diecast-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=antique-diecast-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Antique diecast toy cars offer a nostalgic glimpse into automotive history. Collectors and enthusiasts cherish these miniature models.**

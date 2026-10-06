@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Jessie Plush: Perfect Cuddly Collectible for Every Fan"
-description: "The Toy Story Jessie plush is a popular choice for fans of all ages. This cuddly cowgirl brings the charm of Toy Story right into your home. Jessie, the spirite"
+title: 'Toy Story Jessie Plush: Perfect Cuddly Collectible for Every Fan'
+description: The Toy Story Jessie plush is a popular choice for fans of all ages.
+  This cuddly cowgirl brings the charm of Toy Story right into your home. Jessie,
+  the spirite
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-jessie-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Ball
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-jessie-plush&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Jessie plush is a popular choice for fans of all ages. This cuddly cowgirl brings the charm of Toy Story right into your home.**

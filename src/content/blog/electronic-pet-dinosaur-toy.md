@@ -1,10 +1,14 @@
 ---
-title: "Electronic Pet Dinosaur Toy: Ultimate Fun for Kids and Collectors"
-description: "Imagine bringing the prehistoric world right into your home with an electronic pet dinosaur toy that feels almost alive. If you’ve ever wished for a pet that’s "
+title: 'Electronic Pet Dinosaur Toy: Ultimate Fun for Kids and Collectors'
+description: 'Imagine bringing the prehistoric world right into your home with an
+  electronic pet dinosaur toy that feels almost alive. If you’ve ever wished for a
+  pet that’s '
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-pet-dinosaur-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=electronic-pet-dinosaur-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine bringing the prehistoric world right into your home with an electronic pet dinosaur toy that feels almost alive. If you’ve ever wished for a pet that’s both fun and unique, this is exactly what you need.**

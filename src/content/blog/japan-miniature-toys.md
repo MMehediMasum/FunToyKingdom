@@ -1,10 +1,14 @@
 ---
-title: "Japan Miniature Toys: Top Realistic Sushi & Dollhouse Sets for Collectors"
-description: "Japan's miniature toys capture the charm of traditional Japanese culture in tiny forms. These detailed miniatures delight both collectors and hobbyists. Miniatu"
+title: 'Japan Miniature Toys: Top Realistic Sushi & Dollhouse Sets for Collectors'
+description: Japan's miniature toys capture the charm of traditional Japanese culture
+  in tiny forms. These detailed miniatures delight both collectors and hobbyists.
+  Miniatu
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=japan-miniature-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=japan-miniature-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Japan's miniature toys capture the charm of traditional Japanese culture in tiny forms. These detailed miniatures delight both collectors and hobbyists.**

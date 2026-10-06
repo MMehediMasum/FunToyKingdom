@@ -1,10 +1,14 @@
 ---
-title: "Toy Drag Cars: Ultimate Hot Wheels and Disney Racing Sets Reviewed"
-description: "Toy drag cars bring excitement and speed to playtime. These miniature racers offer thrilling head-to-head competitions. Toy drag cars combine fun with detailed "
+title: 'Toy Drag Cars: Ultimate Hot Wheels and Disney Racing Sets Reviewed'
+description: 'Toy drag cars bring excitement and speed to playtime. These miniature
+  racers offer thrilling head-to-head competitions. Toy drag cars combine fun with
+  detailed '
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-drag-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-drag-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy drag cars bring excitement and speed to playtime. These miniature racers offer thrilling head-to-head competitions.**

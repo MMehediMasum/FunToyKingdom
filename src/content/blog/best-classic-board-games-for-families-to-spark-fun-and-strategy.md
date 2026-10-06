@@ -1,10 +1,13 @@
 ---
-title: "Best Classic Board Games for Families to Spark Fun and Strategy"
-description: "Classic board games bring families together for fun and friendly competition. They create lasting memories and encourage teamwork. These timeless games suit pla"
+title: Best Classic Board Games for Families to Spark Fun and Strategy
+description: Classic board games bring families together for fun and friendly competition.
+  They create lasting memories and encourage teamwork. These timeless games suit pla
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-classic-board-games-for-families-to-spark-fun-and-strategy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-classic-board-games-for-families-to-spark-fun-and-strategy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Classic board games bring families together for fun and friendly competition. They create lasting memories and encourage teamwork.**

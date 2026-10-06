@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Monster Truck Sprinkler Toy: Ultimate Summer Fun for Kids"
-description: "Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Monster Truck Sprinkler Toy might be exactly what you need. Imagine your b"
+title: 'Outdoor Monster Truck Sprinkler Toy: Ultimate Summer Fun for Kids'
+description: Looking for a fun way to keep your kids cool and entertained this summer?
+  The Outdoor Monster Truck Sprinkler Toy might be exactly what you need. Imagine
+  your b
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-monster-truck-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-monster-truck-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Monster Truck Sprinkler Toy might be exactly what you need.**

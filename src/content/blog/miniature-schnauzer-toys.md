@@ -1,10 +1,13 @@
 ---
-title: "Miniature Schnauzer Toys: Top Interactive & Chew Options for Busy Dogs"
-description: "Miniature Schnauzers need engaging toys to stay happy and healthy. Selecting the right toys keeps them entertained and mentally stimulated. Miniature Schnauzers"
+title: 'Miniature Schnauzer Toys: Top Interactive & Chew Options for Busy Dogs'
+description: Miniature Schnauzers need engaging toys to stay happy and healthy. Selecting
+  the right toys keeps them entertained and mentally stimulated. Miniature Schnauzers
 pubDate: 2026-02-22
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-schnauzer-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-schnauzer-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature Schnauzers need engaging toys to stay happy and healthy. Selecting the right toys keeps them entertained and mentally stimulated.**

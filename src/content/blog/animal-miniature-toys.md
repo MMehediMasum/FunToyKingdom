@@ -1,10 +1,14 @@
 ---
-title: "Animal Miniature Toys: Top Realistic Sets for Kids’ Learning & Fun"
-description: "Animal miniature toys capture the fascination of children and adults alike. These tiny replicas bring the wild to your fingertips. With various styles and theme"
+title: 'Animal Miniature Toys: Top Realistic Sets for Kids’ Learning & Fun'
+description: Animal miniature toys capture the fascination of children and adults
+  alike. These tiny replicas bring the wild to your fingertips. With various styles
+  and theme
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=animal-miniature-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=animal-miniature-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Animal miniature toys capture the fascination of children and adults alike. These tiny replicas bring the wild to your fingertips.**

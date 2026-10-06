@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Blind Infants: Top Montessori Picks for Early Development"
-description: "Sensory toys help blind infants explore and learn through touch, sound, and movement. These toys support early development and stimulate the senses safely. Choo"
+title: 'Sensory Toys for Blind Infants: Top Montessori Picks for Early Development'
+description: Sensory toys help blind infants explore and learn through touch, sound,
+  and movement. These toys support early development and stimulate the senses safely.
+  Choo
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-blind-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-blind-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help blind infants explore and learn through touch, sound, and movement. These toys support early development and stimulate the senses safely.**

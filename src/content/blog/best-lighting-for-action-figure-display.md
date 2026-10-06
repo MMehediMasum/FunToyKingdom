@@ -1,10 +1,14 @@
 ---
-title: "Best Lighting for Action Figure Display: Ultimate Guide to Stunning Showcases"
-description: "Are you tired of your action figures blending into the background? The right lighting can transform your display from ordinary to stunning. Imagine your favorit"
+title: 'Best Lighting for Action Figure Display: Ultimate Guide to Stunning Showcases'
+description: Are you tired of your action figures blending into the background? The
+  right lighting can transform your display from ordinary to stunning. Imagine your
+  favorit
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lighting-for-action-figure-display&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=best-lighting-for-action-figure-display&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you tired of your action figures blending into the background? The right lighting can transform your display from ordinary to stunning.**

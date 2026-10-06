@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Catapult Diy: Easy Steps to Build a Fun Launcher"
-description: "Are you ready to build something fun and exciting with your own hands? A wooden toy catapult DIY project is the perfect way to bring creativity and play togethe"
+title: 'Wooden Toy Catapult Diy: Easy Steps to Build a Fun Launcher'
+description: Are you ready to build something fun and exciting with your own hands?
+  A wooden toy catapult DIY project is the perfect way to bring creativity and play
+  togethe
 pubDate: 2026-07-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-catapult-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-catapult-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to build something fun and exciting with your own hands? A wooden toy catapult DIY project is the perfect way to bring creativity and play together.**

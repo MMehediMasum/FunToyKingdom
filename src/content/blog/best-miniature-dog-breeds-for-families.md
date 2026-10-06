@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Miniature Dog Breeds for Families: Top Essentials and Care Tips"
 description: "Choosing the right miniature dog breed can bring joy and companionship to your family. Small dogs fit well in homes with kids and limited space. Miniature dog b"
 pubDate: 2026-09-06

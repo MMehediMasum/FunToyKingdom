@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Slip And Slide for Backyard: Ultimate Summer Fun Guide"
-description: "Looking for a fun and exciting way to turn your backyard into the ultimate summer playground? An inflatable slip and slide might be exactly what you need. Imagi"
+title: 'Inflatable Slip And Slide for Backyard: Ultimate Summer Fun Guide'
+description: Looking for a fun and exciting way to turn your backyard into the ultimate
+  summer playground? An inflatable slip and slide might be exactly what you need.
+  Imagi
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-slip-and-slide-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Slide For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-slip-and-slide-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to turn your backyard into the ultimate summer playground? An inflatable slip and slide might be exactly what you need.**

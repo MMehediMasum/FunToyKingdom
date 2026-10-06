@@ -1,10 +1,14 @@
 ---
-title: "Toys for Infants India: Top Musical Plush and Educational Baby Gifts"
-description: "Toys for infants in India blend tradition with learning. These toys support early growth and keep babies engaged. Choosing safe, soft, and musical toys helps in"
+title: 'Toys for Infants India: Top Musical Plush and Educational Baby Gifts'
+description: Toys for infants in India blend tradition with learning. These toys support
+  early growth and keep babies engaged. Choosing safe, soft, and musical toys helps
+  in
 pubDate: 2026-01-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-infants-india&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-infants-india&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toys for infants in India blend tradition with learning. These toys support early growth and keep babies engaged.**

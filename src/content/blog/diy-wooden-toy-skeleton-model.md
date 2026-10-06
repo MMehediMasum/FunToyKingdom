@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Skeleton Model: Fun, Easy, and Creative Craft Ideas"
-description: "Are you looking for a fun and creative project that brings both learning and hands-on excitement? Building your own DIY wooden toy skeleton model is the perfect"
+title: 'Diy Wooden Toy Skeleton Model: Fun, Easy, and Creative Craft Ideas'
+description: Are you looking for a fun and creative project that brings both learning
+  and hands-on excitement? Building your own DIY wooden toy skeleton model is the
+  perfect
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-skeleton-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-skeleton-model&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings both learning and hands-on excitement? Building your own DIY wooden toy skeleton model is the perfect way to challenge your skills and create something unique.**

@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Vegeta Action Figure Toy: Ultimate Collector’s Must-Have"
-description: "If you're a fan of Dragon Ball Z, you know Vegeta is one of the most iconic characters ever. Imagine holding a detailed Vegeta action figure toy right in your h"
+title: 'Dragon Ball Z Vegeta Action Figure Toy: Ultimate Collector’s Must-Have'
+description: If you're a fan of Dragon Ball Z, you know Vegeta is one of the most
+  iconic characters ever. Imagine holding a detailed Vegeta action figure toy right
+  in your h
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-vegeta-action-figure-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-vegeta-action-figure-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you're a fan of Dragon Ball Z, you know Vegeta is one of the most iconic characters ever. Imagine holding a detailed Vegeta action figure toy right in your hands—ready to bring your favorite battles to life.**

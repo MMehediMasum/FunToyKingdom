@@ -1,10 +1,14 @@
 ---
-title: "Rc Dump Truck Toy: Ultimate Fun for Kids and Collectors"
-description: "Looking for a toy that combines fun, control, and adventure? An RC dump truck toy might be exactly what you need. Imagine steering your own mini construction ve"
+title: 'Rc Dump Truck Toy: Ultimate Fun for Kids and Collectors'
+description: Looking for a toy that combines fun, control, and adventure? An RC dump
+  truck toy might be exactly what you need. Imagine steering your own mini construction
+  ve
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-dump-truck-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-dump-truck-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a toy that combines fun, control, and adventure? An RC dump truck toy might be exactly what you need.**

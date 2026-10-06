@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Workbench: Build a Fun, Safe Play Space"
-description: "Are you looking for a fun and creative project that brings joy to your child while sparking their imagination? Building a DIY wooden toy workbench could be exac"
+title: 'Diy Wooden Toy Workbench: Build a Fun, Safe Play Space'
+description: Are you looking for a fun and creative project that brings joy to your
+  child while sparking their imagination? Building a DIY wooden toy workbench could
+  be exac
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-workbench&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-workbench&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to your child while sparking their imagination? Building a DIY wooden toy workbench could be exactly what you need.**

@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toys for 18 Month Old: Top Safe & Fun Picks"
-description: "Looking for the perfect ride-on toy for your 18-month-old? You want something safe, fun, and just right for your little one’s growing skills. Choosing the right"
+title: 'Ride on Toys for 18 Month Old: Top Safe & Fun Picks'
+description: Looking for the perfect ride-on toy for your 18-month-old? You want something
+  safe, fun, and just right for your little one’s growing skills. Choosing the right
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toys-for-18-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toys-for-18-month-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect ride-on toy for your 18-month-old? You want something safe, fun, and just right for your little one’s growing skills.**

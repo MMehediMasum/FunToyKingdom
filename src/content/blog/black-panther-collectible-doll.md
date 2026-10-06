@@ -1,10 +1,14 @@
 ---
-title: "Black Panther Collectible Doll: Ultimate Must-Have for Fans"
-description: "Are you a fan of Black Panther or a passionate collector looking for something truly special? The Black Panther collectible doll is more than just a toy—it's a "
+title: 'Black Panther Collectible Doll: Ultimate Must-Have for Fans'
+description: 'Are you a fan of Black Panther or a passionate collector looking for
+  something truly special? The Black Panther collectible doll is more than just a
+  toy—it''s a '
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-panther-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=black-panther-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Black Panther or a passionate collector looking for something truly special? The Black Panther collectible doll is more than just a toy—it's a piece of art that captures the strength, spirit, and style of the iconic superhero.**

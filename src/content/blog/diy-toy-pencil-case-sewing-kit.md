@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Pencil Case Sewing Kit: Ultimate Guide to Fun & Function"
-description: "Looking for a fun and practical project you can finish in just a few hours? Your search ends here with the DIY Toy Pencil Case Sewing Kit. Imagine creating a co"
+title: 'Diy Toy Pencil Case Sewing Kit: Ultimate Guide to Fun & Function'
+description: Looking for a fun and practical project you can finish in just a few
+  hours? Your search ends here with the DIY Toy Pencil Case Sewing Kit. Imagine creating
+  a co
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-pencil-case-sewing-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-pencil-case-sewing-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and practical project you can finish in just a few hours? Your search ends here with the DIY Toy Pencil Case Sewing Kit.**

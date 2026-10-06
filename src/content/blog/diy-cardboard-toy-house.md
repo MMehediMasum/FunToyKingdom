@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy House: Creative, Fun, and Easy Step-by-Step Guide"
-description: "Imagine giving your child a magical play space that you created with your own hands. A DIY cardboard toy house is not only fun to build but also sparks creativi"
+title: 'Diy Cardboard Toy House: Creative, Fun, and Easy Step-by-Step Guide'
+description: Imagine giving your child a magical play space that you created with
+  your own hands. A DIY cardboard toy house is not only fun to build but also sparks
+  creativi
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-house&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-house&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a magical play space that you created with your own hands. A DIY cardboard toy house is not only fun to build but also sparks creativity and endless joy for your little ones.**

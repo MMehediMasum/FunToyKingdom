@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Time Machine: Create an Epic Adventure Toy!"
-description: "Imagine turning ordinary cardboard into a thrilling time machine toy that sparks your creativity and brings hours of fun. You don’t need fancy tools or expensiv"
+title: 'Diy Cardboard Toy Time Machine: Create an Epic Adventure Toy!'
+description: Imagine turning ordinary cardboard into a thrilling time machine toy
+  that sparks your creativity and brings hours of fun. You don’t need fancy tools
+  or expensiv
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-time-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-time-machine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning ordinary cardboard into a thrilling time machine toy that sparks your creativity and brings hours of fun. You don’t need fancy tools or expensive materials—just a few simple items and your imagination.**

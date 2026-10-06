@@ -1,10 +1,14 @@
 ---
-title: "Are Goo Jit Zu Toys Toxic: Uncover the Hidden Truth Now"
-description: "Are you worried about what’s inside your child’s Goo Jit Zu toys? You want to make sure that the fun your kids have doesn’t come with hidden risks. Many parents"
+title: 'Are Goo Jit Zu Toys Toxic: Uncover the Hidden Truth Now'
+description: Are you worried about what’s inside your child’s Goo Jit Zu toys? You
+  want to make sure that the fun your kids have doesn’t come with hidden risks. Many
+  parents
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-goo-jit-zu-toys-toxic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Selling Toys For Cash
+heroImage: https://tse1.mm.bing.net/th?q=are-goo-jit-zu-toys-toxic&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you worried about what’s inside your child’s Goo Jit Zu toys? You want to make sure that the fun your kids have doesn’t come with hidden risks.**

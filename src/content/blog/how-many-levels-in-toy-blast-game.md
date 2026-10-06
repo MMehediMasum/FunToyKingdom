@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How Many Levels in Toy Blast Game: Ultimate Guide Revealed!"
 description: "Are you curious about how many levels you can play in Toy Blast? If you’ve been hooked on matching colorful blocks and solving puzzles, you might wonder just ho"
 pubDate: 2025-10-02

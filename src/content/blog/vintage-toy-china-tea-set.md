@@ -1,10 +1,14 @@
 ---
-title: "Vintage Toy China Tea Set: Perfect Floral Porcelain Playtime Gift for Kids"
-description: "Vintage toy China tea sets bring charm and joy to children's playtime. These delicate porcelain sets inspire creativity and social skills. A vintage toy China t"
+title: 'Vintage Toy China Tea Set: Perfect Floral Porcelain Playtime Gift for Kids'
+description: Vintage toy China tea sets bring charm and joy to children's playtime.
+  These delicate porcelain sets inspire creativity and social skills. A vintage toy
+  China t
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-toy-china-tea-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=vintage-toy-china-tea-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vintage toy China tea sets bring charm and joy to children's playtime. These delicate porcelain sets inspire creativity and social skills.**

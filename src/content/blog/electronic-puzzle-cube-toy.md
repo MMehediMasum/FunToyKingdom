@@ -1,10 +1,14 @@
 ---
-title: "Electronic Puzzle Cube Toy: Ultimate Brain-Boosting Challenge"
-description: "Are you ready to challenge your mind and have fun at the same time? The Electronic Puzzle Cube Toy is more than just a game—it’s a brain workout that keeps you "
+title: 'Electronic Puzzle Cube Toy: Ultimate Brain-Boosting Challenge'
+description: 'Are you ready to challenge your mind and have fun at the same time?
+  The Electronic Puzzle Cube Toy is more than just a game—it’s a brain workout that
+  keeps you '
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-puzzle-cube-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=electronic-puzzle-cube-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind and have fun at the same time? The Electronic Puzzle Cube Toy is more than just a game—it’s a brain workout that keeps you hooked for hours.**

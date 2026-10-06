@@ -1,10 +1,14 @@
 ---
-title: "Battery Toy Car: Top Glow-in-the-Dark LED Race Cars for Kids"
-description: "Battery toy cars bring fun and excitement to children’s playtime. These small vehicles run on batteries and light up for added thrill. Battery toy cars come in "
+title: 'Battery Toy Car: Top Glow-in-the-Dark LED Race Cars for Kids'
+description: 'Battery toy cars bring fun and excitement to children’s playtime. These
+  small vehicles run on batteries and light up for added thrill. Battery toy cars
+  come in '
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=battery-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=battery-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Battery toy cars bring fun and excitement to children’s playtime. These small vehicles run on batteries and light up for added thrill.**

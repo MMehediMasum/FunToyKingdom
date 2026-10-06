@@ -1,10 +1,14 @@
 ---
-title: "Science Toys for Infants: Top Educational Sets to Spark Curiosity"
-description: "Science toys for infants help young children explore and learn about the world. These toys support early brain growth and sensory development. Introducing scien"
+title: 'Science Toys for Infants: Top Educational Sets to Spark Curiosity'
+description: Science toys for infants help young children explore and learn about
+  the world. These toys support early brain growth and sensory development. Introducing
+  scien
 pubDate: 2026-08-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=science-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Science toys for infants help young children explore and learn about the world. These toys support early brain growth and sensory development.**

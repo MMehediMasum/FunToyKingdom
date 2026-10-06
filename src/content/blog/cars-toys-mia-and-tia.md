@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys Mia And Tia: Ultimate Dinoco Racing Fun for Kids"
-description: "Disney Cars Toys Mia and Tia bring fun and excitement to young fans. These die-cast cars capture the charm of the popular characters from the movie. Mia and Tia"
+title: 'Cars Toys Mia And Tia: Ultimate Dinoco Racing Fun for Kids'
+description: Disney Cars Toys Mia and Tia bring fun and excitement to young fans.
+  These die-cast cars capture the charm of the popular characters from the movie.
+  Mia and Tia
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-mia-and-tia&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-mia-and-tia&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Cars Toys Mia and Tia bring fun and excitement to young fans. These die-cast cars capture the charm of the popular characters from the movie.**

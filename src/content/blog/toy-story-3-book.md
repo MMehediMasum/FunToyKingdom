@@ -1,10 +1,14 @@
 ---
-title: "Toy Story 3 Book: Magical Adventures for Kids and Disney Fans"
-description: "Toy Story 3 offers engaging stories for fans of all ages. This beloved tale is available in various book formats. Dive into the enchanting world of Toy Story 3 "
+title: 'Toy Story 3 Book: Magical Adventures for Kids and Disney Fans'
+description: 'Toy Story 3 offers engaging stories for fans of all ages. This beloved
+  tale is available in various book formats. Dive into the enchanting world of Toy
+  Story 3 '
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-3-book&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-3-book&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story 3 offers engaging stories for fans of all ages. This beloved tale is available in various book formats.**

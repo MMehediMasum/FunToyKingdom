@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Treasure Hunt Game Set: Ultimate Fun for All Ages"
-description: "Imagine turning your backyard, park, or any outdoor space into a thrilling adventure. With an Outdoor Treasure Hunt Game Set, you can do just that. This game br"
+title: 'Outdoor Treasure Hunt Game Set: Ultimate Fun for All Ages'
+description: Imagine turning your backyard, park, or any outdoor space into a thrilling
+  adventure. With an Outdoor Treasure Hunt Game Set, you can do just that. This game
+  br
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-treasure-hunt-game-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-treasure-hunt-game-set&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine turning your backyard, park, or any outdoor space into a thrilling adventure. With an Outdoor Treasure Hunt Game Set, you can do just that.**

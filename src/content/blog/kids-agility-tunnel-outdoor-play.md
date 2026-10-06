@@ -1,10 +1,14 @@
 ---
-title: "Kids Agility Tunnel Outdoor Play: Boost Fun & Fitness Instantly"
-description: "Imagine your child laughing and crawling through a colorful tunnel in your own backyard. Kids agility tunnels are more than just play—they help boost your child"
+title: 'Kids Agility Tunnel Outdoor Play: Boost Fun & Fitness Instantly'
+description: Imagine your child laughing and crawling through a colorful tunnel in
+  your own backyard. Kids agility tunnels are more than just play—they help boost
+  your child
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-agility-tunnel-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=kids-agility-tunnel-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child laughing and crawling through a colorful tunnel in your own backyard. Kids agility tunnels are more than just play—they help boost your child’s coordination, balance, and confidence.**

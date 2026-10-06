@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Toys for Christmas: Top Teethers and Sensory Gifts"
-description: "Choosing the best infant toys for Christmas can make the holiday extra special for little ones. Safe, soft, and engaging toys help babies explore and enjoy thei"
+title: 'Best Infant Toys for Christmas: Top Teethers and Sensory Gifts'
+description: Choosing the best infant toys for Christmas can make the holiday extra
+  special for little ones. Safe, soft, and engaging toys help babies explore and enjoy
+  thei
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-toys-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-toys-for-christmas&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best infant toys for Christmas can make the holiday extra special for little ones. Safe, soft, and engaging toys help babies explore and enjoy their first festive season.**

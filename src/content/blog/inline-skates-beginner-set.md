@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Inline Skates Beginner Set: Ultimate Guide to Start Rolling Today"
 description: "Are you ready to glide smoothly and confidently on wheels? Choosing the right inline skates as a beginner can feel overwhelming, but it doesn’t have to be. With"
 pubDate: 2026-05-23

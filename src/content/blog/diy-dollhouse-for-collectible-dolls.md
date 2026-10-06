@@ -1,10 +1,13 @@
 ---
-title: "Diy Dollhouse for Collectible Dolls: Ultimate Guide to Stunning Designs"
-description: "Are you looking for a fun and creative way to showcase your collectible dolls? Building a DIY dollhouse might be just what you need. Imagine having a beautiful,"
+title: 'Diy Dollhouse for Collectible Dolls: Ultimate Guide to Stunning Designs'
+description: Are you looking for a fun and creative way to showcase your collectible
+  dolls? Building a DIY dollhouse might be just what you need. Imagine having a beautiful,
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-dollhouse-for-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=diy-dollhouse-for-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for a fun and creative way to showcase your collectible dolls? Building a DIY dollhouse might be just what you need.**

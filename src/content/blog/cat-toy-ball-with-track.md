@@ -1,10 +1,14 @@
 ---
-title: "Cat Toy Ball With Track: Top Interactive Toys for Indoor Cats"
-description: "Cats love to play, and the right toy can keep them engaged. The cat toy ball with track offers endless fun. Interactive cat toys like these are a must-have for "
+title: 'Cat Toy Ball With Track: Top Interactive Toys for Indoor Cats'
+description: 'Cats love to play, and the right toy can keep them engaged. The cat
+  toy ball with track offers endless fun. Interactive cat toys like these are a must-have
+  for '
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-ball-with-track&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-ball-with-track&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cats love to play, and the right toy can keep them engaged. The cat toy ball with track offers endless fun.**

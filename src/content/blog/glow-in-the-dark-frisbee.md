@@ -1,10 +1,14 @@
 ---
-title: "Glow in the Dark Frisbee: Ultimate Night Play for Endless Fun"
-description: "Imagine playing your favorite outdoor game even after the sun goes down. With a glow in the dark frisbee, you can turn any evening into an exciting adventure. W"
+title: 'Glow in the Dark Frisbee: Ultimate Night Play for Endless Fun'
+description: Imagine playing your favorite outdoor game even after the sun goes down.
+  With a glow in the dark frisbee, you can turn any evening into an exciting adventure.
+  W
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=glow-in-the-dark-frisbee&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=glow-in-the-dark-frisbee&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine playing your favorite outdoor game even after the sun goes down. With a glow in the dark frisbee, you can turn any evening into an exciting adventure.**

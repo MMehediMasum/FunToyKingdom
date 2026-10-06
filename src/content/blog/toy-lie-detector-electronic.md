@@ -1,10 +1,14 @@
 ---
-title: "Toy Lie Detector Electronic: Ultimate Fun & Truth Revealer!"
-description: "Have you ever wished you had a fun way to find out if someone is telling the truth? Imagine having a cool gadget that can help you do just that—right at your fi"
+title: 'Toy Lie Detector Electronic: Ultimate Fun & Truth Revealer!'
+description: Have you ever wished you had a fun way to find out if someone is telling
+  the truth? Imagine having a cool gadget that can help you do just that—right at
+  your fi
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-lie-detector-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-lie-detector-electronic&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wished you had a fun way to find out if someone is telling the truth? Imagine having a cool gadget that can help you do just that—right at your fingertips.**

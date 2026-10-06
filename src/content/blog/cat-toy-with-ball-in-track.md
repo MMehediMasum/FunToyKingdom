@@ -1,10 +1,14 @@
 ---
-title: "Cat Toy With Ball in Track: Ultimate Interactive Fun for Indoor Cats"
-description: "A cat toy with a ball in a track keeps cats active and entertained indoors. It encourages play and helps reduce boredom. These toys feature a ball that moves in"
+title: 'Cat Toy With Ball in Track: Ultimate Interactive Fun for Indoor Cats'
+description: A cat toy with a ball in a track keeps cats active and entertained indoors.
+  It encourages play and helps reduce boredom. These toys feature a ball that moves
+  in
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-with-ball-in-track&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-with-ball-in-track&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A cat toy with a ball in a track keeps cats active and entertained indoors. It encourages play and helps reduce boredom.**

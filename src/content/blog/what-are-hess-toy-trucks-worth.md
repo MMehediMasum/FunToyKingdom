@@ -1,10 +1,14 @@
 ---
-title: "What are Hess Toy Trucks Worth: Uncover Their True Value Today"
-description: "Are you curious about the value of your Hess Toy Trucks? Whether you have a single truck from years ago or a whole collection, knowing what they’re worth can be"
+title: 'What are Hess Toy Trucks Worth: Uncover Their True Value Today'
+description: Are you curious about the value of your Hess Toy Trucks? Whether you
+  have a single truck from years ago or a whole collection, knowing what they’re worth
+  can be
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-hess-toy-trucks-worth&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=what-are-hess-toy-trucks-worth&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you curious about the value of your Hess Toy Trucks? Whether you have a single truck from years ago or a whole collection, knowing what they’re worth can be exciting—and even rewarding.**

@@ -1,10 +1,14 @@
 ---
-title: "Creepy Crawlers Electronic Toy Kit: Ultimate Fun for Kids"
-description: "Have you ever wanted to bring your imagination to life with something both fun and a little spooky? The Creepy Crawlers Electronic Toy Kit lets you do just that"
+title: 'Creepy Crawlers Electronic Toy Kit: Ultimate Fun for Kids'
+description: Have you ever wanted to bring your imagination to life with something
+  both fun and a little spooky? The Creepy Crawlers Electronic Toy Kit lets you do
+  just that
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=creepy-crawlers-electronic-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=creepy-crawlers-electronic-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to bring your imagination to life with something both fun and a little spooky? The Creepy Crawlers Electronic Toy Kit lets you do just that!**

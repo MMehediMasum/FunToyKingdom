@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Lotso Plush: The Ultimate Soft and Cuddly Collectible Toy"
-description: "The Toy Story Lotso plush is a soft, cuddly bear loved by fans of all ages. This character from Toy Story 3 brings both charm and comfort to any collection. Lot"
+title: 'Toy Story Lotso Plush: The Ultimate Soft and Cuddly Collectible Toy'
+description: The Toy Story Lotso plush is a soft, cuddly bear loved by fans of all
+  ages. This character from Toy Story 3 brings both charm and comfort to any collection.
+  Lot
 pubDate: 2026-02-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-lotso-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-lotso-plush&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **The Toy Story Lotso plush is a soft, cuddly bear loved by fans of all ages. This character from Toy Story 3 brings both charm and comfort to any collection.**

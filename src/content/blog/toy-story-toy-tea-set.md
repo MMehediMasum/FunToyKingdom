@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Toy Tea Set: Perfect Pretend Play for Kids’ Tea Parties"
-description: "The Toy Story Toy Tea Set brings fun and imagination to children’s playtime. It combines favorite characters with a classic tea party experience. This toy set o"
+title: 'Toy Story Toy Tea Set: Perfect Pretend Play for Kids’ Tea Parties'
+description: The Toy Story Toy Tea Set brings fun and imagination to children’s playtime.
+  It combines favorite characters with a classic tea party experience. This toy set
+  o
 pubDate: 2026-08-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-toy-tea-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-toy-tea-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Toy Tea Set brings fun and imagination to children’s playtime. It combines favorite characters with a classic tea party experience.**

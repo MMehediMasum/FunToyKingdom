@@ -1,10 +1,14 @@
 ---
-title: "Dog Ball Shooter Toy: Top Picks for Fun and Active Fetch Play"
-description: "A dog ball shooter toy makes fetch games easy and fun for dogs and owners. It throws balls far, keeping dogs active and happy. Dog ball launcher toys come in ma"
+title: 'Dog Ball Shooter Toy: Top Picks for Fun and Active Fetch Play'
+description: A dog ball shooter toy makes fetch games easy and fun for dogs and owners.
+  It throws balls far, keeping dogs active and happy. Dog ball launcher toys come
+  in ma
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-ball-shooter-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=dog-ball-shooter-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog ball shooter toy makes fetch games easy and fun for dogs and owners. It throws balls far, keeping dogs active and happy.**

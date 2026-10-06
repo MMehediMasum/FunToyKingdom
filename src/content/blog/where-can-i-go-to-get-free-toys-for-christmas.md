@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Go to Get Free Toys for Christmas: Top Local Spots Revealed"
-description: "Are you wondering where you can go to get free toys for Christmas? You’re not alone. Many people want to give their kids something special during the holidays b"
+title: 'Where Can I Go to Get Free Toys for Christmas: Top Local Spots Revealed'
+description: Are you wondering where you can go to get free toys for Christmas? You’re
+  not alone. Many people want to give their kids something special during the holidays
+  b
 pubDate: 2025-09-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-go-to-get-free-toys-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-go-to-get-free-toys-for-christmas&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can go to get free toys for Christmas? You’re not alone.**

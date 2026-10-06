@@ -1,10 +1,14 @@
 ---
-title: "Robot Godzilla Toy: Unleash Epic Battles with Mecha Action Figures!"
-description: "Robot Godzilla toys bring epic battles and thrilling play to fans of all ages. These figures capture the power and detail of the famous MechaGodzilla from the K"
+title: 'Robot Godzilla Toy: Unleash Epic Battles with Mecha Action Figures!'
+description: Robot Godzilla toys bring epic battles and thrilling play to fans of
+  all ages. These figures capture the power and detail of the famous MechaGodzilla
+  from the K
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-godzilla-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=robot-godzilla-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot Godzilla toys bring epic battles and thrilling play to fans of all ages. These figures capture the power and detail of the famous MechaGodzilla from the King of the Monsters series.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Toys for Tweens: Top Picks to Spark Creativity & Fun"
-description: "Finding the best toys for tweens can feel tricky. Your child is no longer a little kid, but not quite a teenager either. You want toys that keep them entertaine"
+title: 'Best Toys for Tweens: Top Picks to Spark Creativity & Fun'
+description: Finding the best toys for tweens can feel tricky. Your child is no longer
+  a little kid, but not quite a teenager either. You want toys that keep them entertaine
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-tweens&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best toys for tweens can feel tricky. Your child is no longer a little kid, but not quite a teenager either.**

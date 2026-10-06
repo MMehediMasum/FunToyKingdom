@@ -1,10 +1,14 @@
 ---
-title: "Best Sports Toys for 5 Year Olds: Top Fun and Active Picks"
-description: "Finding the best sports toys for 5 year olds helps encourage active play and skill development. These toys keep children engaged while promoting coordination an"
+title: 'Best Sports Toys for 5 Year Olds: Top Fun and Active Picks'
+description: Finding the best sports toys for 5 year olds helps encourage active play
+  and skill development. These toys keep children engaged while promoting coordination
+  an
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sports-toys-for-5-year-olds-top-fun-and-active-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sports Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-sports-toys-for-5-year-olds-top-fun-and-active-picks&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Finding the best sports toys for 5 year olds helps encourage active play and skill development. These toys keep children engaged while promoting coordination and fun.**

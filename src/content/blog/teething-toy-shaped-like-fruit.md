@@ -1,10 +1,14 @@
 ---
-title: "Teething Toy Shaped Like Fruit: Safe, Fun, and Soothing Choices"
-description: "If you’re a parent, you know how tough teething can be for your little one. The constant fussiness and sore gums make it hard for both of you to get through the"
+title: 'Teething Toy Shaped Like Fruit: Safe, Fun, and Soothing Choices'
+description: If you’re a parent, you know how tough teething can be for your little
+  one. The constant fussiness and sore gums make it hard for both of you to get through
+  the
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=teething-toy-shaped-like-fruit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=teething-toy-shaped-like-fruit&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent, you know how tough teething can be for your little one. The constant fussiness and sore gums make it hard for both of you to get through the day.**

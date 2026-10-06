@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games for 3 Players to Enjoy Family Fun Together"
-description: "Finding the best board games for 3 players can make game night more fun and fair. Games that work well with three players keep everyone engaged and entertained."
+title: Best Board Games for 3 Players to Enjoy Family Fun Together
+description: Finding the best board games for 3 players can make game night more fun
+  and fair. Games that work well with three players keep everyone engaged and entertained.
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-3-players-to-enjoy-family-fun-together&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-3-players-to-enjoy-family-fun-together&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for 3 players can make game night more fun and fair. Games that work well with three players keep everyone engaged and entertained.**

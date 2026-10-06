@@ -1,10 +1,14 @@
 ---
-title: "What Can You Do With Small Toy Plastic Figurines Bookends: Creative Ideas"
-description: "Are you looking for a fun and creative way to organize your books? Small toy plastic figurines bookends might be exactly what you need. These little figures are"
+title: 'What Can You Do With Small Toy Plastic Figurines Bookends: Creative Ideas'
+description: Are you looking for a fun and creative way to organize your books? Small
+  toy plastic figurines bookends might be exactly what you need. These little figures
+  are
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-can-you-do-with-small-toy-plastic-figurines-bookends&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=what-can-you-do-with-small-toy-plastic-figurines-bookends&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for a fun and creative way to organize your books? Small toy plastic figurines bookends might be exactly what you need.**

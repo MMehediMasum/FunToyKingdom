@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Outdoor Adventures: Ultimate Fun and Safety Guide"
-description: "Looking for a way to make your outdoor time more exciting? A ride on toy for outdoor adventures could be just what you need. Imagine the joy of zooming around y"
+title: 'Ride on Toy for Outdoor Adventures: Ultimate Fun and Safety Guide'
+description: Looking for a way to make your outdoor time more exciting? A ride on
+  toy for outdoor adventures could be just what you need. Imagine the joy of zooming
+  around y
 pubDate: 2025-10-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-outdoor-adventures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-outdoor-adventures&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a way to make your outdoor time more exciting? A ride on toy for outdoor adventures could be just what you need.**

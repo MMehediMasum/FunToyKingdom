@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Garage: Easy Steps to Build Fun & Durable Playtime"
-description: "Looking for a fun and creative way to keep your kids entertained? Building a DIY cardboard toy garage could be just what you need. Imagine turning simple cardbo"
+title: 'Diy Cardboard Toy Garage: Easy Steps to Build Fun & Durable Playtime'
+description: Looking for a fun and creative way to keep your kids entertained? Building
+  a DIY cardboard toy garage could be just what you need. Imagine turning simple cardbo
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-garage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-garage&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative way to keep your kids entertained? Building a DIY cardboard toy garage could be just what you need.**

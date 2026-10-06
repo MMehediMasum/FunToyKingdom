@@ -1,10 +1,13 @@
 ---
-title: "Rubik Cube Toy: Ultimate Brain Teaser for Kids and Adults"
-description: "The Rubik's Cube stands as a timeless puzzle toy. It's a challenge that captivates minds of all ages. This iconic 3x3 cube offers more than just entertainment. "
+title: 'Rubik Cube Toy: Ultimate Brain Teaser for Kids and Adults'
+description: 'The Rubik''s Cube stands as a timeless puzzle toy. It''s a challenge
+  that captivates minds of all ages. This iconic 3x3 cube offers more than just entertainment. '
 pubDate: 2026-02-04
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rubik-cube-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=rubik-cube-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **The Rubik's Cube stands as a timeless puzzle toy. It's a challenge that captivates minds of all ages.**

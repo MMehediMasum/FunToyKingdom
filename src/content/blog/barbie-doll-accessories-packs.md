@@ -1,10 +1,14 @@
 ---
-title: "Barbie Doll Accessories Packs: Ultimate Guide to Stylish Add-Ons"
-description: "Are you looking to make your Barbie doll experience even more exciting? Barbie Doll Accessories Packs are the perfect way to add style, fun, and creativity to y"
+title: 'Barbie Doll Accessories Packs: Ultimate Guide to Stylish Add-Ons'
+description: Are you looking to make your Barbie doll experience even more exciting?
+  Barbie Doll Accessories Packs are the perfect way to add style, fun, and creativity
+  to y
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-doll-accessories-packs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-doll-accessories-packs&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking to make your Barbie doll experience even more exciting? Barbie Doll Accessories Packs are the perfect way to add style, fun, and creativity to your playtime.**

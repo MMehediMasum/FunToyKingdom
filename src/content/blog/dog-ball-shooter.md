@@ -1,10 +1,14 @@
 ---
-title: "Dog Ball Shooter: Top Automatic Launchers for Energetic Fetch Play"
-description: "A dog ball shooter makes fetch fun and easy for both dogs and owners. It helps throw balls farther and faster without tiring your arm. These devices come in man"
+title: 'Dog Ball Shooter: Top Automatic Launchers for Energetic Fetch Play'
+description: A dog ball shooter makes fetch fun and easy for both dogs and owners.
+  It helps throw balls farther and faster without tiring your arm. These devices come
+  in man
 pubDate: 2026-02-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-ball-shooter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=dog-ball-shooter&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog ball shooter makes fetch fun and easy for both dogs and owners. It helps throw balls farther and faster without tiring your arm.**

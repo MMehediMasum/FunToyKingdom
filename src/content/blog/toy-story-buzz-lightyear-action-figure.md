@@ -1,10 +1,13 @@
 ---
-title: "Toy Story Buzz Lightyear Action Figure: Ultimate Collector’s Guide"
-description: "If you’re a fan of Toy Story, you know Buzz Lightyear isn’t just a character—he’s a hero. Imagine having your very own Buzz Lightyear action figure, ready to ta"
+title: 'Toy Story Buzz Lightyear Action Figure: Ultimate Collector’s Guide'
+description: If you’re a fan of Toy Story, you know Buzz Lightyear isn’t just a character—he’s
+  a hero. Imagine having your very own Buzz Lightyear action figure, ready to ta
 pubDate: 2025-09-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-buzz-lightyear-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- How Much Money Do You
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-buzz-lightyear-action-figure&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **If you’re a fan of Toy Story, you know Buzz Lightyear isn’t just a character—he’s a hero. Imagine having your very own Buzz Lightyear action figure, ready to take you on exciting adventures right at home.**

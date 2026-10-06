@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Mech Suit: Build Your Ultimate Creative Masterpiece"
-description: "Imagine building your very own wooden toy mech suit—something you can proudly display, play with, or gift to someone special. You don’t need to be an expert or "
+title: 'Diy Wooden Toy Mech Suit: Build Your Ultimate Creative Masterpiece'
+description: 'Imagine building your very own wooden toy mech suit—something you can
+  proudly display, play with, or gift to someone special. You don’t need to be an
+  expert or '
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-mech-suit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-mech-suit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine building your very own wooden toy mech suit—something you can proudly display, play with, or gift to someone special. You don’t need to be an expert or have fancy tools to create this cool, mechanical marvel.**

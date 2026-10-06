@@ -1,10 +1,13 @@
 ---
-title: "Best Airplane Toys for 2 Year Old Toddlers: Top Fun and Educational Picks"
-description: "Choosing the best airplane toys for 2-year-olds can boost their learning and playtime fun. These toys help toddlers develop motor skills and spark imagination. "
+title: 'Best Airplane Toys for 2 Year Old Toddlers: Top Fun and Educational Picks'
+description: 'Choosing the best airplane toys for 2-year-olds can boost their learning
+  and playtime fun. These toys help toddlers develop motor skills and spark imagination. '
 pubDate: 2025-12-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-airplane-toys-for-2-year-old-toddlers-top-fun-and-educational-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-airplane-toys-for-2-year-old-toddlers-top-fun-and-educational-picks&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the best airplane toys for 2-year-olds can boost their learning and playtime fun. These toys help toddlers develop motor skills and spark imagination.**

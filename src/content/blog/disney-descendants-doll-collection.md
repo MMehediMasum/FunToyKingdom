@@ -1,10 +1,14 @@
 ---
-title: "Disney Descendants Doll Collection: Ultimate Guide to Must-Have Toys"
-description: "Are you a fan of magic, adventure, and your favorite Disney villains? The Disney Descendants Doll Collection brings all that excitement right into your hands. T"
+title: 'Disney Descendants Doll Collection: Ultimate Guide to Must-Have Toys'
+description: Are you a fan of magic, adventure, and your favorite Disney villains?
+  The Disney Descendants Doll Collection brings all that excitement right into your
+  hands. T
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-descendants-doll-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=disney-descendants-doll-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of magic, adventure, and your favorite Disney villains? The Disney Descendants Doll Collection brings all that excitement right into your hands.**

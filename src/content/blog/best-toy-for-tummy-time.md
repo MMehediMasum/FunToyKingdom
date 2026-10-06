@@ -1,10 +1,14 @@
 ---
-title: "Best Toy for Tummy Time: Top Picks for Baby Development"
-description: "If you’re a parent or caregiver, you know how important tummy time is for your baby’s growth. But getting your little one to enjoy those moments on their tummy "
+title: 'Best Toy for Tummy Time: Top Picks for Baby Development'
+description: 'If you’re a parent or caregiver, you know how important tummy time is
+  for your baby’s growth. But getting your little one to enjoy those moments on their
+  tummy '
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toy-for-tummy-time&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-toy-for-tummy-time&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent or caregiver, you know how important tummy time is for your baby’s growth. But getting your little one to enjoy those moments on their tummy can be a challenge.**

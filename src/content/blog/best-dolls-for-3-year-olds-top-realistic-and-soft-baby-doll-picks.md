@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 3 Year Olds: Top Realistic and Soft Baby Doll Picks"
-description: "Choosing the best dolls for 3 year olds helps children enjoy playtime and learn new skills. Dolls encourage imagination, care, and social development at this ag"
+title: 'Best Dolls for 3 Year Olds: Top Realistic and Soft Baby Doll Picks'
+description: Choosing the best dolls for 3 year olds helps children enjoy playtime
+  and learn new skills. Dolls encourage imagination, care, and social development
+  at this ag
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-3-year-olds-top-realistic-and-soft-baby-doll-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-3-year-olds-top-realistic-and-soft-baby-doll-picks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for 3 year olds helps children enjoy playtime and learn new skills. Dolls encourage imagination, care, and social development at this age.**

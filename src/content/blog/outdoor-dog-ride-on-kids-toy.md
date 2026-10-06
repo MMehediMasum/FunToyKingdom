@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dog Ride on Kids Toy: Fun, Safe, and Exciting Adventures"
-description: "Imagine your furry friend enjoying a fun outdoor ride on a kids toy—watching their tail wag with pure joy as they cruise around safely. You might think this sou"
+title: 'Outdoor Dog Ride on Kids Toy: Fun, Safe, and Exciting Adventures'
+description: Imagine your furry friend enjoying a fun outdoor ride on a kids toy—watching
+  their tail wag with pure joy as they cruise around safely. You might think this
+  sou
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dog-ride-on-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dog-ride-on-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your furry friend enjoying a fun outdoor ride on a kids toy—watching their tail wag with pure joy as they cruise around safely. You might think this sounds unusual, but it’s a simple way to bring a new kind of excitement to your dog’s day.**

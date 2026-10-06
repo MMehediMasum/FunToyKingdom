@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for 11 Year Old: Top Fun & Educational Picks"
-description: "Are you looking for the perfect indoor toys for your 11-year-old? Finding toys that keep your child engaged, happy, and learning can be a real challenge. You wa"
+title: 'Indoor Toys for 11 Year Old: Top Fun & Educational Picks'
+description: Are you looking for the perfect indoor toys for your 11-year-old? Finding
+  toys that keep your child engaged, happy, and learning can be a real challenge.
+  You wa
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-11-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect indoor toys for your 11-year-old? Finding toys that keep your child engaged, happy, and learning can be a real challenge.**

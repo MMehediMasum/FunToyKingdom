@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Wardrobe: Creative, Easy & Budget-Friendly Ideas"
-description: "Are you looking for a fun and creative way to organize your child’s toys? A DIY cardboard toy wardrobe might be just what you need. It’s simple, affordable, and"
+title: 'Diy Cardboard Toy Wardrobe: Creative, Easy & Budget-Friendly Ideas'
+description: Are you looking for a fun and creative way to organize your child’s toys?
+  A DIY cardboard toy wardrobe might be just what you need. It’s simple, affordable,
+  and
 pubDate: 2026-05-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-wardrobe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-wardrobe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to organize your child’s toys? A DIY cardboard toy wardrobe might be just what you need.**

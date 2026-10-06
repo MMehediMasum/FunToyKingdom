@@ -1,10 +1,14 @@
 ---
-title: "Batman Forever Riddler Toy: Top Collectible Figures Every Fan Needs"
-description: "The Batman Forever Riddler toys bring the enigmatic villain to life in collectible form. From action figures to Funko Pop! Items, these toys capture the essence"
+title: 'Batman Forever Riddler Toy: Top Collectible Figures Every Fan Needs'
+description: The Batman Forever Riddler toys bring the enigmatic villain to life in
+  collectible form. From action figures to Funko Pop! Items, these toys capture the
+  essence
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=batman-forever-riddler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tic Tac Toe Strategies
+heroImage: https://tse1.mm.bing.net/th?q=batman-forever-riddler-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **The Batman Forever Riddler toys bring the enigmatic villain to life in collectible form. From action figures to Funko Pop!**

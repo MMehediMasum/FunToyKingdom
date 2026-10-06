@@ -1,10 +1,14 @@
 ---
-title: "Handmade Felt Rattle Toy: Safe, Soft, and Perfect for Babies"
-description: "Are you looking for a toy that’s safe, soft, and fun for your little one? A handmade felt rattle toy might be exactly what you need. It’s more than just a toy—i"
+title: 'Handmade Felt Rattle Toy: Safe, Soft, and Perfect for Babies'
+description: Are you looking for a toy that’s safe, soft, and fun for your little
+  one? A handmade felt rattle toy might be exactly what you need. It’s more than just
+  a toy—i
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-felt-rattle-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=handmade-felt-rattle-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a toy that’s safe, soft, and fun for your little one? A handmade felt rattle toy might be exactly what you need.**

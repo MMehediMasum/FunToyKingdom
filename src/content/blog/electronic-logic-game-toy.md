@@ -1,10 +1,14 @@
 ---
-title: "Electronic Logic Game Toy: Boost Brain Power and Fun Instantly"
-description: "Are you looking for a fun way to boost your thinking skills while having a great time? An electronic logic game toy might be exactly what you need. This clever "
+title: 'Electronic Logic Game Toy: Boost Brain Power and Fun Instantly'
+description: 'Are you looking for a fun way to boost your thinking skills while having
+  a great time? An electronic logic game toy might be exactly what you need. This
+  clever '
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-logic-game-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=electronic-logic-game-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to boost your thinking skills while having a great time? An electronic logic game toy might be exactly what you need.**

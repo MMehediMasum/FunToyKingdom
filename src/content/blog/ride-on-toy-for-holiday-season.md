@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Holiday Season: Ultimate Gift Ideas for Kids"
-description: "Looking for the perfect gift that brings joy, fun, and endless smiles this holiday season? A ride-on toy might be exactly what you need. Imagine your child’s ex"
+title: 'Ride on Toy for Holiday Season: Ultimate Gift Ideas for Kids'
+description: Looking for the perfect gift that brings joy, fun, and endless smiles
+  this holiday season? A ride-on toy might be exactly what you need. Imagine your
+  child’s ex
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-holiday-season&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-holiday-season&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect gift that brings joy, fun, and endless smiles this holiday season? A ride-on toy might be exactly what you need.**

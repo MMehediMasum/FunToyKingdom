@@ -1,10 +1,14 @@
 ---
-title: "Coding Toys for 11 Year Old: Top Engaging Picks for Smart Kids"
-description: "Are you looking for the perfect way to spark your 11-year-old’s interest in coding? Choosing the right coding toy can make all the difference. It’s not just abo"
+title: 'Coding Toys for 11 Year Old: Top Engaging Picks for Smart Kids'
+description: Are you looking for the perfect way to spark your 11-year-old’s interest
+  in coding? Choosing the right coding toy can make all the difference. It’s not just
+  abo
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toys-for-11-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect way to spark your 11-year-old’s interest in coding? Choosing the right coding toy can make all the difference.**

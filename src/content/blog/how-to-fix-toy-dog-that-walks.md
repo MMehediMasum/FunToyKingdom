@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Toy Dog That Walks: Easy Steps to Restore Fun"
-description: "Is your toy dog that walks suddenly stopped moving? It can be frustrating when your favorite little companion doesn’t work as it should. But don’t worry—you don"
+title: 'How to Fix Toy Dog That Walks: Easy Steps to Restore Fun'
+description: Is your toy dog that walks suddenly stopped moving? It can be frustrating
+  when your favorite little companion doesn’t work as it should. But don’t worry—you
+  don
 pubDate: 2026-09-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-toy-dog-that-walks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-toy-dog-that-walks&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Is your toy dog that walks suddenly stopped moving? It can be frustrating when your favorite little companion doesn’t work as it should.**

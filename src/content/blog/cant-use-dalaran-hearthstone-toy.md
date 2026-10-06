@@ -1,10 +1,14 @@
 ---
-title: "Can'T Use Dalaran Hearthstone Toy: Quick Fixes to Try Now"
-description: "Have you ever tried to use the Dalaran Hearthstone toy in your game, only to find it doesn’t work? It’s frustrating when something meant to make your experience"
+title: 'Can''T Use Dalaran Hearthstone Toy: Quick Fixes to Try Now'
+description: Have you ever tried to use the Dalaran Hearthstone toy in your game,
+  only to find it doesn’t work? It’s frustrating when something meant to make your
+  experience
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cant-use-dalaran-hearthstone-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Silicone Toy Care
+heroImage: https://tse1.mm.bing.net/th?q=cant-use-dalaran-hearthstone-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever tried to use the Dalaran Hearthstone toy in your game, only to find it doesn’t work? It’s frustrating when something meant to make your experience easier suddenly lets you down.**

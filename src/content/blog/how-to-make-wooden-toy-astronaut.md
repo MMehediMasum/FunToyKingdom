@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Astronaut: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something special with your own hands? Making a wooden toy astronaut is a fun and rewarding project you can enjoy right at home. "
+title: 'How to Make Wooden Toy Astronaut: Easy Step-by-Step Guide'
+description: 'Have you ever wanted to create something special with your own hands?
+  Making a wooden toy astronaut is a fun and rewarding project you can enjoy right
+  at home. '
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-astronaut&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-astronaut&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Making a wooden toy astronaut is a fun and rewarding project you can enjoy right at home.**

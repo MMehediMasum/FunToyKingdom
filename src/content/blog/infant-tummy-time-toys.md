@@ -1,10 +1,14 @@
 ---
-title: "Infant Tummy Time Toys: Boost Development with Top Picks"
-description: "If you want to help your baby grow strong and healthy, tummy time is a must. But let’s be honest—keeping your little one engaged during tummy time can be tricky"
+title: 'Infant Tummy Time Toys: Boost Development with Top Picks'
+description: If you want to help your baby grow strong and healthy, tummy time is
+  a must. But let’s be honest—keeping your little one engaged during tummy time can
+  be tricky
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-tummy-time-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-tummy-time-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you want to help your baby grow strong and healthy, tummy time is a must. But let’s be honest—keeping your little one engaged during tummy time can be tricky.**

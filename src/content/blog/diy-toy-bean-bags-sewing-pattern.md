@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Bean Bags Sewing Pattern: Easy Steps for Fun Crafts"
-description: "Are you looking for a fun and simple project that brings joy to kids and adults alike? Creating your own DIY toy bean bags with a sewing pattern is the perfect "
+title: 'Diy Toy Bean Bags Sewing Pattern: Easy Steps for Fun Crafts'
+description: 'Are you looking for a fun and simple project that brings joy to kids
+  and adults alike? Creating your own DIY toy bean bags with a sewing pattern is the
+  perfect '
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-bean-bags-sewing-pattern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-bean-bags-sewing-pattern&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple project that brings joy to kids and adults alike? Creating your own DIY toy bean bags with a sewing pattern is the perfect way to do just that.**

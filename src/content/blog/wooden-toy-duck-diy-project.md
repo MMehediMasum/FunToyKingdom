@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Duck Diy Project: Easy Step-by-Step Craft Guide"
-description: "Are you looking for a fun and rewarding project that brings a smile to your face and adds charm to your space? Building a wooden toy duck with your own hands is"
+title: 'Wooden Toy Duck Diy Project: Easy Step-by-Step Craft Guide'
+description: Are you looking for a fun and rewarding project that brings a smile to
+  your face and adds charm to your space? Building a wooden toy duck with your own
+  hands is
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-duck-diy-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-duck-diy-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and rewarding project that brings a smile to your face and adds charm to your space? Building a wooden toy duck with your own hands is the perfect way to create something unique and special.**

@@ -1,10 +1,14 @@
 ---
-title: "Robotic Dinosaur Building Kit: Unleash Creativity and Fun Today"
-description: "Imagine bringing a dinosaur back to life right in your own home. With a Robotic Dinosaur Building Kit, you can do just that. This kit lets you build a moving, r"
+title: 'Robotic Dinosaur Building Kit: Unleash Creativity and Fun Today'
+description: Imagine bringing a dinosaur back to life right in your own home. With
+  a Robotic Dinosaur Building Kit, you can do just that. This kit lets you build a
+  moving, r
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robotic-dinosaur-building-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=robotic-dinosaur-building-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine bringing a dinosaur back to life right in your own home. With a Robotic Dinosaur Building Kit, you can do just that.**

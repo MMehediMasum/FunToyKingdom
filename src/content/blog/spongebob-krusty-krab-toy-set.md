@@ -1,10 +1,14 @@
 ---
-title: "Spongebob Krusty Krab Toy Set: Ultimate Interactive Play Food Adventure"
-description: "The Spongebob Krusty Krab Toy Set brings the fun of Bikini Bottom to life. Kids can enjoy cooking, serving, and playing with their favorite characters. This toy"
+title: 'Spongebob Krusty Krab Toy Set: Ultimate Interactive Play Food Adventure'
+description: The Spongebob Krusty Krab Toy Set brings the fun of Bikini Bottom to
+  life. Kids can enjoy cooking, serving, and playing with their favorite characters.
+  This toy
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=spongebob-krusty-krab-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=spongebob-krusty-krab-toy-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Spongebob Krusty Krab Toy Set brings the fun of Bikini Bottom to life. Kids can enjoy cooking, serving, and playing with their favorite characters.**

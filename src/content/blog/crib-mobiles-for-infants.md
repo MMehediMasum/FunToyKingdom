@@ -1,10 +1,14 @@
 ---
-title: "Crib Mobiles for Infants: Soothing Designs to Boost Sleep"
-description: "Choosing the perfect crib mobile for your infant can feel overwhelming. You want something that soothes your baby, sparks their curiosity, and fits perfectly in"
+title: 'Crib Mobiles for Infants: Soothing Designs to Boost Sleep'
+description: Choosing the perfect crib mobile for your infant can feel overwhelming.
+  You want something that soothes your baby, sparks their curiosity, and fits perfectly
+  in
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=crib-mobiles-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=crib-mobiles-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the perfect crib mobile for your infant can feel overwhelming. You want something that soothes your baby, sparks their curiosity, and fits perfectly in your nursery.**

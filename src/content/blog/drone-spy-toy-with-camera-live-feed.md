@@ -1,10 +1,14 @@
 ---
-title: "Drone Spy Toy With Camera Live Feed: Ultimate Fun & Surveillance Guide"
-description: "Imagine having your very own secret agent flying right above you—capturing every moment with a live video feed you can watch anytime. A drone spy toy with a cam"
+title: 'Drone Spy Toy With Camera Live Feed: Ultimate Fun & Surveillance Guide'
+description: Imagine having your very own secret agent flying right above you—capturing
+  every moment with a live video feed you can watch anytime. A drone spy toy with
+  a cam
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=drone-spy-toy-with-camera-live-feed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=drone-spy-toy-with-camera-live-feed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine having your very own secret agent flying right above you—capturing every moment with a live video feed you can watch anytime. A drone spy toy with a camera live feed lets you do just that.**

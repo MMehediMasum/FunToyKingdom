@@ -1,10 +1,14 @@
 ---
-title: "Stem Toys for 11 Year Old: Top Educational Picks for Fun Learning"
-description: "Are you looking for the perfect toy that can spark your 11-year-old’s curiosity and keep them engaged for hours? Stem toys are more than just fun—they help your"
+title: 'Stem Toys for 11 Year Old: Top Educational Picks for Fun Learning'
+description: Are you looking for the perfect toy that can spark your 11-year-old’s
+  curiosity and keep them engaged for hours? Stem toys are more than just fun—they
+  help your
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-toys-for-11-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toy that can spark your 11-year-old’s curiosity and keep them engaged for hours? Stem toys are more than just fun—they help your child build important skills like problem-solving, creativity, and critical thinking.**

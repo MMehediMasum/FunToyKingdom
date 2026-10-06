@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Penguin Sprinkler Inflatable: Fun & Refreshing Backyard Splash"
-description: "Looking for a fun and eye-catching way to keep your yard cool this summer? Your search ends with the outdoor penguin sprinkler inflatable. Imagine a cheerful pe"
+title: 'Outdoor Penguin Sprinkler Inflatable: Fun & Refreshing Backyard Splash'
+description: Looking for a fun and eye-catching way to keep your yard cool this summer?
+  Your search ends with the outdoor penguin sprinkler inflatable. Imagine a cheerful
+  pe
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-penguin-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-penguin-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and eye-catching way to keep your yard cool this summer? Your search ends with the outdoor penguin sprinkler inflatable.**

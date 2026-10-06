@@ -1,10 +1,14 @@
 ---
-title: "Giant Inflatable Frisbee Kids Play: Ultimate Outdoor Fun Guide"
-description: "Imagine your kids laughing and running around with a giant inflatable frisbee that’s safe, colorful, and loads of fun. You want to give them a playtime experien"
+title: 'Giant Inflatable Frisbee Kids Play: Ultimate Outdoor Fun Guide'
+description: Imagine your kids laughing and running around with a giant inflatable
+  frisbee that’s safe, colorful, and loads of fun. You want to give them a playtime
+  experien
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-inflatable-frisbee-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Frisbee Kids Play
+heroImage: https://tse1.mm.bing.net/th?q=giant-inflatable-frisbee-kids-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids laughing and running around with a giant inflatable frisbee that’s safe, colorful, and loads of fun. You want to give them a playtime experience that’s exciting and different from the usual toys.**

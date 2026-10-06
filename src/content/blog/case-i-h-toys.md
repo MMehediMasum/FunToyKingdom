@@ -1,10 +1,14 @@
 ---
-title: "Case I H Toys: Ultimate Display Cases for Action Figure Collectors"
-description: "Discover the best storage solutions and engaging toys for both collectors and kids. From action figure displays to Halloween party favors, find versatile option"
+title: 'Case I H Toys: Ultimate Display Cases for Action Figure Collectors'
+description: Discover the best storage solutions and engaging toys for both collectors
+  and kids. From action figure displays to Halloween party favors, find versatile
+  option
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=case-i-h-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=case-i-h-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Discover the best storage solutions and engaging toys for both collectors and kids. From action figure displays to Halloween party favors, find versatile options here.**

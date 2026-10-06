@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Windmill DIY Project: Easy Step-by-Step Guide"
-description: "Are you looking for a fun and creative way to bring a touch of charm to your home or garden? Building your own wooden toy windmill is a rewarding project that a"
+title: 'Wooden Toy Windmill DIY Project: Easy Step-by-Step Guide'
+description: Are you looking for a fun and creative way to bring a touch of charm
+  to your home or garden? Building your own wooden toy windmill is a rewarding project
+  that a
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-windmill-diy-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-windmill-diy-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to bring a touch of charm to your home or garden? Building your own wooden toy windmill is a rewarding project that anyone can enjoy.**

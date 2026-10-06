@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bath Toys With Mold Inside: Easy, Safe Tips"
-description: "Do you ever notice that slimy, black stuff growing inside your child’s bath toys? Mold inside bath toys isn’t just gross—it can be harmful to your family’s heal"
+title: 'How to Clean Bath Toys With Mold Inside: Easy, Safe Tips'
+description: Do you ever notice that slimy, black stuff growing inside your child’s
+  bath toys? Mold inside bath toys isn’t just gross—it can be harmful to your family’s
+  heal
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-with-mold-inside&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-with-mold-inside&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Do you ever notice that slimy, black stuff growing inside your child’s bath toys? Mold inside bath toys isn’t just gross—it can be harmful to your family’s health.**

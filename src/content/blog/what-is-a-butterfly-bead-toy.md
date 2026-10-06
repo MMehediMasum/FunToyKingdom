@@ -1,10 +1,14 @@
 ---
-title: "What is a Butterfly Bead Toy: Ultimate Guide to Fun & Creativity"
-description: "Have you ever seen a small, colorful toy that looks like a butterfly made of tiny beads? That’s a Butterfly Bead Toy, and it’s more than just a pretty decoratio"
+title: 'What is a Butterfly Bead Toy: Ultimate Guide to Fun & Creativity'
+description: Have you ever seen a small, colorful toy that looks like a butterfly
+  made of tiny beads? That’s a Butterfly Bead Toy, and it’s more than just a pretty
+  decoratio
 pubDate: 2025-11-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-butterfly-bead-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-butterfly-bead-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever seen a small, colorful toy that looks like a butterfly made of tiny beads? That’s a Butterfly Bead Toy, and it’s more than just a pretty decoration.**

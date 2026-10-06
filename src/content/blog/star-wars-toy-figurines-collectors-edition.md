@@ -1,10 +1,14 @@
 ---
-title: "Star Wars Toy Figurines Collectors Edition: Ultimate Guide to Rarity"
-description: "Are you a Star Wars fan who loves collecting unique items? Imagine holding a piece of the galaxy far, far away right in your hands. Star Wars Toy Figurines Coll"
+title: 'Star Wars Toy Figurines Collectors Edition: Ultimate Guide to Rarity'
+description: Are you a Star Wars fan who loves collecting unique items? Imagine holding
+  a piece of the galaxy far, far away right in your hands. Star Wars Toy Figurines
+  Coll
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=star-wars-toy-figurines-collectors-edition&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=star-wars-toy-figurines-collectors-edition&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Star Wars fan who loves collecting unique items? Imagine holding a piece of the galaxy far, far away right in your hands.**

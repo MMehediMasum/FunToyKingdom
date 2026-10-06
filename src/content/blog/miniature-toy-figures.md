@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Figures: Top Tiny Collectibles for Dollhouse and Decor"
-description: "Miniature toy figures bring small worlds to life with detailed, tiny creations. They offer endless fun for collectors, hobbyists, and kids alike. These small fi"
+title: 'Miniature Toy Figures: Top Tiny Collectibles for Dollhouse and Decor'
+description: Miniature toy figures bring small worlds to life with detailed, tiny
+  creations. They offer endless fun for collectors, hobbyists, and kids alike. These
+  small fi
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-figures&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature toy figures bring small worlds to life with detailed, tiny creations. They offer endless fun for collectors, hobbyists, and kids alike.**

@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Planets Solar System: Fun & Easy Craft Ideas"
-description: "Imagine bringing the entire solar system right into your home using just cardboard and a few simple tools. You don’t need to buy expensive models or complicated"
+title: 'Diy Cardboard Toy Planets Solar System: Fun & Easy Craft Ideas'
+description: Imagine bringing the entire solar system right into your home using just
+  cardboard and a few simple tools. You don’t need to buy expensive models or complicated
 pubDate: 2025-10-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-planets-solar-system&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-planets-solar-system&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine bringing the entire solar system right into your home using just cardboard and a few simple tools. You don’t need to buy expensive models or complicated kits.**

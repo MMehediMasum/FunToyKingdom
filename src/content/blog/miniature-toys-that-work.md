@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toys That Work: Top Fun, Functional Mini Gadgets for All Ages"
-description: "Miniature toys that actually work capture attention with their small size and real functions. These tiny gadgets bring fun and creativity to playtime. Small toy"
+title: 'Miniature Toys That Work: Top Fun, Functional Mini Gadgets for All Ages'
+description: Miniature toys that actually work capture attention with their small
+  size and real functions. These tiny gadgets bring fun and creativity to playtime.
+  Small toy
 pubDate: 2026-08-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toys-that-work&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toys-that-work&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature toys that actually work capture attention with their small size and real functions. These tiny gadgets bring fun and creativity to playtime.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Tumbling Mat Toy: Ultimate Fun for Active Kids Outdoors"
-description: "Looking for a fun and safe way to keep your kids active outdoors? An outdoor tumbling mat toy might be exactly what you need. It’s more than just a play mat—it’"
+title: 'Outdoor Tumbling Mat Toy: Ultimate Fun for Active Kids Outdoors'
+description: Looking for a fun and safe way to keep your kids active outdoors? An
+  outdoor tumbling mat toy might be exactly what you need. It’s more than just a play
+  mat—it’
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-tumbling-mat-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-tumbling-mat-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids active outdoors? An outdoor tumbling mat toy might be exactly what you need.**

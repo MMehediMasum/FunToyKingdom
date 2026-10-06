@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Minecraft Building Blocks Toy: Ultimate Magnetic STEM Set for Creative Kids"
 description: "Minecraft building blocks toys bring the magic of the virtual world into the hands of young builders. These toys spark creativity, encouraging kids to build and"
 pubDate: 2026-08-11

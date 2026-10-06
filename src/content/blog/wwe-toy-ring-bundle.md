@@ -1,10 +1,14 @@
 ---
-title: "Wwe Toy Ring Bundle: Ultimate Wrestling Playset for Action Figure Fans"
-description: "Unleash the thrill of WWE action at home with the WWE Toy Ring Bundle. This collection promises excitement for young wrestling fans. The WWE Toy Ring Bundle off"
+title: 'Wwe Toy Ring Bundle: Ultimate Wrestling Playset for Action Figure Fans'
+description: Unleash the thrill of WWE action at home with the WWE Toy Ring Bundle.
+  This collection promises excitement for young wrestling fans. The WWE Toy Ring Bundle
+  off
 pubDate: 2026-09-02
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wwe-toy-ring-bundle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=wwe-toy-ring-bundle&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Unleash the thrill of WWE action at home with the WWE Toy Ring Bundle. This collection promises excitement for young wrestling fans.**

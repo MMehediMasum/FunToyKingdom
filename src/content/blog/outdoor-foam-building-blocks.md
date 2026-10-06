@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Foam Building Blocks: Ultimate Fun for Creative Playtime"
-description: "Imagine giving your kids a way to build, create, and explore—all while playing safely outside. Outdoor foam building blocks are the perfect tool to spark your c"
+title: 'Outdoor Foam Building Blocks: Ultimate Fun for Creative Playtime'
+description: Imagine giving your kids a way to build, create, and explore—all while
+  playing safely outside. Outdoor foam building blocks are the perfect tool to spark
+  your c
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-foam-building-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Blocks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-foam-building-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your kids a way to build, create, and explore—all while playing safely outside. Outdoor foam building blocks are the perfect tool to spark your child’s imagination and keep them active in fresh air.**

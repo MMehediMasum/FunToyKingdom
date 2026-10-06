@@ -1,10 +1,13 @@
 ---
-title: "Rc Airplane for Kids: Ultimate Guide to Safe & Fun Flying!"
-description: "Are you looking for a fun and exciting way to spark your child’s imagination? An RC airplane for kids might be just what you need. Imagine the joy on your child"
+title: 'Rc Airplane for Kids: Ultimate Guide to Safe & Fun Flying!'
+description: Are you looking for a fun and exciting way to spark your child’s imagination?
+  An RC airplane for kids might be just what you need. Imagine the joy on your child
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s imagination? An RC airplane for kids might be just what you need.**

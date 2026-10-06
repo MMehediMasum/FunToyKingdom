@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Snuba Kit Kids Beginner Set: Ultimate Guide for Young Explorers"
 description: "Are you ready to introduce your kids to the exciting world of underwater adventure? The Snuba Kit Kids Beginner Set is designed just for you and your little exp"
 pubDate: 2026-04-14

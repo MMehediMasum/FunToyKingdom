@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rowboat Inflatable Toy: Ultimate Fun for Water Adventures"
-description: "Looking for a fun and easy way to enjoy the water this season? An outdoor rowboat inflatable toy might be exactly what you need. Imagine relaxing on a calm lake"
+title: 'Outdoor Rowboat Inflatable Toy: Ultimate Fun for Water Adventures'
+description: Looking for a fun and easy way to enjoy the water this season? An outdoor
+  rowboat inflatable toy might be exactly what you need. Imagine relaxing on a calm
+  lake
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rowboat-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rowboat-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and easy way to enjoy the water this season? An outdoor rowboat inflatable toy might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Deduction Board Games: Ultimate Mind-Bending Picks for 2025"
-description: "Looking for a board game that challenges your mind and keeps you on the edge of your seat? Deduction board games are perfect for you. They make you think, obser"
+title: 'Best Deduction Board Games: Ultimate Mind-Bending Picks for 2025'
+description: Looking for a board game that challenges your mind and keeps you on the
+  edge of your seat? Deduction board games are perfect for you. They make you think,
+  obser
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-deduction-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-deduction-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a board game that challenges your mind and keeps you on the edge of your seat? Deduction board games are perfect for you.**

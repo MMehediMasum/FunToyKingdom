@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Rc Car Hot Wheels: Ultimate Remote Control Racing Adventure"
-description: "Toy Story RC cars from Hot Wheels bring your favorite characters to life with remote control fun. These cars combine Toy Story charm and Hot Wheels speed in one"
+title: 'Toy Story Rc Car Hot Wheels: Ultimate Remote Control Racing Adventure'
+description: Toy Story RC cars from Hot Wheels bring your favorite characters to life
+  with remote control fun. These cars combine Toy Story charm and Hot Wheels speed
+  in one
 pubDate: 2026-02-02
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-rc-car-hot-wheels&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-rc-car-hot-wheels&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy Story RC cars from Hot Wheels bring your favorite characters to life with remote control fun. These cars combine Toy Story charm and Hot Wheels speed in one exciting package.**

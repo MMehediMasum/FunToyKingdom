@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Toys Lightning Mcqueen Crash: Ultimate Die-Cast Racing Adventure"
-description: "Lightning McQueen toys bring the excitement of Cars 3 to life. Perfect for young fans and collectors alike. Dive into the world of Cars 3 with a thrilling selec"
+title: 'Cars 3 Toys Lightning Mcqueen Crash: Ultimate Die-Cast Racing Adventure'
+description: Lightning McQueen toys bring the excitement of Cars 3 to life. Perfect
+  for young fans and collectors alike. Dive into the world of Cars 3 with a thrilling
+  selec
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-toys-lightning-mcqueen-crash&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-toys-lightning-mcqueen-crash&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Lightning McQueen toys bring the excitement of Cars 3 to life. Perfect for young fans and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts Toys for 3 Year Old: Fun, Safe & Educational Picks"
-description: "Are you looking for the perfect arts and crafts toys for your 3-year-old? Choosing the right toys can spark your child’s creativity and keep them happily engage"
+title: 'Arts And Crafts Toys for 3 Year Old: Fun, Safe & Educational Picks'
+description: Are you looking for the perfect arts and crafts toys for your 3-year-old?
+  Choosing the right toys can spark your child’s creativity and keep them happily
+  engage
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-toys-for-3-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect arts and crafts toys for your 3-year-old? Choosing the right toys can spark your child’s creativity and keep them happily engaged for hours.**

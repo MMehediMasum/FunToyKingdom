@@ -1,10 +1,14 @@
 ---
-title: "Soft Sensory Toy Blocks for Babies: Boost Development & Fun"
-description: "Are you looking for a safe and fun way to help your baby explore the world around them? Soft sensory toy blocks for babies could be just what you need. These ge"
+title: 'Soft Sensory Toy Blocks for Babies: Boost Development & Fun'
+description: Are you looking for a safe and fun way to help your baby explore the
+  world around them? Soft sensory toy blocks for babies could be just what you need.
+  These ge
 pubDate: 2026-09-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-sensory-toy-blocks-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=soft-sensory-toy-blocks-for-babies&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a safe and fun way to help your baby explore the world around them? Soft sensory toy blocks for babies could be just what you need.**

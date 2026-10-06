@@ -1,10 +1,13 @@
 ---
-title: "Magic 8 Ball Toy Story: The Ultimate Retro Fortune Teller Experience"
-description: "The Magic 8 Ball toy has been a staple in playful decision-making since its creation. This iconic fortune-telling ball adds a fun twist to yes-or-no questions. "
+title: 'Magic 8 Ball Toy Story: The Ultimate Retro Fortune Teller Experience'
+description: 'The Magic 8 Ball toy has been a staple in playful decision-making since
+  its creation. This iconic fortune-telling ball adds a fun twist to yes-or-no questions. '
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=magic-8-ball-toy-story&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Ball
+heroImage: https://tse1.mm.bing.net/th?q=magic-8-ball-toy-story&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Magic 8 Ball toy has been a staple in playful decision-making since its creation. This iconic fortune-telling ball adds a fun twist to yes-or-no questions.**

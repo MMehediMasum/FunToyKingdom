@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Reset Toy Blast Game: Easy Steps to Start Fresh"
 description: "Are you stuck on a level in Toy Blast or want to start fresh without losing your progress? Knowing how to reset the Toy Blast game can save you a lot of frustra"
 pubDate: 2026-07-14

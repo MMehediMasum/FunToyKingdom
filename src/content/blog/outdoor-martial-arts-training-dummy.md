@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Martial Arts Training Dummy: Ultimate Guide for Fighters"
 description: "Are you ready to take your martial arts skills to the next level? Training outdoors offers fresh air, space, and a real-world feel that indoor gyms can’t match."
 pubDate: 2026-04-24

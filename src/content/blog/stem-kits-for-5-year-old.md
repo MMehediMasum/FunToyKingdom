@@ -1,10 +1,14 @@
 ---
-title: "Stem Kits for 5 Year Old: Fun & Educational STEM Toys to Inspire Creativity"
-description: "Are you looking for a fun and educational way to spark your 5-year-old’s curiosity? Stem kits for 5 year olds are the perfect tool to boost your child’s creativ"
+title: 'Stem Kits for 5 Year Old: Fun & Educational STEM Toys to Inspire Creativity'
+description: Are you looking for a fun and educational way to spark your 5-year-old’s
+  curiosity? Stem kits for 5 year olds are the perfect tool to boost your child’s
+  creativ
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-kits-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-kits-for-5-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and educational way to spark your 5-year-old’s curiosity? Stem kits for 5 year olds are the perfect tool to boost your child’s creativity and problem-solving skills.**

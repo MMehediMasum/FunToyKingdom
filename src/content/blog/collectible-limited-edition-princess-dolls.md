@@ -1,10 +1,14 @@
 ---
-title: "Collectible Limited Edition Princess Dolls: Must-Have Treasures Unveiled"
-description: "Are you a fan of beautiful dolls that tell a story? Collectible limited edition princess dolls are more than just toys—they are treasures. Each doll is unique, "
+title: 'Collectible Limited Edition Princess Dolls: Must-Have Treasures Unveiled'
+description: 'Are you a fan of beautiful dolls that tell a story? Collectible limited
+  edition princess dolls are more than just toys—they are treasures. Each doll is
+  unique, '
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-limited-edition-princess-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=collectible-limited-edition-princess-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of beautiful dolls that tell a story? Collectible limited edition princess dolls are more than just toys—they are treasures.**

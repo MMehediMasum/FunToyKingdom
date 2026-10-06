@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Crossword Puzzle for Beginners: Easy Tips to Solve Fast"
 description: "Are you ready to unlock a fun and rewarding challenge? Crossword puzzles can boost your brainpower, improve your vocabulary, and give you a great sense of achie"
 pubDate: 2025-10-25

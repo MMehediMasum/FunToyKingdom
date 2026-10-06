@@ -1,10 +1,14 @@
 ---
-title: "Play Kitchen for 3 Year Old: Top Picks for Creative Playtime Fun"
-description: "Are you looking for the perfect play kitchen for your 3-year-old? Choosing the right one can spark your child's imagination and boost their creativity every day"
+title: 'Play Kitchen for 3 Year Old: Top Picks for Creative Playtime Fun'
+description: Are you looking for the perfect play kitchen for your 3-year-old? Choosing
+  the right one can spark your child's imagination and boost their creativity every
+  day
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=play-kitchen-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=play-kitchen-for-3-year-old&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect play kitchen for your 3-year-old? Choosing the right one can spark your child's imagination and boost their creativity every day.**

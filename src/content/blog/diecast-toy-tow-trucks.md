@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Tow Trucks: Top Collectible Models for Kids and Adults"
-description: "Diecast toy tow trucks capture the excitement of real-life rescue vehicles in miniature form. These detailed models offer fun for kids and collectors alike. Die"
+title: 'Diecast Toy Tow Trucks: Top Collectible Models for Kids and Adults'
+description: Diecast toy tow trucks capture the excitement of real-life rescue vehicles
+  in miniature form. These detailed models offer fun for kids and collectors alike.
+  Die
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-tow-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-tow-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy tow trucks capture the excitement of real-life rescue vehicles in miniature form. These detailed models offer fun for kids and collectors alike.**

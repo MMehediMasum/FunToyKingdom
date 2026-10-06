@@ -1,10 +1,13 @@
 ---
-title: "Dog Toy That Shoots Balls: Ultimate Fetch Launcher for Active Pups"
-description: "A dog toy that shoots balls can transform playtime into an exciting adventure for your pet. These launchers offer hands-free fun and exercise. Dog ball shooters"
+title: 'Dog Toy That Shoots Balls: Ultimate Fetch Launcher for Active Pups'
+description: A dog toy that shoots balls can transform playtime into an exciting adventure
+  for your pet. These launchers offer hands-free fun and exercise. Dog ball shooters
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-that-shoots-balls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-that-shoots-balls&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog toy that shoots balls can transform playtime into an exciting adventure for your pet. These launchers offer hands-free fun and exercise.**

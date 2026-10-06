@@ -1,10 +1,14 @@
 ---
-title: "Antique Toy Robots: Discover Unique Commemorative Coin Collectibles Today"
-description: "Antique toy robots hold a special charm for collectors and enthusiasts. Their nostalgic appeal captures the imagination. These vintage gems take us back to a ti"
+title: 'Antique Toy Robots: Discover Unique Commemorative Coin Collectibles Today'
+description: Antique toy robots hold a special charm for collectors and enthusiasts.
+  Their nostalgic appeal captures the imagination. These vintage gems take us back
+  to a ti
 pubDate: 2026-02-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-toy-robots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=antique-toy-robots&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Antique toy robots hold a special charm for collectors and enthusiasts. Their nostalgic appeal captures the imagination.**

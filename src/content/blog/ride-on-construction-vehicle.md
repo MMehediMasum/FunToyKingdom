@@ -1,10 +1,13 @@
 ---
-title: "Ride on Construction Vehicle: Ultimate Guide to Safety & Fun"
-description: "Have you ever seen a big construction vehicle and wished you could take it for a spin? Ride on construction vehicles are not just fun toys—they bring excitement"
+title: 'Ride on Construction Vehicle: Ultimate Guide to Safety & Fun'
+description: Have you ever seen a big construction vehicle and wished you could take
+  it for a spin? Ride on construction vehicles are not just fun toys—they bring excitement
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-construction-vehicle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-construction-vehicle&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever seen a big construction vehicle and wished you could take it for a spin? Ride on construction vehicles are not just fun toys—they bring excitement and learning together.**

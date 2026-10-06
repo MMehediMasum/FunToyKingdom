@@ -1,10 +1,14 @@
 ---
-title: "Indestructible Dog Ball Toys: Top Durable Chew Balls for Aggressive Dogs"
-description: "Dog owners often struggle to find durable toys that withstand their pets' strong chewing instincts. Indestructible dog ball toys can be the perfect solution for"
+title: 'Indestructible Dog Ball Toys: Top Durable Chew Balls for Aggressive Dogs'
+description: Dog owners often struggle to find durable toys that withstand their pets'
+  strong chewing instincts. Indestructible dog ball toys can be the perfect solution
+  for
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=indestructible-dog-ball-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=indestructible-dog-ball-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog owners often struggle to find durable toys that withstand their pets' strong chewing instincts. Indestructible dog ball toys can be the perfect solution for aggressive chewers.**

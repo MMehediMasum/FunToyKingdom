@@ -1,10 +1,14 @@
 ---
-title: "Are Toy Guns Allowed in Checked Baggage: Essential Travel Rules"
-description: "Are you planning to travel with toy guns and wondering if you can pack them in your checked baggage? It’s a common question that many travelers face before head"
+title: 'Are Toy Guns Allowed in Checked Baggage: Essential Travel Rules'
+description: Are you planning to travel with toy guns and wondering if you can pack
+  them in your checked baggage? It’s a common question that many travelers face before
+  head
 pubDate: 2026-01-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-toy-guns-allowed-in-checked-baggage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=are-toy-guns-allowed-in-checked-baggage&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you planning to travel with toy guns and wondering if you can pack them in your checked baggage? It’s a common question that many travelers face before heading to the airport.**

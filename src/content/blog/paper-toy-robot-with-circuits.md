@@ -1,10 +1,13 @@
 ---
-title: "Paper Toy Robot With Circuits: Build Fun Interactive Models Easily"
-description: "Imagine building your very own robot using just paper and simple circuits. Sounds fun, right? This isn’t just a craft project—it’s a chance to bring technology "
+title: 'Paper Toy Robot With Circuits: Build Fun Interactive Models Easily'
+description: 'Imagine building your very own robot using just paper and simple circuits.
+  Sounds fun, right? This isn’t just a craft project—it’s a chance to bring technology '
 pubDate: 2025-10-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=paper-toy-robot-with-circuits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=paper-toy-robot-with-circuits&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine building your very own robot using just paper and simple circuits. Sounds fun, right?**

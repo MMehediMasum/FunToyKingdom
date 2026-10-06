@@ -1,10 +1,14 @@
 ---
-title: "Rc Drift Car Toy With Smoke Effect: Ultimate Thrill for Kids"
-description: "Imagine controlling an RC drift car toy that doesn’t just zoom around—it smokes as it slides, making every turn look like a real race track moment. If you love "
+title: 'Rc Drift Car Toy With Smoke Effect: Ultimate Thrill for Kids'
+description: 'Imagine controlling an RC drift car toy that doesn’t just zoom around—it
+  smokes as it slides, making every turn look like a real race track moment. If you
+  love '
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drift-car-toy-with-smoke-effect&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-drift-car-toy-with-smoke-effect&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling an RC drift car toy that doesn’t just zoom around—it smokes as it slides, making every turn look like a real race track moment. If you love the thrill of drifting and want to bring that excitement right into your hands, this is exactly what you need.**

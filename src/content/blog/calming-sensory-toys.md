@@ -1,10 +1,14 @@
 ---
-title: "Calming Sensory Toys: Top Picks for Autism, ADHD, and Anxiety Relief"
-description: "Calming sensory toys help children focus and relax by providing soothing tactile experiences. These toys support kids with autism, ADHD, anxiety, and other spec"
+title: 'Calming Sensory Toys: Top Picks for Autism, ADHD, and Anxiety Relief'
+description: Calming sensory toys help children focus and relax by providing soothing
+  tactile experiences. These toys support kids with autism, ADHD, anxiety, and other
+  spec
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=calming-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=calming-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Calming sensory toys help children focus and relax by providing soothing tactile experiences. These toys support kids with autism, ADHD, anxiety, and other special needs.**

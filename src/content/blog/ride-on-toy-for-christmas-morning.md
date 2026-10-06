@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Christmas Morning: Ultimate Gift Ideas for Kids"
-description: "Imagine waking up on Christmas morning to the biggest smile on your child’s face as they discover the perfect ride on toy waiting just for them. You want to giv"
+title: 'Ride on Toy for Christmas Morning: Ultimate Gift Ideas for Kids'
+description: Imagine waking up on Christmas morning to the biggest smile on your child’s
+  face as they discover the perfect ride on toy waiting just for them. You want to
+  giv
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-christmas-morning&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-christmas-morning&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine waking up on Christmas morning to the biggest smile on your child’s face as they discover the perfect ride on toy waiting just for them. You want to give your little one more than just a gift—you want to create a moment full of joy, excitement, and unforgettable memories.**

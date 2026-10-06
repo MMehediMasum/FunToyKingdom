@@ -1,10 +1,14 @@
 ---
-title: "Best Online Stores for Collectible Dolls: Top Picks for Collectors"
-description: "Are you searching for the perfect collectible doll to add to your collection? Finding rare and unique dolls online can feel overwhelming with so many options ou"
+title: 'Best Online Stores for Collectible Dolls: Top Picks for Collectors'
+description: Are you searching for the perfect collectible doll to add to your collection?
+  Finding rare and unique dolls online can feel overwhelming with so many options
+  ou
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-online-stores-for-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=best-online-stores-for-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you searching for the perfect collectible doll to add to your collection? Finding rare and unique dolls online can feel overwhelming with so many options out there.**

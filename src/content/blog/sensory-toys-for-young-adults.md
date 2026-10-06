@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Young Adults: Top Picks for Anxiety and Focus"
-description: "Sensory toys aren't just for children. Young adults can benefit greatly from them for stress relief and focus enhancement. Sensory toys serve as valuable tools "
+title: 'Sensory Toys for Young Adults: Top Picks for Anxiety and Focus'
+description: 'Sensory toys aren''t just for children. Young adults can benefit greatly
+  from them for stress relief and focus enhancement. Sensory toys serve as valuable
+  tools '
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-young-adults&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-young-adults&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys aren't just for children. Young adults can benefit greatly from them for stress relief and focus enhancement.**

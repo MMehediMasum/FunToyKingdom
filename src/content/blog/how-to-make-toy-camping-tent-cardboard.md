@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Camping Tent Cardboard: Easy DIY Craft Guide"
-description: "Are you looking for a fun and creative project that you can make at home? Making a toy camping tent out of cardboard is easier than you think—and it’s a great w"
+title: 'How to Make Toy Camping Tent Cardboard: Easy DIY Craft Guide'
+description: Are you looking for a fun and creative project that you can make at home?
+  Making a toy camping tent out of cardboard is easier than you think—and it’s a great
+  w
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-camping-tent-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-camping-tent-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make at home? Making a toy camping tent out of cardboard is easier than you think—and it’s a great way to bring adventure indoors.**

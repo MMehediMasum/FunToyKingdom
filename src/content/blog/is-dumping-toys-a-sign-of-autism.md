@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Is Dumping Toys a Sign of Autism: Key Insights Revealed"
 description: "Have you ever noticed your child repeatedly dumping toys out of their box or off the shelf? It might seem like simple play, but you may be wondering if this beh"
 pubDate: 2025-10-21

@@ -1,10 +1,14 @@
 ---
-title: "Transformers Optimus Prime Action Figure: Ultimate Collector’s Guide"
-description: "Are you a fan of Transformers or a collector looking to add something special to your shelf? The Transformers Optimus Prime Action Figure is more than just a to"
+title: 'Transformers Optimus Prime Action Figure: Ultimate Collector’s Guide'
+description: Are you a fan of Transformers or a collector looking to add something
+  special to your shelf? The Transformers Optimus Prime Action Figure is more than
+  just a to
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=transformers-optimus-prime-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=transformers-optimus-prime-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Transformers or a collector looking to add something special to your shelf? The Transformers Optimus Prime Action Figure is more than just a toy—it’s a piece of nostalgia and a symbol of heroism.**

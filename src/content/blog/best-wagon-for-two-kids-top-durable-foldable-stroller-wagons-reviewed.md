@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Wagon for Two Kids: Top Durable & Foldable Stroller Wagons Reviewed"
 description: "Finding the best wagon for two kids can make outings easier and more fun. A good wagon keeps children safe, comfortable, and entertained. Parents often need a r"
 pubDate: 2025-11-03

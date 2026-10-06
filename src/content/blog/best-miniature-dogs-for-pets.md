@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Miniature Dogs for Pets: Top Tiny Breeds and Essential Accessories"
 description: "Miniature dogs make wonderful pets for small spaces and busy lifestyles. They offer affection and companionship without needing much room. Small dog breeds fit "
 pubDate: 2026-08-25

@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Crocodile Pool Toy: Ultimate Summer Fun Gadget"
-description: "Imagine turning your pool into an exciting playground where fun meets adventure. With the Remote Control Crocodile Pool Toy, you hold the power to make waves an"
+title: 'Remote Control Crocodile Pool Toy: Ultimate Summer Fun Gadget'
+description: Imagine turning your pool into an exciting playground where fun meets
+  adventure. With the Remote Control Crocodile Pool Toy, you hold the power to make
+  waves an
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-crocodile-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-crocodile-pool-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine turning your pool into an exciting playground where fun meets adventure. With the Remote Control Crocodile Pool Toy, you hold the power to make waves and bring smiles all around.**

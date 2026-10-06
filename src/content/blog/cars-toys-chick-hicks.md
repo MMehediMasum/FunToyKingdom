@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys Chick Hicks: Ultimate Diecast Racing Fun for Kids"
-description: "Chick Hicks from the Cars movie franchise captures the imagination of young fans with his vibrant toys. These toys bring the excitement of racing into your chil"
+title: 'Cars Toys Chick Hicks: Ultimate Diecast Racing Fun for Kids'
+description: Chick Hicks from the Cars movie franchise captures the imagination of
+  young fans with his vibrant toys. These toys bring the excitement of racing into
+  your chil
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-chick-hicks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-chick-hicks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Chick Hicks from the Cars movie franchise captures the imagination of young fans with his vibrant toys. These toys bring the excitement of racing into your child's playtime.**

@@ -1,10 +1,14 @@
 ---
-title: "Wind Power Generator Toy Kit: Build, Learn & Energize Fun!"
-description: "Are you curious about how wind can create electricity? Imagine building your own wind power generator toy kit and watching it come to life right in front of you"
+title: 'Wind Power Generator Toy Kit: Build, Learn & Energize Fun!'
+description: Are you curious about how wind can create electricity? Imagine building
+  your own wind power generator toy kit and watching it come to life right in front
+  of you
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wind-power-generator-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=wind-power-generator-toy-kit&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you curious about how wind can create electricity? Imagine building your own wind power generator toy kit and watching it come to life right in front of you.**

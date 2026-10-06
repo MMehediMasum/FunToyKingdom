@@ -1,10 +1,14 @@
 ---
-title: "What is Fidget Toys: Ultimate Guide to Benefits and Uses"
-description: "Have you ever found yourself tapping your fingers, clicking a pen, or playing with a small object to stay focused? That’s where fidget toys come in. These simpl"
+title: 'What is Fidget Toys: Ultimate Guide to Benefits and Uses'
+description: Have you ever found yourself tapping your fingers, clicking a pen, or
+  playing with a small object to stay focused? That’s where fidget toys come in. These
+  simpl
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-fidget-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Fidget Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=what-is-fidget-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever found yourself tapping your fingers, clicking a pen, or playing with a small object to stay focused? That’s where fidget toys come in.**

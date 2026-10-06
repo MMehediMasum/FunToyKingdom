@@ -1,10 +1,13 @@
 ---
-title: "Toy Car Models Lamborghini: Top Diecast Collectibles with Lights & Sound"
-description: "Toy car models of Lamborghini capture the thrill of luxury sports cars in a small size. These detailed replicas offer fun and excitement for kids and collectors"
+title: 'Toy Car Models Lamborghini: Top Diecast Collectibles with Lights & Sound'
+description: Toy car models of Lamborghini capture the thrill of luxury sports cars
+  in a small size. These detailed replicas offer fun and excitement for kids and collectors
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-models-lamborghini&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-models-lamborghini&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Toy car models of Lamborghini capture the thrill of luxury sports cars in a small size. These detailed replicas offer fun and excitement for kids and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Learning Blocks: Boost Creativity and Early Skills"
-description: "Are you looking for a fun and engaging way to boost your child's learning? Toy Story Learning Blocks might be exactly what you need. These colorful blocks bring"
+title: 'Toy Story Learning Blocks: Boost Creativity and Early Skills'
+description: Are you looking for a fun and engaging way to boost your child's learning?
+  Toy Story Learning Blocks might be exactly what you need. These colorful blocks
+  bring
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-learning-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- How Much Money Do You
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-learning-blocks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and engaging way to boost your child's learning? Toy Story Learning Blocks might be exactly what you need.**

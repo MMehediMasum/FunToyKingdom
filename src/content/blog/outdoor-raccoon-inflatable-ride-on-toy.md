@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Raccoon Inflatable Ride on Toy: Ultimate Fun for Kids"
-description: "Looking for a fun and unique way to keep your kids entertained outdoors? The Outdoor Raccoon Inflatable Ride on Toy is just what you need. Imagine your child ho"
+title: 'Outdoor Raccoon Inflatable Ride on Toy: Ultimate Fun for Kids'
+description: Looking for a fun and unique way to keep your kids entertained outdoors?
+  The Outdoor Raccoon Inflatable Ride on Toy is just what you need. Imagine your child
+  ho
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-raccoon-inflatable-ride-on-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-raccoon-inflatable-ride-on-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to keep your kids entertained outdoors? The Outdoor Raccoon Inflatable Ride on Toy is just what you need.**

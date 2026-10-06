@@ -1,10 +1,14 @@
 ---
-title: "Stem Robotics Toy Competitions: Ignite Creativity and Win Big"
-description: "Are you ready to see how fun and exciting learning can be? Stem Robotics Toy Competitions bring together creativity, problem-solving, and teamwork in a way that"
+title: 'Stem Robotics Toy Competitions: Ignite Creativity and Win Big'
+description: Are you ready to see how fun and exciting learning can be? Stem Robotics
+  Toy Competitions bring together creativity, problem-solving, and teamwork in a way
+  that
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-robotics-toy-competitions&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=stem-robotics-toy-competitions&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to see how fun and exciting learning can be? Stem Robotics Toy Competitions bring together creativity, problem-solving, and teamwork in a way that grabs your attention from the start.**

@@ -1,10 +1,14 @@
 ---
-title: "Handmade Christmas Toy Costumes: Unique Ideas to Spark Joy"
-description: "Are you looking for a special way to make this Christmas unforgettable? Handmade Christmas toy costumes might be exactly what you need. Imagine your little one "
+title: 'Handmade Christmas Toy Costumes: Unique Ideas to Spark Joy'
+description: 'Are you looking for a special way to make this Christmas unforgettable?
+  Handmade Christmas toy costumes might be exactly what you need. Imagine your little
+  one '
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-christmas-toy-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Wooden Pirate
+heroImage: https://tse1.mm.bing.net/th?q=handmade-christmas-toy-costumes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a special way to make this Christmas unforgettable? Handmade Christmas toy costumes might be exactly what you need.**

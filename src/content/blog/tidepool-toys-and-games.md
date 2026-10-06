@@ -1,10 +1,14 @@
 ---
-title: "Tidepool Toys And Games: Top Realistic Sea Animal Figures for Kids"
-description: "Exploring tidepool toys and games opens a world of adventure and learning for children. These toys introduce the wonders of ocean life in a fun way. From realis"
+title: 'Tidepool Toys And Games: Top Realistic Sea Animal Figures for Kids'
+description: Exploring tidepool toys and games opens a world of adventure and learning
+  for children. These toys introduce the wonders of ocean life in a fun way. From
+  realis
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=tidepool-toys-and-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=tidepool-toys-and-games&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Exploring tidepool toys and games opens a world of adventure and learning for children. These toys introduce the wonders of ocean life in a fun way.**

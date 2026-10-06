@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 5 Month Old Babies: Top Sensory and Teething Picks"
-description: "Choosing the right toys for a 5-month-old can boost their development. Babies at this age are curious explorers. Infant toys designed for this stage offer more "
+title: 'Infant Toys for 5 Month Old Babies: Top Sensory and Teething Picks'
+description: 'Choosing the right toys for a 5-month-old can boost their development.
+  Babies at this age are curious explorers. Infant toys designed for this stage offer
+  more '
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-5-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Rope Toy For Teething
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-5-month-old&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Choosing the right toys for a 5-month-old can boost their development. Babies at this age are curious explorers.**

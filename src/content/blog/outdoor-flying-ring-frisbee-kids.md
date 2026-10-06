@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Flying Ring Frisbee Kids: Ultimate Fun & Active Play Guide"
-description: "Looking for a fun way to get your kids moving outside? An outdoor flying ring frisbee is the perfect choice for endless play and laughter. Imagine your children"
+title: 'Outdoor Flying Ring Frisbee Kids: Ultimate Fun & Active Play Guide'
+description: Looking for a fun way to get your kids moving outside? An outdoor flying
+  ring frisbee is the perfect choice for endless play and laughter. Imagine your children
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-flying-ring-frisbee-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-flying-ring-frisbee-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids moving outside? An outdoor flying ring frisbee is the perfect choice for endless play and laughter.**

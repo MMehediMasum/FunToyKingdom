@@ -1,10 +1,14 @@
 ---
-title: "Best Two Player Board Games for Adults to Ignite Fun and Strategy"
-description: "Finding the best two player board games for adults can make game nights more fun and engaging. These games offer great ways to connect, compete, and relax toget"
+title: Best Two Player Board Games for Adults to Ignite Fun and Strategy
+description: Finding the best two player board games for adults can make game nights
+  more fun and engaging. These games offer great ways to connect, compete, and relax
+  toget
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-two-player-board-games-for-adults-to-ignite-fun-and-strategy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-two-player-board-games-for-adults-to-ignite-fun-and-strategy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best two player board games for adults can make game nights more fun and engaging. These games offer great ways to connect, compete, and relax together.**

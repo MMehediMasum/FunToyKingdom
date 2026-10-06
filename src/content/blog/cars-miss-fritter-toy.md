@@ -1,10 +1,14 @@
 ---
-title: "Cars Miss Fritter Toy: Ultimate Die-Cast Collectible for Kids Fans"
-description: "Miss Fritter is a popular character from the Cars movie series. The Miss Fritter toy captures her bold and fun personality perfectly. This die-cast toy car is a"
+title: 'Cars Miss Fritter Toy: Ultimate Die-Cast Collectible for Kids Fans'
+description: Miss Fritter is a popular character from the Cars movie series. The Miss
+  Fritter toy captures her bold and fun personality perfectly. This die-cast toy car
+  is a
 pubDate: 2026-02-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-miss-fritter-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-miss-fritter-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Miss Fritter is a popular character from the Cars movie series. The Miss Fritter toy captures her bold and fun personality perfectly.**

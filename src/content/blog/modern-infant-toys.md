@@ -1,10 +1,13 @@
 ---
-title: "Modern Infant Toys: Top Travel-Friendly Montessori Sensory Picks for Babies"
-description: "Modern infant toys are designed to stimulate a child's senses and support developmental milestones. These toys offer both entertainment and learning experiences"
+title: 'Modern Infant Toys: Top Travel-Friendly Montessori Sensory Picks for Babies'
+description: Modern infant toys are designed to stimulate a child's senses and support
+  developmental milestones. These toys offer both entertainment and learning experiences
 pubDate: 2026-01-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=modern-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=modern-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Modern infant toys are designed to stimulate a child's senses and support developmental milestones. These toys offer both entertainment and learning experiences for babies.**

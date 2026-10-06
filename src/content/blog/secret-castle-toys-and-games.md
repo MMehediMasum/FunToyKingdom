@@ -1,10 +1,14 @@
 ---
-title: "Secret Castle Toys And Games: Ultimate Magical Castle Playsets for Kids"
-description: "Step into a world of imagination with Secret Castle Toys and Games. These sets offer endless adventures and creativity. Explore the enchanting realm of castles "
+title: 'Secret Castle Toys And Games: Ultimate Magical Castle Playsets for Kids'
+description: 'Step into a world of imagination with Secret Castle Toys and Games.
+  These sets offer endless adventures and creativity. Explore the enchanting realm
+  of castles '
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=secret-castle-toys-and-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=secret-castle-toys-and-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Step into a world of imagination with Secret Castle Toys and Games. These sets offer endless adventures and creativity.**

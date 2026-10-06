@@ -1,10 +1,14 @@
 ---
-title: "Best Arts And Crafts for 4 Year Olds: Top Fun Creative Kits Reviewed"
-description: "Choosing the best arts and crafts for 4 year olds helps develop creativity and fine motor skills. Simple, fun projects keep young children engaged and happy. At"
+title: 'Best Arts And Crafts for 4 Year Olds: Top Fun Creative Kits Reviewed'
+description: Choosing the best arts and crafts for 4 year olds helps develop creativity
+  and fine motor skills. Simple, fun projects keep young children engaged and happy.
+  At
 pubDate: 2025-10-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-4-year-olds-top-fun-creative-kits-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-4-year-olds-top-fun-creative-kits-reviewed&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Choosing the best arts and crafts for 4 year olds helps develop creativity and fine motor skills. Simple, fun projects keep young children engaged and happy.**

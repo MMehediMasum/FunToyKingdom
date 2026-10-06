@@ -1,10 +1,14 @@
 ---
-title: "What Size Capsule for Toy N Joy Gumball Machine: Ultimate Guide"
-description: "Are you wondering what size capsule fits perfectly in your Toy N Joy gumball machine? Choosing the right capsule size can make all the difference between a smoo"
+title: 'What Size Capsule for Toy N Joy Gumball Machine: Ultimate Guide'
+description: Are you wondering what size capsule fits perfectly in your Toy N Joy
+  gumball machine? Choosing the right capsule size can make all the difference between
+  a smoo
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-capsule-for-toy-n-joy-gumball-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=what-size-capsule-for-toy-n-joy-gumball-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you wondering what size capsule fits perfectly in your Toy N Joy gumball machine? Choosing the right capsule size can make all the difference between a smooth, fun experience and a frustrating one.**

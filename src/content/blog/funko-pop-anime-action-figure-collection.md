@@ -1,10 +1,14 @@
 ---
-title: "Funko Pop Anime Action Figure Collection: Ultimate Guide & Top Picks"
-description: "Are you a fan of anime and love collecting unique figures? Then the Funko Pop Anime Action Figure Collection is made just for you. These eye-catching figures br"
+title: 'Funko Pop Anime Action Figure Collection: Ultimate Guide & Top Picks'
+description: Are you a fan of anime and love collecting unique figures? Then the Funko
+  Pop Anime Action Figure Collection is made just for you. These eye-catching figures
+  br
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=funko-pop-anime-action-figure-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=funko-pop-anime-action-figure-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of anime and love collecting unique figures? Then the Funko Pop Anime Action Figure Collection is made just for you.**

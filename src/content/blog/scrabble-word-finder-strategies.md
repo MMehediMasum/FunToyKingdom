@@ -1,10 +1,14 @@
 ---
-title: "Scrabble Word Finder Strategies: Boost Your Score Fast"
-description: "Are you tired of staring at your Scrabble tiles, struggling to find the perfect word? Imagine turning every move into a winning play, impressing your friends an"
+title: 'Scrabble Word Finder Strategies: Boost Your Score Fast'
+description: Are you tired of staring at your Scrabble tiles, struggling to find the
+  perfect word? Imagine turning every move into a winning play, impressing your friends
+  an
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=scrabble-word-finder-strategies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=scrabble-word-finder-strategies&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you tired of staring at your Scrabble tiles, struggling to find the perfect word? Imagine turning every move into a winning play, impressing your friends and climbing the scoreboard with ease.**

@@ -1,10 +1,14 @@
 ---
-title: "Toys for 12 Month Old Infant: Top Montessori Sensory & Teething Picks"
-description: "Selecting the right toys for a 12-month-old can be challenging. These toys should promote learning and development. At this age, infants are curious and eager t"
+title: 'Toys for 12 Month Old Infant: Top Montessori Sensory & Teething Picks'
+description: Selecting the right toys for a 12-month-old can be challenging. These
+  toys should promote learning and development. At this age, infants are curious and
+  eager t
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-12-month-old-infant&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-12-month-old-infant&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Selecting the right toys for a 12-month-old can be challenging. These toys should promote learning and development.**

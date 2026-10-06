@@ -1,10 +1,14 @@
 ---
-title: "What is the Burger King Toy: Unveiling the Fun Collectible Craze"
-description: "Have you ever wondered what makes the Burger King toy so special? Maybe you had one as a kid or spotted one in a collection and felt curious. These toys are mor"
+title: 'What is the Burger King Toy: Unveiling the Fun Collectible Craze'
+description: Have you ever wondered what makes the Burger King toy so special? Maybe
+  you had one as a kid or spotted one in a collection and felt curious. These toys
+  are mor
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-burger-king-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Burger King Toy Promotions
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-burger-king-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what makes the Burger King toy so special? Maybe you had one as a kid or spotted one in a collection and felt curious.**

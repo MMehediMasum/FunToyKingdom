@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Crown from Cardboard: Easy DIY Craft Guide"
-description: "Do you want to create a fun and magical toy crown that your kids will love? Making a crown from cardboard is easier than you think. With just a few simple steps"
+title: 'How to Make Toy Crown from Cardboard: Easy DIY Craft Guide'
+description: Do you want to create a fun and magical toy crown that your kids will
+  love? Making a crown from cardboard is easier than you think. With just a few simple
+  steps
 pubDate: 2026-05-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-crown-from-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-crown-from-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to create a fun and magical toy crown that your kids will love? Making a crown from cardboard is easier than you think.**

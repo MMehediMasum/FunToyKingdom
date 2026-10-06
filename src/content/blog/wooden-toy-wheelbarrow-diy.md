@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Wheelbarrow DIY: Easy Steps for Fun Crafting Fun"
-description: "Are you looking for a fun and rewarding project that you can build with your own hands? A wooden toy wheelbarrow DIY is the perfect way to create something both"
+title: 'Wooden Toy Wheelbarrow DIY: Easy Steps for Fun Crafting Fun'
+description: Are you looking for a fun and rewarding project that you can build with
+  your own hands? A wooden toy wheelbarrow DIY is the perfect way to create something
+  both
 pubDate: 2026-07-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-wheelbarrow-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-wheelbarrow-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and rewarding project that you can build with your own hands? A wooden toy wheelbarrow DIY is the perfect way to create something both beautiful and useful.**

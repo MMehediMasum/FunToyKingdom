@@ -1,10 +1,14 @@
 ---
-title: "Basketball Arcade Outdoor Toy: Ultimate Fun for Active Kids"
-description: "Are you looking for a fun way to get your kids moving outside? A Basketball Arcade Outdoor Toy might be just what you need. Imagine your backyard turning into a"
+title: 'Basketball Arcade Outdoor Toy: Ultimate Fun for Active Kids'
+description: Are you looking for a fun way to get your kids moving outside? A Basketball
+  Arcade Outdoor Toy might be just what you need. Imagine your backyard turning into
+  a
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=basketball-arcade-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=basketball-arcade-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids moving outside? A Basketball Arcade Outdoor Toy might be just what you need.**

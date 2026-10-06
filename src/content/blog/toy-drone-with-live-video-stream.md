@@ -1,10 +1,14 @@
 ---
-title: "Toy Drone With Live Video Stream: Ultimate Guide for Real-Time Fun"
-description: "Have you ever wished you could see the world from a bird’s eye view without leaving your backyard? A toy drone with live video stream lets you do just that. Ima"
+title: 'Toy Drone With Live Video Stream: Ultimate Guide for Real-Time Fun'
+description: Have you ever wished you could see the world from a bird’s eye view without
+  leaving your backyard? A toy drone with live video stream lets you do just that.
+  Ima
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-drone-with-live-video-stream&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-drone-with-live-video-stream&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wished you could see the world from a bird’s eye view without leaving your backyard? A toy drone with live video stream lets you do just that.**

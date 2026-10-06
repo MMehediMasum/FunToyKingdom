@@ -1,10 +1,14 @@
 ---
-title: "Kids Compass Whistle Outdoor Kit: Ultimate Adventure Gear for Kids"
-description: "Imagine your child exploring the great outdoors with confidence and safety right at their fingertips. The Kids Compass Whistle Outdoor Kit is designed to give y"
+title: 'Kids Compass Whistle Outdoor Kit: Ultimate Adventure Gear for Kids'
+description: Imagine your child exploring the great outdoors with confidence and safety
+  right at their fingertips. The Kids Compass Whistle Outdoor Kit is designed to give
+  y
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-compass-whistle-outdoor-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=kids-compass-whistle-outdoor-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child exploring the great outdoors with confidence and safety right at their fingertips. The Kids Compass Whistle Outdoor Kit is designed to give you peace of mind and your little adventurer the tools they need to navigate nature like a pro.**

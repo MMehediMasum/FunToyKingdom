@@ -1,10 +1,14 @@
 ---
-title: "Kids Insect Habitat Outdoor Toy: Explore, Learn, and Play Naturally!"
-description: "Are you looking for a fun and educational way to get your kids outside and exploring nature? A Kids Insect Habitat Outdoor Toy is just what you need. It turns y"
+title: 'Kids Insect Habitat Outdoor Toy: Explore, Learn, and Play Naturally!'
+description: Are you looking for a fun and educational way to get your kids outside
+  and exploring nature? A Kids Insect Habitat Outdoor Toy is just what you need. It
+  turns y
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-insect-habitat-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=kids-insect-habitat-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and educational way to get your kids outside and exploring nature? A Kids Insect Habitat Outdoor Toy is just what you need.**

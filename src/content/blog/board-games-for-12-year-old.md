@@ -1,10 +1,14 @@
 ---
-title: "Board Games for 12 Year Old: Top Fun & Educational Picks"
-description: "Looking for the perfect board games for your 12-year-old? You want something fun, exciting, and just the right challenge to keep them engaged. The right game ca"
+title: 'Board Games for 12 Year Old: Top Fun & Educational Picks'
+description: Looking for the perfect board games for your 12-year-old? You want something
+  fun, exciting, and just the right challenge to keep them engaged. The right game
+  ca
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-12-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect board games for your 12-year-old? You want something fun, exciting, and just the right challenge to keep them engaged.**

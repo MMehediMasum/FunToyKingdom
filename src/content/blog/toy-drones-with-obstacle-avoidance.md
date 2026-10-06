@@ -1,10 +1,14 @@
 ---
-title: "Toy Drones With Obstacle Avoidance: Ultimate Guide for Safe Flying"
-description: "Imagine flying your toy drone without constantly worrying about crashing into walls or trees. What if your drone could spot obstacles on its own and steer clear"
+title: 'Toy Drones With Obstacle Avoidance: Ultimate Guide for Safe Flying'
+description: Imagine flying your toy drone without constantly worrying about crashing
+  into walls or trees. What if your drone could spot obstacles on its own and steer
+  clear
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-drones-with-obstacle-avoidance&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Do Toy Drones Need
+heroImage: https://tse1.mm.bing.net/th?q=toy-drones-with-obstacle-avoidance&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine flying your toy drone without constantly worrying about crashing into walls or trees. What if your drone could spot obstacles on its own and steer clear, making your flying experience smoother and more fun?**

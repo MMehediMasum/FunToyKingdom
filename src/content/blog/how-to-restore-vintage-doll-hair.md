@@ -1,10 +1,14 @@
 ---
-title: "How to Restore Vintage Doll Hair: Easy Steps for Stunning Results"
-description: "Your vintage doll holds more than just memories—it carries a piece of your past, a story waiting to be told again. But when her hair looks tangled, dull, or wor"
+title: 'How to Restore Vintage Doll Hair: Easy Steps for Stunning Results'
+description: Your vintage doll holds more than just memories—it carries a piece of
+  your past, a story waiting to be told again. But when her hair looks tangled, dull,
+  or wor
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-restore-vintage-doll-hair&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=how-to-restore-vintage-doll-hair&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Your vintage doll holds more than just memories—it carries a piece of your past, a story waiting to be told again. But when her hair looks tangled, dull, or worn out, it’s hard to see that beauty shining through.**

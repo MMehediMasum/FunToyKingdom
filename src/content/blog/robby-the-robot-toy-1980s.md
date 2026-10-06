@@ -1,10 +1,14 @@
 ---
-title: "Robby the Robot Toy: Ultimate Collectible and Interactive Robot Fun"
-description: "Robby the Robot toy from the 1980s remains a favorite among vintage toy collectors. Its unique design and nostalgic charm capture the spirit of classic sci-fi. "
+title: 'Robby the Robot Toy: Ultimate Collectible and Interactive Robot Fun'
+description: 'Robby the Robot toy from the 1980s remains a favorite among vintage
+  toy collectors. Its unique design and nostalgic charm capture the spirit of classic
+  sci-fi. '
 pubDate: 2026-01-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robby-the-robot-toy-1980s&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=robby-the-robot-toy-1980s&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robby the Robot toy from the 1980s remains a favorite among vintage toy collectors. Its unique design and nostalgic charm capture the spirit of classic sci-fi.**

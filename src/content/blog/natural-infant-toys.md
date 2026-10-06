@@ -1,10 +1,14 @@
 ---
-title: "Natural Infant Toys: Safe, Eco-Friendly Picks for Sensory & Teething Fun"
-description: "Natural infant toys offer safe and gentle play for babies. These toys support early learning and healthy development. Choosing toys made from natural materials "
+title: 'Natural Infant Toys: Safe, Eco-Friendly Picks for Sensory & Teething Fun'
+description: 'Natural infant toys offer safe and gentle play for babies. These toys
+  support early learning and healthy development. Choosing toys made from natural
+  materials '
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=natural-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=natural-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Natural infant toys offer safe and gentle play for babies. These toys support early learning and healthy development.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars Doc Hudson Toy: Ultimate Diecast Racer Set for Kids’ Playtime Fun"
-description: "The Cars Doc Hudson toy is a delightful choice for young Disney Pixar fans. This iconic character from the \"Cars\" movies brings joy and nostalgia to playtime. D"
+title: 'Cars Doc Hudson Toy: Ultimate Diecast Racer Set for Kids’ Playtime Fun'
+description: The Cars Doc Hudson toy is a delightful choice for young Disney Pixar
+  fans. This iconic character from the "Cars" movies brings joy and nostalgia to playtime.
+  D
 pubDate: 2026-03-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-doc-hudson-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-doc-hudson-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Cars Doc Hudson toy is a delightful choice for young Disney Pixar fans. This iconic character from the "Cars" movies brings joy and nostalgia to playtime.**

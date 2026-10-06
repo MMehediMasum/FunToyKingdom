@@ -1,10 +1,14 @@
 ---
-title: "Best Glue for Puzzles: Top Mod Podge and Clear Sealers Reviewed"
-description: "Finding the best glue for puzzles keeps your completed work safe and sturdy. It protects your puzzle from falling apart and preserves your hard effort. Puzzle g"
+title: 'Best Glue for Puzzles: Top Mod Podge and Clear Sealers Reviewed'
+description: Finding the best glue for puzzles keeps your completed work safe and
+  sturdy. It protects your puzzle from falling apart and preserves your hard effort.
+  Puzzle g
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-glue-for-puzzles-top-mod-podge-and-clear-sealers-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Puzzles For Toddlers Top
+heroImage: https://tse1.mm.bing.net/th?q=best-glue-for-puzzles-top-mod-podge-and-clear-sealers-reviewed&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best glue for puzzles keeps your completed work safe and sturdy. It protects your puzzle from falling apart and preserves your hard effort.**

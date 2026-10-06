@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Sphinx: Creative Fun for Kids & Adults"
-description: "Imagine holding a toy that sparks your creativity and connects you to ancient history—all made from simple cardboard. The Handmade Cardboard Toy Sphinx isn’t ju"
+title: 'Handmade Cardboard Toy Sphinx: Creative Fun for Kids & Adults'
+description: Imagine holding a toy that sparks your creativity and connects you to
+  ancient history—all made from simple cardboard. The Handmade Cardboard Toy Sphinx
+  isn’t ju
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-sphinx&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-sphinx&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine holding a toy that sparks your creativity and connects you to ancient history—all made from simple cardboard. The Handmade Cardboard Toy Sphinx isn’t just a plaything; it’s a unique experience crafted just for you.**

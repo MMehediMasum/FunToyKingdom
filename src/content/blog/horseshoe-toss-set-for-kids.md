@@ -1,10 +1,14 @@
 ---
-title: "Horseshoe Toss Set for Kids: Fun, Safe, and Perfect for Playtime"
-description: "Looking for a fun way to get your kids outside and moving? A Horseshoe Toss Set for Kids is the perfect choice. It’s easy to set up, safe to play, and great for"
+title: 'Horseshoe Toss Set for Kids: Fun, Safe, and Perfect for Playtime'
+description: Looking for a fun way to get your kids outside and moving? A Horseshoe
+  Toss Set for Kids is the perfect choice. It’s easy to set up, safe to play, and
+  great for
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=horseshoe-toss-set-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=horseshoe-toss-set-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids outside and moving? A Horseshoe Toss Set for Kids is the perfect choice.**

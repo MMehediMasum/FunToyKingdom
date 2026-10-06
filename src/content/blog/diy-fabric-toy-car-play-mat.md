@@ -1,10 +1,14 @@
 ---
-title: "Diy Fabric Toy Car Play Mat: Creative Ideas for Kids’ Fun"
-description: "Are you looking for a fun, creative project that your kids will love? Making your own DIY fabric toy car play mat is easier than you think. Imagine a soft, colo"
+title: 'Diy Fabric Toy Car Play Mat: Creative Ideas for Kids’ Fun'
+description: Are you looking for a fun, creative project that your kids will love?
+  Making your own DIY fabric toy car play mat is easier than you think. Imagine a
+  soft, colo
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-fabric-toy-car-play-mat&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=diy-fabric-toy-car-play-mat&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun, creative project that your kids will love? Making your own DIY fabric toy car play mat is easier than you think.**

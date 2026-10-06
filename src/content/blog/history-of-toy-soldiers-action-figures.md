@@ -1,10 +1,14 @@
 ---
-title: "History of Toy Soldiers Action Figures: Uncover Timeless Collectibles"
-description: "Have you ever held a tiny soldier in your hand and wondered how these little figures became so popular? Toy soldiers and action figures have a fascinating past "
+title: 'History of Toy Soldiers Action Figures: Uncover Timeless Collectibles'
+description: 'Have you ever held a tiny soldier in your hand and wondered how these
+  little figures became so popular? Toy soldiers and action figures have a fascinating
+  past '
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-toy-soldiers-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=history-of-toy-soldiers-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever held a tiny soldier in your hand and wondered how these little figures became so popular? Toy soldiers and action figures have a fascinating past that connects childhood memories with history, art, and culture.**

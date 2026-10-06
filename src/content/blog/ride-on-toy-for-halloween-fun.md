@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Halloween Fun: Spooky Adventures Await!"
-description: "Halloween is just around the corner, and you’re probably looking for fun ways to make this spooky season unforgettable. Imagine your little one zooming around i"
+title: 'Ride on Toy for Halloween Fun: Spooky Adventures Await!'
+description: Halloween is just around the corner, and you’re probably looking for
+  fun ways to make this spooky season unforgettable. Imagine your little one zooming
+  around i
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-halloween-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-halloween-fun&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Halloween is just around the corner, and you’re probably looking for fun ways to make this spooky season unforgettable. Imagine your little one zooming around in a ride on toy, dressed up in their favorite costume, laughing and enjoying every moment.**

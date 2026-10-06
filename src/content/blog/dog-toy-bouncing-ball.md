@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Bouncing Ball: Top Durable Interactive Balls for Active Dogs"
-description: "Dog toy bouncing balls keep dogs active and entertained. These toys move, bounce, and roll to engage pets of all sizes. Interactive bouncing balls come in many "
+title: 'Dog Toy Bouncing Ball: Top Durable Interactive Balls for Active Dogs'
+description: 'Dog toy bouncing balls keep dogs active and entertained. These toys
+  move, bounce, and roll to engage pets of all sizes. Interactive bouncing balls come
+  in many '
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-bouncing-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-bouncing-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy bouncing balls keep dogs active and entertained. These toys move, bounce, and roll to engage pets of all sizes.**

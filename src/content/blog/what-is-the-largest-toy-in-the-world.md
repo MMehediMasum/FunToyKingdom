@@ -1,10 +1,14 @@
 ---
-title: "What is the Largest Toy in the World: Unveiling Giant Playtime Wonders"
-description: "Have you ever wondered what the largest toy in the world is? Imagine a toy so big, it can’t fit inside your room or even your house. It’s not just a fun idea—it"
+title: 'What is the Largest Toy in the World: Unveiling Giant Playtime Wonders'
+description: Have you ever wondered what the largest toy in the world is? Imagine
+  a toy so big, it can’t fit inside your room or even your house. It’s not just a
+  fun idea—it
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-largest-toy-in-the-world&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy World Records
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-largest-toy-in-the-world&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what the largest toy in the world is? Imagine a toy so big, it can’t fit inside your room or even your house.**

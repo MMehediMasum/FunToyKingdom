@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for 9 Year Old: Top Creative Picks for Endless Fun"
-description: "Are you looking for the perfect Lego sets for a 9 year old? Choosing the right set can make all the difference between a fun, exciting build and a frustrating e"
+title: 'Lego Sets for 9 Year Old: Top Creative Picks for Endless Fun'
+description: Are you looking for the perfect Lego sets for a 9 year old? Choosing
+  the right set can make all the difference between a fun, exciting build and a frustrating
+  e
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-9-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect Lego sets for a 9 year old? Choosing the right set can make all the difference between a fun, exciting build and a frustrating experience.**

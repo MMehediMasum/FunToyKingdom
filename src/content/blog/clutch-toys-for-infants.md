@@ -1,10 +1,14 @@
 ---
-title: "Clutch Toys for Infants: Top Picks for Early Development Fun"
-description: "Choosing the right toys for your infant can feel overwhelming. You want something safe, fun, and that helps your baby grow. Clutch toys are a perfect choice to "
+title: 'Clutch Toys for Infants: Top Picks for Early Development Fun'
+description: 'Choosing the right toys for your infant can feel overwhelming. You want
+  something safe, fun, and that helps your baby grow. Clutch toys are a perfect choice
+  to '
 pubDate: 2026-06-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=clutch-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=clutch-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for your infant can feel overwhelming. You want something safe, fun, and that helps your baby grow.**

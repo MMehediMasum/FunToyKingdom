@@ -1,10 +1,14 @@
 ---
-title: "Textured Teethers for 3 Month Old: Soothing Relief & Safe Chewing"
-description: "If your little one is around three months old, you’ve probably noticed the first signs of teething. It can be a tough time for both your baby and you. That’s wh"
+title: 'Textured Teethers for 3 Month Old: Soothing Relief & Safe Chewing'
+description: If your little one is around three months old, you’ve probably noticed
+  the first signs of teething. It can be a tough time for both your baby and you.
+  That’s wh
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=textured-teethers-for-3-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=textured-teethers-for-3-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If your little one is around three months old, you’ve probably noticed the first signs of teething. It can be a tough time for both your baby and you.**

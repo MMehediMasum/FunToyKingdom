@@ -1,10 +1,13 @@
 ---
-title: "Infant Cube Toy: Top Sensory and Educational Blocks for Early Development"
-description: "Infant cube toys offer engaging sensory play that supports early development. These soft, colorful cubes help babies explore textures, sounds, and shapes. Infan"
+title: 'Infant Cube Toy: Top Sensory and Educational Blocks for Early Development'
+description: Infant cube toys offer engaging sensory play that supports early development.
+  These soft, colorful cubes help babies explore textures, sounds, and shapes. Infan
 pubDate: 2026-08-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-cube-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=infant-cube-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant cube toys offer engaging sensory play that supports early development. These soft, colorful cubes help babies explore textures, sounds, and shapes.**

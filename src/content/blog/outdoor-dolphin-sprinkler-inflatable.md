@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dolphin Sprinkler Inflatable: Ultimate Fun for Kids!"
-description: "Looking for a fun and refreshing way to keep your kids entertained this summer? An outdoor dolphin sprinkler inflatable might be exactly what you need. Imagine "
+title: 'Outdoor Dolphin Sprinkler Inflatable: Ultimate Fun for Kids!'
+description: 'Looking for a fun and refreshing way to keep your kids entertained this
+  summer? An outdoor dolphin sprinkler inflatable might be exactly what you need.
+  Imagine '
 pubDate: 2025-10-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dolphin-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dolphin-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and refreshing way to keep your kids entertained this summer? An outdoor dolphin sprinkler inflatable might be exactly what you need.**

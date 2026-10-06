@@ -1,10 +1,13 @@
 ---
-title: "Toy Tank Rc Battle Set: Ultimate Fun for Kids & Collectors"
-description: "Are you ready to take your playtime to the next level? The Toy Tank RC Battle Set lets you control powerful tanks right from your fingertips. Imagine commanding"
+title: 'Toy Tank Rc Battle Set: Ultimate Fun for Kids & Collectors'
+description: Are you ready to take your playtime to the next level? The Toy Tank RC
+  Battle Set lets you control powerful tanks right from your fingertips. Imagine commanding
 pubDate: 2025-09-11
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-tank-rc-battle-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-tank-rc-battle-set&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your playtime to the next level? The Toy Tank RC Battle Set lets you control powerful tanks right from your fingertips.**

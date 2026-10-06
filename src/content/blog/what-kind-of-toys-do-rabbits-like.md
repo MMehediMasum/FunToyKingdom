@@ -1,10 +1,14 @@
 ---
-title: "What Kind of Toys Do Rabbits Like: Top Picks for Happy Bunnies"
-description: "If you have a pet rabbit, you know how important it is to keep your furry friend happy and entertained. But what kind of toys do rabbits really like? Choosing t"
+title: 'What Kind of Toys Do Rabbits Like: Top Picks for Happy Bunnies'
+description: If you have a pet rabbit, you know how important it is to keep your furry
+  friend happy and entertained. But what kind of toys do rabbits really like? Choosing
+  t
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-kind-of-toys-do-rabbits-like&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-kind-of-toys-do-rabbits-like&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you have a pet rabbit, you know how important it is to keep your furry friend happy and entertained. But what kind of toys do rabbits really like?**

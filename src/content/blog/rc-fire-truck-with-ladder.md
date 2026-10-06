@@ -1,10 +1,14 @@
 ---
-title: "Rc Fire Truck With Ladder: Ultimate Rescue Fun for Kids"
-description: "Imagine having the power to control a real fire truck right from your fingertips. An RC fire truck with a ladder is not just a toy—it’s an exciting way to bring"
+title: 'Rc Fire Truck With Ladder: Ultimate Rescue Fun for Kids'
+description: Imagine having the power to control a real fire truck right from your
+  fingertips. An RC fire truck with a ladder is not just a toy—it’s an exciting way
+  to bring
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-fire-truck-with-ladder&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-fire-truck-with-ladder&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine having the power to control a real fire truck right from your fingertips. An RC fire truck with a ladder is not just a toy—it’s an exciting way to bring action and adventure to your playtime.**

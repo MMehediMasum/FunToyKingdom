@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Scooter for Toddlers 3 Wheel: Safe, Fun & Durable Guide"
-description: "Are you looking for the perfect outdoor scooter for your toddler? A 3-wheel scooter can be just what your little one needs to build confidence, balance, and hav"
+title: 'Outdoor Scooter for Toddlers 3 Wheel: Safe, Fun & Durable Guide'
+description: Are you looking for the perfect outdoor scooter for your toddler? A 3-wheel
+  scooter can be just what your little one needs to build confidence, balance, and
+  hav
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-scooter-for-toddlers-3-wheel&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-scooter-for-toddlers-3-wheel&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect outdoor scooter for your toddler? A 3-wheel scooter can be just what your little one needs to build confidence, balance, and have endless fun outside.**

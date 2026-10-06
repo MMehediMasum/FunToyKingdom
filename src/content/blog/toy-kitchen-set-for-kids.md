@@ -1,10 +1,14 @@
 ---
-title: "Toy Kitchen Set for Kids: Top Interactive Playsets with Lights & Sounds"
-description: "A toy kitchen set for kids sparks creativity and makes playtime fun. It helps toddlers learn by pretending to cook and clean. Toy kitchen sets come in many styl"
+title: 'Toy Kitchen Set for Kids: Top Interactive Playsets with Lights & Sounds'
+description: A toy kitchen set for kids sparks creativity and makes playtime fun.
+  It helps toddlers learn by pretending to cook and clean. Toy kitchen sets come in
+  many styl
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-kitchen-set-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-kitchen-set-for-kids&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A toy kitchen set for kids sparks creativity and makes playtime fun. It helps toddlers learn by pretending to cook and clean.**

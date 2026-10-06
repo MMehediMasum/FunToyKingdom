@@ -1,10 +1,14 @@
 ---
-title: "Crochet Baby Rattle Toy DIY: Easy Steps for Adorable Gifts"
-description: "Looking for a fun and creative way to make a special gift for your little one? A crochet baby rattle toy DIY is the perfect project for you. It’s simple, enjoya"
+title: 'Crochet Baby Rattle Toy DIY: Easy Steps for Adorable Gifts'
+description: Looking for a fun and creative way to make a special gift for your little
+  one? A crochet baby rattle toy DIY is the perfect project for you. It’s simple,
+  enjoya
 pubDate: 2026-09-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=crochet-baby-rattle-toy-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=crochet-baby-rattle-toy-diy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a fun and creative way to make a special gift for your little one? A crochet baby rattle toy DIY is the perfect project for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Butterfly Flying Electronic: Ultimate Fun for Kids & Adults"
-description: "Imagine holding a beautiful butterfly that flutters its wings right in your hands. The Toy Butterfly Flying Electronic brings that magic to life. If you’re look"
+title: 'Toy Butterfly Flying Electronic: Ultimate Fun for Kids & Adults'
+description: Imagine holding a beautiful butterfly that flutters its wings right in
+  your hands. The Toy Butterfly Flying Electronic brings that magic to life. If you’re
+  look
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-butterfly-flying-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-butterfly-flying-electronic&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine holding a beautiful butterfly that flutters its wings right in your hands. The Toy Butterfly Flying Electronic brings that magic to life.**

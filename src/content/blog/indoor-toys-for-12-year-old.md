@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for 12 Year Old: Top Fun & Educational Picks"
-description: "Are you looking for the perfect indoor toys to keep your 12-year-old entertained and engaged? Finding toys that match their growing curiosity and energy can be "
+title: 'Indoor Toys for 12 Year Old: Top Fun & Educational Picks'
+description: 'Are you looking for the perfect indoor toys to keep your 12-year-old
+  entertained and engaged? Finding toys that match their growing curiosity and energy
+  can be '
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-12-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect indoor toys to keep your 12-year-old entertained and engaged? Finding toys that match their growing curiosity and energy can be tricky.**

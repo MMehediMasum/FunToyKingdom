@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Groups: Top Picks for Fun and Laughter"
-description: "Board games bring people together for fun and friendly competition. They create laughter, teamwork, and great memories in any group setting. Choosing the best b"
+title: 'Best Board Games for Groups: Top Picks for Fun and Laughter'
+description: Board games bring people together for fun and friendly competition. They
+  create laughter, teamwork, and great memories in any group setting. Choosing the
+  best b
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-groups-top-picks-for-fun-and-laughter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Party
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-groups-top-picks-for-fun-and-laughter&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games bring people together for fun and friendly competition. They create laughter, teamwork, and great memories in any group setting.**

@@ -1,10 +1,14 @@
 ---
-title: "Easter Egg Hunt Outdoor Toy Set: Ultimate Fun for Kids Outdoors"
-description: "Are you ready to make your Easter celebration unforgettable? The Easter Egg Hunt Outdoor Toy Set is just what you need to turn your backyard into a fun-filled a"
+title: 'Easter Egg Hunt Outdoor Toy Set: Ultimate Fun for Kids Outdoors'
+description: Are you ready to make your Easter celebration unforgettable? The Easter
+  Egg Hunt Outdoor Toy Set is just what you need to turn your backyard into a fun-filled
+  a
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-egg-hunt-outdoor-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=easter-egg-hunt-outdoor-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to make your Easter celebration unforgettable? The Easter Egg Hunt Outdoor Toy Set is just what you need to turn your backyard into a fun-filled adventure zone.**

@@ -1,10 +1,14 @@
 ---
-title: "What are Toy Safety Standards: Essential Guide for Safe Playtime"
-description: "When you choose a toy for your child, safety is probably your top concern. But how do you know if a toy is truly safe? That’s where toy safety standards come in"
+title: 'What are Toy Safety Standards: Essential Guide for Safe Playtime'
+description: When you choose a toy for your child, safety is probably your top concern.
+  But how do you know if a toy is truly safe? That’s where toy safety standards come
+  in
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-toy-safety-standards&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=what-are-toy-safety-standards&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **When you choose a toy for your child, safety is probably your top concern. But how do you know if a toy is truly safe?**

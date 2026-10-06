@@ -1,10 +1,14 @@
 ---
-title: "Mcqueen Cars 3 Toys: Top Picks for Ultimate Racing Fun"
-description: "McQueen Cars 3 toys bring the excitement of the popular Disney Pixar movie to life. Fans can enjoy a wide variety of die-cast cars, playsets, and collectible fi"
+title: 'Mcqueen Cars 3 Toys: Top Picks for Ultimate Racing Fun'
+description: McQueen Cars 3 toys bring the excitement of the popular Disney Pixar
+  movie to life. Fans can enjoy a wide variety of die-cast cars, playsets, and collectible
+  fi
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mcqueen-cars-3-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=mcqueen-cars-3-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **McQueen Cars 3 toys bring the excitement of the popular Disney Pixar movie to life. Fans can enjoy a wide variety of die-cast cars, playsets, and collectible figures.**

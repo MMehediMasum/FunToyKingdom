@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat With Self Righting Feature: Ultimate Stability & Fun Guide"
-description: "Have you ever lost control of your RC boat and watched it flip over, stuck upside down on the water? It’s frustrating, right? Imagine a boat that can flip itsel"
+title: 'Rc Boat With Self Righting Feature: Ultimate Stability & Fun Guide'
+description: Have you ever lost control of your RC boat and watched it flip over,
+  stuck upside down on the water? It’s frustrating, right? Imagine a boat that can
+  flip itsel
 pubDate: 2025-09-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-with-self-righting-feature&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-with-self-righting-feature&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever lost control of your RC boat and watched it flip over, stuck upside down on the water? It’s frustrating, right?**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dartboard Set Safe for Kids: Fun, Durable & Risk-Free"
-description: "Are you looking for a fun way to enjoy the outdoors with your kids while keeping safety a top priority? An outdoor dartboard set can be a fantastic choice, but "
+title: 'Outdoor Dartboard Set Safe for Kids: Fun, Durable & Risk-Free'
+description: 'Are you looking for a fun way to enjoy the outdoors with your kids while
+  keeping safety a top priority? An outdoor dartboard set can be a fantastic choice,
+  but '
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dartboard-set-safe-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dartboard-set-safe-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to enjoy the outdoors with your kids while keeping safety a top priority? An outdoor dartboard set can be a fantastic choice, but you want to make sure it’s safe for your little ones.**

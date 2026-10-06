@@ -1,10 +1,14 @@
 ---
-title: "Rc Submarine Toy Outdoor Play: Ultimate Fun for Kids & Adults"
-description: "Looking for a new way to make your outdoor playtime more exciting? An RC submarine toy could be exactly what you need. Imagine controlling a sleek underwater ve"
+title: 'Rc Submarine Toy Outdoor Play: Ultimate Fun for Kids & Adults'
+description: Looking for a new way to make your outdoor playtime more exciting? An
+  RC submarine toy could be exactly what you need. Imagine controlling a sleek underwater
+  ve
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-submarine-toy-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-submarine-toy-outdoor-play&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a new way to make your outdoor playtime more exciting? An RC submarine toy could be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build Wooden Toy Tractor: Easy Steps for a Perfect Craft"
-description: "Are you ready to create something special with your own hands? Building a wooden toy tractor is a fun and rewarding project that lets you bring a classic piece "
+title: 'How to Build Wooden Toy Tractor: Easy Steps for a Perfect Craft'
+description: 'Are you ready to create something special with your own hands? Building
+  a wooden toy tractor is a fun and rewarding project that lets you bring a classic
+  piece '
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-tractor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-tractor&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something special with your own hands? Building a wooden toy tractor is a fun and rewarding project that lets you bring a classic piece of childhood joy to life.**

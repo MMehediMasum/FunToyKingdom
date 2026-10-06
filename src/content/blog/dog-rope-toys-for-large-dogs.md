@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toys for Large Dogs: Durable Chew & Tug Play Essentials"
-description: "Dog rope toys provide strong, durable playtime for large dogs. These toys help clean teeth and reduce boredom. Large dogs need tough toys that withstand hard ch"
+title: 'Dog Rope Toys for Large Dogs: Durable Chew & Tug Play Essentials'
+description: Dog rope toys provide strong, durable playtime for large dogs. These
+  toys help clean teeth and reduce boredom. Large dogs need tough toys that withstand
+  hard ch
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toys-for-large-dogs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toys-for-large-dogs&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toys provide strong, durable playtime for large dogs. These toys help clean teeth and reduce boredom.**

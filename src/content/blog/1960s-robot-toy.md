@@ -1,10 +1,14 @@
 ---
-title: "1960S Robot Toy: Timeless Retro Collectibles for Nostalgic Fans"
-description: "The 1960s brought a unique charm to the world of toys with captivating robot designs. These vintage robots, now collectibles, hold a special place in the hearts"
+title: '1960S Robot Toy: Timeless Retro Collectibles for Nostalgic Fans'
+description: The 1960s brought a unique charm to the world of toys with captivating
+  robot designs. These vintage robots, now collectibles, hold a special place in the
+  hearts
 pubDate: 2026-03-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1960s-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=1960s-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The 1960s brought a unique charm to the world of toys with captivating robot designs. These vintage robots, now collectibles, hold a special place in the hearts of enthusiasts.**

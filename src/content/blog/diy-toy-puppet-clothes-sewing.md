@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Puppet Clothes Sewing: Easy Steps for Creative Fun"
-description: "Are you ready to bring your toy puppets to life with your own unique style? Sewing clothes for your toy puppets is easier than you think, and it’s a fun way to "
+title: 'Diy Toy Puppet Clothes Sewing: Easy Steps for Creative Fun'
+description: 'Are you ready to bring your toy puppets to life with your own unique
+  style? Sewing clothes for your toy puppets is easier than you think, and it’s a
+  fun way to '
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-puppet-clothes-sewing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Puppet Box Craft
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-puppet-clothes-sewing&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to bring your toy puppets to life with your own unique style? Sewing clothes for your toy puppets is easier than you think, and it’s a fun way to get creative.**

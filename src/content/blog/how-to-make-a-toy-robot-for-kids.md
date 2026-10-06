@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Toy Robot for Kids: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something fun and exciting for your child? Making a toy robot is a perfect way to spark creativity and bring joy to your kid’s pl"
+title: 'How to Make a Toy Robot for Kids: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something fun and exciting for your child?
+  Making a toy robot is a perfect way to spark creativity and bring joy to your kid’s
+  pl
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-robot-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-robot-for-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to create something fun and exciting for your child? Making a toy robot is a perfect way to spark creativity and bring joy to your kid’s playtime.**

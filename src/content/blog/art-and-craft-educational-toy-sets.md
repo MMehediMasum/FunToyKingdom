@@ -1,10 +1,14 @@
 ---
-title: "Art And Craft Educational Toy Sets: Boost Creativity & Learning Fun"
-description: "Are you looking for a fun and effective way to boost your child’s creativity and learning? Art and craft educational toy sets might be exactly what you need. Th"
+title: 'Art And Craft Educational Toy Sets: Boost Creativity & Learning Fun'
+description: Are you looking for a fun and effective way to boost your child’s creativity
+  and learning? Art and craft educational toy sets might be exactly what you need.
+  Th
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=art-and-craft-educational-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=art-and-craft-educational-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and effective way to boost your child’s creativity and learning? Art and craft educational toy sets might be exactly what you need.**

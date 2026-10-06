@@ -1,10 +1,13 @@
 ---
-title: "Lego Robotics Toy for Learning: Boost Creativity and STEM Skills"
-description: "Imagine giving your child a toy that’s not just fun but also sparks their creativity and sharpens their problem-solving skills. A Lego Robotics Toy for Learning"
+title: 'Lego Robotics Toy for Learning: Boost Creativity and STEM Skills'
+description: Imagine giving your child a toy that’s not just fun but also sparks their
+  creativity and sharpens their problem-solving skills. A Lego Robotics Toy for Learning
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-robotics-toy-for-learning&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=lego-robotics-toy-for-learning&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine giving your child a toy that’s not just fun but also sparks their creativity and sharpens their problem-solving skills. A Lego Robotics Toy for Learning does exactly that.**

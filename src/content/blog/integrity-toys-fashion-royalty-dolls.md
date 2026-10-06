@@ -1,10 +1,14 @@
 ---
-title: "Integrity Toys Fashion Royalty Dolls: Ultimate Collector’s Guide to Chic Style"
-description: "Integrity Toys Fashion Royalty Dolls offer detailed, stylish collectible dolls for fans and collectors. These dolls showcase high-quality design and fashion fla"
+title: 'Integrity Toys Fashion Royalty Dolls: Ultimate Collector’s Guide to Chic Style'
+description: Integrity Toys Fashion Royalty Dolls offer detailed, stylish collectible
+  dolls for fans and collectors. These dolls showcase high-quality design and fashion
+  fla
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=integrity-toys-fashion-royalty-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=integrity-toys-fashion-royalty-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Integrity Toys Fashion Royalty Dolls offer detailed, stylish collectible dolls for fans and collectors. These dolls showcase high-quality design and fashion flair.**

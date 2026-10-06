@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Mitten Sewing Pattern: Easy Steps for Adorable Handmade Toys"
-description: "Are you looking for a fun and simple project to make a special toy mitten? This DIY Toy Mitten Sewing Pattern is perfect for you. Whether you’re new to sewing o"
+title: 'Diy Toy Mitten Sewing Pattern: Easy Steps for Adorable Handmade Toys'
+description: Are you looking for a fun and simple project to make a special toy mitten?
+  This DIY Toy Mitten Sewing Pattern is perfect for you. Whether you’re new to sewing
+  o
 pubDate: 2026-07-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-mitten-sewing-pattern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-mitten-sewing-pattern&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple project to make a special toy mitten? This DIY Toy Mitten Sewing Pattern is perfect for you.**

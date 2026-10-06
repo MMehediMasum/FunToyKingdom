@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Space Shuttle Sprinkler Toy: Ultimate Summer Fun for Kids"
-description: "Imagine turning your backyard into a fun, splash-filled adventure that kids will love. The Outdoor Space Shuttle Sprinkler Toy does just that by combining excit"
+title: 'Outdoor Space Shuttle Sprinkler Toy: Ultimate Summer Fun for Kids'
+description: Imagine turning your backyard into a fun, splash-filled adventure that
+  kids will love. The Outdoor Space Shuttle Sprinkler Toy does just that by combining
+  excit
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-space-shuttle-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-space-shuttle-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun, splash-filled adventure that kids will love. The Outdoor Space Shuttle Sprinkler Toy does just that by combining exciting space-themed play with refreshing water fun.**

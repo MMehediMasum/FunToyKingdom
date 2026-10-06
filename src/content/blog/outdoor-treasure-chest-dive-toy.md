@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Treasure Chest Dive Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine your kids diving into a world of fun right in your backyard. The Outdoor Treasure Chest Dive Toy turns ordinary pool time into an exciting underwater ad"
+title: 'Outdoor Treasure Chest Dive Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine your kids diving into a world of fun right in your backyard.
+  The Outdoor Treasure Chest Dive Toy turns ordinary pool time into an exciting underwater
+  ad
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-treasure-chest-dive-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-treasure-chest-dive-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids diving into a world of fun right in your backyard. The Outdoor Treasure Chest Dive Toy turns ordinary pool time into an exciting underwater adventure.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Seniors to Boost Fun and Memory Skills"
-description: "Board games offer fun and mental exercise for seniors. They help improve memory, focus, and social skills. Choosing the right board game keeps seniors engaged a"
+title: Best Board Games for Seniors to Boost Fun and Memory Skills
+description: Board games offer fun and mental exercise for seniors. They help improve
+  memory, focus, and social skills. Choosing the right board game keeps seniors engaged
+  a
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-seniors-to-boost-fun-and-memory-skills&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-seniors-to-boost-fun-and-memory-skills&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games offer fun and mental exercise for seniors. They help improve memory, focus, and social skills.**

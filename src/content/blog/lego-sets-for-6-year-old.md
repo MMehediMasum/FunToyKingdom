@@ -1,10 +1,14 @@
 ---
-title: "Lego Sets for 6 Year Old: Top Fun & Educational Picks 2025"
-description: "Are you searching for the perfect Lego sets for your 6-year-old? Choosing the right set can spark creativity, build confidence, and provide hours of fun. But wi"
+title: 'Lego Sets for 6 Year Old: Top Fun & Educational Picks 2025'
+description: Are you searching for the perfect Lego sets for your 6-year-old? Choosing
+  the right set can spark creativity, build confidence, and provide hours of fun.
+  But wi
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-6-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you searching for the perfect Lego sets for your 6-year-old? Choosing the right set can spark creativity, build confidence, and provide hours of fun.**

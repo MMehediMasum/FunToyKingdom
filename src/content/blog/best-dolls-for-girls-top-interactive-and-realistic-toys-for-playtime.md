@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for Girls: Top Interactive and Realistic Toys for Playtime"
-description: "Choosing the best dolls for girls can make playtime fun and creative. Dolls help children learn care, imagination, and social skills. This guide covers top doll"
+title: 'Best Dolls for Girls: Top Interactive and Realistic Toys for Playtime'
+description: Choosing the best dolls for girls can make playtime fun and creative.
+  Dolls help children learn care, imagination, and social skills. This guide covers
+  top doll
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-girls-top-interactive-and-realistic-toys-for-playtime&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-girls-top-interactive-and-realistic-toys-for-playtime&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for girls can make playtime fun and creative. Dolls help children learn care, imagination, and social skills.**

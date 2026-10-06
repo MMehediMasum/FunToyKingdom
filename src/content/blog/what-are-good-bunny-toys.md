@@ -1,10 +1,14 @@
 ---
-title: "What are Good Bunny Toys: Top Picks for Happy, Healthy Bunnies"
-description: "If you have a bunny, you know how curious and playful they can be. But have you ever wondered what toys are really good for your furry friend? Choosing the righ"
+title: 'What are Good Bunny Toys: Top Picks for Happy, Healthy Bunnies'
+description: If you have a bunny, you know how curious and playful they can be. But
+  have you ever wondered what toys are really good for your furry friend? Choosing
+  the righ
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-good-bunny-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drop Off Toys For Christmas
+heroImage: https://tse1.mm.bing.net/th?q=what-are-good-bunny-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you have a bunny, you know how curious and playful they can be. But have you ever wondered what toys are really good for your furry friend?**

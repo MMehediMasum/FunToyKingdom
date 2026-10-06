@@ -1,10 +1,14 @@
 ---
-title: "Giant Inflatable Bowling Set: Ultimate Fun for All Ages!"
-description: "Imagine turning your backyard, party, or event into a fun-filled bowling alley in minutes. With a Giant Inflatable Bowling Set, you get all the excitement of bo"
+title: 'Giant Inflatable Bowling Set: Ultimate Fun for All Ages!'
+description: Imagine turning your backyard, party, or event into a fun-filled bowling
+  alley in minutes. With a Giant Inflatable Bowling Set, you get all the excitement
+  of bo
 pubDate: 2025-10-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-inflatable-bowling-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=giant-inflatable-bowling-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard, party, or event into a fun-filled bowling alley in minutes. With a Giant Inflatable Bowling Set, you get all the excitement of bowling without leaving your home.**

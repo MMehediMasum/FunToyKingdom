@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for ADHD: Top Fidget Sets to Boost Focus and Calm"
-description: "Sensory toys can significantly benefit children and adults with ADHD. These toys help improve focus and reduce anxiety. Sensory toys are designed to engage vari"
+title: 'Sensory Toys for ADHD: Top Fidget Sets to Boost Focus and Calm'
+description: Sensory toys can significantly benefit children and adults with ADHD.
+  These toys help improve focus and reduce anxiety. Sensory toys are designed to engage
+  vari
 pubDate: 2026-02-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-adhd&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-adhd&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys can significantly benefit children and adults with ADHD. These toys help improve focus and reduce anxiety.**

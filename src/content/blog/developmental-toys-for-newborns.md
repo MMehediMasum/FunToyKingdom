@@ -1,10 +1,13 @@
 ---
-title: "Developmental Toys for Newborns: Boost Growth & Brain Power"
-description: "Your newborn’s early months are filled with wonder and discovery. Choosing the right toys can make a big difference in helping your baby grow strong and smart. "
+title: 'Developmental Toys for Newborns: Boost Growth & Brain Power'
+description: 'Your newborn’s early months are filled with wonder and discovery. Choosing
+  the right toys can make a big difference in helping your baby grow strong and smart. '
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=developmental-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Developmental Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=developmental-toys-for-newborns&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Your newborn’s early months are filled with wonder and discovery. Choosing the right toys can make a big difference in helping your baby grow strong and smart.**

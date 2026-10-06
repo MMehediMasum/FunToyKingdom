@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Top Mobile Toy Games for Children: Fun, Educational & Safe Picks"
 description: "Are you looking for fun and safe mobile toy games that your child will love? Choosing the right game can be overwhelming with so many options out there. But don"
 pubDate: 2025-11-08

@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy With Tinted Windshield: Ultimate Fun & Safety Guide"
-description: "Imagine giving your child a toy that’s not only fun but also adds a cool, real-life touch to their playtime. A ride on toy with a tinted windshield does exactly"
+title: 'Ride on Toy With Tinted Windshield: Ultimate Fun & Safety Guide'
+description: Imagine giving your child a toy that’s not only fun but also adds a cool,
+  real-life touch to their playtime. A ride on toy with a tinted windshield does exactly
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-tinted-windshield&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-tinted-windshield&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that’s not only fun but also adds a cool, real-life touch to their playtime. A ride on toy with a tinted windshield does exactly that.**

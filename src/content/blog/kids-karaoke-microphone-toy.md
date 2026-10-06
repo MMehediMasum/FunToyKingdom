@@ -1,10 +1,14 @@
 ---
-title: "Kids Karaoke Microphone Toy: Ultimate Fun for Little Singers!"
-description: "Are you looking for a fun way to spark your child’s creativity and boost their confidence? A Kids Karaoke Microphone Toy might be just what you need. Imagine yo"
+title: 'Kids Karaoke Microphone Toy: Ultimate Fun for Little Singers!'
+description: Are you looking for a fun way to spark your child’s creativity and boost
+  their confidence? A Kids Karaoke Microphone Toy might be just what you need. Imagine
+  yo
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-karaoke-microphone-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=kids-karaoke-microphone-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun way to spark your child’s creativity and boost their confidence? A Kids Karaoke Microphone Toy might be just what you need.**

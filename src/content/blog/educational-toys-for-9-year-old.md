@@ -1,10 +1,13 @@
 ---
-title: "Educational Toys for 9 Year Old: Top Fun & Learning Picks 2025"
-description: "Finding the perfect educational toys for your 9-year-old can feel overwhelming. You want something that sparks their curiosity, challenges their mind, and keeps"
+title: 'Educational Toys for 9 Year Old: Top Fun & Learning Picks 2025'
+description: Finding the perfect educational toys for your 9-year-old can feel overwhelming.
+  You want something that sparks their curiosity, challenges their mind, and keeps
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-9-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Finding the perfect educational toys for your 9-year-old can feel overwhelming. You want something that sparks their curiosity, challenges their mind, and keeps them entertained.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Interactive Electronic Set: Ultimate Fun for Kids"
-description: "Imagine bringing your favorite Toy Story characters to life right in your own home. The Toy Story Interactive Electronic Set lets you do just that, turning play"
+title: 'Toy Story Interactive Electronic Set: Ultimate Fun for Kids'
+description: Imagine bringing your favorite Toy Story characters to life right in
+  your own home. The Toy Story Interactive Electronic Set lets you do just that, turning
+  play
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-interactive-electronic-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Interactive Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-interactive-electronic-set&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine bringing your favorite Toy Story characters to life right in your own home. The Toy Story Interactive Electronic Set lets you do just that, turning playtime into an exciting adventure.**

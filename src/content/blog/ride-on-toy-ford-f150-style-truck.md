@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Ford F150 Style Truck: Ultimate Kid’s Adventure Ride"
-description: "Imagine your child’s eyes lighting up as they climb into their very own Ride on Toy Ford F150 Style Truck. This isn’t just any toy—it’s a chance for your little"
+title: 'Ride on Toy Ford F150 Style Truck: Ultimate Kid’s Adventure Ride'
+description: Imagine your child’s eyes lighting up as they climb into their very own
+  Ride on Toy Ford F150 Style Truck. This isn’t just any toy—it’s a chance for your
+  little
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-ford-f150-style-truck&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-ford-f150-style-truck&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they climb into their very own Ride on Toy Ford F150 Style Truck. This isn’t just any toy—it’s a chance for your little one to feel the thrill of driving a powerful truck, right in your backyard.**

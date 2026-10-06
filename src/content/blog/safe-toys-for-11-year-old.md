@@ -1,10 +1,14 @@
 ---
-title: "Safe Toys for 11 Year Old: Top Picks for Fun & Safety"
-description: "Choosing the right toys for your 11-year-old can feel tricky. You want something fun that sparks their creativity, but also safe and age-appropriate. What if yo"
+title: 'Safe Toys for 11 Year Old: Top Picks for Fun & Safety'
+description: Choosing the right toys for your 11-year-old can feel tricky. You want
+  something fun that sparks their creativity, but also safe and age-appropriate. What
+  if yo
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=safe-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=safe-toys-for-11-year-old&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Choosing the right toys for your 11-year-old can feel tricky. You want something fun that sparks their creativity, but also safe and age-appropriate.**

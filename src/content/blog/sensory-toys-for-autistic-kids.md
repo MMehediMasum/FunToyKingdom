@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Autistic Kids: Top Calming Fidget Sets and Gifts"
-description: "Sensory toys help autistic children focus, calm down, and enjoy playtime. They support learning and ease stress in daily activities. These toys come in many sty"
+title: 'Sensory Toys for Autistic Kids: Top Calming Fidget Sets and Gifts'
+description: Sensory toys help autistic children focus, calm down, and enjoy playtime.
+  They support learning and ease stress in daily activities. These toys come in many
+  sty
 pubDate: 2026-03-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-autistic-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-autistic-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help autistic children focus, calm down, and enjoy playtime. They support learning and ease stress in daily activities.**

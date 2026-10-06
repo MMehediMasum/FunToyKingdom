@@ -1,10 +1,14 @@
 ---
-title: "Building Sets for 10 Year Old: Top Fun & Educational Picks 2025"
-description: "Are you looking for the perfect building sets for your 10-year-old? Finding toys that are fun, educational, and keep your child engaged can be tricky. You want "
+title: 'Building Sets for 10 Year Old: Top Fun & Educational Picks 2025'
+description: 'Are you looking for the perfect building sets for your 10-year-old?
+  Finding toys that are fun, educational, and keep your child engaged can be tricky.
+  You want '
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=building-sets-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=building-sets-for-10-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect building sets for your 10-year-old? Finding toys that are fun, educational, and keep your child engaged can be tricky.**

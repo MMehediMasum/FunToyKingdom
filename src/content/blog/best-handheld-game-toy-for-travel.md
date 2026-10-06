@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Handheld Game Toy for Travel: Ultimate Fun On-the-Go Guide"
 description: "Looking for the best handheld game toy for travel? You want something fun, lightweight, and easy to carry wherever you go. Whether you’re stuck on a long flight"
 pubDate: 2026-07-07

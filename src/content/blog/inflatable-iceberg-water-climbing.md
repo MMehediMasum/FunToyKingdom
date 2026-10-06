@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Iceberg Water Climbing: Ultimate Fun & Adventure Guide"
-description: "Imagine standing at the edge of a giant inflatable iceberg, ready to climb its slippery slopes and conquer every twist and turn. Inflatable Iceberg Water Climbi"
+title: 'Inflatable Iceberg Water Climbing: Ultimate Fun & Adventure Guide'
+description: Imagine standing at the edge of a giant inflatable iceberg, ready to
+  climb its slippery slopes and conquer every twist and turn. Inflatable Iceberg Water
+  Climbi
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-iceberg-water-climbing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-iceberg-water-climbing&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine standing at the edge of a giant inflatable iceberg, ready to climb its slippery slopes and conquer every twist and turn. Inflatable Iceberg Water Climbing offers a thrilling mix of fun, challenge, and excitement that you don’t want to miss.**

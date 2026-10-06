@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Soldier Exercise Stretch Meaning: Unlock Flexibility & Strength"
 description: "Have you ever wondered why the Toy Soldier Exercise Stretch is gaining so much attention? This simple move isn’t just a stretch—it’s a powerful way to improve y"
 pubDate: 2025-12-17

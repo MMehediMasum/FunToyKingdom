@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Boats: Creative Fun for Kids at Home"
-description: "Have you ever wanted to create something simple yet magical with your own hands? Handmade cardboard toy boats are the perfect way to bring that idea to life. Th"
+title: 'Handmade Cardboard Toy Boats: Creative Fun for Kids at Home'
+description: Have you ever wanted to create something simple yet magical with your
+  own hands? Handmade cardboard toy boats are the perfect way to bring that idea to
+  life. Th
 pubDate: 2025-10-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-boats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-boats&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something simple yet magical with your own hands? Handmade cardboard toy boats are the perfect way to bring that idea to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Toys Jackson Storm: Ultimate Racing Fun for Kids"
-description: "Jackson Storm toys from Cars 3 are a thrilling addition to any young fan's collection. These toys capture the speed and sleek design of the character. Jackson S"
+title: 'Cars 3 Toys Jackson Storm: Ultimate Racing Fun for Kids'
+description: Jackson Storm toys from Cars 3 are a thrilling addition to any young
+  fan's collection. These toys capture the speed and sleek design of the character.
+  Jackson S
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-toys-jackson-storm&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-toys-jackson-storm&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Jackson Storm toys from Cars 3 are a thrilling addition to any young fan's collection. These toys capture the speed and sleek design of the character.**

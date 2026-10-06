@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Sand And Water Table: Ultimate Fun for Kids Outdoors"
-description: "Imagine your child’s laughter filling the air as they explore, create, and play outside. An outdoor sand and water table offers the perfect way to spark their i"
+title: 'Outdoor Sand And Water Table: Ultimate Fun for Kids Outdoors'
+description: Imagine your child’s laughter filling the air as they explore, create,
+  and play outside. An outdoor sand and water table offers the perfect way to spark
+  their i
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-sand-and-water-table&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-sand-and-water-table&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s laughter filling the air as they explore, create, and play outside. An outdoor sand and water table offers the perfect way to spark their imagination while keeping them engaged and active.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane With Durable Wings: Ultimate Strength for Endless Fun"
-description: "Are you tired of RC airplanes that break their wings after just a few flights? Imagine having an RC airplane with durable wings that can handle crashes, rough l"
+title: 'Rc Airplane With Durable Wings: Ultimate Strength for Endless Fun'
+description: Are you tired of RC airplanes that break their wings after just a few
+  flights? Imagine having an RC airplane with durable wings that can handle crashes,
+  rough l
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-durable-wings&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-durable-wings&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of RC airplanes that break their wings after just a few flights? Imagine having an RC airplane with durable wings that can handle crashes, rough landings, and endless play without falling apart.**

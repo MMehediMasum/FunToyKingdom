@@ -1,10 +1,14 @@
 ---
-title: "Soft Blocks for Infants: Safe, Fun, and Educational Playtime Tips"
-description: "Are you looking for a safe and fun way to boost your infant’s learning and playtime? Soft blocks for infants might be just what you need. These gentle, colorful"
+title: 'Soft Blocks for Infants: Safe, Fun, and Educational Playtime Tips'
+description: Are you looking for a safe and fun way to boost your infant’s learning
+  and playtime? Soft blocks for infants might be just what you need. These gentle,
+  colorful
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-blocks-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=soft-blocks-for-infants&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a safe and fun way to boost your infant’s learning and playtime? Soft blocks for infants might be just what you need.**

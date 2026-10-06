@@ -1,10 +1,14 @@
 ---
-title: "Soft Plush Toys for Newborns: Safe, Cozy, and Adorable Choices"
-description: "When it comes to your newborn, every little detail matters. You want to give your baby comfort, joy, and safety all at once. That’s where soft plush toys come i"
+title: 'Soft Plush Toys for Newborns: Safe, Cozy, and Adorable Choices'
+description: When it comes to your newborn, every little detail matters. You want
+  to give your baby comfort, joy, and safety all at once. That’s where soft plush
+  toys come i
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-plush-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=soft-plush-toys-for-newborns&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **When it comes to your newborn, every little detail matters. You want to give your baby comfort, joy, and safety all at once.**

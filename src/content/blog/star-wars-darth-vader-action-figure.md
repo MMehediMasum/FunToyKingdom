@@ -1,10 +1,14 @@
 ---
-title: "Star Wars Darth Vader Action Figure: Ultimate Collector’s Must-Have"
-description: "If you’re a Star Wars fan or a collector, the Darth Vader action figure is a must-have for your shelf. This iconic character isn’t just a toy; it’s a piece of t"
+title: 'Star Wars Darth Vader Action Figure: Ultimate Collector’s Must-Have'
+description: If you’re a Star Wars fan or a collector, the Darth Vader action figure
+  is a must-have for your shelf. This iconic character isn’t just a toy; it’s a piece
+  of t
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=star-wars-darth-vader-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=star-wars-darth-vader-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a Star Wars fan or a collector, the Darth Vader action figure is a must-have for your shelf. This iconic character isn’t just a toy; it’s a piece of the galaxy far, far away that you can hold in your hands.**

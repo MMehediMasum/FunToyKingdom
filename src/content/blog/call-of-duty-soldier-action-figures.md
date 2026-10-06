@@ -1,10 +1,14 @@
 ---
-title: "Call of Duty Soldier Action Figures: Ultimate Collectors’ Guide 2025"
-description: "Are you a fan of Call of Duty and love collecting action figures? Then you’re in the right place. Call of Duty soldier action figures bring your favorite game c"
+title: 'Call of Duty Soldier Action Figures: Ultimate Collectors’ Guide 2025'
+description: Are you a fan of Call of Duty and love collecting action figures? Then
+  you’re in the right place. Call of Duty soldier action figures bring your favorite
+  game c
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=call-of-duty-soldier-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=call-of-duty-soldier-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Call of Duty and love collecting action figures? Then you’re in the right place.**

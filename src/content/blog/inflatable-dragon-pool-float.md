@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Dragon Pool Float: Ultimate Summer Fun & Relaxation Guide"
-description: "Imagine yourself lounging on a bright, colorful inflatable dragon pool float, feeling the warm sun on your skin and the cool water gently rocking you. This isn’"
+title: 'Inflatable Dragon Pool Float: Ultimate Summer Fun & Relaxation Guide'
+description: Imagine yourself lounging on a bright, colorful inflatable dragon pool
+  float, feeling the warm sun on your skin and the cool water gently rocking you.
+  This isn’
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-dragon-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-dragon-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself lounging on a bright, colorful inflatable dragon pool float, feeling the warm sun on your skin and the cool water gently rocking you. This isn’t just any pool float—it’s your ticket to turning an ordinary swim into an unforgettable adventure.**

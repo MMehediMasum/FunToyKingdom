@@ -1,10 +1,14 @@
 ---
-title: "Bratz Doll Collection History: Unveiling Iconic Fashion Evolution"
-description: "Have you ever wondered how the Bratz dolls became a must-have for so many kids around the world? Their unique style and bold attitude didn’t just appear overnig"
+title: 'Bratz Doll Collection History: Unveiling Iconic Fashion Evolution'
+description: Have you ever wondered how the Bratz dolls became a must-have for so
+  many kids around the world? Their unique style and bold attitude didn’t just appear
+  overnig
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=bratz-doll-collection-history&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=bratz-doll-collection-history&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered how the Bratz dolls became a must-have for so many kids around the world? Their unique style and bold attitude didn’t just appear overnight.**

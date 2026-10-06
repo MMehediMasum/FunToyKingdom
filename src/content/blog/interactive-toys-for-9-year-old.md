@@ -1,10 +1,14 @@
 ---
-title: "Interactive Toys for 9 Year Old: Top Fun & Educational Picks 2025"
-description: "Are you looking for the perfect toy that keeps your 9-year-old excited and engaged? Interactive toys do more than just entertain—they spark creativity, boost le"
+title: 'Interactive Toys for 9 Year Old: Top Fun & Educational Picks 2025'
+description: Are you looking for the perfect toy that keeps your 9-year-old excited
+  and engaged? Interactive toys do more than just entertain—they spark creativity,
+  boost le
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Interactive Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=interactive-toys-for-9-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toy that keeps your 9-year-old excited and engaged? Interactive toys do more than just entertain—they spark creativity, boost learning, and make playtime unforgettable.**

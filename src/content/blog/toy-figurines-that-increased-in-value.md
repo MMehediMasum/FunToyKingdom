@@ -1,10 +1,13 @@
 ---
-title: "Toy Figurines That Increased in Value: Top Collectibles to Watch"
-description: "Have you ever wondered which toy figurines have grown from simple playthings into valuable treasures? Imagine holding a small figure in your hand and realizing "
+title: 'Toy Figurines That Increased in Value: Top Collectibles to Watch'
+description: 'Have you ever wondered which toy figurines have grown from simple playthings
+  into valuable treasures? Imagine holding a small figure in your hand and realizing '
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-figurines-that-increased-in-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=toy-figurines-that-increased-in-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered which toy figurines have grown from simple playthings into valuable treasures? Imagine holding a small figure in your hand and realizing it’s worth far more than you thought.**

@@ -1,10 +1,13 @@
 ---
-title: "How Much Money Do You Start With in Monopoly Toy Story: Ultimate Guide"
-description: "Are you ready to dive into the fun world of Monopoly Toy Story but wondering how much money you actually start with? Knowing your starting cash is key to planni"
+title: 'How Much Money Do You Start With in Monopoly Toy Story: Ultimate Guide'
+description: Are you ready to dive into the fun world of Monopoly Toy Story but wondering
+  how much money you actually start with? Knowing your starting cash is key to planni
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-much-money-do-you-start-with-in-monopoly-toy-story&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- How Much Money Do You
+heroImage: https://tse1.mm.bing.net/th?q=how-much-money-do-you-start-with-in-monopoly-toy-story&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to dive into the fun world of Monopoly Toy Story but wondering how much money you actually start with? Knowing your starting cash is key to planning your moves and beating your friends.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Bath Toys With Vinegar: Easy, Safe & Effective Tips"
-description: "Are your bath toys looking dirty or smelling a bit off? You’re not alone. Bath toys can easily collect mold, mildew, and germs that you don’t want near your chi"
+title: 'How to Clean Bath Toys With Vinegar: Easy, Safe & Effective Tips'
+description: Are your bath toys looking dirty or smelling a bit off? You’re not alone.
+  Bath toys can easily collect mold, mildew, and germs that you don’t want near your
+  chi
 pubDate: 2025-09-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-with-vinegar&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-bath-toys-with-vinegar&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are your bath toys looking dirty or smelling a bit off? You’re not alone.**

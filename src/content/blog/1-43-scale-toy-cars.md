@@ -1,10 +1,14 @@
 ---
-title: "1 43 Scale Toy Cars: Top Die Cast Models for Collectors & Kids"
-description: "1:43 scale toy cars capture the imagination of collectors and young enthusiasts alike. These miniature models offer detailed craftsmanship and vibrant designs. "
+title: '1 43 Scale Toy Cars: Top Die Cast Models for Collectors & Kids'
+description: '1:43 scale toy cars capture the imagination of collectors and young
+  enthusiasts alike. These miniature models offer detailed craftsmanship and vibrant
+  designs. '
 pubDate: 2026-02-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1-43-scale-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=1-43-scale-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **1:43 scale toy cars capture the imagination of collectors and young enthusiasts alike. These miniature models offer detailed craftsmanship and vibrant designs.**

@@ -1,10 +1,13 @@
 ---
-title: "Doctor Strange Action Figure Toy: Ultimate Collector’s Must-Have Guide"
-description: "Are you a fan of Doctor Strange and looking to bring a piece of his magic into your collection? The Doctor Strange action figure toy is more than just a collect"
+title: 'Doctor Strange Action Figure Toy: Ultimate Collector’s Must-Have Guide'
+description: Are you a fan of Doctor Strange and looking to bring a piece of his magic
+  into your collection? The Doctor Strange action figure toy is more than just a collect
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=doctor-strange-action-figure-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Lord Of Rings Action
+heroImage: https://tse1.mm.bing.net/th?q=doctor-strange-action-figure-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Doctor Strange and looking to bring a piece of his magic into your collection? The Doctor Strange action figure toy is more than just a collectible—it’s a way to relive your favorite moments and unleash your imagination.**

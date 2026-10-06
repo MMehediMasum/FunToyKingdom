@@ -1,10 +1,14 @@
 ---
-title: "Best Ride on Cars for Grass: Top Durable Picks for Smooth Rides"
-description: "Are you looking for the perfect ride on car that can easily cruise over grass without getting stuck? Choosing the right one can make all the difference between "
+title: 'Best Ride on Cars for Grass: Top Durable Picks for Smooth Rides'
+description: 'Are you looking for the perfect ride on car that can easily cruise over
+  grass without getting stuck? Choosing the right one can make all the difference
+  between '
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-cars-for-grass&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-cars-for-grass&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect ride on car that can easily cruise over grass without getting stuck? Choosing the right one can make all the difference between endless fun and frustration.**

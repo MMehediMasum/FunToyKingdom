@@ -1,10 +1,14 @@
 ---
-title: "How to Paint a Wooden Toy Box: Easy Steps for a Stunning Finish"
-description: "Are you looking to give your wooden toy box a fresh, new look? Painting it yourself is easier than you might think, and it’s a great way to add a personal touch"
+title: 'How to Paint a Wooden Toy Box: Easy Steps for a Stunning Finish'
+description: Are you looking to give your wooden toy box a fresh, new look? Painting
+  it yourself is easier than you might think, and it’s a great way to add a personal
+  touch
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-paint-a-wooden-toy-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=how-to-paint-a-wooden-toy-box&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking to give your wooden toy box a fresh, new look? Painting it yourself is easier than you might think, and it’s a great way to add a personal touch to your child’s space.**

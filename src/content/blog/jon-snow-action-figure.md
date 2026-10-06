@@ -1,10 +1,14 @@
 ---
-title: "Jon Snow Action Figure: Ultimate Collectible for Game of Thrones Fans"
-description: "If you’re a fan of Game of Thrones, you know Jon Snow is more than just a character—he’s a legend. Now, imagine holding a detailed Jon Snow action figure in you"
+title: 'Jon Snow Action Figure: Ultimate Collectible for Game of Thrones Fans'
+description: If you’re a fan of Game of Thrones, you know Jon Snow is more than just
+  a character—he’s a legend. Now, imagine holding a detailed Jon Snow action figure
+  in you
 pubDate: 2025-12-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=jon-snow-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=jon-snow-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Game of Thrones, you know Jon Snow is more than just a character—he’s a legend. Now, imagine holding a detailed Jon Snow action figure in your hands, capturing every bit of his strength and mystery.**

@@ -1,10 +1,13 @@
 ---
-title: "Toyota Corolla Toy Model Cars: Top Collectible Die-Cast Pull Back Toys"
-description: "Toyota Corolla toy model cars captivate both collectors and young enthusiasts. These miniature marvels offer an engaging and educational experience for all ages"
+title: 'Toyota Corolla Toy Model Cars: Top Collectible Die-Cast Pull Back Toys'
+description: Toyota Corolla toy model cars captivate both collectors and young enthusiasts.
+  These miniature marvels offer an engaging and educational experience for all ages
 pubDate: 2026-08-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyota-corolla-toy-model-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=toyota-corolla-toy-model-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toyota Corolla toy model cars captivate both collectors and young enthusiasts. These miniature marvels offer an engaging and educational experience for all ages.**

@@ -1,10 +1,14 @@
 ---
-title: "Rare Limited Edition Funko Pops: Ultimate Collectors’ Treasure Guide"
-description: "Are you a Funko Pop collector looking for something truly special? Rare limited edition Funko Pops hold a unique charm that can make your collection stand out. "
+title: 'Rare Limited Edition Funko Pops: Ultimate Collectors’ Treasure Guide'
+description: 'Are you a Funko Pop collector looking for something truly special? Rare
+  limited edition Funko Pops hold a unique charm that can make your collection stand
+  out. '
 pubDate: 2025-12-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-limited-edition-funko-pops&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=rare-limited-edition-funko-pops&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Funko Pop collector looking for something truly special? Rare limited edition Funko Pops hold a unique charm that can make your collection stand out.**

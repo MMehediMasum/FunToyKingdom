@@ -1,10 +1,14 @@
 ---
-title: "Best Doll House for 4 Year Old: Top 6-Room Playhouse with Lights & Accessories"
-description: "Choosing the best doll house for a 4-year-old helps boost creativity and fun. A good doll house fits their play style and safety needs. Doll houses offer childr"
+title: 'Best Doll House for 4 Year Old: Top 6-Room Playhouse with Lights & Accessories'
+description: Choosing the best doll house for a 4-year-old helps boost creativity
+  and fun. A good doll house fits their play style and safety needs. Doll houses offer
+  childr
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-doll-house-for-4-year-old-top-6-room-playhouse-with-lights-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-doll-house-for-4-year-old-top-6-room-playhouse-with-lights-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best doll house for a 4-year-old helps boost creativity and fun. A good doll house fits their play style and safety needs.**

@@ -1,10 +1,13 @@
 ---
-title: "Sensory Toys for 5 Month Old Babies: Top Picks for Development and Fun"
-description: "Selecting the right sensory toys for a 5-month-old can boost their development. These toys stimulate their senses and encourage growth. At five months, babies a"
+title: 'Sensory Toys for 5 Month Old Babies: Top Picks for Development and Fun'
+description: Selecting the right sensory toys for a 5-month-old can boost their development.
+  These toys stimulate their senses and encourage growth. At five months, babies a
 pubDate: 2026-03-02
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-5-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-5-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Selecting the right sensory toys for a 5-month-old can boost their development. These toys stimulate their senses and encourage growth.**

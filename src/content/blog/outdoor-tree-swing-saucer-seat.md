@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Tree Swing Saucer Seat: Ultimate Fun & Comfort Guide"
-description: "Imagine a perfect way to bring fun and relaxation right into your backyard. An outdoor tree swing saucer seat offers just that—a cozy spot where you can unwind,"
+title: 'Outdoor Tree Swing Saucer Seat: Ultimate Fun & Comfort Guide'
+description: Imagine a perfect way to bring fun and relaxation right into your backyard.
+  An outdoor tree swing saucer seat offers just that—a cozy spot where you can unwind,
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-tree-swing-saucer-seat&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-tree-swing-saucer-seat&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine a perfect way to bring fun and relaxation right into your backyard. An outdoor tree swing saucer seat offers just that—a cozy spot where you can unwind, play, and enjoy the fresh air.**

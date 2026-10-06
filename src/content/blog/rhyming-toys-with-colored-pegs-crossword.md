@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Rhyming Toys With Colored Pegs Crossword: Fun Phonics Game for Kids"
 description: "Rhyming Toys With Colored Pegs Crossword helps children learn sounds and colors in a fun way. This toy uses colorful pegs and rhymes to keep kids engaged. The L"
 pubDate: 2025-10-17

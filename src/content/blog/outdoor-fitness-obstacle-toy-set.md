@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Fitness Obstacle Toy Set: Ultimate Fun & Workout Combo"
-description: "Are you looking for a fun and exciting way to boost your outdoor workouts? An Outdoor Fitness Obstacle Toy Set might be just what you need. Imagine turning your"
+title: 'Outdoor Fitness Obstacle Toy Set: Ultimate Fun & Workout Combo'
+description: Are you looking for a fun and exciting way to boost your outdoor workouts?
+  An Outdoor Fitness Obstacle Toy Set might be just what you need. Imagine turning
+  your
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-fitness-obstacle-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-fitness-obstacle-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to boost your outdoor workouts? An Outdoor Fitness Obstacle Toy Set might be just what you need.**

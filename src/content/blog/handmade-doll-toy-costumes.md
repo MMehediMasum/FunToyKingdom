@@ -1,10 +1,14 @@
 ---
-title: "Handmade Doll Toy Costumes: Unique Designs to Spark Imagination"
-description: "Are you looking to add a special touch to your child's favorite doll? Handmade doll toy costumes can bring endless joy and creativity to playtime. These unique "
+title: 'Handmade Doll Toy Costumes: Unique Designs to Spark Imagination'
+description: 'Are you looking to add a special touch to your child''s favorite doll?
+  Handmade doll toy costumes can bring endless joy and creativity to playtime. These
+  unique '
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-doll-toy-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=handmade-doll-toy-costumes&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking to add a special touch to your child's favorite doll? Handmade doll toy costumes can bring endless joy and creativity to playtime.**

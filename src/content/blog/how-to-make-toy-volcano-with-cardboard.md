@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Volcano With Cardboard: Easy Step-by-Step Guide"
-description: "Are you ready to create an exciting and educational project right at home? Making a toy volcano with cardboard is a fun way to bring science to life. You’ll not"
+title: 'How to Make Toy Volcano With Cardboard: Easy Step-by-Step Guide'
+description: Are you ready to create an exciting and educational project right at
+  home? Making a toy volcano with cardboard is a fun way to bring science to life.
+  You’ll not
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-volcano-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-volcano-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create an exciting and educational project right at home? Making a toy volcano with cardboard is a fun way to bring science to life.**

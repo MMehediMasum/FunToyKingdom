@@ -1,10 +1,14 @@
 ---
-title: "Sensory Picking Toys: Ultimate Stress Relief for Kids and Adults"
-description: "Sensory picking toys offer relief and focus for individuals experiencing anxiety, ADHD, or stress. These toys serve as an effective tool for both kids and adult"
+title: 'Sensory Picking Toys: Ultimate Stress Relief for Kids and Adults'
+description: Sensory picking toys offer relief and focus for individuals experiencing
+  anxiety, ADHD, or stress. These toys serve as an effective tool for both kids and
+  adult
 pubDate: 2026-03-04
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-picking-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=sensory-picking-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory picking toys offer relief and focus for individuals experiencing anxiety, ADHD, or stress. These toys serve as an effective tool for both kids and adults.**

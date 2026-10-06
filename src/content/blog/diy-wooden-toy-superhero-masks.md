@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Superhero Masks: Creative Fun for Kids at Home"
-description: "Are you ready to bring out your child’s inner superhero? Creating DIY wooden toy superhero masks is a fun and simple way to spark creativity and hours of imagin"
+title: 'Diy Wooden Toy Superhero Masks: Creative Fun for Kids at Home'
+description: Are you ready to bring out your child’s inner superhero? Creating DIY
+  wooden toy superhero masks is a fun and simple way to spark creativity and hours
+  of imagin
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-superhero-masks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-superhero-masks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring out your child’s inner superhero? Creating DIY wooden toy superhero masks is a fun and simple way to spark creativity and hours of imaginative play.**

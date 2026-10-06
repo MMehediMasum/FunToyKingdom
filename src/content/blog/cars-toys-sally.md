@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys Sally: The Ultimate Die-Cast Collectible for Kids Fans"
-description: "Cars Toys Sally brings excitement to young fans of Disney Pixar Cars. These die-cast vehicles are perfect for playtime adventures. Designed with attention to de"
+title: 'Cars Toys Sally: The Ultimate Die-Cast Collectible for Kids Fans'
+description: Cars Toys Sally brings excitement to young fans of Disney Pixar Cars.
+  These die-cast vehicles are perfect for playtime adventures. Designed with attention
+  to de
 pubDate: 2026-02-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-sally&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-sally&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toys Sally brings excitement to young fans of Disney Pixar Cars. These die-cast vehicles are perfect for playtime adventures.**

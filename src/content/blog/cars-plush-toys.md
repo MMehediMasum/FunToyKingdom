@@ -1,10 +1,14 @@
 ---
-title: "Cars Plush Toys: Top Soft and Cuddly Characters Kids Will Love"
-description: "Cars plush toys bring beloved characters from the screen to snuggle time. These toys are perfect for kids of all ages. Featuring soft textures and vibrant desig"
+title: 'Cars Plush Toys: Top Soft and Cuddly Characters Kids Will Love'
+description: Cars plush toys bring beloved characters from the screen to snuggle time.
+  These toys are perfect for kids of all ages. Featuring soft textures and vibrant
+  desig
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-plush-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=cars-plush-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Cars plush toys bring beloved characters from the screen to snuggle time. These toys are perfect for kids of all ages.**

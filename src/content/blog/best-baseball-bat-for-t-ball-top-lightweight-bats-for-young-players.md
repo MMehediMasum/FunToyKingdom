@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Baseball Bat for T Ball: Top Lightweight Bats for Young Players"
 description: "Choosing the best baseball bat for T Ball is important for young players’ growth and enjoyment. A good bat helps kids learn hitting skills and build confidence."
 pubDate: 2025-09-14

@@ -1,10 +1,14 @@
 ---
-title: "How to Photograph Action Figures for Blogs: Expert Tips & Tricks"
-description: "Are you struggling to make your action figure photos stand out on your blog? You’re not alone. Capturing the perfect shot that brings your figures to life can b"
+title: 'How to Photograph Action Figures for Blogs: Expert Tips & Tricks'
+description: Are you struggling to make your action figure photos stand out on your
+  blog? You’re not alone. Capturing the perfect shot that brings your figures to life
+  can b
 pubDate: 2026-07-29
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-photograph-action-figures-for-blogs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-photograph-action-figures-for-blogs&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you struggling to make your action figure photos stand out on your blog? You’re not alone.**

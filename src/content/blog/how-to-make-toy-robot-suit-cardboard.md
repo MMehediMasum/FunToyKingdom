@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Robot Suit Cardboard: Easy DIY Guide"
-description: "Have you ever wanted to create a toy robot suit that’s fun, unique, and made from simple materials? Imagine wearing a cool robot outfit crafted entirely from ca"
+title: 'How to Make Toy Robot Suit Cardboard: Easy DIY Guide'
+description: Have you ever wanted to create a toy robot suit that’s fun, unique, and
+  made from simple materials? Imagine wearing a cool robot outfit crafted entirely
+  from ca
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-robot-suit-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-robot-suit-cardboard&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to create a toy robot suit that’s fun, unique, and made from simple materials? Imagine wearing a cool robot outfit crafted entirely from cardboard—lightweight, easy to customize, and perfect for playtime or a costume party.**

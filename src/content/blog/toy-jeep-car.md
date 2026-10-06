@@ -1,10 +1,13 @@
 ---
-title: "Toy Jeep Car: Top Die-Cast Models for Kids’ Off-Road Adventures"
-description: "Toy Jeep cars captivate both kids and collectors alike. These mini replicas offer a thrilling off-road experience at home. Designed in various scales and styles"
+title: 'Toy Jeep Car: Top Die-Cast Models for Kids’ Off-Road Adventures'
+description: Toy Jeep cars captivate both kids and collectors alike. These mini replicas
+  offer a thrilling off-road experience at home. Designed in various scales and styles
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-jeep-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-jeep-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toy Jeep cars captivate both kids and collectors alike. These mini replicas offer a thrilling off-road experience at home.**

@@ -1,10 +1,14 @@
 ---
-title: "Robot Crab Toy: Interactive Dancing Crab with Lights and Sound Fun"
-description: "Robot crab toys bring fun and learning to children of all ages. These interactive toys move, light up, and play music to keep kids engaged. Robot crab toys come"
+title: 'Robot Crab Toy: Interactive Dancing Crab with Lights and Sound Fun'
+description: Robot crab toys bring fun and learning to children of all ages. These
+  interactive toys move, light up, and play music to keep kids engaged. Robot crab
+  toys come
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-crab-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=robot-crab-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot crab toys bring fun and learning to children of all ages. These interactive toys move, light up, and play music to keep kids engaged.**

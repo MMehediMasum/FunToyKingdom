@@ -1,10 +1,14 @@
 ---
-title: "Rc Drift Car Outdoor Toy: Ultimate Fun for Thrill Seekers"
-description: "Are you ready to take your fun to the next level? The RC Drift Car Outdoor Toy is designed to bring excitement right to your fingertips. Imagine controlling a s"
+title: 'Rc Drift Car Outdoor Toy: Ultimate Fun for Thrill Seekers'
+description: Are you ready to take your fun to the next level? The RC Drift Car Outdoor
+  Toy is designed to bring excitement right to your fingertips. Imagine controlling
+  a s
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drift-car-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-drift-car-outdoor-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your fun to the next level? The RC Drift Car Outdoor Toy is designed to bring excitement right to your fingertips.**

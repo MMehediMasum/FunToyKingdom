@@ -1,10 +1,14 @@
 ---
-title: "Toy Size Miniature Schnauzer Plush and Figurines for Kids Playtime"
-description: "Toy size Miniature Schnauzer toys capture the charm of this popular dog breed. These small, detailed figures and plush toys delight kids and collectors alike. M"
+title: Toy Size Miniature Schnauzer Plush and Figurines for Kids Playtime
+description: Toy size Miniature Schnauzer toys capture the charm of this popular dog
+  breed. These small, detailed figures and plush toys delight kids and collectors
+  alike. M
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-size-miniature-schnauzer&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-size-miniature-schnauzer&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy size Miniature Schnauzer toys capture the charm of this popular dog breed. These small, detailed figures and plush toys delight kids and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy School Bag Craft: Easy Steps for Creative Kids Fun"
-description: "Are you looking for a fun and creative way to spend time with your kids? Making a DIY toy school bag craft is the perfect activity for you. It’s simple, enjoyab"
+title: 'Diy Toy School Bag Craft: Easy Steps for Creative Kids Fun'
+description: Are you looking for a fun and creative way to spend time with your kids?
+  Making a DIY toy school bag craft is the perfect activity for you. It’s simple,
+  enjoyab
 pubDate: 2026-07-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-school-bag-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Puppet Box Craft
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-school-bag-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to spend time with your kids? Making a DIY toy school bag craft is the perfect activity for you.**

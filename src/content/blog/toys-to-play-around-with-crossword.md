@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toys to Play around With Crossword: Top Brain-Boosting Puzzle Games"
 description: "Crossword puzzles bring fun and challenge to people of all ages. Combining toys with crosswords makes learning and playing more exciting. Toys designed for cros"
 pubDate: 2026-08-03

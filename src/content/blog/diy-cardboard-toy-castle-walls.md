@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Castle Walls: Easy Steps for Magical Playtime"
-description: "Imagine turning simple cardboard into a magical castle right in your own home. You can create sturdy, fun walls that bring your child's playtime to life. With j"
+title: 'Diy Cardboard Toy Castle Walls: Easy Steps for Magical Playtime'
+description: Imagine turning simple cardboard into a magical castle right in your
+  own home. You can create sturdy, fun walls that bring your child's playtime to life.
+  With j
 pubDate: 2026-07-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-castle-walls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-castle-walls&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning simple cardboard into a magical castle right in your own home. You can create sturdy, fun walls that bring your child's playtime to life.**

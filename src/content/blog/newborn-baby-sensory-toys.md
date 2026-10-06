@@ -1,10 +1,14 @@
 ---
-title: "Newborn Baby Sensory Toys: Top Picks for Early Development Fun"
-description: "Are you looking for the perfect way to help your newborn’s brain grow and develop? Sensory toys can do just that—and more. These simple, colorful toys are desig"
+title: 'Newborn Baby Sensory Toys: Top Picks for Early Development Fun'
+description: Are you looking for the perfect way to help your newborn’s brain grow
+  and develop? Sensory toys can do just that—and more. These simple, colorful toys
+  are desig
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=newborn-baby-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=newborn-baby-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect way to help your newborn’s brain grow and develop? Sensory toys can do just that—and more.**

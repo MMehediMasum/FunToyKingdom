@@ -1,10 +1,14 @@
 ---
-title: "Jada Fast And Furious Toy Cars: Ultimate Collectible Die-Cast Models Guide"
-description: "Jada Fast and Furious toy cars capture the excitement of the iconic movie franchise. These collectible replicas bring cinematic action to life. Jada's Fast and "
+title: 'Jada Fast And Furious Toy Cars: Ultimate Collectible Die-Cast Models Guide'
+description: 'Jada Fast and Furious toy cars capture the excitement of the iconic
+  movie franchise. These collectible replicas bring cinematic action to life. Jada''s
+  Fast and '
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-fast-and-furious-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=jada-fast-and-furious-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jada Fast and Furious toy cars capture the excitement of the iconic movie franchise. These collectible replicas bring cinematic action to life.**

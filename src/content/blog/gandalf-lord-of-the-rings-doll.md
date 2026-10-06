@@ -1,10 +1,14 @@
 ---
-title: "Gandalf Lord of the Rings Doll: Ultimate Collectible for Fans"
-description: "Are you a fan of Middle-earth and looking to bring a piece of that magic into your home? The Gandalf Lord of the Rings doll is more than just a toy—it's a chanc"
+title: 'Gandalf Lord of the Rings Doll: Ultimate Collectible for Fans'
+description: Are you a fan of Middle-earth and looking to bring a piece of that magic
+  into your home? The Gandalf Lord of the Rings doll is more than just a toy—it's
+  a chanc
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=gandalf-lord-of-the-rings-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=gandalf-lord-of-the-rings-doll&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you a fan of Middle-earth and looking to bring a piece of that magic into your home? The Gandalf Lord of the Rings doll is more than just a toy—it's a chance to hold a legendary character in your hands.**

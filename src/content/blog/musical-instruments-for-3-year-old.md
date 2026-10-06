@@ -1,10 +1,14 @@
 ---
-title: "Musical Instruments for 3 Year Old: Top Fun & Educational Picks"
-description: "Are you looking for the perfect musical instruments for your 3-year-old? Choosing the right toys can spark their creativity and boost their development in amazi"
+title: 'Musical Instruments for 3 Year Old: Top Fun & Educational Picks'
+description: Are you looking for the perfect musical instruments for your 3-year-old?
+  Choosing the right toys can spark their creativity and boost their development in
+  amazi
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=musical-instruments-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Musical Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=musical-instruments-for-3-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect musical instruments for your 3-year-old? Choosing the right toys can spark their creativity and boost their development in amazing ways.**

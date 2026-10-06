@@ -1,10 +1,14 @@
 ---
-title: "Infant Toy Stores: Top Sensory and Teething Toys for Newborns"
-description: "Infant toy stores offer a wide range of safe and engaging toys for babies from birth to 12 months. These stores provide essential items that help with early lea"
+title: 'Infant Toy Stores: Top Sensory and Teething Toys for Newborns'
+description: Infant toy stores offer a wide range of safe and engaging toys for babies
+  from birth to 12 months. These stores provide essential items that help with early
+  lea
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toy-stores&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=infant-toy-stores&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant toy stores offer a wide range of safe and engaging toys for babies from birth to 12 months. These stores provide essential items that help with early learning and development.**

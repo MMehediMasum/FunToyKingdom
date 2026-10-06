@@ -1,10 +1,14 @@
 ---
-title: "Sleeping Beauty Aurora Doll: Magical Collectible for Fans"
-description: "Are you looking for the perfect gift that brings magic and charm to any little one’s day? The Sleeping Beauty Aurora Doll might just be what you need. This beau"
+title: 'Sleeping Beauty Aurora Doll: Magical Collectible for Fans'
+description: Are you looking for the perfect gift that brings magic and charm to any
+  little one’s day? The Sleeping Beauty Aurora Doll might just be what you need. This
+  beau
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=sleeping-beauty-aurora-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=sleeping-beauty-aurora-doll&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for the perfect gift that brings magic and charm to any little one’s day? The Sleeping Beauty Aurora Doll might just be what you need.**

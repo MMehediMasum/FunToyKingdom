@@ -1,10 +1,14 @@
 ---
-title: "Double Dutch Jump Rope Set: Ultimate Fun & Fitness Combo"
-description: "Looking for a fun way to boost your fitness and bring energy to your playtime? A Double Dutch Jump Rope Set might be exactly what you need. Imagine the exciteme"
+title: 'Double Dutch Jump Rope Set: Ultimate Fun & Fitness Combo'
+description: Looking for a fun way to boost your fitness and bring energy to your
+  playtime? A Double Dutch Jump Rope Set might be exactly what you need. Imagine the
+  exciteme
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=double-dutch-jump-rope-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=double-dutch-jump-rope-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to boost your fitness and bring energy to your playtime? A Double Dutch Jump Rope Set might be exactly what you need.**

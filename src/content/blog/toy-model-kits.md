@@ -1,10 +1,14 @@
 ---
-title: "Toy Model Kits: Best STEM Building Sets for Kids’ Creativity"
-description: "Toy model kits offer hands-on fun and learning for kids and teens. They combine play with skills like building and science. These kits include STEM toys, wooden"
+title: 'Toy Model Kits: Best STEM Building Sets for Kids’ Creativity'
+description: Toy model kits offer hands-on fun and learning for kids and teens. They
+  combine play with skills like building and science. These kits include STEM toys,
+  wooden
 pubDate: 2026-08-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-model-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=toy-model-kits&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy model kits offer hands-on fun and learning for kids and teens. They combine play with skills like building and science.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Tweens: Fun Family Games Everyone Will Love"
-description: "Finding the best board games for tweens can make family time more fun and engaging. These games suit kids aged 8 to 13 and encourage social skills and creativit"
+title: 'Best Board Games for Tweens: Fun Family Games Everyone Will Love'
+description: Finding the best board games for tweens can make family time more fun
+  and engaging. These games suit kids aged 8 to 13 and encourage social skills and
+  creativit
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-tweens-fun-family-games-everyone-will-love&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-tweens-fun-family-games-everyone-will-love&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for tweens can make family time more fun and engaging. These games suit kids aged 8 to 13 and encourage social skills and creativity.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for 18 Month Old: Top Safe & Fun Picks"
-description: "Finding the right outdoor toys for your 18-month-old can feel overwhelming. You want something safe, fun, and that helps your little one grow. The perfect toy s"
+title: 'Outdoor Toys for 18 Month Old: Top Safe & Fun Picks'
+description: Finding the right outdoor toys for your 18-month-old can feel overwhelming.
+  You want something safe, fun, and that helps your little one grow. The perfect toy
+  s
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-18-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-18-month-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Finding the right outdoor toys for your 18-month-old can feel overwhelming. You want something safe, fun, and that helps your little one grow.**

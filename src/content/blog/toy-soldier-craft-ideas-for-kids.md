@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Craft Ideas for Kids: Fun & Easy DIY Projects"
-description: "Are you looking for fun and creative ways to keep your kids entertained? Toy soldier crafts are a perfect choice! They’re simple, exciting, and let your child’s"
+title: 'Toy Soldier Craft Ideas for Kids: Fun & Easy DIY Projects'
+description: Are you looking for fun and creative ways to keep your kids entertained?
+  Toy soldier crafts are a perfect choice! They’re simple, exciting, and let your
+  child’s
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-craft-ideas-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-craft-ideas-for-kids&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for fun and creative ways to keep your kids entertained? Toy soldier crafts are a perfect choice!**

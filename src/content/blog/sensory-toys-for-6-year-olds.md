@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 6 Year Olds: Top Calming Fidget Picks for Focus"
-description: "Sensory toys help 6 year olds focus, calm down, and enjoy learning. These toys suit children with ADHD, autism, and sensory needs. Sensory toys offer hands-on p"
+title: 'Sensory Toys for 6 Year Olds: Top Calming Fidget Picks for Focus'
+description: Sensory toys help 6 year olds focus, calm down, and enjoy learning. These
+  toys suit children with ADHD, autism, and sensory needs. Sensory toys offer hands-on
+  p
 pubDate: 2026-08-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-6-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Chew Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-6-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 6 year olds focus, calm down, and enjoy learning. These toys suit children with ADHD, autism, and sensory needs.**

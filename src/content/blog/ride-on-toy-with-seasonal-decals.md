@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Seasonal Decals: Transform Playtime All Year"
-description: "Looking for a fun way to keep your child entertained all year long? A ride-on toy with seasonal decals might be just what you need. Imagine your little one zoom"
+title: 'Ride on Toy With Seasonal Decals: Transform Playtime All Year'
+description: Looking for a fun way to keep your child entertained all year long? A
+  ride-on toy with seasonal decals might be just what you need. Imagine your little
+  one zoom
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-seasonal-decals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-seasonal-decals&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your child entertained all year long? A ride-on toy with seasonal decals might be just what you need.**

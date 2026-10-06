@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Trampoline Safety Net Replacement: Easy Tips for Safety"
 description: "Is your outdoor trampoline’s safety net showing signs of wear or damage? You might think it’s no big deal, but a torn or faulty safety net can turn fun into dan"
 pubDate: 2026-03-18

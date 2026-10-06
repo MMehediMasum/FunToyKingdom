@@ -1,10 +1,14 @@
 ---
-title: "Infant Floor Toys: Top Tummy Time Mats for Sensory and Motor Skills"
-description: "Infant floor toys help babies learn while they play safely on the floor. These toys encourage movement, senses, and muscle growth from an early age. Choosing th"
+title: 'Infant Floor Toys: Top Tummy Time Mats for Sensory and Motor Skills'
+description: Infant floor toys help babies learn while they play safely on the floor.
+  These toys encourage movement, senses, and muscle growth from an early age. Choosing
+  th
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-floor-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=infant-floor-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant floor toys help babies learn while they play safely on the floor. These toys encourage movement, senses, and muscle growth from an early age.**

@@ -1,10 +1,14 @@
 ---
-title: "How Many Monster Jam Toy Trucks are There: Ultimate Collection Guide"
-description: "Are you curious about how many Monster Jam toy trucks you can add to your collection? Whether you’re a fan looking to expand your lineup or searching for the pe"
+title: 'How Many Monster Jam Toy Trucks are There: Ultimate Collection Guide'
+description: Are you curious about how many Monster Jam toy trucks you can add to
+  your collection? Whether you’re a fan looking to expand your lineup or searching
+  for the pe
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-monster-jam-toy-trucks-are-there&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=how-many-monster-jam-toy-trucks-are-there&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you curious about how many Monster Jam toy trucks you can add to your collection? Whether you’re a fan looking to expand your lineup or searching for the perfect gift, knowing the full range of Monster Jam toy trucks can help you make smarter choices.**

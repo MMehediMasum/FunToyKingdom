@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Barbie Doll House: Easy DIY Steps for Kids"
-description: "Have you ever wanted to create a magical space where your Barbie dolls can live and play? Making your own Barbie doll house is easier than you think, and it giv"
+title: 'How Do You Make a Barbie Doll House: Easy DIY Steps for Kids'
+description: Have you ever wanted to create a magical space where your Barbie dolls
+  can live and play? Making your own Barbie doll house is easier than you think, and
+  it giv
 pubDate: 2025-08-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-barbie-doll-house&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-barbie-doll-house&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wanted to create a magical space where your Barbie dolls can live and play? Making your own Barbie doll house is easier than you think, and it gives you the chance to design a unique home that fits your style perfectly.**

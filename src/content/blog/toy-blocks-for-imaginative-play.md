@@ -1,10 +1,13 @@
 ---
-title: "Toy Blocks for Imaginative Play: Unlock Creativity and Fun"
-description: "Imagine a simple toy that can unlock your child’s creativity, boost their problem-solving skills, and keep them happily engaged for hours. Toy blocks do exactly"
+title: 'Toy Blocks for Imaginative Play: Unlock Creativity and Fun'
+description: Imagine a simple toy that can unlock your child’s creativity, boost their
+  problem-solving skills, and keep them happily engaged for hours. Toy blocks do exactly
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-blocks-for-imaginative-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Blocks
+heroImage: https://tse1.mm.bing.net/th?q=toy-blocks-for-imaginative-play&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine a simple toy that can unlock your child’s creativity, boost their problem-solving skills, and keep them happily engaged for hours. Toy blocks do exactly that.**

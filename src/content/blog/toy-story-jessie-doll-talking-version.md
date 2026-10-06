@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Jessie Doll Talking Version: Ultimate Fun for Kids!"
-description: "Are you a fan of Toy Story and looking for a special addition to your collection or a perfect gift? The Toy Story Jessie Doll Talking Version might be exactly w"
+title: 'Toy Story Jessie Doll Talking Version: Ultimate Fun for Kids!'
+description: Are you a fan of Toy Story and looking for a special addition to your
+  collection or a perfect gift? The Toy Story Jessie Doll Talking Version might be
+  exactly w
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-jessie-doll-talking-version&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-jessie-doll-talking-version&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Toy Story and looking for a special addition to your collection or a perfect gift? The Toy Story Jessie Doll Talking Version might be exactly what you need.**

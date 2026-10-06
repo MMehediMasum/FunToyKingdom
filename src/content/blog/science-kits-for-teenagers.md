@@ -1,10 +1,14 @@
 ---
-title: "Science Kits for Teenagers: Exciting STEM Learning Adventures"
-description: "Are you looking for a way to make science exciting and fun for your teenager? Science kits for teenagers are the perfect solution. They turn learning into an ad"
+title: 'Science Kits for Teenagers: Exciting STEM Learning Adventures'
+description: Are you looking for a way to make science exciting and fun for your teenager?
+  Science kits for teenagers are the perfect solution. They turn learning into an
+  ad
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kits-for-teenagers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kits-for-teenagers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a way to make science exciting and fun for your teenager? Science kits for teenagers are the perfect solution.**

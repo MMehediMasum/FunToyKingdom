@@ -1,10 +1,14 @@
 ---
-title: "Hot Wheels Ferrari Toy Car: Ultimate Diecast Collectible for Racing Fans"
-description: "Hot Wheels Ferrari toy cars capture the thrill of racing in detailed, small-scale models. These diecast vehicles offer a fun way to collect and play with iconic"
+title: 'Hot Wheels Ferrari Toy Car: Ultimate Diecast Collectible for Racing Fans'
+description: Hot Wheels Ferrari toy cars capture the thrill of racing in detailed,
+  small-scale models. These diecast vehicles offer a fun way to collect and play with
+  iconic
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hot-wheels-ferrari-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=hot-wheels-ferrari-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Hot Wheels Ferrari toy cars capture the thrill of racing in detailed, small-scale models. These diecast vehicles offer a fun way to collect and play with iconic sports cars.**

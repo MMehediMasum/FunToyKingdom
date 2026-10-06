@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Figurine: Easy Steps for Stunning Crafts"
-description: "Have you ever wanted to create something special with your own hands? Making a wooden toy figurine is a fun and rewarding way to do just that. Imagine holding a"
+title: 'How to Make Wooden Toy Figurine: Easy Steps for Stunning Crafts'
+description: Have you ever wanted to create something special with your own hands?
+  Making a wooden toy figurine is a fun and rewarding way to do just that. Imagine
+  holding a
 pubDate: 2026-09-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-figurine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Figurine
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-figurine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Making a wooden toy figurine is a fun and rewarding way to do just that.**

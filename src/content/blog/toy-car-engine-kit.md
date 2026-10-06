@@ -1,10 +1,13 @@
 ---
-title: "Toy Car Engine Kit: Build, Learn, and Play with STEM Mechanics Set"
-description: "Toy car engine kits offer kids and adults alike a fun, educational experience. They inspire creativity and improve problem-solving skills. These kits come in va"
+title: 'Toy Car Engine Kit: Build, Learn, and Play with STEM Mechanics Set'
+description: Toy car engine kits offer kids and adults alike a fun, educational experience.
+  They inspire creativity and improve problem-solving skills. These kits come in va
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-engine-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-engine-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy car engine kits offer kids and adults alike a fun, educational experience. They inspire creativity and improve problem-solving skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Yorkie: Adorable Plush and Realistic Yorkie Collectibles"
-description: "Miniature Toy Yorkies capture the charm of real Yorkie dogs in small, cuddly forms. These toys offer joy for kids and collectors alike. Miniature Toy Yorkies co"
+title: 'Miniature Toy Yorkie: Adorable Plush and Realistic Yorkie Collectibles'
+description: Miniature Toy Yorkies capture the charm of real Yorkie dogs in small,
+  cuddly forms. These toys offer joy for kids and collectors alike. Miniature Toy
+  Yorkies co
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-yorkie&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-yorkie&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature Toy Yorkies capture the charm of real Yorkie dogs in small, cuddly forms. These toys offer joy for kids and collectors alike.**

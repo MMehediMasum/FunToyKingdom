@@ -1,10 +1,14 @@
 ---
-title: "History of Scrabble Word Game: Fascinating Origins and Evolution"
-description: "Have you ever wondered how Scrabble, the word game you love, came to be? Behind every tile and every point lies a fascinating story that shaped this timeless cl"
+title: 'History of Scrabble Word Game: Fascinating Origins and Evolution'
+description: Have you ever wondered how Scrabble, the word game you love, came to
+  be? Behind every tile and every point lies a fascinating story that shaped this
+  timeless cl
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-scrabble-word-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=history-of-scrabble-word-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how Scrabble, the word game you love, came to be? Behind every tile and every point lies a fascinating story that shaped this timeless classic.**

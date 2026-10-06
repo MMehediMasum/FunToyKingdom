@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Tic Tac Toe Game: Ultimate Fun for All Ages Outdoors"
-description: "Looking for a fun way to bring your family and friends together outside? An Outdoor Tic Tac Toe Game is just what you need. It’s simple, exciting, and perfect f"
+title: 'Outdoor Tic Tac Toe Game: Ultimate Fun for All Ages Outdoors'
+description: Looking for a fun way to bring your family and friends together outside?
+  An Outdoor Tic Tac Toe Game is just what you need. It’s simple, exciting, and perfect
+  f
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-tic-tac-toe-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-tic-tac-toe-game&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your family and friends together outside? An Outdoor Tic Tac Toe Game is just what you need.**

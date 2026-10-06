@@ -1,10 +1,14 @@
 ---
-title: "Entrepreneurship Toy Board Games: Ignite Creativity and Business Skills"
-description: "Are you looking for a fun way to boost your business skills or spark an entrepreneurial spirit in your kids? Entrepreneurship toy board games might be exactly w"
+title: 'Entrepreneurship Toy Board Games: Ignite Creativity and Business Skills'
+description: Are you looking for a fun way to boost your business skills or spark
+  an entrepreneurial spirit in your kids? Entrepreneurship toy board games might be
+  exactly w
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=entrepreneurship-toy-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=entrepreneurship-toy-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to boost your business skills or spark an entrepreneurial spirit in your kids? Entrepreneurship toy board games might be exactly what you need.**

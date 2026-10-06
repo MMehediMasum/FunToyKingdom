@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Sensory Seeking Kids: Top Picks for Calm and Fun"
-description: "Sensory toys help sensory seeking kids focus and feel calm. These toys provide safe ways to explore touch, sight, and movement. Kids with sensory needs often se"
+title: 'Sensory Toys for Sensory Seeking Kids: Top Picks for Calm and Fun'
+description: Sensory toys help sensory seeking kids focus and feel calm. These toys
+  provide safe ways to explore touch, sight, and movement. Kids with sensory needs
+  often se
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-sensory-seeking-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-sensory-seeking-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help sensory seeking kids focus and feel calm. These toys provide safe ways to explore touch, sight, and movement.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Helicopter for Indoors: Top Models with LED Lights and Gyro"
-description: "Finding the best RC helicopter for indoors can make flying fun and safe. Small size, easy control, and good stability matter most. Indoor RC helicopters need to"
+title: 'Best Rc Helicopter for Indoors: Top Models with LED Lights and Gyro'
+description: Finding the best RC helicopter for indoors can make flying fun and safe.
+  Small size, easy control, and good stability matter most. Indoor RC helicopters
+  need to
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-helicopter-for-indoors-top-models-with-led-lights-and-gyro&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-helicopter-for-indoors-top-models-with-led-lights-and-gyro&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best RC helicopter for indoors can make flying fun and safe. Small size, easy control, and good stability matter most.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dinosaur Dig Kit Kids: Exciting Fossil Adventure Fun"
-description: "Are you looking for a fun and exciting way to spark your child’s curiosity? The Outdoor Dinosaur Dig Kit for Kids is just what you need. Imagine your child unco"
+title: 'Outdoor Dinosaur Dig Kit Kids: Exciting Fossil Adventure Fun'
+description: Are you looking for a fun and exciting way to spark your child’s curiosity?
+  The Outdoor Dinosaur Dig Kit for Kids is just what you need. Imagine your child
+  unco
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dinosaur-dig-kit-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dinosaur-dig-kit-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s curiosity? The Outdoor Dinosaur Dig Kit for Kids is just what you need.**

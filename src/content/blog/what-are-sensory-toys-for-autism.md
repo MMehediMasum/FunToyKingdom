@@ -1,10 +1,14 @@
 ---
-title: "What are Sensory Toys for Autism: Essential Tools for Development"
-description: "Are you looking for ways to support your child with autism in a fun and engaging way? Sensory toys might be exactly what you need. These special toys are design"
+title: 'What are Sensory Toys for Autism: Essential Tools for Development'
+description: Are you looking for ways to support your child with autism in a fun and
+  engaging way? Sensory toys might be exactly what you need. These special toys are
+  design
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-sensory-toys-for-autism&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=what-are-sensory-toys-for-autism&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for ways to support your child with autism in a fun and engaging way? Sensory toys might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Tree Swing Disc for Kids: Ultimate Fun & Safe Outdoor Play Guide"
-description: "Imagine your kids laughing and swinging freely in your backyard, feeling the thrill of the wind on a simple, fun disc swing. A Tree Swing Disc for Kids is more "
+title: 'Tree Swing Disc for Kids: Ultimate Fun & Safe Outdoor Play Guide'
+description: 'Imagine your kids laughing and swinging freely in your backyard, feeling
+  the thrill of the wind on a simple, fun disc swing. A Tree Swing Disc for Kids is
+  more '
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tree-swing-disc-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=tree-swing-disc-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids laughing and swinging freely in your backyard, feeling the thrill of the wind on a simple, fun disc swing. A Tree Swing Disc for Kids is more than just a plaything—it’s a gateway to endless outdoor adventures, fresh air, and joyful moments that bring your family closer.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Parrot Inflatable Pool Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to make your pool time unforgettable? The Outdoor Parrot Inflatable Pool Toy is just what you need. Imagine lounging on a bright, colorful"
+title: 'Outdoor Parrot Inflatable Pool Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun way to make your pool time unforgettable? The Outdoor
+  Parrot Inflatable Pool Toy is just what you need. Imagine lounging on a bright,
+  colorful
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-parrot-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-parrot-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to make your pool time unforgettable? The Outdoor Parrot Inflatable Pool Toy is just what you need.**

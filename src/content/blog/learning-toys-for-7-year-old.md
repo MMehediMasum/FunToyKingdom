@@ -1,10 +1,14 @@
 ---
-title: "Learning Toys for 7 Year Old: Top Picks to Boost Skills Fast"
-description: "Choosing the right learning toys for your 7-year-old can make a big difference in their growth and happiness. At this age, kids are curious, eager to explore, a"
+title: 'Learning Toys for 7 Year Old: Top Picks to Boost Skills Fast'
+description: Choosing the right learning toys for your 7-year-old can make a big difference
+  in their growth and happiness. At this age, kids are curious, eager to explore,
+  a
 pubDate: 2026-06-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=learning-toys-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=learning-toys-for-7-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right learning toys for your 7-year-old can make a big difference in their growth and happiness. At this age, kids are curious, eager to explore, and ready to build new skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Toys Collectibles: Top Must-Have Figures for Every Fan"
-description: "Vinyl toys bring favorite characters to life with bright colors and unique designs. Collectors and fans enjoy these detailed figures from popular shows and game"
+title: 'Vinyl Toys Collectibles: Top Must-Have Figures for Every Fan'
+description: Vinyl toys bring favorite characters to life with bright colors and unique
+  designs. Collectors and fans enjoy these detailed figures from popular shows and
+  game
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vinyl toys bring favorite characters to life with bright colors and unique designs. Collectors and fans enjoy these detailed figures from popular shows and games.**

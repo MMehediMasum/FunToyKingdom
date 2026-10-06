@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy With Spiky Ball Inside: Durable Squeaky Balls for Aggressive Chewers"
-description: "Dog toys with spiky balls inside are perfect for playful pups. They satisfy chewing needs and promote dental health. Pet owners often seek durable, engaging toy"
+title: 'Dog Toy With Spiky Ball Inside: Durable Squeaky Balls for Aggressive Chewers'
+description: Dog toys with spiky balls inside are perfect for playful pups. They satisfy
+  chewing needs and promote dental health. Pet owners often seek durable, engaging
+  toy
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-with-spiky-ball-inside&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-with-spiky-ball-inside&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toys with spiky balls inside are perfect for playful pups. They satisfy chewing needs and promote dental health.**

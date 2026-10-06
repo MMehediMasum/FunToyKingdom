@@ -1,10 +1,14 @@
 ---
-title: "Plush Toy With Night Light for Babies: Ultimate Comfort & Safety Guide"
-description: "Are you looking for the perfect way to comfort your baby through the night? A plush toy with a night light might be exactly what you need. Imagine your little o"
+title: 'Plush Toy With Night Light for Babies: Ultimate Comfort & Safety Guide'
+description: Are you looking for the perfect way to comfort your baby through the
+  night? A plush toy with a night light might be exactly what you need. Imagine your
+  little o
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=plush-toy-with-night-light-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=plush-toy-with-night-light-for-babies&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect way to comfort your baby through the night? A plush toy with a night light might be exactly what you need.**

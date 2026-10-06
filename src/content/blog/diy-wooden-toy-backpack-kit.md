@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Backpack Kit: Build Fun, Creative Kids’ Gear"
-description: "Are you looking for a fun and creative project that you can enjoy with your kids or even on your own? The DIY Wooden Toy Backpack Kit is just what you need. It’"
+title: 'Diy Wooden Toy Backpack Kit: Build Fun, Creative Kids’ Gear'
+description: Are you looking for a fun and creative project that you can enjoy with
+  your kids or even on your own? The DIY Wooden Toy Backpack Kit is just what you
+  need. It’
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-backpack-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-backpack-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can enjoy with your kids or even on your own? The DIY Wooden Toy Backpack Kit is just what you need.**

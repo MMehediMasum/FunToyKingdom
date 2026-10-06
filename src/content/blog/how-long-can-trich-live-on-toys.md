@@ -1,10 +1,14 @@
 ---
-title: "How Long Can Trich Live on Toys: Shocking Survival Facts Revealed"
-description: "Have you ever wondered how long trichomoniasis, or trich, can survive on toys? If you use or share toys, knowing this could protect you and those you care about"
+title: 'How Long Can Trich Live on Toys: Shocking Survival Facts Revealed'
+description: Have you ever wondered how long trichomoniasis, or trich, can survive
+  on toys? If you use or share toys, knowing this could protect you and those you
+  care about
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-can-trich-live-on-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Germ Safety
+heroImage: https://tse1.mm.bing.net/th?q=how-long-can-trich-live-on-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered how long trichomoniasis, or trich, can survive on toys? If you use or share toys, knowing this could protect you and those you care about from infection.**

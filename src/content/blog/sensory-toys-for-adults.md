@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Adults: Top Stress Relief and Anxiety Fidget Picks"
-description: "Sensory toys aren't just for kids. Adults benefit significantly from these calming and stress-relieving tools too. Sensory toys provide an effective way to mana"
+title: 'Sensory Toys for Adults: Top Stress Relief and Anxiety Fidget Picks'
+description: Sensory toys aren't just for kids. Adults benefit significantly from
+  these calming and stress-relieving tools too. Sensory toys provide an effective
+  way to mana
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-adults&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-adults&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys aren't just for kids. Adults benefit significantly from these calming and stress-relieving tools too.**

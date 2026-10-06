@@ -1,10 +1,14 @@
 ---
-title: "Best Race Tracks for 5 Year Olds: Top Electric Slot Car Sets Reviewed"
-description: "Finding the best race tracks for 5 year olds can make playtime exciting and safe. Kids love racing toy cars on colorful, fun tracks made just for them. Race tra"
+title: 'Best Race Tracks for 5 Year Olds: Top Electric Slot Car Sets Reviewed'
+description: Finding the best race tracks for 5 year olds can make playtime exciting
+  and safe. Kids love racing toy cars on colorful, fun tracks made just for them.
+  Race tra
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-race-tracks-for-5-year-olds-top-electric-slot-car-sets-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=best-race-tracks-for-5-year-olds-top-electric-slot-car-sets-reviewed&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Finding the best race tracks for 5 year olds can make playtime exciting and safe. Kids love racing toy cars on colorful, fun tracks made just for them.**

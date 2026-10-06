@@ -1,10 +1,14 @@
 ---
-title: "Are Squishy Toys Toxic: Uncovering Hidden Dangers Today"
-description: "Have you ever wondered if your favorite squishy toys are safe to play with? These soft, squeezable gadgets are fun and stress-relieving, but you might be asking"
+title: 'Are Squishy Toys Toxic: Uncovering Hidden Dangers Today'
+description: Have you ever wondered if your favorite squishy toys are safe to play
+  with? These soft, squeezable gadgets are fun and stress-relieving, but you might
+  be asking
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-squishy-toys-toxic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=are-squishy-toys-toxic&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered if your favorite squishy toys are safe to play with? These soft, squeezable gadgets are fun and stress-relieving, but you might be asking yourself—are squishy toys toxic?**

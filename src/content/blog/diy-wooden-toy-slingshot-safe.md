@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Slingshot Safe: Easy Step-by-Step Guide"
-description: "Looking for a fun and safe project that you can build yourself? A DIY wooden toy slingshot is just what you need. It’s simple to make, uses easy-to-find materia"
+title: 'Diy Wooden Toy Slingshot Safe: Easy Step-by-Step Guide'
+description: Looking for a fun and safe project that you can build yourself? A DIY
+  wooden toy slingshot is just what you need. It’s simple to make, uses easy-to-find
+  materia
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-slingshot-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-slingshot-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and safe project that you can build yourself? A DIY wooden toy slingshot is just what you need.**

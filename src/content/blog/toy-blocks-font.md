@@ -1,10 +1,14 @@
 ---
-title: "Toy Blocks Font: Creative Alphabet & Number Building Sets for Kids"
-description: "Toy blocks font offers creativity and fun for children. These educational toys inspire learning through play and imagination. Toy blocks are more than just play"
+title: 'Toy Blocks Font: Creative Alphabet & Number Building Sets for Kids'
+description: Toy blocks font offers creativity and fun for children. These educational
+  toys inspire learning through play and imagination. Toy blocks are more than just
+  play
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-blocks-font&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=toy-blocks-font&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy blocks font offers creativity and fun for children. These educational toys inspire learning through play and imagination.**

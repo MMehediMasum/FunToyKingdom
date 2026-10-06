@@ -1,10 +1,14 @@
 ---
-title: "Electric Scooter for Kids Safe Speed: Ultimate Guide to Secure Riding"
-description: "Are you looking for an electric scooter that keeps your child safe without sacrificing fun? Choosing the right speed for your kid’s scooter is crucial. Too fast"
+title: 'Electric Scooter for Kids Safe Speed: Ultimate Guide to Secure Riding'
+description: Are you looking for an electric scooter that keeps your child safe without
+  sacrificing fun? Choosing the right speed for your kid’s scooter is crucial. Too
+  fast
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electric-scooter-for-kids-safe-speed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Language Translator Toy
+heroImage: https://tse1.mm.bing.net/th?q=electric-scooter-for-kids-safe-speed&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for an electric scooter that keeps your child safe without sacrificing fun? Choosing the right speed for your kid’s scooter is crucial.**

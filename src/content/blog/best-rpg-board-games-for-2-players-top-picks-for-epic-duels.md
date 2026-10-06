@@ -1,10 +1,14 @@
 ---
-title: "Best RPG Board Games for 2 Players: Top Picks for Epic Duels"
-description: "RPG board games for two players offer deep stories and exciting adventures. They bring teamwork and strategy to your game nights. Playing RPG board games with t"
+title: 'Best RPG Board Games for 2 Players: Top Picks for Epic Duels'
+description: RPG board games for two players offer deep stories and exciting adventures.
+  They bring teamwork and strategy to your game nights. Playing RPG board games with
+  t
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rpg-board-games-for-2-players-top-picks-for-epic-duels&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-rpg-board-games-for-2-players-top-picks-for-epic-duels&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **RPG board games for two players offer deep stories and exciting adventures. They bring teamwork and strategy to your game nights.**

@@ -1,10 +1,14 @@
 ---
-title: "Miniature Vending Machine Toy: Fun Claw Arcade Games for Kids"
-description: "Miniature vending machine toys bring fun and excitement to children’s playtime. These small machines mimic real vending machines with lights, sounds, and prizes"
+title: 'Miniature Vending Machine Toy: Fun Claw Arcade Games for Kids'
+description: Miniature vending machine toys bring fun and excitement to children’s
+  playtime. These small machines mimic real vending machines with lights, sounds,
+  and prizes
 pubDate: 2026-03-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-vending-machine-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-vending-machine-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature vending machine toys bring fun and excitement to children’s playtime. These small machines mimic real vending machines with lights, sounds, and prizes.**

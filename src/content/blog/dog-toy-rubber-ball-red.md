@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Rubber Ball Red: Durable, Safe, and Fun Chew Toy for Dogs"
-description: "Dog toy rubber balls in red offer fun and exercise for dogs of all sizes. These toys combine durability, safety, and bright color for easy play. Rubber balls de"
+title: 'Dog Toy Rubber Ball Red: Durable, Safe, and Fun Chew Toy for Dogs'
+description: Dog toy rubber balls in red offer fun and exercise for dogs of all sizes.
+  These toys combine durability, safety, and bright color for easy play. Rubber balls
+  de
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-rubber-ball-red&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-rubber-ball-red&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy rubber balls in red offer fun and exercise for dogs of all sizes. These toys combine durability, safety, and bright color for easy play.**

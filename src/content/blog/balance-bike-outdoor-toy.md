@@ -1,10 +1,14 @@
 ---
-title: "Balance Bike Outdoor Toy: Ultimate Fun for Active Kids"
-description: "Are you looking for a fun and simple way to help your child learn to ride a bike? A balance bike outdoor toy might be just what you need. It’s designed to build"
+title: 'Balance Bike Outdoor Toy: Ultimate Fun for Active Kids'
+description: Are you looking for a fun and simple way to help your child learn to
+  ride a bike? A balance bike outdoor toy might be just what you need. It’s designed
+  to build
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=balance-bike-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=balance-bike-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and simple way to help your child learn to ride a bike? A balance bike outdoor toy might be just what you need.**

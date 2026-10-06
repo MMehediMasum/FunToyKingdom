@@ -1,10 +1,14 @@
 ---
-title: "Can You Wash Stuffed Animals in Washer: Safe & Easy Tips"
-description: "Are your stuffed animals looking a little worn or dusty? You might be wondering if it’s safe to toss them in the washing machine to freshen them up. You want yo"
+title: 'Can You Wash Stuffed Animals in Washer: Safe & Easy Tips'
+description: Are your stuffed animals looking a little worn or dusty? You might be
+  wondering if it’s safe to toss them in the washing machine to freshen them up. You
+  want yo
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-wash-stuffed-animals-in-washer&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=can-you-wash-stuffed-animals-in-washer&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are your stuffed animals looking a little worn or dusty? You might be wondering if it’s safe to toss them in the washing machine to freshen them up.**

@@ -1,10 +1,14 @@
 ---
-title: "Soft Vinyl Toys: Discover the Ultimate Collectible Figures for Enthusiasts"
-description: "Soft vinyl toys offer a unique mix of softness and durability. These collectible figures bring charm to any collection or room. Soft vinyl toys come in many sty"
+title: 'Soft Vinyl Toys: Discover the Ultimate Collectible Figures for Enthusiasts'
+description: Soft vinyl toys offer a unique mix of softness and durability. These
+  collectible figures bring charm to any collection or room. Soft vinyl toys come
+  in many sty
 pubDate: 2026-09-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=soft-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Soft vinyl toys offer a unique mix of softness and durability. These collectible figures bring charm to any collection or room.**

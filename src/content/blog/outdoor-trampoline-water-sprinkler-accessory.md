@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Trampoline Water Sprinkler Accessory: Ultimate Summer Fun!"
-description: "Are you ready to turn your trampoline into the ultimate summer fun zone? The Outdoor Trampoline Water Sprinkler Accessory is exactly what your backyard needs to"
+title: 'Outdoor Trampoline Water Sprinkler Accessory: Ultimate Summer Fun!'
+description: Are you ready to turn your trampoline into the ultimate summer fun zone?
+  The Outdoor Trampoline Water Sprinkler Accessory is exactly what your backyard needs
+  to
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-trampoline-water-sprinkler-accessory&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-trampoline-water-sprinkler-accessory&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your trampoline into the ultimate summer fun zone? The Outdoor Trampoline Water Sprinkler Accessory is exactly what your backyard needs to keep you and your family cool and entertained on hot days.**

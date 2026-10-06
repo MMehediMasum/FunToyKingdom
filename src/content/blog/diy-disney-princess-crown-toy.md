@@ -1,10 +1,14 @@
 ---
-title: "Diy Disney Princess Crown Toy: Create Magical Crowns at Home!"
-description: "Are you ready to bring a touch of magic to your little one’s playtime? Creating a DIY Disney Princess Crown Toy is easier than you think, and it’s a fun way to "
+title: 'Diy Disney Princess Crown Toy: Create Magical Crowns at Home!'
+description: 'Are you ready to bring a touch of magic to your little one’s playtime?
+  Creating a DIY Disney Princess Crown Toy is easier than you think, and it’s a fun
+  way to '
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-disney-princess-crown-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-disney-princess-crown-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to bring a touch of magic to your little one’s playtime? Creating a DIY Disney Princess Crown Toy is easier than you think, and it’s a fun way to spark creativity and joy.**

@@ -1,10 +1,14 @@
 ---
-title: "Diving Rings Swimming Pool Toy: Ultimate Fun for Kids & Adults"
-description: "Looking for a fun way to make your swimming pool time more exciting? Diving rings swimming pool toys are exactly what you need. These colorful rings sink to the"
+title: 'Diving Rings Swimming Pool Toy: Ultimate Fun for Kids & Adults'
+description: Looking for a fun way to make your swimming pool time more exciting?
+  Diving rings swimming pool toys are exactly what you need. These colorful rings
+  sink to the
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diving-rings-swimming-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=diving-rings-swimming-pool-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a fun way to make your swimming pool time more exciting? Diving rings swimming pool toys are exactly what you need.**

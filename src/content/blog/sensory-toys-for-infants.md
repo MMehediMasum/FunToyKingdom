@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Infants: Boost Development with Fun Playtime"
-description: "Are you looking for the perfect way to help your baby explore the world around them? Sensory toys for infants can be exactly what you need. These toys do more t"
+title: 'Sensory Toys for Infants: Boost Development with Fun Playtime'
+description: Are you looking for the perfect way to help your baby explore the world
+  around them? Sensory toys for infants can be exactly what you need. These toys do
+  more t
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect way to help your baby explore the world around them? Sensory toys for infants can be exactly what you need.**

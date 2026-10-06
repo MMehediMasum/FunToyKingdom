@@ -1,10 +1,14 @@
 ---
-title: "Ride on Car With Leather Seats: Ultimate Comfort and Style Guide"
-description: "Imagine sliding into a ride-on car with leather seats that feel soft and smooth under your touch. You want more than just a toy—you want comfort, style, and a t"
+title: 'Ride on Car With Leather Seats: Ultimate Comfort and Style Guide'
+description: Imagine sliding into a ride-on car with leather seats that feel soft
+  and smooth under your touch. You want more than just a toy—you want comfort, style,
+  and a t
 pubDate: 2025-09-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-car-with-leather-seats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-car-with-leather-seats&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine sliding into a ride-on car with leather seats that feel soft and smooth under your touch. You want more than just a toy—you want comfort, style, and a touch of luxury for your little one.**

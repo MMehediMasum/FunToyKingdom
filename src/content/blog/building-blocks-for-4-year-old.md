@@ -1,10 +1,14 @@
 ---
-title: "Building Blocks for 4 Year Old: Fun, Learning & Creativity Boosters"
-description: "Are you looking for the perfect way to boost your 4-year-old’s learning and creativity? Building blocks are more than just toys—they are powerful tools that hel"
+title: 'Building Blocks for 4 Year Old: Fun, Learning & Creativity Boosters'
+description: Are you looking for the perfect way to boost your 4-year-old’s learning
+  and creativity? Building blocks are more than just toys—they are powerful tools
+  that hel
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=building-blocks-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Blocks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=building-blocks-for-4-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect way to boost your 4-year-old’s learning and creativity? Building blocks are more than just toys—they are powerful tools that help your child develop important skills.**

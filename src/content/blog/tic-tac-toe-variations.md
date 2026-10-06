@@ -1,10 +1,13 @@
 ---
-title: "Tic Tac Toe Variations: Exciting Ways to Play and Win Fast"
-description: "Are you ready to take your Tic Tac Toe game to the next level? You already know the classic version, but what if you could explore fresh twists that make every "
+title: 'Tic Tac Toe Variations: Exciting Ways to Play and Win Fast'
+description: 'Are you ready to take your Tic Tac Toe game to the next level? You already
+  know the classic version, but what if you could explore fresh twists that make every '
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=tic-tac-toe-variations&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tic Tac Toe Strategies
+heroImage: https://tse1.mm.bing.net/th?q=tic-tac-toe-variations&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to take your Tic Tac Toe game to the next level? You already know the classic version, but what if you could explore fresh twists that make every match more exciting and challenging?**

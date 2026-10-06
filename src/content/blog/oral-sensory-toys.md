@@ -1,10 +1,13 @@
 ---
-title: "Oral Sensory Toys: Best Chewies for Autism, ADHD, and Sensory Needs"
-description: "Oral sensory toys help children and adults with sensory processing needs stay calm and focused. These toys provide safe chewing options for people with autism, "
+title: 'Oral Sensory Toys: Best Chewies for Autism, ADHD, and Sensory Needs'
+description: 'Oral sensory toys help children and adults with sensory processing needs
+  stay calm and focused. These toys provide safe chewing options for people with autism, '
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=oral-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toy Types
+heroImage: https://tse1.mm.bing.net/th?q=oral-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Oral sensory toys help children and adults with sensory processing needs stay calm and focused. These toys provide safe chewing options for people with autism, ADHD, SPD, and other special needs.**

@@ -1,10 +1,14 @@
 ---
-title: "How Do I Clean Stuffed Animals: Easy Steps for Deep Cleaning"
-description: "Do you have a beloved stuffed animal that’s seen better days? Maybe it’s covered in dust, stains, or even a little bit of grime from everyday play. You want to "
+title: 'How Do I Clean Stuffed Animals: Easy Steps for Deep Cleaning'
+description: 'Do you have a beloved stuffed animal that’s seen better days? Maybe
+  it’s covered in dust, stains, or even a little bit of grime from everyday play.
+  You want to '
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-clean-stuffed-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-clean-stuffed-animals&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Do you have a beloved stuffed animal that’s seen better days? Maybe it’s covered in dust, stains, or even a little bit of grime from everyday play.**

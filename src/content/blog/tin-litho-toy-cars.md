@@ -1,10 +1,14 @@
 ---
-title: "Tin Litho Toy Cars: Top Die-Cast Pull Back Models Kids Love"
-description: "Tin litho toy cars capture the imagination of children and collectors alike. These charming models blend nostalgia and play. Tin litho toy cars have enchanted g"
+title: 'Tin Litho Toy Cars: Top Die-Cast Pull Back Models Kids Love'
+description: Tin litho toy cars capture the imagination of children and collectors
+  alike. These charming models blend nostalgia and play. Tin litho toy cars have enchanted
+  g
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tin-litho-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=tin-litho-toy-cars&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Tin litho toy cars capture the imagination of children and collectors alike. These charming models blend nostalgia and play.**

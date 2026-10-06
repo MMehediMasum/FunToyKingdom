@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Winter Tires: Ultimate Grip for Snowy Fun"
-description: "Imagine your child zooming around safely and confidently, even when the ground is icy or snowy. You want their ride on toy to keep rolling smoothly, no matter t"
+title: 'Ride on Toy With Winter Tires: Ultimate Grip for Snowy Fun'
+description: Imagine your child zooming around safely and confidently, even when the
+  ground is icy or snowy. You want their ride on toy to keep rolling smoothly, no
+  matter t
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-winter-tires&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-winter-tires&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child zooming around safely and confidently, even when the ground is icy or snowy. You want their ride on toy to keep rolling smoothly, no matter the weather.**

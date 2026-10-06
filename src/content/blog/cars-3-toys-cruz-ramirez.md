@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Toys Cruz Ramirez: Top Picks for Ultimate Racing Fun"
-description: "Cruz Ramirez toys from \"Cars 3\" captivate young fans and collectors alike. These toys offer thrilling race adventures. Cruz Ramirez, a prominent character from "
+title: 'Cars 3 Toys Cruz Ramirez: Top Picks for Ultimate Racing Fun'
+description: 'Cruz Ramirez toys from "Cars 3" captivate young fans and collectors
+  alike. These toys offer thrilling race adventures. Cruz Ramirez, a prominent character
+  from '
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-toys-cruz-ramirez&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-toys-cruz-ramirez&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cruz Ramirez toys from "Cars 3" captivate young fans and collectors alike. These toys offer thrilling race adventures.**

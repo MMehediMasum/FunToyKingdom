@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Peacock Inflatable Toy: Vibrant Fun for Your Garden Party"
-description: "Are you looking to add a splash of color and fun to your garden or backyard? An outdoor peacock inflatable toy is just what you need. It’s eye-catching, playful"
+title: 'Outdoor Peacock Inflatable Toy: Vibrant Fun for Your Garden Party'
+description: Are you looking to add a splash of color and fun to your garden or backyard?
+  An outdoor peacock inflatable toy is just what you need. It’s eye-catching, playful
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-peacock-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-peacock-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking to add a splash of color and fun to your garden or backyard? An outdoor peacock inflatable toy is just what you need.**

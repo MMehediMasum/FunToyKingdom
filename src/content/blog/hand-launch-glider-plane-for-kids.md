@@ -1,10 +1,14 @@
 ---
-title: "Hand Launch Glider Plane for Kids: Ultimate Fun & Learning Toy"
-description: "Are you looking for a fun and simple way to spark your child’s imagination? A hand launch glider plane for kids is the perfect choice. It’s easy to use, safe, a"
+title: 'Hand Launch Glider Plane for Kids: Ultimate Fun & Learning Toy'
+description: Are you looking for a fun and simple way to spark your child’s imagination?
+  A hand launch glider plane for kids is the perfect choice. It’s easy to use, safe,
+  a
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hand-launch-glider-plane-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=hand-launch-glider-plane-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and simple way to spark your child’s imagination? A hand launch glider plane for kids is the perfect choice.**

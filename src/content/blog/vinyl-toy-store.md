@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Toy Store: Top Collectible Figures for Fans and Enthusiasts"
-description: "Vinyl toy stores offer a wide range of collectible figures for fans of all ages. These stores feature popular characters from cartoons, movies, and games. Vinyl"
+title: 'Vinyl Toy Store: Top Collectible Figures for Fans and Enthusiasts'
+description: Vinyl toy stores offer a wide range of collectible figures for fans of
+  all ages. These stores feature popular characters from cartoons, movies, and games.
+  Vinyl
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-toy-store&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-toy-store&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vinyl toy stores offer a wide range of collectible figures for fans of all ages. These stores feature popular characters from cartoons, movies, and games.**

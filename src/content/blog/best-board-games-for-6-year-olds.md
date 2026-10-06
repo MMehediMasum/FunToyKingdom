@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for 6 Year Olds to Boost Fun and Learning"
-description: "Choosing the best board games for 6 year olds helps build skills and creates fun family moments. Games that encourage teamwork, thinking, and observation work w"
+title: Best Board Games for 6 Year Olds to Boost Fun and Learning
+description: Choosing the best board games for 6 year olds helps build skills and
+  creates fun family moments. Games that encourage teamwork, thinking, and observation
+  work w
 pubDate: 2026-02-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-6-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-6-year-olds&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best board games for 6 year olds helps build skills and creates fun family moments. Games that encourage teamwork, thinking, and observation work well at this age.**

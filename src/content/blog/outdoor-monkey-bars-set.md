@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Monkey Bars Set: Ultimate Fun & Fitness for Kids"
-description: "Looking for a fun and exciting way to keep your kids active outdoors? An outdoor monkey bars set might be just what you need. Imagine your children climbing, sw"
+title: 'Outdoor Monkey Bars Set: Ultimate Fun & Fitness for Kids'
+description: Looking for a fun and exciting way to keep your kids active outdoors?
+  An outdoor monkey bars set might be just what you need. Imagine your children climbing,
+  sw
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-monkey-bars-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-monkey-bars-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids active outdoors? An outdoor monkey bars set might be just what you need.**

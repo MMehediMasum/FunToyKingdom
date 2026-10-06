@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Ducks: Perfect Glow-in-the-Dark Decor for DIY Projects"
-description: "Miniature toy ducks capture the charm of tiny worlds. These tiny figures light up spaces with playful elegance. Miniature toy ducks have become a popular choice"
+title: 'Miniature Toy Ducks: Perfect Glow-in-the-Dark Decor for DIY Projects'
+description: Miniature toy ducks capture the charm of tiny worlds. These tiny figures
+  light up spaces with playful elegance. Miniature toy ducks have become a popular
+  choice
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-ducks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-ducks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature toy ducks capture the charm of tiny worlds. These tiny figures light up spaces with playful elegance.**

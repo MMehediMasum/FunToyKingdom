@@ -1,10 +1,14 @@
 ---
-title: "Sensorimotor Toys for Infants: Top Teether and Sensory Picks for Babies"
-description: "Sensorimotor toys help infants explore and learn using their senses and movements. These toys support early brain growth and physical skills. Infants discover t"
+title: 'Sensorimotor Toys for Infants: Top Teether and Sensory Picks for Babies'
+description: Sensorimotor toys help infants explore and learn using their senses and
+  movements. These toys support early brain growth and physical skills. Infants discover
+  t
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensorimotor-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=sensorimotor-toys-for-infants&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Sensorimotor toys help infants explore and learn using their senses and movements. These toys support early brain growth and physical skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Vintage Tin Robot Toy Figure: Timeless Collectible Treasure Guide"
-description: "Have you ever held a piece of the past in your hands and felt a rush of nostalgia? That’s exactly what a vintage tin robot toy figure can do for you. These char"
+title: 'Vintage Tin Robot Toy Figure: Timeless Collectible Treasure Guide'
+description: Have you ever held a piece of the past in your hands and felt a rush
+  of nostalgia? That’s exactly what a vintage tin robot toy figure can do for you.
+  These char
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-tin-robot-toy-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=vintage-tin-robot-toy-figure&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever held a piece of the past in your hands and felt a rush of nostalgia? That’s exactly what a vintage tin robot toy figure can do for you.**

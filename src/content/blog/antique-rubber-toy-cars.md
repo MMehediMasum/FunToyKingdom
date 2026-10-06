@@ -1,10 +1,14 @@
 ---
-title: "Antique Rubber Toy Cars: Timeless Collectibles for Vintage Enthusiasts"
-description: "Antique rubber toy cars hold a special charm for collectors and enthusiasts worldwide. These vintage toys show simple design and durable materials from past dec"
+title: 'Antique Rubber Toy Cars: Timeless Collectibles for Vintage Enthusiasts'
+description: Antique rubber toy cars hold a special charm for collectors and enthusiasts
+  worldwide. These vintage toys show simple design and durable materials from past
+  dec
 pubDate: 2026-03-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-rubber-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=antique-rubber-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Antique rubber toy cars hold a special charm for collectors and enthusiasts worldwide. These vintage toys show simple design and durable materials from past decades.**

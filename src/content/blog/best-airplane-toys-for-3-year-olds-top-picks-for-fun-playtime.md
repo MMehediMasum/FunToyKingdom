@@ -1,10 +1,14 @@
 ---
-title: "Best Airplane Toys for 3 Year Olds: Top Picks for Fun Playtime"
-description: "Finding the best airplane toys for 3 year olds can make playtime fun and educational. The right toys help develop motor skills, creativity, and imagination. Tod"
+title: 'Best Airplane Toys for 3 Year Olds: Top Picks for Fun Playtime'
+description: Finding the best airplane toys for 3 year olds can make playtime fun
+  and educational. The right toys help develop motor skills, creativity, and imagination.
+  Tod
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-airplane-toys-for-3-year-olds-top-picks-for-fun-playtime&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-airplane-toys-for-3-year-olds-top-picks-for-fun-playtime&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best airplane toys for 3 year olds can make playtime fun and educational. The right toys help develop motor skills, creativity, and imagination.**

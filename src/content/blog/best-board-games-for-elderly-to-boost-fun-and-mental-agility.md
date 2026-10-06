@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Elderly to Boost Fun and Mental Agility"
-description: "Board games offer fun and mental exercise for elderly adults. Choosing the right games helps keep minds sharp and spirits high. Playing board games improves mem"
+title: Best Board Games for Elderly to Boost Fun and Mental Agility
+description: Board games offer fun and mental exercise for elderly adults. Choosing
+  the right games helps keep minds sharp and spirits high. Playing board games improves
+  mem
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-elderly-to-boost-fun-and-mental-agility&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-elderly-to-boost-fun-and-mental-agility&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games offer fun and mental exercise for elderly adults. Choosing the right games helps keep minds sharp and spirits high.**

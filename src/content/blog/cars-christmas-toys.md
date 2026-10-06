@@ -1,10 +1,14 @@
 ---
-title: "Cars Christmas Toys: Top Holiday-Themed Vehicles Kids Will Love"
-description: "Cars Christmas toys bring festive fun to children who love racing and holiday themes. These toys combine popular characters with seasonal designs for joyful pla"
+title: 'Cars Christmas Toys: Top Holiday-Themed Vehicles Kids Will Love'
+description: Cars Christmas toys bring festive fun to children who love racing and
+  holiday themes. These toys combine popular characters with seasonal designs for
+  joyful pla
 pubDate: 2026-02-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-christmas-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-christmas-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Christmas toys bring festive fun to children who love racing and holiday themes. These toys combine popular characters with seasonal designs for joyful play.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Submarine Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Looking for a fun and exciting way to keep your kids cool this summer? Your search ends with the outdoor submarine sprinkler inflatable. Imagine turning your ba"
+title: 'Outdoor Submarine Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Looking for a fun and exciting way to keep your kids cool this summer?
+  Your search ends with the outdoor submarine sprinkler inflatable. Imagine turning
+  your ba
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-submarine-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-submarine-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids cool this summer? Your search ends with the outdoor submarine sprinkler inflatable.**

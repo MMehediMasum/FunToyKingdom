@@ -1,10 +1,14 @@
 ---
-title: "Rollerblades for Teens Beginners: Ultimate Guide to Start Rolling"
-description: "Are you ready to discover a fun way to stay active and enjoy the outdoors? Rollerblading is a fantastic choice, especially if you're new to it. But finding the "
+title: 'Rollerblades for Teens Beginners: Ultimate Guide to Start Rolling'
+description: 'Are you ready to discover a fun way to stay active and enjoy the outdoors?
+  Rollerblading is a fantastic choice, especially if you''re new to it. But finding
+  the '
 pubDate: 2025-11-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rollerblades-for-teens-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=rollerblades-for-teens-beginners&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to discover a fun way to stay active and enjoy the outdoors? Rollerblading is a fantastic choice, especially if you're new to it.**

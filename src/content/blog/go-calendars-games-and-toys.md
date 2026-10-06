@@ -1,10 +1,13 @@
 ---
-title: "Go Calendars Games And Toys: Top Portable Go Game Sets Reviewed"
-description: "Discover the world of Go, a timeless strategy game with roots in ancient China. Go Calendars Games and Toys offers a range of Go sets perfect for every player. "
+title: 'Go Calendars Games And Toys: Top Portable Go Game Sets Reviewed'
+description: 'Discover the world of Go, a timeless strategy game with roots in ancient
+  China. Go Calendars Games and Toys offers a range of Go sets perfect for every player. '
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=go-calendars-games-and-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=go-calendars-games-and-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Discover the world of Go, a timeless strategy game with roots in ancient China. Go Calendars Games and Toys offers a range of Go sets perfect for every player.**

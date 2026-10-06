@@ -1,10 +1,14 @@
 ---
-title: "Barbie Dollhouse Furniture Sets: Ultimate Guide to Stylish Playrooms"
-description: "Are you looking to make your Barbie dollhouse feel more like a real home? The right furniture sets can turn your doll’s space into a stylish, cozy haven full of"
+title: 'Barbie Dollhouse Furniture Sets: Ultimate Guide to Stylish Playrooms'
+description: Are you looking to make your Barbie dollhouse feel more like a real home?
+  The right furniture sets can turn your doll’s space into a stylish, cozy haven full
+  of
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-dollhouse-furniture-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouses For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=barbie-dollhouse-furniture-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking to make your Barbie dollhouse feel more like a real home? The right furniture sets can turn your doll’s space into a stylish, cozy haven full of charm.**

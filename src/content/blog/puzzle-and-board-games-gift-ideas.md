@@ -1,10 +1,14 @@
 ---
-title: "Puzzle And Board Games Gift Ideas: Ultimate Fun for Every Age"
-description: "Looking for the perfect gift that brings fun, challenge, and quality time all in one? Puzzle and board games are more than just games—they create memories, spar"
+title: 'Puzzle And Board Games Gift Ideas: Ultimate Fun for Every Age'
+description: Looking for the perfect gift that brings fun, challenge, and quality
+  time all in one? Puzzle and board games are more than just games—they create memories,
+  spar
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzle-and-board-games-gift-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=puzzle-and-board-games-gift-ideas&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect gift that brings fun, challenge, and quality time all in one? Puzzle and board games are more than just games—they create memories, spark creativity, and bring people closer.**

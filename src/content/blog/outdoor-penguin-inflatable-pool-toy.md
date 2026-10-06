@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Penguin Inflatable Pool Toy: Fun & Cool Summer Must-Have"
-description: "Imagine turning your backyard into a splash-filled paradise that your kids will never want to leave. With an outdoor penguin inflatable pool toy, you can bring "
+title: 'Outdoor Penguin Inflatable Pool Toy: Fun & Cool Summer Must-Have'
+description: 'Imagine turning your backyard into a splash-filled paradise that your
+  kids will never want to leave. With an outdoor penguin inflatable pool toy, you
+  can bring '
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-penguin-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-penguin-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a splash-filled paradise that your kids will never want to leave. With an outdoor penguin inflatable pool toy, you can bring fun, cool vibes, and endless laughter right to your home.**

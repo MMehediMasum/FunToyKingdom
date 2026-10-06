@@ -1,10 +1,14 @@
 ---
-title: "How to Knit Doll Clothes: Easy Steps for Adorable Outfits"
-description: "Do you want to make your doll’s wardrobe truly one of a kind? Learning how to knit doll clothes is easier than you might think. With just a few simple stitches,"
+title: 'How to Knit Doll Clothes: Easy Steps for Adorable Outfits'
+description: Do you want to make your doll’s wardrobe truly one of a kind? Learning
+  how to knit doll clothes is easier than you might think. With just a few simple
+  stitches,
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-knit-doll-clothes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=how-to-knit-doll-clothes&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Do you want to make your doll’s wardrobe truly one of a kind? Learning how to knit doll clothes is easier than you might think.**

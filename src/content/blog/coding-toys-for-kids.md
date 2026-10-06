@@ -1,10 +1,14 @@
 ---
-title: "Coding Toys for Kids: Top STEM Robotics and Educational Kits Reviewed"
-description: "Coding toys for kids spark curiosity and creativity. These toys introduce young minds to the basics of programming in a fun way. Children today can explore codi"
+title: 'Coding Toys for Kids: Top STEM Robotics and Educational Kits Reviewed'
+description: Coding toys for kids spark curiosity and creativity. These toys introduce
+  young minds to the basics of programming in a fun way. Children today can explore
+  codi
 pubDate: 2026-02-04
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toys-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toys-for-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Coding toys for kids spark curiosity and creativity. These toys introduce young minds to the basics of programming in a fun way.**

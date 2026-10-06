@@ -1,10 +1,14 @@
 ---
-title: "Pretend Play Toys for Kindergarteners: Boost Creativity & Learning"
-description: "Imagine watching your kindergartener dive into a world of imagination, where every toy sparks creativity and learning. Pretend play toys do exactly that—they tu"
+title: 'Pretend Play Toys for Kindergarteners: Boost Creativity & Learning'
+description: Imagine watching your kindergartener dive into a world of imagination,
+  where every toy sparks creativity and learning. Pretend play toys do exactly that—they
+  tu
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=pretend-play-toys-for-kindergarteners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=pretend-play-toys-for-kindergarteners&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine watching your kindergartener dive into a world of imagination, where every toy sparks creativity and learning. Pretend play toys do exactly that—they turn ordinary moments into exciting adventures.**

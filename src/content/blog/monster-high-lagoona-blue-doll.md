@@ -1,10 +1,14 @@
 ---
-title: "Monster High Lagoona Blue Doll: Ultimate Collector’s Must-Have Guide"
-description: "Are you ready to dive into the world of Monster High with a splash of style? The Monster High Lagoona Blue Doll is not just another toy—it's a gateway to creati"
+title: 'Monster High Lagoona Blue Doll: Ultimate Collector’s Must-Have Guide'
+description: Are you ready to dive into the world of Monster High with a splash of
+  style? The Monster High Lagoona Blue Doll is not just another toy—it's a gateway
+  to creati
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-lagoona-blue-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-lagoona-blue-doll&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to dive into the world of Monster High with a splash of style? The Monster High Lagoona Blue Doll is not just another toy—it's a gateway to creativity, fun, and unique fashion.**

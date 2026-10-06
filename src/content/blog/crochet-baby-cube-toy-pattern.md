@@ -1,10 +1,14 @@
 ---
-title: "Crochet Baby Cube Toy Pattern: Easy, Adorable DIY Guide"
-description: "Are you looking for a fun and simple project that will bring joy to your little one? The Crochet Baby Cube Toy Pattern is just what you need. This adorable, sof"
+title: 'Crochet Baby Cube Toy Pattern: Easy, Adorable DIY Guide'
+description: Are you looking for a fun and simple project that will bring joy to your
+  little one? The Crochet Baby Cube Toy Pattern is just what you need. This adorable,
+  sof
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=crochet-baby-cube-toy-pattern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=crochet-baby-cube-toy-pattern&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and simple project that will bring joy to your little one? The Crochet Baby Cube Toy Pattern is just what you need.**

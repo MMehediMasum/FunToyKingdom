@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bocce Ball Set for Families: Fun, Durable & Easy Play"
-description: "Imagine gathering your family outside, the sun shining, laughter filling the air, and everyone engaged in a fun, friendly game. That’s exactly what an outdoor b"
+title: 'Outdoor Bocce Ball Set for Families: Fun, Durable & Easy Play'
+description: Imagine gathering your family outside, the sun shining, laughter filling
+  the air, and everyone engaged in a fun, friendly game. That’s exactly what an outdoor
+  b
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bocce-ball-set-for-families&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bocce-ball-set-for-families&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine gathering your family outside, the sun shining, laughter filling the air, and everyone engaged in a fun, friendly game. That’s exactly what an outdoor bocce ball set can bring to your backyard or park.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Animals Farm: Creative Fun for Kids at Home"
-description: "Are you looking for a fun and creative project that you can enjoy with your kids or even on your own? Building a DIY cardboard toy animals farm is a fantastic w"
+title: 'Diy Cardboard Toy Animals Farm: Creative Fun for Kids at Home'
+description: Are you looking for a fun and creative project that you can enjoy with
+  your kids or even on your own? Building a DIY cardboard toy animals farm is a fantastic
+  w
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-animals-farm&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-animals-farm&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can enjoy with your kids or even on your own? Building a DIY cardboard toy animals farm is a fantastic way to bring imagination to life while using simple materials you probably already have at home.**

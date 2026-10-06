@@ -1,10 +1,14 @@
 ---
-title: "Pretend Play Toys for 3 Year Old: Top Fun & Educational Picks"
-description: "Are you looking for the perfect pretend play toys for your 3-year-old? Choosing the right toys can unlock your child’s creativity and boost their learning in am"
+title: 'Pretend Play Toys for 3 Year Old: Top Fun & Educational Picks'
+description: Are you looking for the perfect pretend play toys for your 3-year-old?
+  Choosing the right toys can unlock your child’s creativity and boost their learning
+  in am
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=pretend-play-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=pretend-play-toys-for-3-year-old&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect pretend play toys for your 3-year-old? Choosing the right toys can unlock your child’s creativity and boost their learning in amazing ways.**

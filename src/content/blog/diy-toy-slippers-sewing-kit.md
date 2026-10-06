@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Slippers Sewing Kit: Create Cozy Fun Step-by-Step!"
-description: "Imagine slipping your feet into cozy, handmade slippers that you created yourself. With a DIY Toy Slippers Sewing Kit, you can turn this simple pleasure into a "
+title: 'Diy Toy Slippers Sewing Kit: Create Cozy Fun Step-by-Step!'
+description: 'Imagine slipping your feet into cozy, handmade slippers that you created
+  yourself. With a DIY Toy Slippers Sewing Kit, you can turn this simple pleasure
+  into a '
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-slippers-sewing-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-slippers-sewing-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine slipping your feet into cozy, handmade slippers that you created yourself. With a DIY Toy Slippers Sewing Kit, you can turn this simple pleasure into a fun and rewarding project.**

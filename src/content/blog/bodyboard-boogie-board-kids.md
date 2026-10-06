@@ -1,10 +1,14 @@
 ---
-title: "Bodyboard Boogie Board Kids: Ultimate Fun for Young Wave Riders"
-description: "Are you looking for the perfect way to get your kids excited about the beach and water fun? A bodyboard boogie board for kids might be just what you need. It’s "
+title: 'Bodyboard Boogie Board Kids: Ultimate Fun for Young Wave Riders'
+description: 'Are you looking for the perfect way to get your kids excited about the
+  beach and water fun? A bodyboard boogie board for kids might be just what you need.
+  It’s '
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=bodyboard-boogie-board-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=bodyboard-boogie-board-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect way to get your kids excited about the beach and water fun? A bodyboard boogie board for kids might be just what you need.**

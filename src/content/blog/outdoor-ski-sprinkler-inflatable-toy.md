@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Ski Sprinkler Inflatable Toy: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into a winter wonderland, no matter the season. With the Outdoor Ski Sprinkler Inflatable Toy, you can bring endless fun and excit"
+title: 'Outdoor Ski Sprinkler Inflatable Toy: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into a winter wonderland, no matter the
+  season. With the Outdoor Ski Sprinkler Inflatable Toy, you can bring endless fun
+  and excit
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ski-sprinkler-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ski-sprinkler-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a winter wonderland, no matter the season. With the Outdoor Ski Sprinkler Inflatable Toy, you can bring endless fun and excitement right to your doorstep.**

@@ -1,10 +1,14 @@
 ---
-title: "Pokemon Pikachu Action Figure Toy: Ultimate Collector’s Must-Have Guide"
-description: "Are you a Pokémon fan looking to add something special to your collection? The Pokémon Pikachu Action Figure Toy is exactly what you need. This little figure br"
+title: 'Pokemon Pikachu Action Figure Toy: Ultimate Collector’s Must-Have Guide'
+description: Are you a Pokémon fan looking to add something special to your collection?
+  The Pokémon Pikachu Action Figure Toy is exactly what you need. This little figure
+  br
 pubDate: 2025-09-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=pokemon-pikachu-action-figure-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=pokemon-pikachu-action-figure-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Pokémon fan looking to add something special to your collection? The Pokémon Pikachu Action Figure Toy is exactly what you need.**

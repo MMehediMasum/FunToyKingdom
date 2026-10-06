@@ -1,10 +1,14 @@
 ---
-title: "Nest Swing Saucer for Multiple Kids: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun and safe way to keep your kids entertained together? A nest swing saucer for multiple kids might be just what you need. Imagine your c"
+title: 'Nest Swing Saucer for Multiple Kids: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun and safe way to keep your kids entertained
+  together? A nest swing saucer for multiple kids might be just what you need. Imagine
+  your c
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nest-swing-saucer-for-multiple-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=nest-swing-saucer-for-multiple-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to keep your kids entertained together? A nest swing saucer for multiple kids might be just what you need.**

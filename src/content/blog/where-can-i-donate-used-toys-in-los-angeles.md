@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate Used Toys in Los Angeles: Top Trusted Spots"
-description: "Do you have toys your kids no longer play with? Instead of letting them gather dust, imagine turning those toys into smiles for children who truly need them. If"
+title: 'Where Can I Donate Used Toys in Los Angeles: Top Trusted Spots'
+description: Do you have toys your kids no longer play with? Instead of letting them
+  gather dust, imagine turning those toys into smiles for children who truly need
+  them. If
 pubDate: 2025-10-05
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-used-toys-in-los-angeles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-used-toys-in-los-angeles&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have toys your kids no longer play with? Instead of letting them gather dust, imagine turning those toys into smiles for children who truly need them.**

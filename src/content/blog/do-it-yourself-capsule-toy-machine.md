@@ -1,10 +1,14 @@
 ---
-title: "Do It Yourself Capsule Toy Machine: Ultimate Guide to Fun Creations"
-description: "Have you ever wanted your very own capsule toy machine but thought it was too expensive or complicated to get? What if you could build one yourself, step by ste"
+title: 'Do It Yourself Capsule Toy Machine: Ultimate Guide to Fun Creations'
+description: Have you ever wanted your very own capsule toy machine but thought it
+  was too expensive or complicated to get? What if you could build one yourself, step
+  by ste
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-capsule-toy-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Capsule Toy Vending
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-capsule-toy-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted your very own capsule toy machine but thought it was too expensive or complicated to get? What if you could build one yourself, step by step, using simple materials right at home?**

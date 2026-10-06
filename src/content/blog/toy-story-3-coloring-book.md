@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 3 Coloring Book: Fun and Creative Activities for Kids"
 description: "Toy Story 3 coloring books bring the magic of the beloved movie to life on each page. These books offer endless fun for kids. Children love bringing their favor"
 pubDate: 2026-02-17

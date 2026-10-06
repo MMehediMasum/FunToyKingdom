@@ -1,10 +1,13 @@
 ---
-title: "Limited Edition Batman Toy Figurines: Must-Have Collectors' Gems"
-description: "If you’re a fan of Batman, you know that having the right collectibles can make all the difference. Limited edition Batman toy figurines aren’t just toys—they’r"
+title: 'Limited Edition Batman Toy Figurines: Must-Have Collectors'' Gems'
+description: If you’re a fan of Batman, you know that having the right collectibles
+  can make all the difference. Limited edition Batman toy figurines aren’t just toys—they’r
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=limited-edition-batman-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=limited-edition-batman-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Batman, you know that having the right collectibles can make all the difference. Limited edition Batman toy figurines aren’t just toys—they’re treasures that bring your favorite hero to life.**

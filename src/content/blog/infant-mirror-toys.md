@@ -1,10 +1,14 @@
 ---
-title: "Infant Mirror Toys: Top Sensory and Developmental Picks for Tummy Time"
-description: "Infant mirror toys help babies explore their reflections and develop early skills. These toys combine mirrors with textures and sounds to engage newborns. Infan"
+title: 'Infant Mirror Toys: Top Sensory and Developmental Picks for Tummy Time'
+description: Infant mirror toys help babies explore their reflections and develop
+  early skills. These toys combine mirrors with textures and sounds to engage newborns.
+  Infan
 pubDate: 2026-01-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-mirror-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-mirror-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant mirror toys help babies explore their reflections and develop early skills. These toys combine mirrors with textures and sounds to engage newborns.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Balance Beam Toy: Fun, Fitness, and Family Fun Combined"
-description: "Are you looking for a fun way to help your child build balance and confidence? An outdoor balance beam toy might be just what you need. It turns playtime into a"
+title: 'Outdoor Balance Beam Toy: Fun, Fitness, and Family Fun Combined'
+description: Are you looking for a fun way to help your child build balance and confidence?
+  An outdoor balance beam toy might be just what you need. It turns playtime into
+  a
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-balance-beam-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-balance-beam-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to help your child build balance and confidence? An outdoor balance beam toy might be just what you need.**

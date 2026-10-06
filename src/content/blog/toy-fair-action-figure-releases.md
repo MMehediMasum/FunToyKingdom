@@ -1,10 +1,14 @@
 ---
-title: "Toy Fair Action Figure Releases: Must-See Collectibles Unveiled"
-description: "Are you ready to discover the coolest action figures hitting the shelves this year? Toy Fair Action Figure Releases are packed with exciting new characters and "
+title: 'Toy Fair Action Figure Releases: Must-See Collectibles Unveiled'
+description: 'Are you ready to discover the coolest action figures hitting the shelves
+  this year? Toy Fair Action Figure Releases are packed with exciting new characters
+  and '
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-fair-action-figure-releases&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=toy-fair-action-figure-releases&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to discover the coolest action figures hitting the shelves this year? Toy Fair Action Figure Releases are packed with exciting new characters and designs that collectors and fans like you won’t want to miss.**

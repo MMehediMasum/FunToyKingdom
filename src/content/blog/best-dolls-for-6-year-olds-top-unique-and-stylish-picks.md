@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 6 Year Olds: Top Unique and Stylish Picks"
-description: "Choosing the best dolls for 6 year olds can make playtime joyful and creative. Dolls help children learn caring, imagination, and social skills. At age six, kid"
+title: 'Best Dolls for 6 Year Olds: Top Unique and Stylish Picks'
+description: Choosing the best dolls for 6 year olds can make playtime joyful and
+  creative. Dolls help children learn caring, imagination, and social skills. At age
+  six, kid
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-6-year-olds-top-unique-and-stylish-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-6-year-olds-top-unique-and-stylish-picks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for 6 year olds can make playtime joyful and creative. Dolls help children learn caring, imagination, and social skills.**

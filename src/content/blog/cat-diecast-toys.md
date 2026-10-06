@@ -1,10 +1,14 @@
 ---
-title: "Cat Diecast Toys: Top Realistic CAT Construction Models for Collectors"
-description: "Cat diecast toys offer a world of miniature construction marvels. Perfect for collectors and young enthusiasts alike. These highly detailed models replicate the"
+title: 'Cat Diecast Toys: Top Realistic CAT Construction Models for Collectors'
+description: Cat diecast toys offer a world of miniature construction marvels. Perfect
+  for collectors and young enthusiasts alike. These highly detailed models replicate
+  the
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=cat-diecast-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Cat diecast toys offer a world of miniature construction marvels. Perfect for collectors and young enthusiasts alike.**

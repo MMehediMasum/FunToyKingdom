@@ -1,10 +1,14 @@
 ---
-title: "Cars Piston Cup Toys: Ultimate Die-Cast Racers for Kids’ Playtime Fun"
-description: "Cars Piston Cup toys bring the excitement of racing right to your home. These toys feature popular characters from the Disney Pixar Cars movies. Fans of the Car"
+title: 'Cars Piston Cup Toys: Ultimate Die-Cast Racers for Kids’ Playtime Fun'
+description: Cars Piston Cup toys bring the excitement of racing right to your home.
+  These toys feature popular characters from the Disney Pixar Cars movies. Fans of
+  the Car
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-piston-cup-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-piston-cup-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Cars Piston Cup toys bring the excitement of racing right to your home. These toys feature popular characters from the Disney Pixar Cars movies.**

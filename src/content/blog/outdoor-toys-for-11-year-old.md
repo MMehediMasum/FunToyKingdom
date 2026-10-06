@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for 11 Year Old: Top Fun Picks to Boost Playtime"
-description: "Are you looking for the perfect outdoor toys for your 11-year-old? Finding something that keeps them active, entertained, and excited can be a challenge. You wa"
+title: 'Outdoor Toys for 11 Year Old: Top Fun Picks to Boost Playtime'
+description: Are you looking for the perfect outdoor toys for your 11-year-old? Finding
+  something that keeps them active, entertained, and excited can be a challenge. You
+  wa
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-11-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect outdoor toys for your 11-year-old? Finding something that keeps them active, entertained, and excited can be a challenge.**

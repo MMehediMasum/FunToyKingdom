@@ -1,10 +1,13 @@
 ---
-title: "What is the World'S Oldest Toy: Discover History’s Timeless Plaything"
-description: "Have you ever wondered what the world’s oldest toy is? You might be surprised to learn that some toys have been around for thousands of years, long before video"
+title: 'What is the World''S Oldest Toy: Discover History’s Timeless Plaything'
+description: Have you ever wondered what the world’s oldest toy is? You might be surprised
+  to learn that some toys have been around for thousands of years, long before video
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-worlds-oldest-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drop Off Toys For Christmas
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-worlds-oldest-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what the world’s oldest toy is? You might be surprised to learn that some toys have been around for thousands of years, long before video games or even dolls.**

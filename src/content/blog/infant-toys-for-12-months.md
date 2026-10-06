@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 12 Months: Top Montessori and Sensory Picks for Development"
-description: "Choosing the right infant toys for 12 months supports your baby’s growth and fun. Toys at this age help develop senses, motor skills, and learning. Babies aroun"
+title: 'Infant Toys for 12 Months: Top Montessori and Sensory Picks for Development'
+description: Choosing the right infant toys for 12 months supports your baby’s growth
+  and fun. Toys at this age help develop senses, motor skills, and learning. Babies
+  aroun
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-12-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-12-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right infant toys for 12 months supports your baby’s growth and fun. Toys at this age help develop senses, motor skills, and learning.**

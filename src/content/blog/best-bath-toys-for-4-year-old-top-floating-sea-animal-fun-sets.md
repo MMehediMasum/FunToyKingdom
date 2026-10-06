@@ -1,10 +1,14 @@
 ---
-title: "Best Bath Toys for 4 Year Old: Top Floating Sea Animal Fun Sets"
-description: "Finding the best bath toys for 4-year-olds can make bath time fun and safe. Choosing toys that float, squirt, or glow adds excitement and learning. Bath toys he"
+title: 'Best Bath Toys for 4 Year Old: Top Floating Sea Animal Fun Sets'
+description: Finding the best bath toys for 4-year-olds can make bath time fun and
+  safe. Choosing toys that float, squirt, or glow adds excitement and learning. Bath
+  toys he
 pubDate: 2025-12-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bath-toys-for-4-year-old-top-floating-sea-animal-fun-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-bath-toys-for-4-year-old-top-floating-sea-animal-fun-sets&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best bath toys for 4-year-olds can make bath time fun and safe. Choosing toys that float, squirt, or glow adds excitement and learning.**

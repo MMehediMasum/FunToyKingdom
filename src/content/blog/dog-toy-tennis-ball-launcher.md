@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Tennis Ball Launcher: Ultimate Fetch Fun for Energetic Dogs"
-description: "A dog toy tennis ball launcher makes fetch fun and easy for dogs and owners. It throws balls far, giving dogs more exercise and playtime. These launchers come i"
+title: 'Dog Toy Tennis Ball Launcher: Ultimate Fetch Fun for Energetic Dogs'
+description: A dog toy tennis ball launcher makes fetch fun and easy for dogs and
+  owners. It throws balls far, giving dogs more exercise and playtime. These launchers
+  come i
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-tennis-ball-launcher&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-tennis-ball-launcher&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog toy tennis ball launcher makes fetch fun and easy for dogs and owners. It throws balls far, giving dogs more exercise and playtime.**

@@ -1,10 +1,14 @@
 ---
-title: "Diecast Metal Toys: Top Miniature Car Sets for Kids’ Playtime Fun"
-description: "Diecast metal toys captivate kids and collectors alike with their intricate designs and sturdy builds. These timeless toys offer endless hours of imaginative pl"
+title: 'Diecast Metal Toys: Top Miniature Car Sets for Kids’ Playtime Fun'
+description: Diecast metal toys captivate kids and collectors alike with their intricate
+  designs and sturdy builds. These timeless toys offer endless hours of imaginative
+  pl
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-metal-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-metal-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast metal toys captivate kids and collectors alike with their intricate designs and sturdy builds. These timeless toys offer endless hours of imaginative play and display opportunities.**

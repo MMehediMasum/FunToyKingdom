@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Stinky Pete Doll: Ultimate Collectible for Disney Fans"
-description: "The Stinky Pete doll from Toy Story brings the beloved Prospector character to life. This collectible item captures the essence of the Toy Story saga for fans o"
+title: 'Toy Story Stinky Pete Doll: Ultimate Collectible for Disney Fans'
+description: The Stinky Pete doll from Toy Story brings the beloved Prospector character
+  to life. This collectible item captures the essence of the Toy Story saga for fans
+  o
 pubDate: 2026-02-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-stinky-pete-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-stinky-pete-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Stinky Pete doll from Toy Story brings the beloved Prospector character to life. This collectible item captures the essence of the Toy Story saga for fans of all ages.**

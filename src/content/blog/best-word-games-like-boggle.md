@@ -1,10 +1,14 @@
 ---
-title: "Best Word Games Like Boggle: Top Fun & Challenging Picks"
-description: "Are you a fan of word games like Boggle that challenge your mind and boost your vocabulary? If you love the thrill of finding hidden words in a jumble of letter"
+title: 'Best Word Games Like Boggle: Top Fun & Challenging Picks'
+description: Are you a fan of word games like Boggle that challenge your mind and
+  boost your vocabulary? If you love the thrill of finding hidden words in a jumble
+  of letter
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-word-games-like-boggle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-word-games-like-boggle&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you a fan of word games like Boggle that challenge your mind and boost your vocabulary? If you love the thrill of finding hidden words in a jumble of letters, you're in the right place.**

@@ -1,10 +1,14 @@
 ---
-title: "Kids Programmable Robot Toy: Ignite Creativity and Learning Fun"
-description: "Imagine giving your child a toy that’s not just fun but also sparks their creativity and sharpens their problem-solving skills. A kids programmable robot toy do"
+title: 'Kids Programmable Robot Toy: Ignite Creativity and Learning Fun'
+description: Imagine giving your child a toy that’s not just fun but also sparks their
+  creativity and sharpens their problem-solving skills. A kids programmable robot
+  toy do
 pubDate: 2025-09-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-programmable-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=kids-programmable-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine giving your child a toy that’s not just fun but also sparks their creativity and sharpens their problem-solving skills. A kids programmable robot toy does exactly that.**

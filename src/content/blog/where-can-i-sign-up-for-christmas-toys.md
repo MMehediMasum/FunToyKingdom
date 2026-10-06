@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sign Up for Christmas Toys: Ultimate Guide 2025"
-description: "Are you searching for the perfect place to sign up for Christmas toys this year? Whether you want to surprise your kids, donate to a family in need, or find the"
+title: 'Where Can I Sign Up for Christmas Toys: Ultimate Guide 2025'
+description: Are you searching for the perfect place to sign up for Christmas toys
+  this year? Whether you want to surprise your kids, donate to a family in need, or
+  find the
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sign-up-for-christmas-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sign-up-for-christmas-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you searching for the perfect place to sign up for Christmas toys this year? Whether you want to surprise your kids, donate to a family in need, or find the best deals, knowing where to go can make all the difference.**

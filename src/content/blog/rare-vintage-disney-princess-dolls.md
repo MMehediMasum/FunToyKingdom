@@ -1,10 +1,14 @@
 ---
-title: "Rare Vintage Disney Princess Dolls: Collectors’ Ultimate Treasure Guide"
-description: "Have you ever dreamed of owning a piece of magic from your childhood? Rare vintage Disney Princess dolls aren’t just toys—they’re treasures filled with nostalgi"
+title: 'Rare Vintage Disney Princess Dolls: Collectors’ Ultimate Treasure Guide'
+description: Have you ever dreamed of owning a piece of magic from your childhood?
+  Rare vintage Disney Princess dolls aren’t just toys—they’re treasures filled with
+  nostalgi
 pubDate: 2025-11-21
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-vintage-disney-princess-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=rare-vintage-disney-princess-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever dreamed of owning a piece of magic from your childhood? Rare vintage Disney Princess dolls aren’t just toys—they’re treasures filled with nostalgia and charm.**

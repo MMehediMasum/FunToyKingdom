@@ -1,10 +1,14 @@
 ---
-title: "Vintage Metal Toy Soldier Collectibles: Ultimate Guide to Rare Finds"
-description: "If you’re someone who loves history, nostalgia, or unique collectibles, vintage metal toy soldier collectibles might just catch your eye. These tiny figures hol"
+title: 'Vintage Metal Toy Soldier Collectibles: Ultimate Guide to Rare Finds'
+description: If you’re someone who loves history, nostalgia, or unique collectibles,
+  vintage metal toy soldier collectibles might just catch your eye. These tiny figures
+  hol
 pubDate: 2026-07-29
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-metal-toy-soldier-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=vintage-metal-toy-soldier-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re someone who loves history, nostalgia, or unique collectibles, vintage metal toy soldier collectibles might just catch your eye. These tiny figures hold stories of the past, crafted with care and detail that few modern toys can match.**

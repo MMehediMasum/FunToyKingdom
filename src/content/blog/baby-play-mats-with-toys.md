@@ -1,10 +1,14 @@
 ---
-title: "Baby Play Mats With Toys: Ultimate Fun & Learning for Babies"
-description: "Are you looking for the perfect way to keep your baby happy, safe, and entertained? Baby play mats with toys might be just what you need. These colorful mats ar"
+title: 'Baby Play Mats With Toys: Ultimate Fun & Learning for Babies'
+description: Are you looking for the perfect way to keep your baby happy, safe, and
+  entertained? Baby play mats with toys might be just what you need. These colorful
+  mats ar
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=baby-play-mats-with-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=baby-play-mats-with-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect way to keep your baby happy, safe, and entertained? Baby play mats with toys might be just what you need.**

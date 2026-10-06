@@ -1,10 +1,13 @@
 ---
-title: "Sensory Toys Australia: Top Fidget Sets for Stress Relief and Autism"
-description: "Sensory toys offer a unique way to engage the senses and provide stress relief. In Australia, a wide variety of sensory toys are available to cater to different"
+title: 'Sensory Toys Australia: Top Fidget Sets for Stress Relief and Autism'
+description: Sensory toys offer a unique way to engage the senses and provide stress
+  relief. In Australia, a wide variety of sensory toys are available to cater to different
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-australia&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-australia&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys offer a unique way to engage the senses and provide stress relief. In Australia, a wide variety of sensory toys are available to cater to different needs.**

@@ -1,10 +1,14 @@
 ---
-title: "M.A.R.S Robot Toy: Interactive Dancing and Voice-Controlled Fun for Kids"
-description: "The M.A.R.S. Robot Toy offers fun and learning for kids aged 3 to 12. It combines smart features like voice control, dancing, and gesture sensing. This robot to"
+title: 'M.A.R.S Robot Toy: Interactive Dancing and Voice-Controlled Fun for Kids'
+description: The M.A.R.S. Robot Toy offers fun and learning for kids aged 3 to 12.
+  It combines smart features like voice control, dancing, and gesture sensing. This
+  robot to
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mars-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=mars-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The M.A.R.S. Robot Toy offers fun and learning for kids aged 3 to 12.**

@@ -1,10 +1,14 @@
 ---
-title: "What Kind of Toys Do Guinea Pigs Like: Top Picks for Happy Pets"
-description: "If you have a guinea pig, you want to make sure it’s happy and healthy. One of the best ways to do that is by giving your furry friend the right toys. But what "
+title: 'What Kind of Toys Do Guinea Pigs Like: Top Picks for Happy Pets'
+description: 'If you have a guinea pig, you want to make sure it’s happy and healthy.
+  One of the best ways to do that is by giving your furry friend the right toys. But
+  what '
 pubDate: 2025-09-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-kind-of-toys-do-guinea-pigs-like&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=what-kind-of-toys-do-guinea-pigs-like&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you have a guinea pig, you want to make sure it’s happy and healthy. One of the best ways to do that is by giving your furry friend the right toys.**

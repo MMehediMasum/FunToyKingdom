@@ -1,10 +1,14 @@
 ---
-title: "Simple Machine Toy Learning Kits: Fun STEM Projects for Kids"
-description: "Have you ever wondered how machines work in the simplest way? Simple Machine Toy Learning Kits are the perfect tools to help you discover just that. These kits "
+title: 'Simple Machine Toy Learning Kits: Fun STEM Projects for Kids'
+description: 'Have you ever wondered how machines work in the simplest way? Simple
+  Machine Toy Learning Kits are the perfect tools to help you discover just that.
+  These kits '
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=simple-machine-toy-learning-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=simple-machine-toy-learning-kits&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered how machines work in the simplest way? Simple Machine Toy Learning Kits are the perfect tools to help you discover just that.**

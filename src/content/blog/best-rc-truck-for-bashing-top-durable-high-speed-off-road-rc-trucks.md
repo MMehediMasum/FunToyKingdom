@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Truck for Bashing: Top Durable High-Speed Off-Road RC Trucks"
-description: "Bashing with RC trucks demands powerful, durable, and fast vehicles. Choosing the best RC truck for bashing ensures fun and performance on rough terrains. RC ba"
+title: 'Best Rc Truck for Bashing: Top Durable High-Speed Off-Road RC Trucks'
+description: Bashing with RC trucks demands powerful, durable, and fast vehicles.
+  Choosing the best RC truck for bashing ensures fun and performance on rough terrains.
+  RC ba
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-truck-for-bashing-top-durable-high-speed-off-road-rc-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Bashing Top
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-truck-for-bashing-top-durable-high-speed-off-road-rc-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Bashing with RC trucks demands powerful, durable, and fast vehicles. Choosing the best RC truck for bashing ensures fun and performance on rough terrains.**

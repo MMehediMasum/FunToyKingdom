@@ -1,10 +1,14 @@
 ---
-title: "Interactive Cat Toys for Bored Cats: Top Picks to Boost Playtime Fun"
-description: "Bored cats can become restless and mischievous. Interactive cat toys offer a fun solution to keep them entertained indoors. Cats need mental and physical stimul"
+title: 'Interactive Cat Toys for Bored Cats: Top Picks to Boost Playtime Fun'
+description: Bored cats can become restless and mischievous. Interactive cat toys
+  offer a fun solution to keep them entertained indoors. Cats need mental and physical
+  stimul
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-cat-toys-for-bored-cats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=interactive-cat-toys-for-bored-cats&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Bored cats can become restless and mischievous. Interactive cat toys offer a fun solution to keep them entertained indoors.**

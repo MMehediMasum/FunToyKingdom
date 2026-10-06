@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for the Holidays to Spark Family Fun and Laughter"
-description: "Holiday board games bring joy and laughter to family and friends. They create lasting memories during festive gatherings. Choosing the best board games for the "
+title: Best Board Games for the Holidays to Spark Family Fun and Laughter
+description: 'Holiday board games bring joy and laughter to family and friends. They
+  create lasting memories during festive gatherings. Choosing the best board games
+  for the '
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-the-holidays-to-spark-family-fun-and-laughter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Party
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-the-holidays-to-spark-family-fun-and-laughter&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Holiday board games bring joy and laughter to family and friends. They create lasting memories during festive gatherings.**

@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 7 Year Old: Fun & Creative Project Ideas"
-description: "Are you looking for fun and creative ways to keep your 7-year-old busy and happy? Arts and crafts are perfect for this age—they help your child explore their im"
+title: 'Arts And Crafts for 7 Year Old: Fun & Creative Project Ideas'
+description: Are you looking for fun and creative ways to keep your 7-year-old busy
+  and happy? Arts and crafts are perfect for this age—they help your child explore
+  their im
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-7-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and creative ways to keep your 7-year-old busy and happy? Arts and crafts are perfect for this age—they help your child explore their imagination while building important skills.**

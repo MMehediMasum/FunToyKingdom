@@ -1,10 +1,14 @@
 ---
-title: "Can You Dry Clean Soft Toys: Essential Tips for Safe Cleaning"
-description: "Are you wondering if you can dry clean your soft toys safely? Those cuddly companions often hold special memories, and keeping them clean is important. But clea"
+title: 'Can You Dry Clean Soft Toys: Essential Tips for Safe Cleaning'
+description: Are you wondering if you can dry clean your soft toys safely? Those cuddly
+  companions often hold special memories, and keeping them clean is important. But
+  clea
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-dry-clean-soft-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=can-you-dry-clean-soft-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you wondering if you can dry clean your soft toys safely? Those cuddly companions often hold special memories, and keeping them clean is important.**

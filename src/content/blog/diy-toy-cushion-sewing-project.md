@@ -1,10 +1,13 @@
 ---
-title: "Diy Toy Cushion Sewing Project: Easy Steps for Cozy Fun"
-description: "Looking for a fun and creative way to add comfort and charm to your space? Your next favorite project might be a DIY toy cushion sewing project. Imagine turning"
+title: 'Diy Toy Cushion Sewing Project: Easy Steps for Cozy Fun'
+description: Looking for a fun and creative way to add comfort and charm to your space?
+  Your next favorite project might be a DIY toy cushion sewing project. Imagine turning
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-cushion-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-cushion-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative way to add comfort and charm to your space? Your next favorite project might be a DIY toy cushion sewing project.**

@@ -1,10 +1,13 @@
 ---
-title: "Party Board Games for Holidays: Ultimate Fun for Every Gathering"
-description: "Looking for a way to make your holiday gatherings unforgettable? Party board games are the secret to turning any celebration into a fun-filled, laughter-packed "
+title: 'Party Board Games for Holidays: Ultimate Fun for Every Gathering'
+description: 'Looking for a way to make your holiday gatherings unforgettable? Party
+  board games are the secret to turning any celebration into a fun-filled, laughter-packed '
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=party-board-games-for-holidays&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=party-board-games-for-holidays&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a way to make your holiday gatherings unforgettable? Party board games are the secret to turning any celebration into a fun-filled, laughter-packed event.**

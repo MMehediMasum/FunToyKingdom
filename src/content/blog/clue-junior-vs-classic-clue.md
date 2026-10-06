@@ -1,10 +1,14 @@
 ---
-title: "Clue Junior Vs Classic Clue: Ultimate Family Game Showdown"
-description: "Are you curious about which version of Clue is the best fit for your game night? Whether you’re thinking about playing with younger kids or diving into a classi"
+title: 'Clue Junior Vs Classic Clue: Ultimate Family Game Showdown'
+description: Are you curious about which version of Clue is the best fit for your
+  game night? Whether you’re thinking about playing with younger kids or diving into
+  a classi
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=clue-junior-vs-classic-clue&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=clue-junior-vs-classic-clue&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you curious about which version of Clue is the best fit for your game night? Whether you’re thinking about playing with younger kids or diving into a classic mystery, understanding the differences between Clue Junior and Classic Clue can make all the difference.**

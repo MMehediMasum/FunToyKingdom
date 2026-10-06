@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Superhero Armor: Ultimate DIY Kids’ Adventure Gear"
-description: "Imagine your child stepping into a world where creativity and adventure come alive—all with something you can create together at home. Handmade cardboard toy su"
+title: 'Handmade Cardboard Toy Superhero Armor: Ultimate DIY Kids’ Adventure Gear'
+description: Imagine your child stepping into a world where creativity and adventure
+  come alive—all with something you can create together at home. Handmade cardboard
+  toy su
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-superhero-armor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-superhero-armor&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine your child stepping into a world where creativity and adventure come alive—all with something you can create together at home. Handmade cardboard toy superhero armor isn’t just a craft project; it’s a gateway to endless imagination, fun, and learning.**

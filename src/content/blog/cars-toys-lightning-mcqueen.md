@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys Lightning McQueen: Top Picks for Racing Fun and Collectibles"
-description: "Lightning McQueen toys bring the magic of Disney Pixar’s Cars right into your home. Kids love racing, collecting, and playing with these colorful, detailed cars"
+title: 'Cars Toys Lightning McQueen: Top Picks for Racing Fun and Collectibles'
+description: Lightning McQueen toys bring the magic of Disney Pixar’s Cars right into
+  your home. Kids love racing, collecting, and playing with these colorful, detailed
+  cars
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-lightning-mcqueen&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-lightning-mcqueen&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Lightning McQueen toys bring the magic of Disney Pixar’s Cars right into your home. Kids love racing, collecting, and playing with these colorful, detailed cars.**

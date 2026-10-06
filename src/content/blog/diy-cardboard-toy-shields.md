@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Shields: Creative, Fun, and Easy Craft Ideas"
-description: "Looking for a fun and creative way to keep your kids entertained? DIY cardboard toy shields are the perfect project for you! Not only are they easy to make, but"
+title: 'Diy Cardboard Toy Shields: Creative, Fun, and Easy Craft Ideas'
+description: Looking for a fun and creative way to keep your kids entertained? DIY
+  cardboard toy shields are the perfect project for you! Not only are they easy to
+  make, but
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-shields&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-shields&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative way to keep your kids entertained? DIY cardboard toy shields are the perfect project for you!**

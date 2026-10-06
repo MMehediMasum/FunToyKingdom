@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Rope And Ball Combo: Ultimate Tug & Fetch Playset for Dogs"
-description: "Dog toy rope and ball combos offer fun and exercise for dogs of all sizes. These toys combine tugging, chewing, and fetching in one package. Rope and ball combo"
+title: 'Dog Toy Rope And Ball Combo: Ultimate Tug & Fetch Playset for Dogs'
+description: Dog toy rope and ball combos offer fun and exercise for dogs of all sizes.
+  These toys combine tugging, chewing, and fetching in one package. Rope and ball
+  combo
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-rope-and-ball-combo&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-rope-and-ball-combo&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy rope and ball combos offer fun and exercise for dogs of all sizes. These toys combine tugging, chewing, and fetching in one package.**

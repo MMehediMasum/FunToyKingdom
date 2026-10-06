@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Cars for Under 200: Top Fast & Durable Remote Control Picks"
-description: "Finding the best RC cars under $200 can be tricky. This guide helps you choose top models with great features and value. RC cars offer fun for kids and adults a"
+title: 'Best Rc Cars for Under 200: Top Fast & Durable Remote Control Picks'
+description: Finding the best RC cars under $200 can be tricky. This guide helps you
+  choose top models with great features and value. RC cars offer fun for kids and
+  adults a
 pubDate: 2025-12-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-cars-for-under-200-top-fast-durable-remote-control-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-cars-for-under-200-top-fast-durable-remote-control-picks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best RC cars under $200 can be tricky. This guide helps you choose top models with great features and value.**

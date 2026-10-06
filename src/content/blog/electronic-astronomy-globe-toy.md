@@ -1,10 +1,13 @@
 ---
-title: "Electronic Astronomy Globe Toy: Explore Space with Interactive Fun"
-description: "Have you ever wished you could hold the universe in your hands? The Electronic Astronomy Globe Toy lets you do just that. It’s not just a globe—it lights up the"
+title: 'Electronic Astronomy Globe Toy: Explore Space with Interactive Fun'
+description: Have you ever wished you could hold the universe in your hands? The Electronic
+  Astronomy Globe Toy lets you do just that. It’s not just a globe—it lights up the
 pubDate: 2026-07-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-astronomy-globe-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=electronic-astronomy-globe-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wished you could hold the universe in your hands? The Electronic Astronomy Globe Toy lets you do just that.**

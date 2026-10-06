@@ -1,10 +1,14 @@
 ---
-title: "What Toys Do Newborns Need: Essential Picks for Early Development"
-description: "When you bring your newborn home, you want to give them the best start. But what toys do newborns really need? Choosing the right toys can help your baby grow, "
+title: 'What Toys Do Newborns Need: Essential Picks for Early Development'
+description: 'When you bring your newborn home, you want to give them the best start.
+  But what toys do newborns really need? Choosing the right toys can help your baby
+  grow, '
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-do-newborns-need&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-do-newborns-need&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **When you bring your newborn home, you want to give them the best start. But what toys do newborns really need?**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Nutcracker Toy Soldier Ornament: Easy DIY Guide"
-description: "Are you ready to add a personal touch to your holiday decorations? Making a Nutcracker Toy Soldier ornament is easier than you think, and it’s a fun way to brin"
+title: 'How to Make a Nutcracker Toy Soldier Ornament: Easy DIY Guide'
+description: Are you ready to add a personal touch to your holiday decorations? Making
+  a Nutcracker Toy Soldier ornament is easier than you think, and it’s a fun way to
+  brin
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-nutcracker-toy-soldier-ornament&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-nutcracker-toy-soldier-ornament&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to add a personal touch to your holiday decorations? Making a Nutcracker Toy Soldier ornament is easier than you think, and it’s a fun way to bring festive charm into your home.**

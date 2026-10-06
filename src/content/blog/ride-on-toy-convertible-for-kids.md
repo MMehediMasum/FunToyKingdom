@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Convertible for Kids: Ultimate Fun and Safety Guide"
-description: "Imagine your child zooming around the backyard, grinning from ear to ear as they steer their very own ride on toy convertible. You want to give your little one "
+title: 'Ride on Toy Convertible for Kids: Ultimate Fun and Safety Guide'
+description: 'Imagine your child zooming around the backyard, grinning from ear to
+  ear as they steer their very own ride on toy convertible. You want to give your
+  little one '
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-convertible-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-convertible-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child zooming around the backyard, grinning from ear to ear as they steer their very own ride on toy convertible. You want to give your little one a toy that’s not just fun but also sparks their imagination and helps them grow.**

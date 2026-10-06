@@ -1,10 +1,13 @@
 ---
-title: "Toy Recording Studio Electronic Set: Ultimate Fun & Creativity Unleashed"
-description: "Are you looking for a fun and creative way to spark your child’s imagination? The Toy Recording Studio Electronic Set might be just what you need. Imagine your "
+title: 'Toy Recording Studio Electronic Set: Ultimate Fun & Creativity Unleashed'
+description: 'Are you looking for a fun and creative way to spark your child’s imagination?
+  The Toy Recording Studio Electronic Set might be just what you need. Imagine your '
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-recording-studio-electronic-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=toy-recording-studio-electronic-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and creative way to spark your child’s imagination? The Toy Recording Studio Electronic Set might be just what you need.**

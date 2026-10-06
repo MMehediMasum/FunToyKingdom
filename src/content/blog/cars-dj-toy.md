@@ -1,10 +1,14 @@
 ---
-title: "Cars DJ Toy: Top Die-Cast Racing Cars Kids Will Love"
-description: "Cars DJ Toy introduces a delightful world of miniature die-cast vehicles. These toys captivate young minds with vibrant designs. Fans of Disney Pixar Cars will "
+title: 'Cars DJ Toy: Top Die-Cast Racing Cars Kids Will Love'
+description: 'Cars DJ Toy introduces a delightful world of miniature die-cast vehicles.
+  These toys captivate young minds with vibrant designs. Fans of Disney Pixar Cars
+  will '
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-dj-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-dj-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars DJ Toy introduces a delightful world of miniature die-cast vehicles. These toys captivate young minds with vibrant designs.**

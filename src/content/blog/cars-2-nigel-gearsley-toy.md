@@ -1,10 +1,13 @@
 ---
-title: "Cars 2 Nigel Gearsley Toy Review: Ultimate Racing Fun for Kids"
-description: "Nigel Gearsley toys from Cars 2 captivate fans with their detailed designs. Each toy captures the character's racing spirit. These Nigel Gearsley toys are perfe"
+title: 'Cars 2 Nigel Gearsley Toy Review: Ultimate Racing Fun for Kids'
+description: Nigel Gearsley toys from Cars 2 captivate fans with their detailed designs.
+  Each toy captures the character's racing spirit. These Nigel Gearsley toys are perfe
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-nigel-gearsley-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-nigel-gearsley-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Nigel Gearsley toys from Cars 2 captivate fans with their detailed designs. Each toy captures the character's racing spirit.**

@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Toys: Ultimate Family Board Games for Fun and Strategy"
-description: "Monopoly toys bring family fun to your living room. This classic game offers something for everyone, young and old. Monopoly, a timeless board game, comes in va"
+title: 'Monopoly Toys: Ultimate Family Board Games for Fun and Strategy'
+description: Monopoly toys bring family fun to your living room. This classic game
+  offers something for everyone, young and old. Monopoly, a timeless board game, comes
+  in va
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-toys&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Monopoly toys bring family fun to your living room. This classic game offers something for everyone, young and old.**

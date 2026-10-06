@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Wallet Craft: Easy DIY Fun for Kids at Home"
-description: "Have you ever wished for a fun, creative project that’s both simple and rewarding? Imagine making a handmade toy wallet that’s perfect for kids or even as a uni"
+title: 'Handmade Toy Wallet Craft: Easy DIY Fun for Kids at Home'
+description: Have you ever wished for a fun, creative project that’s both simple and
+  rewarding? Imagine making a handmade toy wallet that’s perfect for kids or even
+  as a uni
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-wallet-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Rocket Cardboard Craft
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-wallet-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wished for a fun, creative project that’s both simple and rewarding? Imagine making a handmade toy wallet that’s perfect for kids or even as a unique gift.**

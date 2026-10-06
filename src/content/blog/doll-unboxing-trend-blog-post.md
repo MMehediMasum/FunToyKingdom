@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Doll Unboxing Trend Blog Post: Ultimate Guide to Viral Collectibles"
 description: "Have you noticed the excitement around doll unboxing videos? There’s something magical about watching a new doll reveal, discovering every tiny detail together."
 pubDate: 2025-11-18

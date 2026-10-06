@@ -1,10 +1,14 @@
 ---
-title: "Reusable Water Balloons for Summer: Ultimate Fun & Eco-Friendly Play"
-description: "Summer is the perfect time to have fun outdoors, and nothing beats a good water balloon fight to cool down. But what if you could enjoy all the splashy exciteme"
+title: 'Reusable Water Balloons for Summer: Ultimate Fun & Eco-Friendly Play'
+description: Summer is the perfect time to have fun outdoors, and nothing beats a
+  good water balloon fight to cool down. But what if you could enjoy all the splashy
+  exciteme
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=reusable-water-balloons-for-summer&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=reusable-water-balloons-for-summer&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Summer is the perfect time to have fun outdoors, and nothing beats a good water balloon fight to cool down. But what if you could enjoy all the splashy excitement without wasting hundreds of balloons?**

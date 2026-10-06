@@ -1,10 +1,14 @@
 ---
-title: "Cars Guido Toy: Top Die-Cast Collectibles Every Kids Will Love"
-description: "Cars Guido Toy captures the charm of the beloved character from Disney Pixar Cars. This die-cast toy car appeals to children and collectors alike. The Cars Guid"
+title: 'Cars Guido Toy: Top Die-Cast Collectibles Every Kids Will Love'
+description: Cars Guido Toy captures the charm of the beloved character from Disney
+  Pixar Cars. This die-cast toy car appeals to children and collectors alike. The
+  Cars Guid
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-guido-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-guido-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Guido Toy captures the charm of the beloved character from Disney Pixar Cars. This die-cast toy car appeals to children and collectors alike.**

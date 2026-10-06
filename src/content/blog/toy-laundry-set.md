@@ -1,10 +1,14 @@
 ---
-title: "Toy Laundry Set: Best Pretend Play Washers and Dryers for Kids"
-description: "A toy laundry set brings the fun of washing clothes into a child’s playtime. It helps kids learn daily chores through pretend play. Toy laundry sets include min"
+title: 'Toy Laundry Set: Best Pretend Play Washers and Dryers for Kids'
+description: A toy laundry set brings the fun of washing clothes into a child’s playtime.
+  It helps kids learn daily chores through pretend play. Toy laundry sets include
+  min
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-laundry-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=toy-laundry-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A toy laundry set brings the fun of washing clothes into a child’s playtime. It helps kids learn daily chores through pretend play.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With Stabilizer Gimbal: Ultimate Guide to Smooth Flight"
-description: "Are you tired of shaky, blurry drone footage that ruins your perfect shot? Imagine flying your RC drone with smooth, stable video every single time. That’s exac"
+title: 'Rc Drone With Stabilizer Gimbal: Ultimate Guide to Smooth Flight'
+description: Are you tired of shaky, blurry drone footage that ruins your perfect
+  shot? Imagine flying your RC drone with smooth, stable video every single time.
+  That’s exac
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-stabilizer-gimbal&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-stabilizer-gimbal&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of shaky, blurry drone footage that ruins your perfect shot? Imagine flying your RC drone with smooth, stable video every single time.**

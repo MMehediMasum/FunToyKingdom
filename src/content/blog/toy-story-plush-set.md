@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Plush Set: Ultimate Collection of Soft, Cuddly Characters"
-description: "The Toy Story Plush Set brings favorite characters to life with soft, cuddly toys. These plush figures capture the charm of Woody, Buzz Lightyear, Jessie, and m"
+title: 'Toy Story Plush Set: Ultimate Collection of Soft, Cuddly Characters'
+description: The Toy Story Plush Set brings favorite characters to life with soft,
+  cuddly toys. These plush figures capture the charm of Woody, Buzz Lightyear, Jessie,
+  and m
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-plush-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-plush-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Plush Set brings favorite characters to life with soft, cuddly toys. These plush figures capture the charm of Woody, Buzz Lightyear, Jessie, and more.**

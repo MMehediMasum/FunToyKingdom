@@ -1,10 +1,14 @@
 ---
-title: "Rc Quadcopter With Led Lights: Ultimate Night Flying Experience"
-description: "Are you ready to take your flying experience to the next level? An RC quadcopter with LED lights is exactly what you need. Imagine controlling a sleek drone tha"
+title: 'Rc Quadcopter With Led Lights: Ultimate Night Flying Experience'
+description: Are you ready to take your flying experience to the next level? An RC
+  quadcopter with LED lights is exactly what you need. Imagine controlling a sleek
+  drone tha
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-quadcopter-with-led-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-quadcopter-with-led-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your flying experience to the next level? An RC quadcopter with LED lights is exactly what you need.**

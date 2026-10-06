@@ -1,10 +1,13 @@
 ---
-title: "Christmas Snowball Fight Indoor Outdoor: Ultimate Fun Guide 2026"
-description: "Are you ready to add some extra fun and excitement to your holiday season? A Christmas snowball fight, whether indoors or outdoors, is the perfect way to bring "
+title: 'Christmas Snowball Fight Indoor Outdoor: Ultimate Fun Guide 2026'
+description: 'Are you ready to add some extra fun and excitement to your holiday season?
+  A Christmas snowball fight, whether indoors or outdoors, is the perfect way to bring '
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-snowball-fight-indoor-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=christmas-snowball-fight-indoor-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to add some extra fun and excitement to your holiday season? A Christmas snowball fight, whether indoors or outdoors, is the perfect way to bring laughter, energy, and joy to your family and friends.**

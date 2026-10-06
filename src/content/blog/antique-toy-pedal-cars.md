@@ -1,10 +1,14 @@
 ---
-title: "Antique Toy Pedal Cars: Timeless Classics for Collectors and Kids"
-description: "Antique toy pedal cars capture the charm of classic automobiles in a fun, miniature form. These collectible toys delight both kids and adults with their vintage"
+title: 'Antique Toy Pedal Cars: Timeless Classics for Collectors and Kids'
+description: Antique toy pedal cars capture the charm of classic automobiles in a
+  fun, miniature form. These collectible toys delight both kids and adults with their
+  vintage
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-toy-pedal-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=antique-toy-pedal-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Antique toy pedal cars capture the charm of classic automobiles in a fun, miniature form. These collectible toys delight both kids and adults with their vintage designs and quality build.**

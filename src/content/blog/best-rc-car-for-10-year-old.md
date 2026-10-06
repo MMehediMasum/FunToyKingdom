@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Car for 10 Year Old: Top Safe & Fun Picks 2025"
-description: "Looking for the best RC car for your 10-year-old? You want something that’s fun, easy to use, and built to last. But with so many options out there, choosing th"
+title: 'Best Rc Car for 10 Year Old: Top Safe & Fun Picks 2025'
+description: Looking for the best RC car for your 10-year-old? You want something
+  that’s fun, easy to use, and built to last. But with so many options out there,
+  choosing th
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-car-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-car-for-10-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the best RC car for your 10-year-old? You want something that’s fun, easy to use, and built to last.**

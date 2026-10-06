@@ -1,10 +1,14 @@
 ---
-title: "Best Dollhouse for 4 Year Old: Top Playhouse Sets with Furniture & Lights"
-description: "Choosing the best dollhouse for a 4-year-old can spark creativity and hours of fun. A good dollhouse offers safe, engaging play with age-appropriate features. A"
+title: 'Best Dollhouse for 4 Year Old: Top Playhouse Sets with Furniture & Lights'
+description: Choosing the best dollhouse for a 4-year-old can spark creativity and
+  hours of fun. A good dollhouse offers safe, engaging play with age-appropriate features.
+  A
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouse-for-4-year-old-top-playhouse-sets-with-furniture-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouses For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouse-for-4-year-old-top-playhouse-sets-with-furniture-lights&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dollhouse for a 4-year-old can spark creativity and hours of fun. A good dollhouse offers safe, engaging play with age-appropriate features.**

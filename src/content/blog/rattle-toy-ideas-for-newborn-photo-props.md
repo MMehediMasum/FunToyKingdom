@@ -1,10 +1,14 @@
 ---
-title: "Rattle Toy Ideas for Newborn Photo Props: Creative & Adorable Picks"
-description: "Looking for the perfect way to make your newborn photos even more adorable? You’ve come to the right place. Choosing the right rattle toy as a photo prop can ad"
+title: 'Rattle Toy Ideas for Newborn Photo Props: Creative & Adorable Picks'
+description: Looking for the perfect way to make your newborn photos even more adorable?
+  You’ve come to the right place. Choosing the right rattle toy as a photo prop can
+  ad
 pubDate: 2026-07-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rattle-toy-ideas-for-newborn-photo-props&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=rattle-toy-ideas-for-newborn-photo-props&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect way to make your newborn photos even more adorable? You’ve come to the right place.**

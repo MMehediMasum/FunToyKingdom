@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 4 Month Old: Best Sensory & Teething Toys Guide"
-description: "Choosing the right toys for a 4-month-old can be challenging. Babies at this age are curious and exploring. The right toys can aid in their development and soot"
+title: 'Infant Toys for 4 Month Old: Best Sensory & Teething Toys Guide'
+description: Choosing the right toys for a 4-month-old can be challenging. Babies
+  at this age are curious and exploring. The right toys can aid in their development
+  and soot
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-4-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-4-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a 4-month-old can be challenging. Babies at this age are curious and exploring.**

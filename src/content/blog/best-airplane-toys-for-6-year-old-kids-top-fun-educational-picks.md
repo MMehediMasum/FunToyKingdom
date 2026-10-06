@@ -1,10 +1,14 @@
 ---
-title: "Best Airplane Toys for 6 Year Old Kids: Top Fun & Educational Picks"
-description: "Choosing the best airplane toys for 6-year-olds can spark imagination and learning. These toys combine fun, creativity, and skill-building for young kids. At ag"
+title: 'Best Airplane Toys for 6 Year Old Kids: Top Fun & Educational Picks'
+description: Choosing the best airplane toys for 6-year-olds can spark imagination
+  and learning. These toys combine fun, creativity, and skill-building for young kids.
+  At ag
 pubDate: 2025-12-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-airplane-toys-for-6-year-old-kids-top-fun-educational-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-airplane-toys-for-6-year-old-kids-top-fun-educational-picks&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the best airplane toys for 6-year-olds can spark imagination and learning. These toys combine fun, creativity, and skill-building for young kids.**

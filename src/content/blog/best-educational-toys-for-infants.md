@@ -1,10 +1,13 @@
 ---
-title: "Best Educational Toys for Infants: Top Montessori and Sensory Picks"
-description: "Choosing the right educational toys for infants can foster early development and learning. These toys engage senses, spark curiosity, and encourage exploration."
+title: 'Best Educational Toys for Infants: Top Montessori and Sensory Picks'
+description: Choosing the right educational toys for infants can foster early development
+  and learning. These toys engage senses, spark curiosity, and encourage exploration.
 pubDate: 2026-03-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-educational-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-educational-toys-for-infants&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right educational toys for infants can foster early development and learning. These toys engage senses, spark curiosity, and encourage exploration.**

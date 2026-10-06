@@ -1,10 +1,14 @@
 ---
-title: "Folding Wagon for Kids Beach Trips: Ultimate Convenience and Fun"
-description: "Planning a fun day at the beach with your kids? You know how tricky it can be to carry all their toys, snacks, towels, and gear without making multiple trips or"
+title: 'Folding Wagon for Kids Beach Trips: Ultimate Convenience and Fun'
+description: Planning a fun day at the beach with your kids? You know how tricky it
+  can be to carry all their toys, snacks, towels, and gear without making multiple
+  trips or
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=folding-wagon-for-kids-beach-trips&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=folding-wagon-for-kids-beach-trips&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Planning a fun day at the beach with your kids? You know how tricky it can be to carry all their toys, snacks, towels, and gear without making multiple trips or juggling too much.**

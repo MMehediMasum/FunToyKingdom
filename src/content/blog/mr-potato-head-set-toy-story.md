@@ -1,10 +1,14 @@
 ---
-title: "Mr Potato Head Set Toy Story: Ultimate Creative Playset for Toddlers"
-description: "Mr. Potato Head toys delight children with creativity and fun. These toys offer endless possibilities for imaginative play. Mr. Potato Head sets are beloved cla"
+title: 'Mr Potato Head Set Toy Story: Ultimate Creative Playset for Toddlers'
+description: Mr. Potato Head toys delight children with creativity and fun. These
+  toys offer endless possibilities for imaginative play. Mr. Potato Head sets are
+  beloved cla
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mr-potato-head-set-toy-story&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=mr-potato-head-set-toy-story&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Mr. Potato Head toys delight children with creativity and fun.**

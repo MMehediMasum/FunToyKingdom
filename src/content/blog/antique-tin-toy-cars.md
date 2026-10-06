@@ -1,10 +1,14 @@
 ---
-title: "Antique Tin Toy Cars: Timeless Collectibles for Vintage Car Enthusiasts"
-description: "Antique tin toy cars capture a unique charm from the past. These classic models blend craftsmanship and nostalgia in small, detailed forms. Collectors and enthu"
+title: 'Antique Tin Toy Cars: Timeless Collectibles for Vintage Car Enthusiasts'
+description: Antique tin toy cars capture a unique charm from the past. These classic
+  models blend craftsmanship and nostalgia in small, detailed forms. Collectors and
+  enthu
 pubDate: 2026-03-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-tin-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=antique-tin-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Antique tin toy cars capture a unique charm from the past. These classic models blend craftsmanship and nostalgia in small, detailed forms.**

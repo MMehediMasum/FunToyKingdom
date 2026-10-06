@@ -1,10 +1,14 @@
 ---
-title: "Programmable Rc Toy Car Kit: Build, Code, and Race Your Dream Car"
-description: "Are you ready to take your love for remote control cars to a whole new level? A Programmable RC Toy Car Kit lets you build, customize, and control your very own"
+title: 'Programmable Rc Toy Car Kit: Build, Code, and Race Your Dream Car'
+description: Are you ready to take your love for remote control cars to a whole new
+  level? A Programmable RC Toy Car Kit lets you build, customize, and control your
+  very own
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=programmable-rc-toy-car-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=programmable-rc-toy-car-kit&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your love for remote control cars to a whole new level? A Programmable RC Toy Car Kit lets you build, customize, and control your very own car, giving you the power to create something unique.**

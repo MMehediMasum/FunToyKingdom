@@ -1,10 +1,14 @@
 ---
-title: "Vintage Toy Robot: Top Retro Collectibles for Gifts and Home Decor"
-description: "Vintage toy robots bring a charming glimpse of the past. These classic wind-up toys capture simple fun and timeless design. Collectors and fans love vintage toy"
+title: 'Vintage Toy Robot: Top Retro Collectibles for Gifts and Home Decor'
+description: Vintage toy robots bring a charming glimpse of the past. These classic
+  wind-up toys capture simple fun and timeless design. Collectors and fans love vintage
+  toy
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-toy-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=vintage-toy-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Vintage toy robots bring a charming glimpse of the past. These classic wind-up toys capture simple fun and timeless design.**

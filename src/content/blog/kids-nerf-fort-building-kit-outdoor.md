@@ -1,10 +1,13 @@
 ---
-title: "Kids Nerf Fort Building Kit Outdoor: Ultimate Fun & Adventure Guide"
-description: "Are you looking for a fun and exciting way to keep your kids active outdoors? The Kids Nerf Fort Building Kit Outdoor is exactly what you need. Imagine your chi"
+title: 'Kids Nerf Fort Building Kit Outdoor: Ultimate Fun & Adventure Guide'
+description: Are you looking for a fun and exciting way to keep your kids active outdoors?
+  The Kids Nerf Fort Building Kit Outdoor is exactly what you need. Imagine your chi
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-nerf-fort-building-kit-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=kids-nerf-fort-building-kit-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active outdoors? The Kids Nerf Fort Building Kit Outdoor is exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for 5-6 Players to Enjoy Family Game Night"
-description: "Finding the best board games for 5-6 players can be fun but tricky. These games keep everyone involved and excited. Playing board games with a group of 5 or 6 p"
+title: Best Board Games for 5-6 Players to Enjoy Family Game Night
+description: Finding the best board games for 5-6 players can be fun but tricky. These
+  games keep everyone involved and excited. Playing board games with a group of 5
+  or 6 p
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-5-6-players-to-enjoy-family-game-night&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-5-6-players-to-enjoy-family-game-night&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for 5-6 players can be fun but tricky. These games keep everyone involved and excited.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Science Kits for 12 Year Olds to Spark STEM Learning Fun"
-description: "Choosing the best science kits for 12 year olds can spark curiosity and learning. These kits make science fun and easy to explore. Science kits help children un"
+title: Best Science Kits for 12 Year Olds to Spark STEM Learning Fun
+description: Choosing the best science kits for 12 year olds can spark curiosity and
+  learning. These kits make science fun and easy to explore. Science kits help children
+  un
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-science-kits-for-12-year-olds-to-spark-stem-learning-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=best-science-kits-for-12-year-olds-to-spark-stem-learning-fun&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the best science kits for 12 year olds can spark curiosity and learning. These kits make science fun and easy to explore.**

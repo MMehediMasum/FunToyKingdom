@@ -1,10 +1,14 @@
 ---
-title: "Puzzle And Board Games for Game Night: Ultimate Fun and Challenge"
-description: "Looking for the perfect way to make your game night unforgettable? Puzzle and board games are your secret weapons to bring everyone together, spark laughter, an"
+title: 'Puzzle And Board Games for Game Night: Ultimate Fun and Challenge'
+description: Looking for the perfect way to make your game night unforgettable? Puzzle
+  and board games are your secret weapons to bring everyone together, spark laughter,
+  an
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzle-and-board-games-for-game-night&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=puzzle-and-board-games-for-game-night&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect way to make your game night unforgettable? Puzzle and board games are your secret weapons to bring everyone together, spark laughter, and create lasting memories.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Doll House for 2 Year Old: Top Toddler Playhouses with Accessories"
-description: "Choosing the best doll house for a 2 year old can be tricky. It must be safe, simple, and fun to keep toddlers engaged. A doll house helps develop a child’s ima"
+title: 'Best Doll House for 2 Year Old: Top Toddler Playhouses with Accessories'
+description: Choosing the best doll house for a 2 year old can be tricky. It must
+  be safe, simple, and fun to keep toddlers engaged. A doll house helps develop a
+  child’s ima
 pubDate: 2025-11-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-doll-house-for-2-year-old-top-toddler-playhouses-with-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-doll-house-for-2-year-old-top-toddler-playhouses-with-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best doll house for a 2 year old can be tricky. It must be safe, simple, and fun to keep toddlers engaged.**

@@ -1,10 +1,14 @@
 ---
-title: "Biology Dissection Toy Kits: Ultimate Learning Fun for Kids"
-description: "Have you ever wondered what it feels like to explore the inner workings of a living creature? Biology dissection toy kits give you the chance to do just that—ri"
+title: 'Biology Dissection Toy Kits: Ultimate Learning Fun for Kids'
+description: Have you ever wondered what it feels like to explore the inner workings
+  of a living creature? Biology dissection toy kits give you the chance to do just
+  that—ri
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=biology-dissection-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=biology-dissection-toy-kits&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever wondered what it feels like to explore the inner workings of a living creature? Biology dissection toy kits give you the chance to do just that—right at home or in the classroom.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Planetarium Projector Electronic: Ultimate Stargazing Experience"
-description: "Imagine turning your room into a stunning night sky filled with stars and planets, all at the touch of a button. With a Toy Planetarium Projector Electronic, yo"
+title: 'Toy Planetarium Projector Electronic: Ultimate Stargazing Experience'
+description: Imagine turning your room into a stunning night sky filled with stars
+  and planets, all at the touch of a button. With a Toy Planetarium Projector Electronic,
+  yo
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-planetarium-projector-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toy-planetarium-projector-electronic&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine turning your room into a stunning night sky filled with stars and planets, all at the touch of a button. With a Toy Planetarium Projector Electronic, you can bring the magic of the universe right into your home.**

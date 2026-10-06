@@ -1,10 +1,13 @@
 ---
-title: "Relay Race Outdoor Toy Set: Ultimate Fun for Active Kids"
-description: "Are you looking for a fun way to get your kids moving and playing outside? The Relay Race Outdoor Toy Set could be exactly what you need. It turns any backyard "
+title: 'Relay Race Outdoor Toy Set: Ultimate Fun for Active Kids'
+description: 'Are you looking for a fun way to get your kids moving and playing outside?
+  The Relay Race Outdoor Toy Set could be exactly what you need. It turns any backyard '
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=relay-race-outdoor-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=relay-race-outdoor-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids moving and playing outside? The Relay Race Outdoor Toy Set could be exactly what you need.**

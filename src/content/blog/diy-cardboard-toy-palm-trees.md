@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Palm Trees: Creative & Easy Craft Ideas"
-description: "Imagine adding a fun, creative touch to your playroom or craft space with something you made yourself. DIY cardboard toy palm trees are a simple and exciting pr"
+title: 'Diy Cardboard Toy Palm Trees: Creative & Easy Craft Ideas'
+description: Imagine adding a fun, creative touch to your playroom or craft space
+  with something you made yourself. DIY cardboard toy palm trees are a simple and
+  exciting pr
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-palm-trees&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-palm-trees&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine adding a fun, creative touch to your playroom or craft space with something you made yourself. DIY cardboard toy palm trees are a simple and exciting project you can do right at home.**

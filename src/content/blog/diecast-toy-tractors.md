@@ -1,10 +1,13 @@
 ---
-title: "Diecast Toy Tractors: Top Collectible Models for Every Enthusiast"
-description: "Diecast toy tractors bring farming machines to life in a small, detailed form. These miniature models capture the look of real tractors with precision. Collecto"
+title: 'Diecast Toy Tractors: Top Collectible Models for Every Enthusiast'
+description: Diecast toy tractors bring farming machines to life in a small, detailed
+  form. These miniature models capture the look of real tractors with precision. Collecto
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-tractors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-tractors&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy tractors bring farming machines to life in a small, detailed form. These miniature models capture the look of real tractors with precision.**

@@ -1,10 +1,14 @@
 ---
-title: "What to Do With Puzzles With Missing Pieces: Creative Solutions"
-description: "Have you ever opened a puzzle box, excited to start, only to find pieces missing? It’s frustrating, right? But don’t toss that puzzle aside just yet. You might "
+title: 'What to Do With Puzzles With Missing Pieces: Creative Solutions'
+description: 'Have you ever opened a puzzle box, excited to start, only to find pieces
+  missing? It’s frustrating, right? But don’t toss that puzzle aside just yet. You
+  might '
 pubDate: 2025-09-07
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-with-puzzles-with-missing-pieces&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-with-puzzles-with-missing-pieces&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever opened a puzzle box, excited to start, only to find pieces missing? It’s frustrating, right?**

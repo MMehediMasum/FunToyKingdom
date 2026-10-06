@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 3 Month Old Babies: Top Sensory & Teething Picks"
-description: "Choosing the right toys for a 3-month-old baby helps support their early growth and curiosity. Toys designed for this age stimulate senses and encourage movemen"
+title: 'Infant Toys for 3 Month Old Babies: Top Sensory & Teething Picks'
+description: Choosing the right toys for a 3-month-old baby helps support their early
+  growth and curiosity. Toys designed for this age stimulate senses and encourage
+  movemen
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-3-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-3-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a 3-month-old baby helps support their early growth and curiosity. Toys designed for this age stimulate senses and encourage movement.**

@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toys Safe for Chewers: Durable, Non-Toxic, and Teeth-Cleaning"
-description: "Dog rope toys offer safe, durable fun for strong chewers. These toys help keep teeth clean and boredom away. Choosing rope toys made from natural, non-toxic cot"
+title: 'Dog Rope Toys Safe for Chewers: Durable, Non-Toxic, and Teeth-Cleaning'
+description: Dog rope toys offer safe, durable fun for strong chewers. These toys
+  help keep teeth clean and boredom away. Choosing rope toys made from natural, non-toxic
+  cot
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toys-safe-for-chewers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toys-safe-for-chewers&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toys offer safe, durable fun for strong chewers. These toys help keep teeth clean and boredom away.**

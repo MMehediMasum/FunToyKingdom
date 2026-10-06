@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for Tweens: Top Picks for Active Fun and Adventure"
-description: "Are you looking for the perfect outdoor toys to keep your tween active and entertained? Finding toys that match their energy and interests can be tricky. You wa"
+title: 'Outdoor Toys for Tweens: Top Picks for Active Fun and Adventure'
+description: Are you looking for the perfect outdoor toys to keep your tween active
+  and entertained? Finding toys that match their energy and interests can be tricky.
+  You wa
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-tweens&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect outdoor toys to keep your tween active and entertained? Finding toys that match their energy and interests can be tricky.**

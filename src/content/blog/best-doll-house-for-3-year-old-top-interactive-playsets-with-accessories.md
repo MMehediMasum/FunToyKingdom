@@ -1,10 +1,14 @@
 ---
-title: "Best Doll House for 3 Year Old: Top Interactive Playsets with Accessories"
-description: "Choosing the best doll house for a 3-year-old can spark hours of creative play. The right doll house helps develop imagination and fine motor skills. Young chil"
+title: 'Best Doll House for 3 Year Old: Top Interactive Playsets with Accessories'
+description: Choosing the best doll house for a 3-year-old can spark hours of creative
+  play. The right doll house helps develop imagination and fine motor skills. Young
+  chil
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-doll-house-for-3-year-old-top-interactive-playsets-with-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-doll-house-for-3-year-old-top-interactive-playsets-with-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best doll house for a 3-year-old can spark hours of creative play. The right doll house helps develop imagination and fine motor skills.**

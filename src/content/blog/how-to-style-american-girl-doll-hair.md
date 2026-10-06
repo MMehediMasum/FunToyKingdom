@@ -1,10 +1,14 @@
 ---
-title: "How to Style American Girl Doll Hair: Easy Tips for Stunning Looks"
-description: "If you love playing with your American Girl doll, you know that her hair is one of the most fun parts to style. But sometimes, it can be tricky to get it just r"
+title: 'How to Style American Girl Doll Hair: Easy Tips for Stunning Looks'
+description: If you love playing with your American Girl doll, you know that her hair
+  is one of the most fun parts to style. But sometimes, it can be tricky to get it
+  just r
 pubDate: 2025-09-01
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-american-girl-doll-hair&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-american-girl-doll-hair&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you love playing with your American Girl doll, you know that her hair is one of the most fun parts to style. But sometimes, it can be tricky to get it just right.**

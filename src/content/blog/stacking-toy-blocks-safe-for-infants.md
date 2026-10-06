@@ -1,10 +1,14 @@
 ---
-title: "Stacking Toy Blocks Safe for Infants: Ultimate Guide to Kid-Friendly Play"
-description: "Are you looking for the perfect toy to help your baby learn and grow? Stacking toy blocks can be a fantastic choice. But safety is your top priority, right? You"
+title: 'Stacking Toy Blocks Safe for Infants: Ultimate Guide to Kid-Friendly Play'
+description: Are you looking for the perfect toy to help your baby learn and grow?
+  Stacking toy blocks can be a fantastic choice. But safety is your top priority,
+  right? You
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-toy-blocks-safe-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Blocks
+heroImage: https://tse1.mm.bing.net/th?q=stacking-toy-blocks-safe-for-infants&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect toy to help your baby learn and grow? Stacking toy blocks can be a fantastic choice.**

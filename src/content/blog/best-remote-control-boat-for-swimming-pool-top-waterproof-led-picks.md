@@ -1,10 +1,14 @@
 ---
-title: "Best Remote Control Boat for Swimming Pool: Top Waterproof LED Picks"
-description: "Choosing the best remote control boat for your swimming pool adds fun and excitement to water play. These boats offer easy control, bright LED lights, and long-"
+title: 'Best Remote Control Boat for Swimming Pool: Top Waterproof LED Picks'
+description: Choosing the best remote control boat for your swimming pool adds fun
+  and excitement to water play. These boats offer easy control, bright LED lights,
+  and long-
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-remote-control-boat-for-swimming-pool-top-waterproof-led-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=best-remote-control-boat-for-swimming-pool-top-waterproof-led-picks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best remote control boat for your swimming pool adds fun and excitement to water play. These boats offer easy control, bright LED lights, and long-lasting batteries.**

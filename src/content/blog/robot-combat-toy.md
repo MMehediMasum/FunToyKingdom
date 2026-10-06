@@ -1,10 +1,14 @@
 ---
-title: "Robot Combat Toy: Ultimate Remote Control Battle Robots for Kids Fun"
-description: "Robot combat toys bring thrilling battles right into your home. These remote-controlled fighters entertain kids and families with exciting action and lights. Ro"
+title: 'Robot Combat Toy: Ultimate Remote Control Battle Robots for Kids Fun'
+description: Robot combat toys bring thrilling battles right into your home. These
+  remote-controlled fighters entertain kids and families with exciting action and
+  lights. Ro
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-combat-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=robot-combat-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot combat toys bring thrilling battles right into your home. These remote-controlled fighters entertain kids and families with exciting action and lights.**

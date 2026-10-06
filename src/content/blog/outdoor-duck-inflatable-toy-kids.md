@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Duck Inflatable Toy Kids: Ultimate Fun for Summer Playtime"
-description: "Looking for a fun and exciting way to keep your kids entertained outdoors? An outdoor duck inflatable toy might be just what you need. Imagine your child’s face"
+title: 'Outdoor Duck Inflatable Toy Kids: Ultimate Fun for Summer Playtime'
+description: Looking for a fun and exciting way to keep your kids entertained outdoors?
+  An outdoor duck inflatable toy might be just what you need. Imagine your child’s
+  face
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-duck-inflatable-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-duck-inflatable-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids entertained outdoors? An outdoor duck inflatable toy might be just what you need.**

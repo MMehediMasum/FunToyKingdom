@@ -1,10 +1,14 @@
 ---
-title: "Christmas Themed Board Games: Ultimate Festive Fun for Everyone"
-description: "Looking for a fun way to bring your family and friends closer this holiday season? Christmas themed board games are the perfect answer. They add a festive twist"
+title: 'Christmas Themed Board Games: Ultimate Festive Fun for Everyone'
+description: Looking for a fun way to bring your family and friends closer this holiday
+  season? Christmas themed board games are the perfect answer. They add a festive
+  twist
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-themed-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=christmas-themed-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your family and friends closer this holiday season? Christmas themed board games are the perfect answer.**

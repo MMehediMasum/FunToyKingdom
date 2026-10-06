@@ -1,10 +1,14 @@
 ---
-title: "Lego Star Wars Action Figure Minifigures: Ultimate Collector’s Guide"
-description: "If you’re a fan of both Lego and Star Wars, you already know how exciting it is to collect Lego Star Wars action figure minifigures. These tiny heroes bring you"
+title: 'Lego Star Wars Action Figure Minifigures: Ultimate Collector’s Guide'
+description: If you’re a fan of both Lego and Star Wars, you already know how exciting
+  it is to collect Lego Star Wars action figure minifigures. These tiny heroes bring
+  you
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-star-wars-action-figure-minifigures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-star-wars-action-figure-minifigures&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **If you’re a fan of both Lego and Star Wars, you already know how exciting it is to collect Lego Star Wars action figure minifigures. These tiny heroes bring your favorite characters to life in a fun, hands-on way.**

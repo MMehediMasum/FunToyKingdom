@@ -1,10 +1,14 @@
 ---
-title: "Resident Evil Action Figure Collectibles: Ultimate Must-Have Guide"
-description: "Are you a fan of Resident Evil and love collecting unique items? Resident Evil action figure collectibles offer more than just toys—they bring your favorite cha"
+title: 'Resident Evil Action Figure Collectibles: Ultimate Must-Have Guide'
+description: Are you a fan of Resident Evil and love collecting unique items? Resident
+  Evil action figure collectibles offer more than just toys—they bring your favorite
+  cha
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=resident-evil-action-figure-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=resident-evil-action-figure-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Resident Evil and love collecting unique items? Resident Evil action figure collectibles offer more than just toys—they bring your favorite characters to life right on your shelf.**

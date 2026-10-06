@@ -1,10 +1,14 @@
 ---
-title: "Sensory Biting Toys for Autism and ADHD: Top Silicone Chew Solutions"
-description: "Sensory biting toys help children with autism, ADHD, and SPD manage anxiety and improve focus. These chewable tools provide safe oral stimulation and reduce str"
+title: 'Sensory Biting Toys for Autism and ADHD: Top Silicone Chew Solutions'
+description: Sensory biting toys help children with autism, ADHD, and SPD manage anxiety
+  and improve focus. These chewable tools provide safe oral stimulation and reduce
+  str
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-biting-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toy Types
+heroImage: https://tse1.mm.bing.net/th?q=sensory-biting-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory biting toys help children with autism, ADHD, and SPD manage anxiety and improve focus. These chewable tools provide safe oral stimulation and reduce stress.**

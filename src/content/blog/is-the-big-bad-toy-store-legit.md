@@ -1,10 +1,14 @@
 ---
-title: "Is the Big Bad Toy Store Legit? Unveiling the Truth Today"
-description: "Are you thinking about buying from the Big Bad Toy Store but feeling unsure if it’s legit? You’re not alone. When it comes to online shopping, especially for co"
+title: Is the Big Bad Toy Store Legit? Unveiling the Truth Today
+description: Are you thinking about buying from the Big Bad Toy Store but feeling
+  unsure if it’s legit? You’re not alone. When it comes to online shopping, especially
+  for co
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-big-bad-toy-store-legit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Toy Development
+heroImage: https://tse1.mm.bing.net/th?q=is-the-big-bad-toy-store-legit&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you thinking about buying from the Big Bad Toy Store but feeling unsure if it’s legit? You’re not alone.**

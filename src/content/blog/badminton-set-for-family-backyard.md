@@ -1,10 +1,13 @@
 ---
-title: "Badminton Set for Family Backyard: Ultimate Fun & Fitness Gear"
-description: "Looking for a fun way to bring your family together right in your backyard? A badminton set might be just what you need. It’s easy to set up, fun for all ages, "
+title: 'Badminton Set for Family Backyard: Ultimate Fun & Fitness Gear'
+description: 'Looking for a fun way to bring your family together right in your backyard?
+  A badminton set might be just what you need. It’s easy to set up, fun for all ages, '
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=badminton-set-for-family-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=badminton-set-for-family-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your family together right in your backyard? A badminton set might be just what you need.**

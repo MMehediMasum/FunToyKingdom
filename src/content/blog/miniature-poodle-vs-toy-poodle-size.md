@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Poodle Vs Toy Poodle Size: Key Differences You Must Know"
 description: "Miniature Poodles and Toy Poodles differ mainly in size. Understanding these differences is crucial for potential pet owners. Choosing between a Miniature Poodl"
 pubDate: 2026-02-17

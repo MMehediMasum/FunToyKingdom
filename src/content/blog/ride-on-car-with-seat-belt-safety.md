@@ -1,10 +1,14 @@
 ---
-title: "Ride on Car With Seat Belt Safety: Ultimate Guide to Protect Kids"
-description: "When your child hops into a ride-on car, their fun and safety should go hand in hand. You want them to enjoy every moment, but you also want peace of mind knowi"
+title: 'Ride on Car With Seat Belt Safety: Ultimate Guide to Protect Kids'
+description: When your child hops into a ride-on car, their fun and safety should
+  go hand in hand. You want them to enjoy every moment, but you also want peace of
+  mind knowi
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-car-with-seat-belt-safety&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-car-with-seat-belt-safety&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **When your child hops into a ride-on car, their fun and safety should go hand in hand. You want them to enjoy every moment, but you also want peace of mind knowing they are protected.**

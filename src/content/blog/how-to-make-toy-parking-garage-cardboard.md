@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Parking Garage Cardboard: Easy DIY Guide"
-description: "Looking for a fun and creative project that turns ordinary cardboard into an exciting toy parking garage? You’re in the right place. Imagine building a cool, mu"
+title: 'How to Make Toy Parking Garage Cardboard: Easy DIY Guide'
+description: Looking for a fun and creative project that turns ordinary cardboard
+  into an exciting toy parking garage? You’re in the right place. Imagine building
+  a cool, mu
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-parking-garage-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-parking-garage-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative project that turns ordinary cardboard into an exciting toy parking garage? You’re in the right place.**

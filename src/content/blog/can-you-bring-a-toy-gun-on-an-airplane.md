@@ -1,10 +1,14 @@
 ---
-title: "Can You Bring a Toy Gun on an Airplane: Essential Travel Rules Explained"
-description: "Are you planning to bring a toy gun with you on your next flight? Before you pack it in your bag, it’s important to know the rules and risks. Toy guns might loo"
+title: 'Can You Bring a Toy Gun on an Airplane: Essential Travel Rules Explained'
+description: Are you planning to bring a toy gun with you on your next flight? Before
+  you pack it in your bag, it’s important to know the rules and risks. Toy guns might
+  loo
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-bring-a-toy-gun-on-an-airplane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=can-you-bring-a-toy-gun-on-an-airplane&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you planning to bring a toy gun with you on your next flight? Before you pack it in your bag, it’s important to know the rules and risks.**

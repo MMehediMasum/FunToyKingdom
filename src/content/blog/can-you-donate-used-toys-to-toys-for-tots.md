@@ -1,10 +1,14 @@
 ---
-title: "Can You Donate Used Toys to Toys for Tots: What You Need to Know"
-description: "Do you have toys your kids no longer play with? You might wonder if you can donate those used toys to Toys for Tots. Giving your gently used toys can bring joy "
+title: 'Can You Donate Used Toys to Toys for Tots: What You Need to Know'
+description: 'Do you have toys your kids no longer play with? You might wonder if
+  you can donate those used toys to Toys for Tots. Giving your gently used toys can
+  bring joy '
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-donate-used-toys-to-toys-for-tots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=can-you-donate-used-toys-to-toys-for-tots&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have toys your kids no longer play with? You might wonder if you can donate those used toys to Toys for Tots.**

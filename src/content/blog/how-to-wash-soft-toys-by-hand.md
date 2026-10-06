@@ -1,10 +1,14 @@
 ---
-title: "How to Wash Soft Toys by Hand: Easy Steps for Deep Clean"
-description: "Your soft toys are more than just playthings—they’re comfort companions, keeping you company through thick and thin. But over time, they gather dust, dirt, and "
+title: 'How to Wash Soft Toys by Hand: Easy Steps for Deep Clean'
+description: 'Your soft toys are more than just playthings—they’re comfort companions,
+  keeping you company through thick and thin. But over time, they gather dust, dirt,
+  and '
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-soft-toys-by-hand&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-soft-toys-by-hand&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Your soft toys are more than just playthings—they’re comfort companions, keeping you company through thick and thin. But over time, they gather dust, dirt, and germs that you don’t want near you or your little ones.**

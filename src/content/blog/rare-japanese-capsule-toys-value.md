@@ -1,10 +1,14 @@
 ---
-title: "Rare Japanese Capsule Toys Value: Unlock Hidden Collectible Treasures"
-description: "Have you ever wondered why some Japanese capsule toys are worth so much more than others? These tiny collectibles might look simple, but their value can surpris"
+title: 'Rare Japanese Capsule Toys Value: Unlock Hidden Collectible Treasures'
+description: Have you ever wondered why some Japanese capsule toys are worth so much
+  more than others? These tiny collectibles might look simple, but their value can
+  surpris
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-japanese-capsule-toys-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Capsule Toy Vending
+heroImage: https://tse1.mm.bing.net/th?q=rare-japanese-capsule-toys-value&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered why some Japanese capsule toys are worth so much more than others? These tiny collectibles might look simple, but their value can surprise you.**

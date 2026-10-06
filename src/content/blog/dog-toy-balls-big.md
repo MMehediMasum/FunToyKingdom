@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Balls Big: Durable, Squeaky, and Perfect for Large Dogs"
-description: "Dog toy balls offer endless entertainment and exercise for dogs of all sizes. They're essential for active playtime. Dog toy balls come in various sizes and mat"
+title: 'Dog Toy Balls Big: Durable, Squeaky, and Perfect for Large Dogs'
+description: Dog toy balls offer endless entertainment and exercise for dogs of all
+  sizes. They're essential for active playtime. Dog toy balls come in various sizes
+  and mat
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-balls-big&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-balls-big&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy balls offer endless entertainment and exercise for dogs of all sizes. They're essential for active playtime.**

@@ -1,10 +1,14 @@
 ---
-title: "History of Word Search Puzzles: Fascinating Origins Revealed"
-description: "Have you ever found yourself lost in a word search puzzle, eagerly hunting for hidden words among a jumble of letters? You might think of it as just a fun pasti"
+title: 'History of Word Search Puzzles: Fascinating Origins Revealed'
+description: Have you ever found yourself lost in a word search puzzle, eagerly hunting
+  for hidden words among a jumble of letters? You might think of it as just a fun
+  pasti
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-word-search-puzzles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=history-of-word-search-puzzles&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever found yourself lost in a word search puzzle, eagerly hunting for hidden words among a jumble of letters? You might think of it as just a fun pastime, but there’s more to these puzzles than meets the eye.**

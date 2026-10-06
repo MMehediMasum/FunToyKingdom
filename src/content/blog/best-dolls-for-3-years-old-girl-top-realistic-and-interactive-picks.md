@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 3 Years Old Girl: Top Realistic and Interactive Picks"
-description: "Choosing the best dolls for a 3-year-old girl helps encourage imagination and gentle play. Dolls with soft bodies and realistic features feel comforting and fun"
+title: 'Best Dolls for 3 Years Old Girl: Top Realistic and Interactive Picks'
+description: Choosing the best dolls for a 3-year-old girl helps encourage imagination
+  and gentle play. Dolls with soft bodies and realistic features feel comforting and
+  fun
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-3-years-old-girl-top-realistic-and-interactive-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-3-years-old-girl-top-realistic-and-interactive-picks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for a 3-year-old girl helps encourage imagination and gentle play. Dolls with soft bodies and realistic features feel comforting and fun.**

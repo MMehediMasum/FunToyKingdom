@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate Gently Used Toys: Top Charities to Help Kids"
-description: "Do you have gently used toys sitting around, gathering dust? Instead of letting them go to waste, you can give them a second life by donating. But where can you"
+title: 'Where Can I Donate Gently Used Toys: Top Charities to Help Kids'
+description: Do you have gently used toys sitting around, gathering dust? Instead
+  of letting them go to waste, you can give them a second life by donating. But where
+  can you
 pubDate: 2025-11-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-gently-used-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-gently-used-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have gently used toys sitting around, gathering dust? Instead of letting them go to waste, you can give them a second life by donating.**

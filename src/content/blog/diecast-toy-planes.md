@@ -1,10 +1,13 @@
 ---
-title: "Diecast Toy Planes: Top Military and Airline Models for Kids and Collectors"
-description: "Diecast toy planes captivate both young and old with their detailed designs and collectible appeal. These miniature aircraft models offer endless fun and fascin"
+title: 'Diecast Toy Planes: Top Military and Airline Models for Kids and Collectors'
+description: Diecast toy planes captivate both young and old with their detailed designs
+  and collectible appeal. These miniature aircraft models offer endless fun and fascin
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-planes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-planes&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy planes captivate both young and old with their detailed designs and collectible appeal. These miniature aircraft models offer endless fun and fascination.**

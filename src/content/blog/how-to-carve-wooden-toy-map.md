@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Map: Step-by-Step Guide for Beginners"
-description: "Have you ever wanted to create something unique with your own hands? Carving a wooden toy map is a fun and rewarding project that lets you bring a playful piece"
+title: 'How to Carve Wooden Toy Map: Step-by-Step Guide for Beginners'
+description: Have you ever wanted to create something unique with your own hands?
+  Carving a wooden toy map is a fun and rewarding project that lets you bring a playful
+  piece
 pubDate: 2026-05-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-map&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Carve Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-map&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something unique with your own hands? Carving a wooden toy map is a fun and rewarding project that lets you bring a playful piece of art to life.**

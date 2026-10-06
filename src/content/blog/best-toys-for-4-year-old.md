@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 4 Year Old: Top Picks to Boost Fun & Learning"
-description: "Finding the best toys for your 4-year-old can be tricky. You want something fun, safe, and that helps your child grow. Imagine a toy that keeps your little one "
+title: 'Best Toys for 4 Year Old: Top Picks to Boost Fun & Learning'
+description: 'Finding the best toys for your 4-year-old can be tricky. You want something
+  fun, safe, and that helps your child grow. Imagine a toy that keeps your little
+  one '
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-4-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best toys for your 4-year-old can be tricky. You want something fun, safe, and that helps your child grow.**

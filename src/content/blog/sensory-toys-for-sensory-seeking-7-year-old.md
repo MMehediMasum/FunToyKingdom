@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Sensory Seeking 7 Year Olds to Calm and Focus"
-description: "Sensory toys help meet the needs of sensory seeking 7-year-olds. These toys keep children calm, focused, and entertained. Children who seek sensory input often "
+title: Sensory Toys for Sensory Seeking 7 Year Olds to Calm and Focus
+description: 'Sensory toys help meet the needs of sensory seeking 7-year-olds. These
+  toys keep children calm, focused, and entertained. Children who seek sensory input
+  often '
 pubDate: 2026-02-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-sensory-seeking-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-sensory-seeking-7-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help meet the needs of sensory seeking 7-year-olds. These toys keep children calm, focused, and entertained.**

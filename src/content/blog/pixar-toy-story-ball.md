@@ -1,10 +1,14 @@
 ---
-title: "Pixar Toy Story Ball: Top Collectibles and Fun Kids’ Toys to Buy"
-description: "The Pixar Toy Story Ball is a classic and fun symbol from the beloved movies. It brings joy to fans of all ages and adds charm to any collection. This ball, oft"
+title: 'Pixar Toy Story Ball: Top Collectibles and Fun Kids’ Toys to Buy'
+description: The Pixar Toy Story Ball is a classic and fun symbol from the beloved
+  movies. It brings joy to fans of all ages and adds charm to any collection. This
+  ball, oft
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=pixar-toy-story-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=pixar-toy-story-ball&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Pixar Toy Story Ball is a classic and fun symbol from the beloved movies. It brings joy to fans of all ages and adds charm to any collection.**

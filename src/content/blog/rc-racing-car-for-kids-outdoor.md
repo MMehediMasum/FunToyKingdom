@@ -1,10 +1,14 @@
 ---
-title: "Rc Racing Car for Kids Outdoor: Ultimate Fun and Adventure Guide"
-description: "Are you looking for a fun way to get your kids outside and active? An RC racing car for kids outdoor is the perfect choice. It’s exciting, easy to use, and spar"
+title: 'Rc Racing Car for Kids Outdoor: Ultimate Fun and Adventure Guide'
+description: Are you looking for a fun way to get your kids outside and active? An
+  RC racing car for kids outdoor is the perfect choice. It’s exciting, easy to use,
+  and spar
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-racing-car-for-kids-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-racing-car-for-kids-outdoor&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun way to get your kids outside and active? An RC racing car for kids outdoor is the perfect choice.**

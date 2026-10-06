@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Robot for Forex Trading: Automatic Real Pips Expert Advisor Review"
 description: "Choosing the best robot for Forex trading can save time and improve results. Automatic Real Pips is one popular option for traders. This robot works with MetaTr"
 pubDate: 2025-09-17

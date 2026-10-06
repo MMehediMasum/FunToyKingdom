@@ -1,10 +1,14 @@
 ---
-title: "Where is Fisher Price Toys Made: Discover Their Global Origins"
-description: "Have you ever wondered where your child’s favorite Fisher Price toys come from? Knowing where these toys are made can give you peace of mind about their quality"
+title: 'Where is Fisher Price Toys Made: Discover Their Global Origins'
+description: Have you ever wondered where your child’s favorite Fisher Price toys
+  come from? Knowing where these toys are made can give you peace of mind about their
+  quality
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-fisher-price-toys-made&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing
+heroImage: https://tse1.mm.bing.net/th?q=where-is-fisher-price-toys-made&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered where your child’s favorite Fisher Price toys come from? Knowing where these toys are made can give you peace of mind about their quality and safety.**

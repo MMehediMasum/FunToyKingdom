@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Top Miniature Dog Breeds and Essential Care Products for Small Dogs"
 description: "Miniature dog breeds charm with their compact size and vibrant personalities. Perfect for those seeking small, loving companions. In this blog post, explore the"
 pubDate: 2026-08-20

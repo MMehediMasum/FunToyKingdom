@@ -1,10 +1,14 @@
 ---
-title: "Nutcracker Toy Soldier Holiday Dolls: Timeless Festive Classics"
-description: "Are you looking to add a magical touch to your holiday decorations this year? Nutcracker Toy Soldier Holiday Dolls are more than just festive figures—they bring"
+title: 'Nutcracker Toy Soldier Holiday Dolls: Timeless Festive Classics'
+description: Are you looking to add a magical touch to your holiday decorations this
+  year? Nutcracker Toy Soldier Holiday Dolls are more than just festive figures—they
+  bring
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=nutcracker-toy-soldier-holiday-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=nutcracker-toy-soldier-holiday-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking to add a magical touch to your holiday decorations this year? Nutcracker Toy Soldier Holiday Dolls are more than just festive figures—they bring charm, tradition, and a story to your home.**

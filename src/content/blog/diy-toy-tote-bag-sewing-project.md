@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Tote Bag Sewing Project: Easy Steps for Stylish Storage"
-description: "Are you tired of stepping on scattered toys every time you walk into a room? Imagine having a simple, stylish solution that keeps your space neat and makes clea"
+title: 'Diy Toy Tote Bag Sewing Project: Easy Steps for Stylish Storage'
+description: Are you tired of stepping on scattered toys every time you walk into
+  a room? Imagine having a simple, stylish solution that keeps your space neat and
+  makes clea
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-tote-bag-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-tote-bag-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you tired of stepping on scattered toys every time you walk into a room? Imagine having a simple, stylish solution that keeps your space neat and makes cleanup quick and fun.**

@@ -1,10 +1,14 @@
 ---
-title: "Sensory Pop Toys: Top Stress Relief Fidget Sets for Kids and Adults"
-description: "Sensory pop toys have become a favorite for kids and adults alike. They offer stress relief and endless fun. These vibrant, tactile toys are perfect for allevia"
+title: 'Sensory Pop Toys: Top Stress Relief Fidget Sets for Kids and Adults'
+description: Sensory pop toys have become a favorite for kids and adults alike. They
+  offer stress relief and endless fun. These vibrant, tactile toys are perfect for
+  allevia
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-pop-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toy Types
+heroImage: https://tse1.mm.bing.net/th?q=sensory-pop-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory pop toys have become a favorite for kids and adults alike. They offer stress relief and endless fun.**

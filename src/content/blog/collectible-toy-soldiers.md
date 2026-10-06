@@ -1,10 +1,14 @@
 ---
-title: "Collectible Toy Soldiers: Ultimate Guide to Rare & Valuable Finds"
-description: "Have you ever felt the thrill of holding a tiny soldier in your hand, knowing it carries a story from the past? Collectible toy soldiers aren’t just small figur"
+title: 'Collectible Toy Soldiers: Ultimate Guide to Rare & Valuable Finds'
+description: Have you ever felt the thrill of holding a tiny soldier in your hand,
+  knowing it carries a story from the past? Collectible toy soldiers aren’t just small
+  figur
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-toy-soldiers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=collectible-toy-soldiers&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever felt the thrill of holding a tiny soldier in your hand, knowing it carries a story from the past? Collectible toy soldiers aren’t just small figurines—they are gateways to history, art, and nostalgia.**

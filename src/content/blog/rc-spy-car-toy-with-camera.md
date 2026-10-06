@@ -1,10 +1,14 @@
 ---
-title: "Rc Spy Car Toy With Camera: Ultimate Fun and Stealth Play!"
-description: "Imagine having a toy that lets you see the world from a secret spy’s point of view. The RC Spy Car Toy with Camera does exactly that. It puts you in control, le"
+title: 'Rc Spy Car Toy With Camera: Ultimate Fun and Stealth Play!'
+description: Imagine having a toy that lets you see the world from a secret spy’s
+  point of view. The RC Spy Car Toy with Camera does exactly that. It puts you in
+  control, le
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-spy-car-toy-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-spy-car-toy-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine having a toy that lets you see the world from a secret spy’s point of view. The RC Spy Car Toy with Camera does exactly that.**

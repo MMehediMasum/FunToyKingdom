@@ -1,10 +1,14 @@
 ---
-title: "Power Rangers Robot Toy: Ultimate Guide to Top Transforming Action Figures"
-description: "Power Rangers robot toys capture imaginations and fuel adventure. These action-packed figures bring iconic characters to life. For young fans and collectors ali"
+title: 'Power Rangers Robot Toy: Ultimate Guide to Top Transforming Action Figures'
+description: Power Rangers robot toys capture imaginations and fuel adventure. These
+  action-packed figures bring iconic characters to life. For young fans and collectors
+  ali
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=power-rangers-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=power-rangers-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Power Rangers robot toys capture imaginations and fuel adventure. These action-packed figures bring iconic characters to life.**

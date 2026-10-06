@@ -1,10 +1,14 @@
 ---
-title: "Stem Coding Toy With Lights: Ignite Creativity and Learning Fun"
-description: "Imagine a toy that turns learning into an exciting adventure right in your hands. A Stem coding toy with lights can do just that—it makes coding simple, fun, an"
+title: 'Stem Coding Toy With Lights: Ignite Creativity and Learning Fun'
+description: Imagine a toy that turns learning into an exciting adventure right in
+  your hands. A Stem coding toy with lights can do just that—it makes coding simple,
+  fun, an
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-coding-toy-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-coding-toy-with-lights&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine a toy that turns learning into an exciting adventure right in your hands. A Stem coding toy with lights can do just that—it makes coding simple, fun, and colorful.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Display Case for Action Figures: Easy Steps to Stunning Showcase"
-description: "Are you tired of seeing your action figures scattered or collecting dust in boxes? Imagine showcasing your favorite collectibles in a way that highlights every "
+title: 'Diy Display Case for Action Figures: Easy Steps to Stunning Showcase'
+description: 'Are you tired of seeing your action figures scattered or collecting
+  dust in boxes? Imagine showcasing your favorite collectibles in a way that highlights
+  every '
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-display-case-for-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=diy-display-case-for-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you tired of seeing your action figures scattered or collecting dust in boxes? Imagine showcasing your favorite collectibles in a way that highlights every detail and keeps them safe.**

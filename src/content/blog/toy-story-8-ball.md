@@ -1,10 +1,13 @@
 ---
-title: "Toy Story 8 Ball: Ultimate Plush Woody & Buzz Lightyear Collectibles Guide"
-description: "Toy Story toys captivate kids and adults with their charm and nostalgia. Explore a variety of Toy Story-themed products. Toy Story has been a beloved franchise "
+title: 'Toy Story 8 Ball: Ultimate Plush Woody & Buzz Lightyear Collectibles Guide'
+description: 'Toy Story toys captivate kids and adults with their charm and nostalgia.
+  Explore a variety of Toy Story-themed products. Toy Story has been a beloved franchise '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-8-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-8-ball&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story toys captivate kids and adults with their charm and nostalgia. Explore a variety of Toy Story-themed products.**

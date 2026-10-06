@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Skateboard Sprinkler Toy: Ultimate Summer Fun for Kids"
-description: "Imagine turning your backyard into the coolest skate spot and water park all at once. With an outdoor skateboard sprinkler toy, you can do just that. It’s a fun"
+title: 'Outdoor Skateboard Sprinkler Toy: Ultimate Summer Fun for Kids'
+description: Imagine turning your backyard into the coolest skate spot and water park
+  all at once. With an outdoor skateboard sprinkler toy, you can do just that. It’s
+  a fun
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-skateboard-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-skateboard-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the coolest skate spot and water park all at once. With an outdoor skateboard sprinkler toy, you can do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Train Set for Christmas: Top Picks with Lights, Smoke & Sound"
-description: "Choosing the best train set for Christmas makes holiday fun extra special for kids. Train sets with lights, sounds, and smoke bring magic under the tree. Train "
+title: 'Best Train Set for Christmas: Top Picks with Lights, Smoke & Sound'
+description: 'Choosing the best train set for Christmas makes holiday fun extra special
+  for kids. Train sets with lights, sounds, and smoke bring magic under the tree.
+  Train '
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-train-set-for-christmas-top-picks-with-lights-smoke-sound&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-train-set-for-christmas-top-picks-with-lights-smoke-sound&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best train set for Christmas makes holiday fun extra special for kids. Train sets with lights, sounds, and smoke bring magic under the tree.**

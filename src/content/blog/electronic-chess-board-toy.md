@@ -1,10 +1,14 @@
 ---
-title: "Electronic Chess Board Toy: Ultimate Fun and Learning Guide"
-description: "Are you ready to take your chess game to the next level? An electronic chess board toy is more than just a game—it’s your personal chess coach, opponent, and ch"
+title: 'Electronic Chess Board Toy: Ultimate Fun and Learning Guide'
+description: Are you ready to take your chess game to the next level? An electronic
+  chess board toy is more than just a game—it’s your personal chess coach, opponent,
+  and ch
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-chess-board-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=electronic-chess-board-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to take your chess game to the next level? An electronic chess board toy is more than just a game—it’s your personal chess coach, opponent, and challenge all in one.**

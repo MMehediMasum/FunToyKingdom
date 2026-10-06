@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Planets: Easy Steps for Stunning Creations"
-description: "Have you ever wanted to create something unique with your own hands? Carving wooden toy planets is a fun and rewarding way to bring the solar system right into "
+title: 'How to Carve Wooden Toy Planets: Easy Steps for Stunning Creations'
+description: 'Have you ever wanted to create something unique with your own hands?
+  Carving wooden toy planets is a fun and rewarding way to bring the solar system
+  right into '
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-planets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-planets&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to create something unique with your own hands? Carving wooden toy planets is a fun and rewarding way to bring the solar system right into your home.**

@@ -1,10 +1,14 @@
 ---
-title: "Lego Collectible Minifigures Toy Series: Ultimate Guide & Top Picks"
-description: "Are you ready to discover a world where imagination meets collectibility? The Lego Collectible Minifigures Toy Series offers you more than just toys – it gives "
+title: 'Lego Collectible Minifigures Toy Series: Ultimate Guide & Top Picks'
+description: 'Are you ready to discover a world where imagination meets collectibility?
+  The Lego Collectible Minifigures Toy Series offers you more than just toys – it
+  gives '
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-collectible-minifigures-toy-series&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-collectible-minifigures-toy-series&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to discover a world where imagination meets collectibility? The Lego Collectible Minifigures Toy Series offers you more than just toys – it gives you tiny characters packed with personality and surprises.**

@@ -1,10 +1,13 @@
 ---
-title: "Musical Toys for 4 Year Old: Top Picks to Boost Creativity"
-description: "Are you looking for the perfect musical toys for your 4-year-old? Choosing toys that spark joy and learning can be tricky. But imagine your child’s face lightin"
+title: 'Musical Toys for 4 Year Old: Top Picks to Boost Creativity'
+description: Are you looking for the perfect musical toys for your 4-year-old? Choosing
+  toys that spark joy and learning can be tricky. But imagine your child’s face lightin
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=musical-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Musical Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=musical-toys-for-4-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect musical toys for your 4-year-old? Choosing toys that spark joy and learning can be tricky.**

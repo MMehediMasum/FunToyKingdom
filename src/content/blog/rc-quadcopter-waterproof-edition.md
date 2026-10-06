@@ -1,10 +1,14 @@
 ---
-title: "Rc Quadcopter Waterproof Edition: Ultimate Guide for All-Weather Fun"
-description: "Are you ready to take your flying experience to the next level? The RC Quadcopter Waterproof Edition is designed just for you. Imagine flying your quadcopter ov"
+title: 'Rc Quadcopter Waterproof Edition: Ultimate Guide for All-Weather Fun'
+description: Are you ready to take your flying experience to the next level? The RC
+  Quadcopter Waterproof Edition is designed just for you. Imagine flying your quadcopter
+  ov
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-quadcopter-waterproof-edition&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-quadcopter-waterproof-edition&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your flying experience to the next level? The RC Quadcopter Waterproof Edition is designed just for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Pool Toys for Fun and Safe Water Playtime"
-description: "Choosing the best infant pool toys helps make water time fun and safe for babies. These toys support learning, play, and comfort in the water. Infant pool toys "
+title: Best Infant Pool Toys for Fun and Safe Water Playtime
+description: 'Choosing the best infant pool toys helps make water time fun and safe
+  for babies. These toys support learning, play, and comfort in the water. Infant
+  pool toys '
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-pool-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-pool-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best infant pool toys helps make water time fun and safe for babies. These toys support learning, play, and comfort in the water.**

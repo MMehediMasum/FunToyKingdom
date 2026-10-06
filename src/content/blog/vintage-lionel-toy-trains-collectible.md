@@ -1,10 +1,14 @@
 ---
-title: "Vintage Lionel Toy Trains Collectible: Ultimate Guide to Rare Finds"
-description: "If you love classic toys or have a passion for collecting, vintage Lionel toy trains might be exactly what you’re looking for. These timeless pieces hold a spec"
+title: 'Vintage Lionel Toy Trains Collectible: Ultimate Guide to Rare Finds'
+description: If you love classic toys or have a passion for collecting, vintage Lionel
+  toy trains might be exactly what you’re looking for. These timeless pieces hold
+  a spec
 pubDate: 2026-07-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-lionel-toy-trains-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=vintage-lionel-toy-trains-collectible&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **If you love classic toys or have a passion for collecting, vintage Lionel toy trains might be exactly what you’re looking for. These timeless pieces hold a special charm that can take you back to simpler times.**

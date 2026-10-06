@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Shelves: Creative, Eco-Friendly Storage Ideas"
-description: "Are you looking for a fun and creative way to organize your child’s toys? Handmade cardboard toy shelves might be exactly what you need. These shelves are not o"
+title: 'Handmade Cardboard Toy Shelves: Creative, Eco-Friendly Storage Ideas'
+description: Are you looking for a fun and creative way to organize your child’s toys?
+  Handmade cardboard toy shelves might be exactly what you need. These shelves are
+  not o
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-shelves&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-shelves&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to organize your child’s toys? Handmade cardboard toy shelves might be exactly what you need.**

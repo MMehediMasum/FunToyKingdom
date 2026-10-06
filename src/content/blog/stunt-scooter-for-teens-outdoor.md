@@ -1,10 +1,14 @@
 ---
-title: "Stunt Scooter for Teens Outdoor: Ultimate Tricks & Top Picks"
-description: "Are you looking for the perfect stunt scooter that will keep your teen active and excited outdoors? Choosing the right scooter can make all the difference betwe"
+title: 'Stunt Scooter for Teens Outdoor: Ultimate Tricks & Top Picks'
+description: Are you looking for the perfect stunt scooter that will keep your teen
+  active and excited outdoors? Choosing the right scooter can make all the difference
+  betwe
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stunt-scooter-for-teens-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=stunt-scooter-for-teens-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect stunt scooter that will keep your teen active and excited outdoors? Choosing the right scooter can make all the difference between a fun ride and a frustrating experience.**

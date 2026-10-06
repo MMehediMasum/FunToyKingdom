@@ -1,10 +1,13 @@
 ---
-title: "Limited Edition Panda Express Toy: Must-Have Collectible for Panda Lovers"
-description: "Discover a world of limited edition Panda Express toys that delight collectors and kids alike. This unique collection features a range of toys, perfect for play"
+title: 'Limited Edition Panda Express Toy: Must-Have Collectible for Panda Lovers'
+description: Discover a world of limited edition Panda Express toys that delight collectors
+  and kids alike. This unique collection features a range of toys, perfect for play
 pubDate: 2026-08-20
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=limited-edition-panda-express-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=limited-edition-panda-express-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Discover a world of limited edition Panda Express toys that delight collectors and kids alike. This unique collection features a range of toys, perfect for playtime and display.**

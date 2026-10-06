@@ -1,10 +1,14 @@
 ---
-title: "Seed Sprouting Toy Kits: Fun, Educational, and Eco-Friendly Play"
-description: "Imagine watching tiny seeds burst to life right before your eyes. With seed sprouting toy kits, you can do just that—and it’s easier and more fun than you think"
+title: 'Seed Sprouting Toy Kits: Fun, Educational, and Eco-Friendly Play'
+description: Imagine watching tiny seeds burst to life right before your eyes. With
+  seed sprouting toy kits, you can do just that—and it’s easier and more fun than
+  you think
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=seed-sprouting-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=seed-sprouting-toy-kits&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Imagine watching tiny seeds burst to life right before your eyes. With seed sprouting toy kits, you can do just that—and it’s easier and more fun than you think.**

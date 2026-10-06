@@ -1,10 +1,14 @@
 ---
-title: "Jesus Toy Figurines: Perfect Religious Gifts and Fun Poseable Figures"
-description: "Jesus toy figurines bring faith and fun together in a unique way. These small, colorful figures inspire both kids and adults. Jesus toy figurines offer a creati"
+title: 'Jesus Toy Figurines: Perfect Religious Gifts and Fun Poseable Figures'
+description: Jesus toy figurines bring faith and fun together in a unique way. These
+  small, colorful figures inspire both kids and adults. Jesus toy figurines offer
+  a creati
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=jesus-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=jesus-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Jesus toy figurines bring faith and fun together in a unique way. These small, colorful figures inspire both kids and adults.**

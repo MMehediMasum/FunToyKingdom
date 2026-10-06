@@ -1,10 +1,14 @@
 ---
-title: "Soft Toy Blocks for Babies: Safe, Fun, and Educational Playtime"
-description: "If you’re looking for a safe and fun way to help your baby explore the world, soft toy blocks are a perfect choice. These gentle, colorful blocks are designed j"
+title: 'Soft Toy Blocks for Babies: Safe, Fun, and Educational Playtime'
+description: If you’re looking for a safe and fun way to help your baby explore the
+  world, soft toy blocks are a perfect choice. These gentle, colorful blocks are designed
+  j
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-toy-blocks-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=soft-toy-blocks-for-babies&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **If you’re looking for a safe and fun way to help your baby explore the world, soft toy blocks are a perfect choice. These gentle, colorful blocks are designed just for little hands, making playtime both exciting and safe.**

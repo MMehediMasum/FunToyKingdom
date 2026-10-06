@@ -1,10 +1,14 @@
 ---
-title: "Vintage Infant Toys: Top Retro Picks for Engaging Early Childhood Play"
-description: "Vintage infant toys bring back memories while helping babies learn and play. These classic toys combine fun sounds, colors, and textures to engage little ones. "
+title: 'Vintage Infant Toys: Top Retro Picks for Engaging Early Childhood Play'
+description: 'Vintage infant toys bring back memories while helping babies learn and
+  play. These classic toys combine fun sounds, colors, and textures to engage little
+  ones. '
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Rope Toy For Teething
+heroImage: https://tse1.mm.bing.net/th?q=vintage-infant-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Vintage infant toys bring back memories while helping babies learn and play. These classic toys combine fun sounds, colors, and textures to engage little ones.**

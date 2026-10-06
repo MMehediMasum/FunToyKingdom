@@ -1,10 +1,14 @@
 ---
-title: "Dolls for 6 Year Old: Top Picks for Fun and Learning"
-description: "Are you looking for the perfect doll that will light up your 6-year-old’s face? Choosing a doll can be tricky because you want something fun, safe, and just rig"
+title: 'Dolls for 6 Year Old: Top Picks for Fun and Learning'
+description: Are you looking for the perfect doll that will light up your 6-year-old’s
+  face? Choosing a doll can be tricky because you want something fun, safe, and just
+  rig
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-6-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for the perfect doll that will light up your 6-year-old’s face? Choosing a doll can be tricky because you want something fun, safe, and just right for their age.**

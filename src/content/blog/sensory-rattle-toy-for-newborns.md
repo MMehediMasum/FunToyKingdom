@@ -1,10 +1,14 @@
 ---
-title: "Sensory Rattle Toy for Newborns: Boost Baby’s Senses Instantly"
-description: "Are you looking for the perfect toy that can keep your newborn happy and help their development at the same time? A sensory rattle toy for newborns might be jus"
+title: 'Sensory Rattle Toy for Newborns: Boost Baby’s Senses Instantly'
+description: Are you looking for the perfect toy that can keep your newborn happy
+  and help their development at the same time? A sensory rattle toy for newborns might
+  be jus
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-rattle-toy-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-rattle-toy-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect toy that can keep your newborn happy and help their development at the same time? A sensory rattle toy for newborns might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Craft Wooden Toy Robot: Easy Steps for Perfect DIY Fun"
-description: "Have you ever wanted to create something special with your own hands? Crafting a wooden toy robot is a fun and rewarding project that lets you bring your creati"
+title: 'How to Craft Wooden Toy Robot: Easy Steps for Perfect DIY Fun'
+description: Have you ever wanted to create something special with your own hands?
+  Crafting a wooden toy robot is a fun and rewarding project that lets you bring your
+  creati
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-craft-wooden-toy-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=how-to-craft-wooden-toy-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Crafting a wooden toy robot is a fun and rewarding project that lets you bring your creativity to life.**

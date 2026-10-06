@@ -1,10 +1,14 @@
 ---
-title: "Toy Broom Mop Set: Top Pretend Play Cleaning Kits for Toddlers"
-description: "Toy broom mop sets are perfect for imaginative play and learning. These sets help kids enjoy cleaning while developing skills. Children love to mimic adults, an"
+title: 'Toy Broom Mop Set: Top Pretend Play Cleaning Kits for Toddlers'
+description: Toy broom mop sets are perfect for imaginative play and learning. These
+  sets help kids enjoy cleaning while developing skills. Children love to mimic adults,
+  an
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-broom-mop-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-broom-mop-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy broom mop sets are perfect for imaginative play and learning. These sets help kids enjoy cleaning while developing skills.**

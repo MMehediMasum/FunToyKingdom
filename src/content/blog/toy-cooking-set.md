@@ -1,10 +1,14 @@
 ---
-title: "Toy Cooking Set: Top Pretend Play Kitchen Toys for Creative Kids"
-description: "Toy cooking sets offer children a fun way to explore cooking through play. These sets include pots, pans, utensils, and pretend food for hands-on learning. Play"
+title: 'Toy Cooking Set: Top Pretend Play Kitchen Toys for Creative Kids'
+description: Toy cooking sets offer children a fun way to explore cooking through
+  play. These sets include pots, pans, utensils, and pretend food for hands-on learning.
+  Play
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cooking-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-cooking-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy cooking sets offer children a fun way to explore cooking through play. These sets include pots, pans, utensils, and pretend food for hands-on learning.**

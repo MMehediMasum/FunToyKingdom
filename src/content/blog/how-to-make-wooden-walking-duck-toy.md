@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Walking Duck Toy: Easy Step-by-Step Guide"
-description: "Do you want to create a charming wooden walking duck toy that moves just like the real thing? Imagine the joy of making something with your own hands—a toy that"
+title: 'How to Make Wooden Walking Duck Toy: Easy Step-by-Step Guide'
+description: Do you want to create a charming wooden walking duck toy that moves just
+  like the real thing? Imagine the joy of making something with your own hands—a toy
+  that
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-walking-duck-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-walking-duck-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Do you want to create a charming wooden walking duck toy that moves just like the real thing? Imagine the joy of making something with your own hands—a toy that can waddle and walk, bringing smiles to kids and adults alike.**

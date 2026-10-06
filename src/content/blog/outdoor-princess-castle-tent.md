@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Princess Castle Tent: Magical Playtime Awaits Kids"
-description: "Imagine your child’s eyes lighting up as they step into their very own Outdoor Princess Castle Tent. This isn’t just any play space—it’s a magical kingdom where"
+title: 'Outdoor Princess Castle Tent: Magical Playtime Awaits Kids'
+description: Imagine your child’s eyes lighting up as they step into their very own
+  Outdoor Princess Castle Tent. This isn’t just any play space—it’s a magical kingdom
+  where
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-princess-castle-tent&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-princess-castle-tent&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they step into their very own Outdoor Princess Castle Tent. This isn’t just any play space—it’s a magical kingdom where imagination runs wild and every day feels like a royal adventure.**

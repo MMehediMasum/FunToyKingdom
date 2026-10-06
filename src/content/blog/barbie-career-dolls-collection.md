@@ -1,10 +1,14 @@
 ---
-title: "Barbie Career Dolls Collection: Inspiring Dreams with Every Doll"
-description: "Have you ever wondered how a simple toy can inspire big dreams? The Barbie Career Dolls Collection does just that. It shows you all the exciting jobs you can ex"
+title: 'Barbie Career Dolls Collection: Inspiring Dreams with Every Doll'
+description: Have you ever wondered how a simple toy can inspire big dreams? The Barbie
+  Career Dolls Collection does just that. It shows you all the exciting jobs you can
+  ex
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-career-dolls-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=barbie-career-dolls-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered how a simple toy can inspire big dreams? The Barbie Career Dolls Collection does just that.**

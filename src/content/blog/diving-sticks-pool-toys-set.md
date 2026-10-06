@@ -1,10 +1,14 @@
 ---
-title: "Diving Sticks Pool Toys Set: Ultimate Fun for All Ages"
-description: "Are you looking to add more fun and excitement to your pool time? A Diving Sticks Pool Toys Set is just what you need to turn any swim into an adventure. These "
+title: 'Diving Sticks Pool Toys Set: Ultimate Fun for All Ages'
+description: 'Are you looking to add more fun and excitement to your pool time? A
+  Diving Sticks Pool Toys Set is just what you need to turn any swim into an adventure.
+  These '
 pubDate: 2025-09-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diving-sticks-pool-toys-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=diving-sticks-pool-toys-set&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking to add more fun and excitement to your pool time? A Diving Sticks Pool Toys Set is just what you need to turn any swim into an adventure.**

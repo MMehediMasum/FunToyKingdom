@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Solar System Model: Fun, Educational & Easy Build"
-description: "Are you looking for a fun and creative way to bring the wonders of space right into your home? Building your own DIY wooden toy solar system model is the perfec"
+title: 'Diy Wooden Toy Solar System Model: Fun, Educational & Easy Build'
+description: Are you looking for a fun and creative way to bring the wonders of space
+  right into your home? Building your own DIY wooden toy solar system model is the
+  perfec
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-solar-system-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-solar-system-model&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and creative way to bring the wonders of space right into your home? Building your own DIY wooden toy solar system model is the perfect project for you.**

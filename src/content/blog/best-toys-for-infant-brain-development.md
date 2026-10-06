@@ -1,10 +1,13 @@
 ---
-title: "Best Toys for Infant Brain Development: Top Montessori & Sensory Picks"
-description: "Choosing the best toys for infant brain development helps support early learning and sensory growth. These toys encourage babies to explore and build important "
+title: 'Best Toys for Infant Brain Development: Top Montessori & Sensory Picks'
+description: 'Choosing the best toys for infant brain development helps support early
+  learning and sensory growth. These toys encourage babies to explore and build important '
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-infant-brain-development&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 4 Months
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-infant-brain-development&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for infant brain development helps support early learning and sensory growth. These toys encourage babies to explore and build important skills from birth.**

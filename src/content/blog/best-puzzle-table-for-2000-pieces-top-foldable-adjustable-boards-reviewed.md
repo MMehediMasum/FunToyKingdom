@@ -1,10 +1,14 @@
 ---
-title: "Best Puzzle Table for 2000 Pieces: Top Foldable & Adjustable Boards Reviewed"
-description: "Completing a 2000-piece puzzle needs plenty of space and organization. The right puzzle table keeps pieces safe and your work comfortable. A good puzzle table h"
+title: 'Best Puzzle Table for 2000 Pieces: Top Foldable & Adjustable Boards Reviewed'
+description: Completing a 2000-piece puzzle needs plenty of space and organization.
+  The right puzzle table keeps pieces safe and your work comfortable. A good puzzle
+  table h
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-puzzle-table-for-2000-pieces-top-foldable-adjustable-boards-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Jigsaw Puzzle
+heroImage: https://tse1.mm.bing.net/th?q=best-puzzle-table-for-2000-pieces-top-foldable-adjustable-boards-reviewed&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Completing a 2000-piece puzzle needs plenty of space and organization. The right puzzle table keeps pieces safe and your work comfortable.**

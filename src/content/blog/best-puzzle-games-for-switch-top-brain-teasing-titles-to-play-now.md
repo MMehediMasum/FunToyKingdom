@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Puzzle Games for Switch: Top Brain-Teasing Titles to Play Now"
 description: "Puzzle games challenge your mind and keep you entertained on the Nintendo Switch. These titles offer fun ways to think and solve problems. The Nintendo Switch h"
 pubDate: 2025-12-23

@@ -1,10 +1,14 @@
 ---
-title: "Best Ride on Toy for 7 Year Old: Top Picks for Ultimate Fun"
-description: "Looking for the best ride on toy for your 7-year-old? You want something that’s fun, safe, and just right for their age. Choosing the perfect ride on toy can be"
+title: 'Best Ride on Toy for 7 Year Old: Top Picks for Ultimate Fun'
+description: Looking for the best ride on toy for your 7-year-old? You want something
+  that’s fun, safe, and just right for their age. Choosing the perfect ride on toy
+  can be
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-toy-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-toy-for-7-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the best ride on toy for your 7-year-old? You want something that’s fun, safe, and just right for their age.**

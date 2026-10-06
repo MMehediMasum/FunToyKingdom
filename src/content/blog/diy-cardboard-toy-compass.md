@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Compass: Easy Steps to Create Your Own Navigator"
-description: "Have you ever wanted to create something fun and useful with just materials around your home? Imagine making your very own toy compass from simple cardboard. No"
+title: 'Diy Cardboard Toy Compass: Easy Steps to Create Your Own Navigator'
+description: Have you ever wanted to create something fun and useful with just materials
+  around your home? Imagine making your very own toy compass from simple cardboard.
+  No
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-compass&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-compass&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and useful with just materials around your home? Imagine making your very own toy compass from simple cardboard.**

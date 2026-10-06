@@ -1,10 +1,14 @@
 ---
-title: "Award Winning Infant Toys That Spark Creativity and Development"
-description: "Award-winning infant toys help babies learn and grow while having fun. These toys support key skills like grasping, hearing, and sensory development. Choosing t"
+title: Award Winning Infant Toys That Spark Creativity and Development
+description: Award-winning infant toys help babies learn and grow while having fun.
+  These toys support key skills like grasping, hearing, and sensory development. Choosing
+  t
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=award-winning-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=award-winning-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Award-winning infant toys help babies learn and grow while having fun. These toys support key skills like grasping, hearing, and sensory development.**

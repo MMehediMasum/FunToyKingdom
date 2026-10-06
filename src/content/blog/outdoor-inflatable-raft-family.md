@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Inflatable Raft Family: Ultimate Fun for All Ages!"
-description: "Looking for a fun way to bring your family closer while enjoying the great outdoors? An outdoor inflatable raft could be exactly what you need. Imagine floating"
+title: 'Outdoor Inflatable Raft Family: Ultimate Fun for All Ages!'
+description: Looking for a fun way to bring your family closer while enjoying the
+  great outdoors? An outdoor inflatable raft could be exactly what you need. Imagine
+  floating
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-inflatable-raft-family&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-inflatable-raft-family&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your family closer while enjoying the great outdoors? An outdoor inflatable raft could be exactly what you need.**

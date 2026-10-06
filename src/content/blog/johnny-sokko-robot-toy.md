@@ -1,10 +1,14 @@
 ---
-title: "Johnny Sokko Robot Toy: Ultimate Building Set for Kids and Collectors"
-description: "Johnny Sokko Robot Toy captures the excitement of classic robot heroes. It offers fun building and play for kids and collectors alike. This toy comes in differe"
+title: 'Johnny Sokko Robot Toy: Ultimate Building Set for Kids and Collectors'
+description: Johnny Sokko Robot Toy captures the excitement of classic robot heroes.
+  It offers fun building and play for kids and collectors alike. This toy comes in
+  differe
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=johnny-sokko-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=johnny-sokko-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Johnny Sokko Robot Toy captures the excitement of classic robot heroes. It offers fun building and play for kids and collectors alike.**

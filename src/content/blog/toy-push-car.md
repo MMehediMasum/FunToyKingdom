@@ -1,10 +1,14 @@
 ---
-title: "Toy Push Car: Top Durable and Fun Ride-On Toys for Toddlers"
-description: "Toy push cars offer toddlers a fun way to move and explore. These ride-on toys help develop balance and coordination early on. Designed for young children, toy "
+title: 'Toy Push Car: Top Durable and Fun Ride-On Toys for Toddlers'
+description: 'Toy push cars offer toddlers a fun way to move and explore. These ride-on
+  toys help develop balance and coordination early on. Designed for young children,
+  toy '
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-push-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-push-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toy push cars offer toddlers a fun way to move and explore. These ride-on toys help develop balance and coordination early on.**

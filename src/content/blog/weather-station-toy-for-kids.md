@@ -1,10 +1,13 @@
 ---
-title: "Weather Station Toy for Kids: Inspire Learning with Fun Science Play"
-description: "Are you looking for a fun and educational way to spark your child’s curiosity about the world around them? A weather station toy for kids might be just what you"
+title: 'Weather Station Toy for Kids: Inspire Learning with Fun Science Play'
+description: Are you looking for a fun and educational way to spark your child’s curiosity
+  about the world around them? A weather station toy for kids might be just what you
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=weather-station-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=weather-station-toy-for-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and educational way to spark your child’s curiosity about the world around them? A weather station toy for kids might be just what you need.**

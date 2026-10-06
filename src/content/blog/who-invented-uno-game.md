@@ -1,10 +1,14 @@
 ---
-title: "Who Invented Uno Game: Discover the Fascinating Origin Story"
-description: "Have you ever wondered who invented the Uno game that you love to play with family and friends? You might think it’s just a simple card game, but behind those c"
+title: 'Who Invented Uno Game: Discover the Fascinating Origin Story'
+description: Have you ever wondered who invented the Uno game that you love to play
+  with family and friends? You might think it’s just a simple card game, but behind
+  those c
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-invented-uno-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=who-invented-uno-game&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered who invented the Uno game that you love to play with family and friends? You might think it’s just a simple card game, but behind those colorful cards lies an interesting story.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Cardboard Toy Robots: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and creative project that you can do right at home? Making cardboard toy robots is an exciting way to bring your imagination to life w"
+title: 'How to Make Cardboard Toy Robots: Easy Steps for Creative Fun'
+description: Are you looking for a fun and creative project that you can do right
+  at home? Making cardboard toy robots is an exciting way to bring your imagination
+  to life w
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-cardboard-toy-robots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-cardboard-toy-robots&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and creative project that you can do right at home? Making cardboard toy robots is an exciting way to bring your imagination to life while using simple materials you probably already have.**

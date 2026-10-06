@@ -1,10 +1,14 @@
 ---
-title: "Toy Army Men Sets: Ultimate Military Playsets for Kids’ Imaginative Battles"
-description: "Toy army men sets offer endless imaginative play for kids. These classic toys inspire creativity and strategic thinking. Toy army men have been a staple in chil"
+title: 'Toy Army Men Sets: Ultimate Military Playsets for Kids’ Imaginative Battles'
+description: Toy army men sets offer endless imaginative play for kids. These classic
+  toys inspire creativity and strategic thinking. Toy army men have been a staple
+  in chil
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-army-men-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=toy-army-men-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy army men sets offer endless imaginative play for kids. These classic toys inspire creativity and strategic thinking.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Train Set: Creative Fun for Kids at Home"
-description: "Are you looking for a fun and creative project that you and your kids can enjoy together? Building a DIY cardboard toy train set is the perfect way to spark ima"
+title: 'Diy Cardboard Toy Train Set: Creative Fun for Kids at Home'
+description: Are you looking for a fun and creative project that you and your kids
+  can enjoy together? Building a DIY cardboard toy train set is the perfect way to
+  spark ima
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-train-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-train-set&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and creative project that you and your kids can enjoy together? Building a DIY cardboard toy train set is the perfect way to spark imagination and bring hours of hands-on play right into your home.**

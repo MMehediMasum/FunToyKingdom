@@ -1,10 +1,14 @@
 ---
-title: "Toy House Cleaning Set: Top Pretend Play Kits for Kids’ Fun Cleanup"
-description: "A toy house cleaning set helps children learn about cleaning while having fun. These sets include kid-sized brooms, mops, dustpans, and more. Pretend play clean"
+title: 'Toy House Cleaning Set: Top Pretend Play Kits for Kids’ Fun Cleanup'
+description: A toy house cleaning set helps children learn about cleaning while having
+  fun. These sets include kid-sized brooms, mops, dustpans, and more. Pretend play
+  clean
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-house-cleaning-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=toy-house-cleaning-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **A toy house cleaning set helps children learn about cleaning while having fun. These sets include kid-sized brooms, mops, dustpans, and more.**

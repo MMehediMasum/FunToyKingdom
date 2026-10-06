@@ -1,10 +1,14 @@
 ---
-title: "How to Make Soft Cube Toy: Easy Steps for a Cozy Craft"
-description: "Are you looking for a fun and creative project that you can make at home? Imagine holding a soft, colorful cube toy that you made yourself. It’s not only satisf"
+title: 'How to Make Soft Cube Toy: Easy Steps for a Cozy Craft'
+description: Are you looking for a fun and creative project that you can make at home?
+  Imagine holding a soft, colorful cube toy that you made yourself. It’s not only
+  satisf
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-soft-cube-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-soft-cube-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and creative project that you can make at home? Imagine holding a soft, colorful cube toy that you made yourself.**

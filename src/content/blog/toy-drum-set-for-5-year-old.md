@@ -1,10 +1,14 @@
 ---
-title: "Toy Drum Set for 5 Year Old: Perfect Musical Fun and Learning Guide"
-description: "Choosing the right toy drum set for a 5-year-old can spark creativity and fun. A good drum set helps develop rhythm and coordination in young children. At this "
+title: 'Toy Drum Set for 5 Year Old: Perfect Musical Fun and Learning Guide'
+description: 'Choosing the right toy drum set for a 5-year-old can spark creativity
+  and fun. A good drum set helps develop rhythm and coordination in young children.
+  At this '
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-drum-set-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Drum Set For Age
+heroImage: https://tse1.mm.bing.net/th?q=toy-drum-set-for-5-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toy drum set for a 5-year-old can spark creativity and fun. A good drum set helps develop rhythm and coordination in young children.**

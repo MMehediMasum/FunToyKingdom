@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make Dollhouse Furniture: Easy DIY Tips & Tricks"
-description: "Have you ever wondered how to make dollhouse furniture that looks just like the real thing? Imagine creating tiny chairs, tables, and beds with your own hands—p"
+title: 'How Do You Make Dollhouse Furniture: Easy DIY Tips & Tricks'
+description: Have you ever wondered how to make dollhouse furniture that looks just
+  like the real thing? Imagine creating tiny chairs, tables, and beds with your own
+  hands—p
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-dollhouse-furniture&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouses For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-dollhouse-furniture&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered how to make dollhouse furniture that looks just like the real thing? Imagine creating tiny chairs, tables, and beds with your own hands—pieces that fit perfectly in your dollhouse and make it truly special.**

@@ -1,10 +1,14 @@
 ---
-title: "Japanese Capsule Toy Vending Machines: Ultimate Collector’s Guide"
-description: "Have you ever stumbled upon a small, colorful machine and wondered what surprises it might hold inside? Japanese capsule toy vending machines, known as Gachapon"
+title: 'Japanese Capsule Toy Vending Machines: Ultimate Collector’s Guide'
+description: Have you ever stumbled upon a small, colorful machine and wondered what
+  surprises it might hold inside? Japanese capsule toy vending machines, known as
+  Gachapon
 pubDate: 2026-07-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=japanese-capsule-toy-vending-machines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Capsule Toy Vending
+heroImage: https://tse1.mm.bing.net/th?q=japanese-capsule-toy-vending-machines&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever stumbled upon a small, colorful machine and wondered what surprises it might hold inside? Japanese capsule toy vending machines, known as Gachapon or Gashapon, offer you just that—a chance to unlock tiny treasures with every turn.**

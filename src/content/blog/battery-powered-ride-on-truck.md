@@ -1,10 +1,14 @@
 ---
-title: "Battery Powered Ride on Truck: Ultimate Fun for Kids Outdoors"
-description: "Imagine your child’s face lighting up as they zoom around in their very own truck. A battery powered ride on truck isn’t just a toy—it’s an experience that spar"
+title: 'Battery Powered Ride on Truck: Ultimate Fun for Kids Outdoors'
+description: Imagine your child’s face lighting up as they zoom around in their very
+  own truck. A battery powered ride on truck isn’t just a toy—it’s an experience that
+  spar
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=battery-powered-ride-on-truck&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=battery-powered-ride-on-truck&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they zoom around in their very own truck. A battery powered ride on truck isn’t just a toy—it’s an experience that sparks joy, creativity, and endless fun.**

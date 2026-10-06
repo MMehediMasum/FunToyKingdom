@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Helicopter: Easy Steps for Fun Crafting"
-description: "Looking for a fun project that sparks creativity and keeps you entertained? Building your own DIY cardboard toy helicopter is a fantastic way to bring a simple "
+title: 'Diy Cardboard Toy Helicopter: Easy Steps for Fun Crafting'
+description: 'Looking for a fun project that sparks creativity and keeps you entertained?
+  Building your own DIY cardboard toy helicopter is a fantastic way to bring a simple '
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-helicopter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-helicopter&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun project that sparks creativity and keeps you entertained? Building your own DIY cardboard toy helicopter is a fantastic way to bring a simple idea to life with your own hands.**

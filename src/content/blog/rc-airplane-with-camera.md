@@ -1,10 +1,13 @@
 ---
-title: "Rc Airplane With Camera: Ultimate Guide to Aerial Adventures"
-description: "Have you ever wanted to see the world from a bird’s eye view? An RC airplane with a camera lets you do just that. Imagine flying your plane high above, capturin"
+title: 'Rc Airplane With Camera: Ultimate Guide to Aerial Adventures'
+description: Have you ever wanted to see the world from a bird’s eye view? An RC airplane
+  with a camera lets you do just that. Imagine flying your plane high above, capturin
 pubDate: 2025-09-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to see the world from a bird’s eye view? An RC airplane with a camera lets you do just that.**

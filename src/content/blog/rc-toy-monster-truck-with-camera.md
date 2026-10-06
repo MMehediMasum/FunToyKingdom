@@ -1,10 +1,14 @@
 ---
-title: "Rc Toy Monster Truck With Camera: Ultimate Fun and Adventure Guide"
-description: "Are you ready to take your RC toy experience to a whole new level? Imagine controlling a powerful monster truck that not only races over rough terrain but also "
+title: 'Rc Toy Monster Truck With Camera: Ultimate Fun and Adventure Guide'
+description: 'Are you ready to take your RC toy experience to a whole new level? Imagine
+  controlling a powerful monster truck that not only races over rough terrain but
+  also '
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-toy-monster-truck-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mini Toy Drone With Camera
+heroImage: https://tse1.mm.bing.net/th?q=rc-toy-monster-truck-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC toy experience to a whole new level? Imagine controlling a powerful monster truck that not only races over rough terrain but also lets you see the action from its own point of view.**

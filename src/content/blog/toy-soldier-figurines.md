@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Figurines: Ultimate Military Playsets for Kids and Collectors"
-description: "Toy soldier figurines captivate imaginations and inspire creative play. They serve as timeless treasures for kids and collectors alike. Toy soldiers have long f"
+title: 'Toy Soldier Figurines: Ultimate Military Playsets for Kids and Collectors'
+description: Toy soldier figurines captivate imaginations and inspire creative play.
+  They serve as timeless treasures for kids and collectors alike. Toy soldiers have
+  long f
 pubDate: 2026-08-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy soldier figurines captivate imaginations and inspire creative play. They serve as timeless treasures for kids and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Cupcake Felt Craft: Easy Steps for Adorable Handmade Fun"
-description: "Are you looking for a fun and simple craft project that brings a smile to your face? Making a DIY toy cupcake from felt is just the perfect idea for you. It’s e"
+title: 'Diy Toy Cupcake Felt Craft: Easy Steps for Adorable Handmade Fun'
+description: Are you looking for a fun and simple craft project that brings a smile
+  to your face? Making a DIY toy cupcake from felt is just the perfect idea for you.
+  It’s e
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-cupcake-felt-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Puppet Box Craft
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-cupcake-felt-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple craft project that brings a smile to your face? Making a DIY toy cupcake from felt is just the perfect idea for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Soft Blocks for Babies: Safe, Fun, and Developmental Toys"
-description: "If you’re a parent or caregiver, you want the best for your baby’s growth and happiness. Soft blocks for babies are more than just toys—they’re tools that help "
+title: 'Soft Blocks for Babies: Safe, Fun, and Developmental Toys'
+description: 'If you’re a parent or caregiver, you want the best for your baby’s growth
+  and happiness. Soft blocks for babies are more than just toys—they’re tools that
+  help '
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-blocks-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=soft-blocks-for-babies&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **If you’re a parent or caregiver, you want the best for your baby’s growth and happiness. Soft blocks for babies are more than just toys—they’re tools that help your little one explore, learn, and develop important skills safely.**

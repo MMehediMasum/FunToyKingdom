@@ -1,10 +1,14 @@
 ---
-title: "Zoomer Robot Dog Toy: Interactive, Programmable Fun for Kids and Adults"
-description: "The Zoomer Robot Dog Toy brings joy and companionship to children and adults alike. It's a perfect blend of technology and fun. These robotic pets mimic real do"
+title: 'Zoomer Robot Dog Toy: Interactive, Programmable Fun for Kids and Adults'
+description: The Zoomer Robot Dog Toy brings joy and companionship to children and
+  adults alike. It's a perfect blend of technology and fun. These robotic pets mimic
+  real do
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=zoomer-robot-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=zoomer-robot-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Zoomer Robot Dog Toy brings joy and companionship to children and adults alike. It's a perfect blend of technology and fun.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 World Grand Prix Toy Set: Ultimate Collectible Racecar Fun"
-description: "Cars 2 World Grand Prix toys bring exciting racing fun from the movie into your hands. These collectible die-cast cars feature popular characters from Disney an"
+title: 'Cars 2 World Grand Prix Toy Set: Ultimate Collectible Racecar Fun'
+description: Cars 2 World Grand Prix toys bring exciting racing fun from the movie
+  into your hands. These collectible die-cast cars feature popular characters from
+  Disney an
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-world-grand-prix-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-world-grand-prix-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 2 World Grand Prix toys bring exciting racing fun from the movie into your hands. These collectible die-cast cars feature popular characters from Disney and Pixar’s Cars 2.**

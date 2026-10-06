@@ -1,10 +1,14 @@
 ---
-title: "Science Kit Educational Toys: Ignite Curiosity and Learning Fun"
-description: "Are you looking for a fun way to spark your child’s curiosity and love for learning? Science kit educational toys are the perfect solution. These kits turn comp"
+title: 'Science Kit Educational Toys: Ignite Curiosity and Learning Fun'
+description: Are you looking for a fun way to spark your child’s curiosity and love
+  for learning? Science kit educational toys are the perfect solution. These kits
+  turn comp
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kit-educational-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kit-educational-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to spark your child’s curiosity and love for learning? Science kit educational toys are the perfect solution.**

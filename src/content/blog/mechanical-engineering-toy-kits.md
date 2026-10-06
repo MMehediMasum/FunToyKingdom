@@ -1,10 +1,14 @@
 ---
-title: "Mechanical Engineering Toy Kits: Build, Learn, and Innovate Today"
-description: "Are you looking for a fun way to spark your creativity and learn how things work? Mechanical engineering toy kits might be just what you need. These kits let yo"
+title: 'Mechanical Engineering Toy Kits: Build, Learn, and Innovate Today'
+description: Are you looking for a fun way to spark your creativity and learn how
+  things work? Mechanical engineering toy kits might be just what you need. These
+  kits let yo
 pubDate: 2026-07-05
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mechanical-engineering-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=mechanical-engineering-toy-kits&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to spark your creativity and learn how things work? Mechanical engineering toy kits might be just what you need.**

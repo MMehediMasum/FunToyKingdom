@@ -1,10 +1,14 @@
 ---
-title: "How to Make Fun Felt Toy Cube: Easy DIY Craft for Kids"
-description: "Are you looking for a creative and simple project that brings joy to both you and your little ones? Making a fun felt toy cube is the perfect way to add a splas"
+title: 'How to Make Fun Felt Toy Cube: Easy DIY Craft for Kids'
+description: Are you looking for a creative and simple project that brings joy to
+  both you and your little ones? Making a fun felt toy cube is the perfect way to
+  add a splas
 pubDate: 2026-09-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-fun-felt-toy-cube&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-fun-felt-toy-cube&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a creative and simple project that brings joy to both you and your little ones? Making a fun felt toy cube is the perfect way to add a splash of color and excitement to playtime.**

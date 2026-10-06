@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Unicorn Pool Float Kids: Ultimate Fun for Summer Splash"
-description: "Imagine your kids’ smiles lighting up the pool as they float on a magical unicorn. You want more than just a pool toy—you want an experience that sparks joy and"
+title: 'Outdoor Unicorn Pool Float Kids: Ultimate Fun for Summer Splash'
+description: Imagine your kids’ smiles lighting up the pool as they float on a magical
+  unicorn. You want more than just a pool toy—you want an experience that sparks joy
+  and
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-unicorn-pool-float-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Unicorn Pool Float
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-unicorn-pool-float-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids’ smiles lighting up the pool as they float on a magical unicorn. You want more than just a pool toy—you want an experience that sparks joy and keeps your little ones entertained for hours.**

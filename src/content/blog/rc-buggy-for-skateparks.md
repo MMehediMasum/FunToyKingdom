@@ -1,10 +1,13 @@
 ---
-title: "Rc Buggy for Skateparks: Ultimate Guide to Thrilling Rides"
-description: "Are you ready to take your skatepark experience to a whole new level? Imagine speeding through ramps, grinding rails, and flying over jumps—not on a skateboard,"
+title: 'Rc Buggy for Skateparks: Ultimate Guide to Thrilling Rides'
+description: Are you ready to take your skatepark experience to a whole new level?
+  Imagine speeding through ramps, grinding rails, and flying over jumps—not on a skateboard,
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-buggy-for-skateparks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-buggy-for-skateparks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your skatepark experience to a whole new level? Imagine speeding through ramps, grinding rails, and flying over jumps—not on a skateboard, but with a powerful RC buggy designed just for skateparks.**

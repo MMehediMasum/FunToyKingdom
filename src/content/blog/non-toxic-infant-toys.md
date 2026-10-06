@@ -1,10 +1,14 @@
 ---
-title: "Non Toxic Infant Toys: Safe, Soothing, and Sensory Baby Essentials"
-description: "Choosing non toxic infant toys ensures babies play safely without harmful chemicals. These toys support healthy growth and sensory development. Parents want sof"
+title: 'Non Toxic Infant Toys: Safe, Soothing, and Sensory Baby Essentials'
+description: Choosing non toxic infant toys ensures babies play safely without harmful
+  chemicals. These toys support healthy growth and sensory development. Parents want
+  sof
 pubDate: 2026-01-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=non-toxic-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=non-toxic-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing non toxic infant toys ensures babies play safely without harmful chemicals. These toys support healthy growth and sensory development.**

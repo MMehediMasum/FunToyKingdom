@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Volcano Science Kit: Ignite Curiosity with Explosive Fun!"
-description: "Have you ever wanted to see a volcano erupt right in your own backyard? With an Outdoor Volcano Science Kit, you can do just that—and learn amazing science alon"
+title: 'Outdoor Volcano Science Kit: Ignite Curiosity with Explosive Fun!'
+description: Have you ever wanted to see a volcano erupt right in your own backyard?
+  With an Outdoor Volcano Science Kit, you can do just that—and learn amazing science
+  alon
 pubDate: 2025-09-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-volcano-science-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-volcano-science-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to see a volcano erupt right in your own backyard? With an Outdoor Volcano Science Kit, you can do just that—and learn amazing science along the way.**

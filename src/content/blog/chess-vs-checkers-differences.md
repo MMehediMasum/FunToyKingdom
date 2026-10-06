@@ -1,10 +1,14 @@
 ---
-title: "Chess Vs Checkers Differences: Key Strategies and Winning Tips"
-description: "Are you curious about what really sets chess and checkers apart? Both games might look similar at first glance, but once you dive deeper, you’ll see they challe"
+title: 'Chess Vs Checkers Differences: Key Strategies and Winning Tips'
+description: Are you curious about what really sets chess and checkers apart? Both
+  games might look similar at first glance, but once you dive deeper, you’ll see they
+  challe
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=chess-vs-checkers-differences&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=chess-vs-checkers-differences&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you curious about what really sets chess and checkers apart? Both games might look similar at first glance, but once you dive deeper, you’ll see they challenge your mind in very different ways.**

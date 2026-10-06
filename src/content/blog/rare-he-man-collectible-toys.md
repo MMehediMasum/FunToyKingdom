@@ -1,10 +1,14 @@
 ---
-title: "Rare He-Man Collectible Toys: Ultimate Guide to Hidden Treasures"
-description: "If you’re a fan of He-Man or a serious toy collector, you know that some He-Man toys are more than just playthings—they’re valuable treasures. Rare He-Man colle"
+title: 'Rare He-Man Collectible Toys: Ultimate Guide to Hidden Treasures'
+description: If you’re a fan of He-Man or a serious toy collector, you know that some
+  He-Man toys are more than just playthings—they’re valuable treasures. Rare He-Man
+  colle
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-he-man-collectible-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=rare-he-man-collectible-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of He-Man or a serious toy collector, you know that some He-Man toys are more than just playthings—they’re valuable treasures. Rare He-Man collectible toys can unlock memories, boost your collection’s worth, and even connect you with a passionate community.**

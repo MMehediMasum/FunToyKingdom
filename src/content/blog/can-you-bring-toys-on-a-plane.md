@@ -1,10 +1,14 @@
 ---
-title: "Can You Bring Toys on a Plane: Essential Travel Tips Revealed"
-description: "Planning to fly with your little one and wondering, “Can you bring toys on a plane?” You’re not alone. Traveling can be stressful, especially when you want to k"
+title: 'Can You Bring Toys on a Plane: Essential Travel Tips Revealed'
+description: Planning to fly with your little one and wondering, “Can you bring toys
+  on a plane?” You’re not alone. Traveling can be stressful, especially when you want
+  to k
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-bring-toys-on-a-plane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-bring-toys-on-a-plane&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Planning to fly with your little one and wondering, “Can you bring toys on a plane?” You’re not alone. Traveling can be stressful, especially when you want to keep your child happy and entertained.**

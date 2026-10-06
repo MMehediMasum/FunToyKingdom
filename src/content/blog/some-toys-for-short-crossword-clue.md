@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Some Toys for Short Crossword Clue: Top Sensory and Fidget Toys for Kids"
 description: "Toys often appear as answers to short crossword clues. They fit well due to their short, simple names. This blog explores a range of toys that commonly solve sh"
 pubDate: 2026-08-07

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Plush Toy Funshine Crossword Clue: Discover Funshine Bear Plush Must-Haves"
 description: "Searching for the perfect plush toy Funshine Bear? You’re in the right place. Plush toys bring joy and comfort to children and collectors alike. Funshine Bear, "
 pubDate: 2026-08-01

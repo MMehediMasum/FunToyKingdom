@@ -1,10 +1,14 @@
 ---
-title: "Handmade Felt Puppet Toy Set: Creative Fun for Kids & Adults"
-description: "Are you looking for a toy that sparks your child’s imagination and brings hours of joy? A Handmade Felt Puppet Toy Set might be exactly what you need. These col"
+title: 'Handmade Felt Puppet Toy Set: Creative Fun for Kids & Adults'
+description: Are you looking for a toy that sparks your child’s imagination and brings
+  hours of joy? A Handmade Felt Puppet Toy Set might be exactly what you need. These
+  col
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-felt-puppet-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=handmade-felt-puppet-toy-set&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a toy that sparks your child’s imagination and brings hours of joy? A Handmade Felt Puppet Toy Set might be exactly what you need.**

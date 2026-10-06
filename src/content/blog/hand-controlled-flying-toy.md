@@ -1,10 +1,14 @@
 ---
-title: "Hand Controlled Flying Toy: Ultimate Fun and Smart Play Innovation"
-description: "Imagine holding the power to fly a toy using just your hand. No remote controls, no complicated buttons—just your simple hand movements. Sounds fun and exciting"
+title: 'Hand Controlled Flying Toy: Ultimate Fun and Smart Play Innovation'
+description: Imagine holding the power to fly a toy using just your hand. No remote
+  controls, no complicated buttons—just your simple hand movements. Sounds fun and
+  exciting
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hand-controlled-flying-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=hand-controlled-flying-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Imagine holding the power to fly a toy using just your hand. No remote controls, no complicated buttons—just your simple hand movements.**

@@ -1,10 +1,14 @@
 ---
-title: "Mini Foosball Electronic Toy: Ultimate Fun for All Ages"
-description: "Are you looking for a fun, exciting way to bring the thrill of foosball right to your fingertips? The Mini Foosball Electronic Toy is designed just for you. It’"
+title: 'Mini Foosball Electronic Toy: Ultimate Fun for All Ages'
+description: Are you looking for a fun, exciting way to bring the thrill of foosball
+  right to your fingertips? The Mini Foosball Electronic Toy is designed just for
+  you. It’
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-foosball-electronic-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=mini-foosball-electronic-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun, exciting way to bring the thrill of foosball right to your fingertips? The Mini Foosball Electronic Toy is designed just for you.**

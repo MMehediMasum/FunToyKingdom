@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Lizard Inflatable Kids Toy: Ultimate Fun for Backyard Play"
-description: "Are you looking for a fun and exciting way to keep your kids entertained outdoors? The Outdoor Lizard Inflatable Kids Toy might be just what you need. Imagine y"
+title: 'Outdoor Lizard Inflatable Kids Toy: Ultimate Fun for Backyard Play'
+description: Are you looking for a fun and exciting way to keep your kids entertained
+  outdoors? The Outdoor Lizard Inflatable Kids Toy might be just what you need. Imagine
+  y
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-lizard-inflatable-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-lizard-inflatable-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids entertained outdoors? The Outdoor Lizard Inflatable Kids Toy might be just what you need.**

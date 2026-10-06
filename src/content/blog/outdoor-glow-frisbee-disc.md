@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Glow Frisbee Disc: Ultimate Nighttime Fun Guide"
-description: "Imagine your next outdoor game lighting up the night, turning every catch into a moment of pure fun and excitement. The Outdoor Glow Frisbee Disc is designed ju"
+title: 'Outdoor Glow Frisbee Disc: Ultimate Nighttime Fun Guide'
+description: Imagine your next outdoor game lighting up the night, turning every catch
+  into a moment of pure fun and excitement. The Outdoor Glow Frisbee Disc is designed
+  ju
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-glow-frisbee-disc&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-glow-frisbee-disc&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your next outdoor game lighting up the night, turning every catch into a moment of pure fun and excitement. The Outdoor Glow Frisbee Disc is designed just for that—bringing vibrant colors and easy visibility to your throws, even after the sun goes down.**

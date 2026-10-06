@@ -1,10 +1,14 @@
 ---
-title: "Best Family Board Games Like Monopoly: Top Fun Picks for All Ages"
-description: "Are you looking for the perfect board game to bring your family closer together? If you love Monopoly but want to try something new, you’re in the right place. "
+title: 'Best Family Board Games Like Monopoly: Top Fun Picks for All Ages'
+description: 'Are you looking for the perfect board game to bring your family closer
+  together? If you love Monopoly but want to try something new, you’re in the right
+  place. '
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-family-board-games-like-monopoly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-family-board-games-like-monopoly&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for the perfect board game to bring your family closer together? If you love Monopoly but want to try something new, you’re in the right place.**

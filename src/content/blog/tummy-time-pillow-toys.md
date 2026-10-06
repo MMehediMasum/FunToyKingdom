@@ -1,10 +1,14 @@
 ---
-title: "Tummy Time Pillow Toys: Boost Baby’s Development & Comfort"
-description: "If you’re a parent or caregiver, you know how important tummy time is for your baby’s growth. But sometimes, getting your little one to stay on their tummy can "
+title: 'Tummy Time Pillow Toys: Boost Baby’s Development & Comfort'
+description: 'If you’re a parent or caregiver, you know how important tummy time is
+  for your baby’s growth. But sometimes, getting your little one to stay on their
+  tummy can '
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=tummy-time-pillow-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=tummy-time-pillow-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent or caregiver, you know how important tummy time is for your baby’s growth. But sometimes, getting your little one to stay on their tummy can be a challenge.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Quad Kite Kids: Ultimate Fun for Active Playtime"
-description: "Are you looking for a fun way to get your kids outside and active? Outdoor quad kites for kids might be just what you need. These colorful, easy-to-fly kites br"
+title: 'Outdoor Quad Kite Kids: Ultimate Fun for Active Playtime'
+description: Are you looking for a fun way to get your kids outside and active? Outdoor
+  quad kites for kids might be just what you need. These colorful, easy-to-fly kites
+  br
 pubDate: 2025-08-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-quad-kite-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-quad-kite-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids outside and active? Outdoor quad kites for kids might be just what you need.**

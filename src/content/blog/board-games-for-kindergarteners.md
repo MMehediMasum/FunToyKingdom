@@ -1,10 +1,14 @@
 ---
-title: "Board Games for Kindergarteners: Fun Learning Activities to Boost Skills"
-description: "Are you looking for fun ways to help your kindergartener learn and grow? Board games are a perfect choice. They turn learning into play, making it easy for your"
+title: 'Board Games for Kindergarteners: Fun Learning Activities to Boost Skills'
+description: Are you looking for fun ways to help your kindergartener learn and grow?
+  Board games are a perfect choice. They turn learning into play, making it easy for
+  your
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-kindergarteners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-kindergarteners&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for fun ways to help your kindergartener learn and grow? Board games are a perfect choice.**

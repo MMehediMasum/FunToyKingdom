@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Pillows Sewing Project: Easy DIY Steps to Create Cute Cushions"
-description: "Are you looking for a fun and creative way to add a personal touch to your home or gift something special? Handmade toy pillows are the perfect project for you."
+title: 'Handmade Toy Pillows Sewing Project: Easy DIY Steps to Create Cute Cushions'
+description: Are you looking for a fun and creative way to add a personal touch to
+  your home or gift something special? Handmade toy pillows are the perfect project
+  for you.
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-pillows-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-pillows-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to add a personal touch to your home or gift something special? Handmade toy pillows are the perfect project for you.**

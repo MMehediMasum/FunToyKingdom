@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Den Building Set: Ultimate Fun for Kids’ Imagination"
-description: "Imagine giving your kids the power to create their own secret hideout right in your backyard. With an Outdoor Den Building Set, you’re not just buying a toy—you"
+title: 'Outdoor Den Building Set: Ultimate Fun for Kids’ Imagination'
+description: Imagine giving your kids the power to create their own secret hideout
+  right in your backyard. With an Outdoor Den Building Set, you’re not just buying
+  a toy—you
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-den-building-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-den-building-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your kids the power to create their own secret hideout right in your backyard. With an Outdoor Den Building Set, you’re not just buying a toy—you’re unlocking endless hours of creativity, adventure, and fresh air.**

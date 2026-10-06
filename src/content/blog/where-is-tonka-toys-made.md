@@ -1,10 +1,14 @@
 ---
-title: "Where is Tonka Toys Made: Discover the Surprising Origins Today"
-description: "Have you ever wondered where your favorite Tonka toys are made? Knowing the origin of these classic, sturdy toys can give you a deeper connection to the fun and"
+title: 'Where is Tonka Toys Made: Discover the Surprising Origins Today'
+description: Have you ever wondered where your favorite Tonka toys are made? Knowing
+  the origin of these classic, sturdy toys can give you a deeper connection to the
+  fun and
 pubDate: 2025-09-18
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-tonka-toys-made&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing
+heroImage: https://tse1.mm.bing.net/th?q=where-is-tonka-toys-made&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered where your favorite Tonka toys are made? Knowing the origin of these classic, sturdy toys can give you a deeper connection to the fun and memories they bring.**

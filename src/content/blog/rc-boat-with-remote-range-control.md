@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat With Remote Range Control: Ultimate Guide for Maximum Fun"
-description: "Are you ready to take your RC boat experience to the next level? Imagine controlling your boat from a distance, smoothly navigating waves without ever leaving t"
+title: 'Rc Boat With Remote Range Control: Ultimate Guide for Maximum Fun'
+description: Are you ready to take your RC boat experience to the next level? Imagine
+  controlling your boat from a distance, smoothly navigating waves without ever leaving
+  t
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-with-remote-range-control&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-with-remote-range-control&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC boat experience to the next level? Imagine controlling your boat from a distance, smoothly navigating waves without ever leaving the shore.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Scarf Sewing Pattern: Easy Steps for Cozy Handmade Fun"
-description: "Are you looking for a fun and simple project that adds a cozy touch to your child’s favorite toys? This DIY toy scarf sewing pattern is just what you need. It’s"
+title: 'Diy Toy Scarf Sewing Pattern: Easy Steps for Cozy Handmade Fun'
+description: Are you looking for a fun and simple project that adds a cozy touch to
+  your child’s favorite toys? This DIY toy scarf sewing pattern is just what you need.
+  It’s
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-scarf-sewing-pattern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-scarf-sewing-pattern&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple project that adds a cozy touch to your child’s favorite toys? This DIY toy scarf sewing pattern is just what you need.**

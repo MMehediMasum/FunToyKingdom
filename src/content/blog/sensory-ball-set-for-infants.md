@@ -1,10 +1,14 @@
 ---
-title: "Sensory Ball Set for Infants: Boost Development with Fun Play"
-description: "Are you looking for a fun and effective way to help your infant explore the world around them? A sensory ball set for infants might be exactly what you need. Th"
+title: 'Sensory Ball Set for Infants: Boost Development with Fun Play'
+description: Are you looking for a fun and effective way to help your infant explore
+  the world around them? A sensory ball set for infants might be exactly what you
+  need. Th
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-ball-set-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-ball-set-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and effective way to help your infant explore the world around them? A sensory ball set for infants might be exactly what you need.**

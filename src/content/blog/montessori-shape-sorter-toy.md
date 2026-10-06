@@ -1,10 +1,14 @@
 ---
-title: "Montessori Shape Sorter Toy: Boost Kids’ Learning & Fun Fast"
-description: "Are you looking for a fun and educational toy that helps your child learn while playing? The Montessori Shape Sorter Toy could be exactly what you need. This si"
+title: 'Montessori Shape Sorter Toy: Boost Kids’ Learning & Fun Fast'
+description: Are you looking for a fun and educational toy that helps your child learn
+  while playing? The Montessori Shape Sorter Toy could be exactly what you need. This
+  si
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=montessori-shape-sorter-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Shape Sorter Toy
+heroImage: https://tse1.mm.bing.net/th?q=montessori-shape-sorter-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and educational toy that helps your child learn while playing? The Montessori Shape Sorter Toy could be exactly what you need.**

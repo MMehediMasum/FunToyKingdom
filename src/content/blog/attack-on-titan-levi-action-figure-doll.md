@@ -1,10 +1,14 @@
 ---
-title: "Attack on Titan Levi Action Figure Doll: Ultimate Collector’s Must-Have"
-description: "If you’re a fan of Attack on Titan, you know how iconic Levi Ackerman is. Now, imagine having a detailed action figure doll of Levi right on your shelf. This is"
+title: 'Attack on Titan Levi Action Figure Doll: Ultimate Collector’s Must-Have'
+description: If you’re a fan of Attack on Titan, you know how iconic Levi Ackerman
+  is. Now, imagine having a detailed action figure doll of Levi right on your shelf.
+  This is
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=attack-on-titan-levi-action-figure-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=attack-on-titan-levi-action-figure-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Attack on Titan, you know how iconic Levi Ackerman is. Now, imagine having a detailed action figure doll of Levi right on your shelf.**

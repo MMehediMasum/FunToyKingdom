@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys Lizzie: Top Die-Cast Collectibles for Kids’ Fun Play"
-description: "Lizzie from Disney's Cars captivates kids with her charming design and timeless appeal. Her die-cast models are a hit. These toys are perfect for young car enth"
+title: 'Cars Toys Lizzie: Top Die-Cast Collectibles for Kids’ Fun Play'
+description: Lizzie from Disney's Cars captivates kids with her charming design and
+  timeless appeal. Her die-cast models are a hit. These toys are perfect for young
+  car enth
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-lizzie&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-lizzie&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Lizzie from Disney's Cars captivates kids with her charming design and timeless appeal. Her die-cast models are a hit.**

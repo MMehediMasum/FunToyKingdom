@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Hamm Plush: The Ultimate Cuddly Piggy Bank for Fans"
-description: "The Toy Story Hamm Plush brings your favorite piggy bank character to life in a soft, cuddly form. Perfect for fans of all ages, this plush toy offers a delight"
+title: 'Toy Story Hamm Plush: The Ultimate Cuddly Piggy Bank for Fans'
+description: The Toy Story Hamm Plush brings your favorite piggy bank character to
+  life in a soft, cuddly form. Perfect for fans of all ages, this plush toy offers
+  a delight
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-hamm-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-hamm-plush&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Hamm Plush brings your favorite piggy bank character to life in a soft, cuddly form. Perfect for fans of all ages, this plush toy offers a delightful way to enjoy the charm of Toy Story at home.**

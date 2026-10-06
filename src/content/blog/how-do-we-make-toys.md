@@ -1,10 +1,14 @@
 ---
-title: "How Do We Make Toys: Unveiling the Magical Creation Process"
-description: "Have you ever wondered how the toys you love actually come to life? From the bright colors to the fun shapes, every toy starts as an idea and goes through an ex"
+title: 'How Do We Make Toys: Unveiling the Magical Creation Process'
+description: Have you ever wondered how the toys you love actually come to life? From
+  the bright colors to the fun shapes, every toy starts as an idea and goes through
+  an ex
 pubDate: 2025-09-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-we-make-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-do-we-make-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how the toys you love actually come to life? From the bright colors to the fun shapes, every toy starts as an idea and goes through an exciting process before it reaches your hands.**

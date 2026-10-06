@@ -1,10 +1,14 @@
 ---
-title: "Origami Toy Kits for Beginners: Easy, Fun & Creative Folding Ideas"
-description: "Have you ever wanted to create something amazing with just a few folds of paper? Origami toy kits for beginners make it easy and fun for you to start crafting b"
+title: 'Origami Toy Kits for Beginners: Easy, Fun & Creative Folding Ideas'
+description: Have you ever wanted to create something amazing with just a few folds
+  of paper? Origami toy kits for beginners make it easy and fun for you to start crafting
+  b
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=origami-toy-kits-for-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=origami-toy-kits-for-beginners&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something amazing with just a few folds of paper? Origami toy kits for beginners make it easy and fun for you to start crafting beautiful paper toys right away.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy That Connects to a Garden Hose Crossword: Ultimate Outdoor Water Fun Guide"
 description: "A fun toy that connects to a garden hose can transform outdoor play. It offers endless entertainment for kids and pets. Garden hose toys bring joy and excitemen"
 pubDate: 2026-08-02

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Action Figure Dioramas: Ultimate Step-by-Step Guide"
-description: "Have you ever wanted to bring your action figures to life in a way that tells a story? Creating action figure dioramas lets you do just that. With a few simple "
+title: 'How to Make Action Figure Dioramas: Ultimate Step-by-Step Guide'
+description: 'Have you ever wanted to bring your action figures to life in a way that
+  tells a story? Creating action figure dioramas lets you do just that. With a few
+  simple '
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-action-figure-dioramas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-action-figure-dioramas&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wanted to bring your action figures to life in a way that tells a story? Creating action figure dioramas lets you do just that.**

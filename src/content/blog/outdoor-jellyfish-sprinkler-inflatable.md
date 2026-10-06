@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Jellyfish Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Looking for a fun and refreshing way to keep your kids entertained this summer? The Outdoor Jellyfish Sprinkler Inflatable could be exactly what you need. Imagi"
+title: 'Outdoor Jellyfish Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Looking for a fun and refreshing way to keep your kids entertained this
+  summer? The Outdoor Jellyfish Sprinkler Inflatable could be exactly what you need.
+  Imagi
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-jellyfish-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-jellyfish-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and refreshing way to keep your kids entertained this summer? The Outdoor Jellyfish Sprinkler Inflatable could be exactly what you need.**

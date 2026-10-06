@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Goose Sprinkler Inflatable Toy: Fun Backyard Must-Have!"
-description: "Looking for a fun and unique way to keep your yard cool and entertaining this summer? Your search ends with the Outdoor Goose Sprinkler Inflatable Toy. This pla"
+title: 'Outdoor Goose Sprinkler Inflatable Toy: Fun Backyard Must-Have!'
+description: Looking for a fun and unique way to keep your yard cool and entertaining
+  this summer? Your search ends with the Outdoor Goose Sprinkler Inflatable Toy. This
+  pla
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-goose-sprinkler-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-goose-sprinkler-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to keep your yard cool and entertaining this summer? Your search ends with the Outdoor Goose Sprinkler Inflatable Toy.**

@@ -1,10 +1,14 @@
 ---
-title: "Ken'S Mojo Dojo Casa House Toy: Fun Gifts and Unique Home Decor Ideas"
-description: "Ken’s Mojo Dojo Casa House Toy offers a fun and unique collection of items for fans of quirky home decor. This line blends humor with style in everyday accessor"
+title: 'Ken''S Mojo Dojo Casa House Toy: Fun Gifts and Unique Home Decor Ideas'
+description: Ken’s Mojo Dojo Casa House Toy offers a fun and unique collection of
+  items for fans of quirky home decor. This line blends humor with style in everyday
+  accessor
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kens-mojo-dojo-casa-house-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=kens-mojo-dojo-casa-house-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Ken’s Mojo Dojo Casa House Toy offers a fun and unique collection of items for fans of quirky home decor. This line blends humor with style in everyday accessories and decorations.**

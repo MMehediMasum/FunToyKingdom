@@ -1,10 +1,14 @@
 ---
-title: "Best Dollhouses for 4 Year Olds: Top Picks with Furniture and Accessories"
-description: "Choosing the best dollhouse for a 4-year-old can spark hours of creative play. Dollhouses help kids develop imagination, motor skills, and social interaction. A"
+title: 'Best Dollhouses for 4 Year Olds: Top Picks with Furniture and Accessories'
+description: Choosing the best dollhouse for a 4-year-old can spark hours of creative
+  play. Dollhouses help kids develop imagination, motor skills, and social interaction.
+  A
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouses-for-4-year-olds-top-picks-with-furniture-and-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouses For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouses-for-4-year-olds-top-picks-with-furniture-and-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dollhouse for a 4-year-old can spark hours of creative play. Dollhouses help kids develop imagination, motor skills, and social interaction.**

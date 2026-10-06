@@ -1,10 +1,13 @@
 ---
-title: "Diy Wooden Toy Catapult Safe: Easy Steps for Fun & Secure Play"
-description: "Are you looking for a fun and safe project that you can build yourself? A DIY wooden toy catapult is the perfect choice. It’s simple to make, uses easy-to-find "
+title: 'Diy Wooden Toy Catapult Safe: Easy Steps for Fun & Secure Play'
+description: 'Are you looking for a fun and safe project that you can build yourself?
+  A DIY wooden toy catapult is the perfect choice. It’s simple to make, uses easy-to-find '
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-catapult-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-catapult-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and safe project that you can build yourself? A DIY wooden toy catapult is the perfect choice.**

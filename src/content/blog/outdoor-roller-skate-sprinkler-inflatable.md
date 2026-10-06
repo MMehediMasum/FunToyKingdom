@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Roller Skate Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into an instant fun zone where laughter and excitement never stop. With an Outdoor Roller Skate Sprinkler Inflatable, you can do j"
+title: 'Outdoor Roller Skate Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into an instant fun zone where laughter
+  and excitement never stop. With an Outdoor Roller Skate Sprinkler Inflatable, you
+  can do j
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-roller-skate-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-roller-skate-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into an instant fun zone where laughter and excitement never stop. With an Outdoor Roller Skate Sprinkler Inflatable, you can do just that.**

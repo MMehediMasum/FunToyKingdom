@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best E Scooter for Commuting: Top Portable and Powerful Models Reviewed"
 description: "Finding the best e scooter for commuting can save time and money. A reliable scooter offers speed, range, and safety for daily travel. Choosing the right electr"
 pubDate: 2025-10-24

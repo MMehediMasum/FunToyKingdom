@@ -1,10 +1,14 @@
 ---
-title: "Transforming Robot Toy: Ultimate Guide to Top Magnetic & STEM Action Figures"
-description: "Transforming robot toys captivate children's imaginations with their ability to shift from one form to another. These toys offer fun and educational benefits fo"
+title: 'Transforming Robot Toy: Ultimate Guide to Top Magnetic & STEM Action Figures'
+description: Transforming robot toys captivate children's imaginations with their
+  ability to shift from one form to another. These toys offer fun and educational
+  benefits fo
 pubDate: 2026-03-02
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=transforming-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=transforming-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Transforming robot toys captivate children's imaginations with their ability to shift from one form to another. These toys offer fun and educational benefits for kids.**

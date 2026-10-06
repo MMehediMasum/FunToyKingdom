@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Crossbow Toy for Kids: Safe Fun and Active Play Ideas"
-description: "Looking for a fun and safe way to get your kids playing outside? An outdoor crossbow toy for kids could be just what you need. It’s exciting, keeps them active,"
+title: 'Outdoor Crossbow Toy for Kids: Safe Fun and Active Play Ideas'
+description: Looking for a fun and safe way to get your kids playing outside? An outdoor
+  crossbow toy for kids could be just what you need. It’s exciting, keeps them active,
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crossbow-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crossbow-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to get your kids playing outside? An outdoor crossbow toy for kids could be just what you need.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best E Bikes for Kids: Top Lightweight Electric Dirt Bikes Reviewed"
 description: "Choosing the best e-bikes for kids helps ensure safe and fun rides. These bikes suit various ages, speeds, and skill levels. E-bikes offer kids a fun way to exp"
 pubDate: 2025-10-30

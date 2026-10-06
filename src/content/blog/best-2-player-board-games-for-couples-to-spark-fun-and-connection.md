@@ -1,10 +1,14 @@
 ---
-title: "Best 2 Player Board Games for Couples to Spark Fun and Connection"
-description: "Finding the best 2 player board games for couples can make date nights more fun and meaningful. These games help partners connect, laugh, and enjoy quality time"
+title: Best 2 Player Board Games for Couples to Spark Fun and Connection
+description: Finding the best 2 player board games for couples can make date nights
+  more fun and meaningful. These games help partners connect, laugh, and enjoy quality
+  time
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-2-player-board-games-for-couples-to-spark-fun-and-connection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-2-player-board-games-for-couples-to-spark-fun-and-connection&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best 2 player board games for couples can make date nights more fun and meaningful. These games help partners connect, laugh, and enjoy quality time together.**

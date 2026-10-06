@@ -1,10 +1,14 @@
 ---
-title: "Power Kite Beginner Outdoor Toy: Ultimate Guide for Fun & Safety"
-description: "Are you looking for a fun and exciting way to enjoy the outdoors? A power kite beginner outdoor toy might be just what you need. It’s easy to learn, full of thr"
+title: 'Power Kite Beginner Outdoor Toy: Ultimate Guide for Fun & Safety'
+description: Are you looking for a fun and exciting way to enjoy the outdoors? A power
+  kite beginner outdoor toy might be just what you need. It’s easy to learn, full
+  of thr
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=power-kite-beginner-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=power-kite-beginner-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to enjoy the outdoors? A power kite beginner outdoor toy might be just what you need.**

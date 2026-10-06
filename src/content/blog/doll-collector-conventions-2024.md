@@ -1,10 +1,14 @@
 ---
-title: "Doll Collector Conventions 2025: Ultimate Guide to Must-Attend Events"
-description: "Are you ready to dive into the exciting world of dolls like never before? Doll Collector Conventions 2024 are just around the corner, and they promise to be the"
+title: 'Doll Collector Conventions 2025: Ultimate Guide to Must-Attend Events'
+description: Are you ready to dive into the exciting world of dolls like never before?
+  Doll Collector Conventions 2024 are just around the corner, and they promise to
+  be the
 pubDate: 2025-09-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=doll-collector-conventions-2024&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=doll-collector-conventions-2024&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to dive into the exciting world of dolls like never before? Doll Collector Conventions 2024 are just around the corner, and they promise to be the perfect place for you to discover rare finds, meet fellow enthusiasts, and learn from the best in the hobby.**

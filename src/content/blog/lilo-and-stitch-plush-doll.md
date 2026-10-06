@@ -1,10 +1,14 @@
 ---
-title: "Lilo And Stitch Plush Doll: Ultimate Cuddle Buddy for Fans"
-description: "Are you a fan of heartwarming stories and cuddly companions? The Lilo and Stitch plush doll is more than just a toy—it’s a little piece of magic that brings joy"
+title: 'Lilo And Stitch Plush Doll: Ultimate Cuddle Buddy for Fans'
+description: Are you a fan of heartwarming stories and cuddly companions? The Lilo
+  and Stitch plush doll is more than just a toy—it’s a little piece of magic that
+  brings joy
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=lilo-and-stitch-plush-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=lilo-and-stitch-plush-doll&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you a fan of heartwarming stories and cuddly companions? The Lilo and Stitch plush doll is more than just a toy—it’s a little piece of magic that brings joy and comfort to your everyday life.**

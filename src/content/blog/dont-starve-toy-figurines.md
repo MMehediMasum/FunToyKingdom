@@ -1,10 +1,14 @@
 ---
-title: "Don’T Starve Toy Figurines: Ultimate Collectors’ Guide & Tips"
-description: "Are you a fan of Don’t Starve and looking to bring a piece of its eerie world into your home? Don’t Starve toy figurines let you hold your favorite characters i"
+title: 'Don’T Starve Toy Figurines: Ultimate Collectors’ Guide & Tips'
+description: Are you a fan of Don’t Starve and looking to bring a piece of its eerie
+  world into your home? Don’t Starve toy figurines let you hold your favorite characters
+  i
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dont-starve-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=dont-starve-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Don’t Starve and looking to bring a piece of its eerie world into your home? Don’t Starve toy figurines let you hold your favorite characters in your hands.**

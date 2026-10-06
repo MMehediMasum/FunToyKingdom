@@ -1,10 +1,13 @@
 ---
-title: "Diy Vinyl Toys: Creative Craft Kits for Kids and Unique Handmade Gifts"
-description: "Creating your own vinyl toys is a fun and creative way to express yourself. These DIY kits offer endless possibilities for personalization. From colorful Minecr"
+title: 'Diy Vinyl Toys: Creative Craft Kits for Kids and Unique Handmade Gifts'
+description: Creating your own vinyl toys is a fun and creative way to express yourself.
+  These DIY kits offer endless possibilities for personalization. From colorful Minecr
 pubDate: 2026-02-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=diy-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Creating your own vinyl toys is a fun and creative way to express yourself. These DIY kits offer endless possibilities for personalization.**

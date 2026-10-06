@@ -1,10 +1,14 @@
 ---
-title: "Nerf Super Soaker Water Blaster: Ultimate Summer Water Fight Gear"
-description: "Are you ready to take your water fights to the next level? The Nerf Super Soaker Water Blaster is designed to make every splash count. Imagine soaking your frie"
+title: 'Nerf Super Soaker Water Blaster: Ultimate Summer Water Fight Gear'
+description: Are you ready to take your water fights to the next level? The Nerf Super
+  Soaker Water Blaster is designed to make every splash count. Imagine soaking your
+  frie
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nerf-super-soaker-water-blaster&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=nerf-super-soaker-water-blaster&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you ready to take your water fights to the next level? The Nerf Super Soaker Water Blaster is designed to make every splash count.**

@@ -1,10 +1,14 @@
 ---
-title: "Miniature Dollhouse Toys: Top DIY Kits for Creative Home Decor Fun"
-description: "Miniature dollhouse toys bring tiny worlds to life with detailed rooms and furniture. These kits offer fun, creativity, and a relaxing hobby for all ages. Minia"
+title: 'Miniature Dollhouse Toys: Top DIY Kits for Creative Home Decor Fun'
+description: Miniature dollhouse toys bring tiny worlds to life with detailed rooms
+  and furniture. These kits offer fun, creativity, and a relaxing hobby for all ages.
+  Minia
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-dollhouse-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=miniature-dollhouse-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature dollhouse toys bring tiny worlds to life with detailed rooms and furniture. These kits offer fun, creativity, and a relaxing hobby for all ages.**

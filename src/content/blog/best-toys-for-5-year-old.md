@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 5 Year Old: Top Fun & Educational Picks 2025"
-description: "Choosing the best toys for your 5-year-old can be tricky. You want something that sparks their imagination, helps them learn, and keeps them happily busy. But w"
+title: 'Best Toys for 5 Year Old: Top Fun & Educational Picks 2025'
+description: Choosing the best toys for your 5-year-old can be tricky. You want something
+  that sparks their imagination, helps them learn, and keeps them happily busy. But
+  w
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-5-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best toys for your 5-year-old can be tricky. You want something that sparks their imagination, helps them learn, and keeps them happily busy.**

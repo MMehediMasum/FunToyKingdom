@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Jeep Sprinkler Inflatable Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to cool off and keep your kids entertained this summer? The Outdoor Jeep Sprinkler Inflatable Toy might be exactly what you need. Imagine "
+title: 'Outdoor Jeep Sprinkler Inflatable Toy: Ultimate Summer Fun Guide'
+description: 'Looking for a fun way to cool off and keep your kids entertained this
+  summer? The Outdoor Jeep Sprinkler Inflatable Toy might be exactly what you need.
+  Imagine '
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-jeep-sprinkler-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-jeep-sprinkler-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to cool off and keep your kids entertained this summer? The Outdoor Jeep Sprinkler Inflatable Toy might be exactly what you need.**

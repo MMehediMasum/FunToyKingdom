@@ -1,10 +1,14 @@
 ---
-title: "Kids Swing Set With Slide Combo: Ultimate Fun for Active Playtime"
-description: "Looking for a fun way to keep your kids active and entertained right in your backyard? A kids swing set with slide combo could be just what you need. Imagine yo"
+title: 'Kids Swing Set With Slide Combo: Ultimate Fun for Active Playtime'
+description: Looking for a fun way to keep your kids active and entertained right
+  in your backyard? A kids swing set with slide combo could be just what you need.
+  Imagine yo
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-swing-set-with-slide-combo&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=kids-swing-set-with-slide-combo&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids active and entertained right in your backyard? A kids swing set with slide combo could be just what you need.**

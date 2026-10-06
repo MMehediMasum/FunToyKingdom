@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Snorkeling Set Kids: Ultimate Fun and Safety Guide"
-description: "Are you looking for the perfect outdoor snorkeling set for your kids? Imagine your child’s eyes lighting up as they explore colorful fish and underwater wonders"
+title: 'Outdoor Snorkeling Set Kids: Ultimate Fun and Safety Guide'
+description: Are you looking for the perfect outdoor snorkeling set for your kids?
+  Imagine your child’s eyes lighting up as they explore colorful fish and underwater
+  wonders
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-snorkeling-set-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-snorkeling-set-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect outdoor snorkeling set for your kids? Imagine your child’s eyes lighting up as they explore colorful fish and underwater wonders safely and comfortably.**

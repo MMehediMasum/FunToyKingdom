@@ -1,10 +1,14 @@
 ---
-title: "Wiffle Ball Set for Backyard Play: Ultimate Fun for All Ages"
-description: "Looking for a fun way to bring your family and friends together right in your backyard? A Wiffle Ball Set for Backyard Play is exactly what you need. It’s simpl"
+title: 'Wiffle Ball Set for Backyard Play: Ultimate Fun for All Ages'
+description: Looking for a fun way to bring your family and friends together right
+  in your backyard? A Wiffle Ball Set for Backyard Play is exactly what you need.
+  It’s simpl
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wiffle-ball-set-for-backyard-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=wiffle-ball-set-for-backyard-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your family and friends together right in your backyard? A Wiffle Ball Set for Backyard Play is exactly what you need.**

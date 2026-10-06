@@ -1,10 +1,13 @@
 ---
-title: "Preschool Sports Toys: Top Foam Ball Sets for Active Toddler Play"
-description: "Preschool sports toys offer endless fun and active play for young children. They encourage physical activity and develop motor skills. Playing with sports toys "
+title: 'Preschool Sports Toys: Top Foam Ball Sets for Active Toddler Play'
+description: 'Preschool sports toys offer endless fun and active play for young children.
+  They encourage physical activity and develop motor skills. Playing with sports toys '
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=preschool-sports-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Preschool Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=preschool-sports-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Preschool sports toys offer endless fun and active play for young children. They encourage physical activity and develop motor skills.**

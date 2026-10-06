@@ -1,10 +1,14 @@
 ---
-title: "Avengers Miniature Toys: Ultimate Collectible Action Figures for Kids"
-description: "Avengers miniature toys bring the Marvel universe to your fingertips. Perfect for collectors and kids alike. These captivating toys capture the essence of iconi"
+title: 'Avengers Miniature Toys: Ultimate Collectible Action Figures for Kids'
+description: Avengers miniature toys bring the Marvel universe to your fingertips.
+  Perfect for collectors and kids alike. These captivating toys capture the essence
+  of iconi
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=avengers-miniature-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=avengers-miniature-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Avengers miniature toys bring the Marvel universe to your fingertips. Perfect for collectors and kids alike.**

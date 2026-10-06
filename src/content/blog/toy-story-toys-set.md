@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Toys Set: Ultimate Collection of Action Figures and Playsets"
-description: "Toy Story toys bring the magic of Disney and Pixar right into your home. These sets feature favorite characters like Woody, Buzz Lightyear, and Jessie. Toy Stor"
+title: 'Toy Story Toys Set: Ultimate Collection of Action Figures and Playsets'
+description: Toy Story toys bring the magic of Disney and Pixar right into your home.
+  These sets feature favorite characters like Woody, Buzz Lightyear, and Jessie. Toy
+  Stor
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-toys-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-toys-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story toys bring the magic of Disney and Pixar right into your home. These sets feature favorite characters like Woody, Buzz Lightyear, and Jessie.**

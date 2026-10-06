@@ -1,10 +1,14 @@
 ---
-title: "Board Games for 5 Year Old: Fun and Educational Picks for Kids"
-description: "Are you looking for fun and simple ways to keep your 5-year-old entertained while helping them learn? Board games are a perfect choice. They not only bring joy "
+title: 'Board Games for 5 Year Old: Fun and Educational Picks for Kids'
+description: 'Are you looking for fun and simple ways to keep your 5-year-old entertained
+  while helping them learn? Board games are a perfect choice. They not only bring
+  joy '
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-5-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for fun and simple ways to keep your 5-year-old entertained while helping them learn? Board games are a perfect choice.**

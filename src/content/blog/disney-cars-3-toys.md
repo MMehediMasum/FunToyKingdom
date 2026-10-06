@@ -1,10 +1,14 @@
 ---
-title: "Disney Cars 3 Toys: Ultimate Die-Cast Collectibles and Playsets Guide"
-description: "Disney Cars 3 toys bring the excitement of the movie right to your hands. These toys capture the fun and speed of Lightning McQueen and friends perfectly. Kids "
+title: 'Disney Cars 3 Toys: Ultimate Die-Cast Collectibles and Playsets Guide'
+description: 'Disney Cars 3 toys bring the excitement of the movie right to your hands.
+  These toys capture the fun and speed of Lightning McQueen and friends perfectly.
+  Kids '
 pubDate: 2026-02-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-cars-3-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-cars-3-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Cars 3 toys bring the excitement of the movie right to your hands. These toys capture the fun and speed of Lightning McQueen and friends perfectly.**

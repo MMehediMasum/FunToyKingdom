@@ -1,10 +1,14 @@
 ---
-title: "Robot Spy Dog Toy: Ultimate Fun and High-Tech Adventure"
-description: "Imagine having a playful companion that’s always ready to entertain, but with a secret twist—it can spy, explore, and surprise you in ways a regular toy never c"
+title: 'Robot Spy Dog Toy: Ultimate Fun and High-Tech Adventure'
+description: Imagine having a playful companion that’s always ready to entertain,
+  but with a secret twist—it can spy, explore, and surprise you in ways a regular
+  toy never c
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-spy-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=robot-spy-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having a playful companion that’s always ready to entertain, but with a secret twist—it can spy, explore, and surprise you in ways a regular toy never could. That’s exactly what a Robot Spy Dog Toy brings to your home.**

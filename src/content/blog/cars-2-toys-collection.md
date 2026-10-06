@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Toys Collection: Ultimate Disney Pixar Racing Fun for Kids"
-description: "Cars 2 Toys Collection brings the excitement of the movie right to your hands. These toys capture the fun and adventure of the film perfectly. The Cars 2 Toys C"
+title: 'Cars 2 Toys Collection: Ultimate Disney Pixar Racing Fun for Kids'
+description: Cars 2 Toys Collection brings the excitement of the movie right to your
+  hands. These toys capture the fun and adventure of the film perfectly. The Cars
+  2 Toys C
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-toys-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-toys-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 2 Toys Collection brings the excitement of the movie right to your hands. These toys capture the fun and adventure of the film perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Drop off Toys for Donations: Top Local Spots Revealed"
-description: "Do you have toys sitting around that could bring joy to a child in need? Finding the right place to drop off your toy donations can be confusing. You want to ma"
+title: 'Where Can I Drop off Toys for Donations: Top Local Spots Revealed'
+description: Do you have toys sitting around that could bring joy to a child in need?
+  Finding the right place to drop off your toy donations can be confusing. You want
+  to ma
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-drop-off-toys-for-donations&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-drop-off-toys-for-donations&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have toys sitting around that could bring joy to a child in need? Finding the right place to drop off your toy donations can be confusing.**

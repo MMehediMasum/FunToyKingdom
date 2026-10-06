@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Four Year Olds: Fun, Educational Picks for Kids"
-description: "Choosing the best board games for four year olds helps develop skills and creates fun family moments. Games that teach counting, matching, and strategy fit this"
+title: 'Best Board Games for Four Year Olds: Fun, Educational Picks for Kids'
+description: Choosing the best board games for four year olds helps develop skills
+  and creates fun family moments. Games that teach counting, matching, and strategy
+  fit this
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-four-year-olds-fun-educational-picks-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-four-year-olds-fun-educational-picks-for-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best board games for four year olds helps develop skills and creates fun family moments. Games that teach counting, matching, and strategy fit this age perfectly.**

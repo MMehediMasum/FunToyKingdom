@@ -1,10 +1,14 @@
 ---
-title: "Sight Word Reading Toy Games: Boost Kids' Literacy Skills Fast"
-description: "Are you looking for a fun way to help your child learn to read? Sight word reading toy games could be the answer you’ve been searching for. These games make lea"
+title: 'Sight Word Reading Toy Games: Boost Kids'' Literacy Skills Fast'
+description: Are you looking for a fun way to help your child learn to read? Sight
+  word reading toy games could be the answer you’ve been searching for. These games
+  make lea
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sight-word-reading-toy-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=sight-word-reading-toy-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a fun way to help your child learn to read? Sight word reading toy games could be the answer you’ve been searching for.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Families With Teens: Fun, Fast, and Engaging Picks"
-description: "Finding board games that engage both teens and the whole family can be a challenge. The right game brings everyone together for fun and conversation. Family gam"
+title: 'Best Board Games for Families With Teens: Fun, Fast, and Engaging Picks'
+description: Finding board games that engage both teens and the whole family can be
+  a challenge. The right game brings everyone together for fun and conversation. Family
+  gam
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-families-with-teens-fun-fast-and-engaging-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-families-with-teens-fun-fast-and-engaging-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding board games that engage both teens and the whole family can be a challenge. The right game brings everyone together for fun and conversation.**

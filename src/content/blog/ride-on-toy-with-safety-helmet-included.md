@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Safety Helmet Included: Ultimate Kid’s Safety Guide"
-description: "When your child plays with a ride-on toy, their safety should always come first. Imagine the peace of mind you’ll feel knowing your little one is protected with"
+title: 'Ride on Toy With Safety Helmet Included: Ultimate Kid’s Safety Guide'
+description: When your child plays with a ride-on toy, their safety should always
+  come first. Imagine the peace of mind you’ll feel knowing your little one is protected
+  with
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-safety-helmet-included&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-safety-helmet-included&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **When your child plays with a ride-on toy, their safety should always come first. Imagine the peace of mind you’ll feel knowing your little one is protected with a helmet designed just for them.**

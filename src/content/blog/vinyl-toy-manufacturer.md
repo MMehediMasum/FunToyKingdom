@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Toy Manufacturer Spotlight: Top Collectible Figures and Mystery Boxes"
-description: "A vinyl toy manufacturer creates collectible figures using durable vinyl material. These toys often feature popular characters from games, cartoons, and movies."
+title: 'Vinyl Toy Manufacturer Spotlight: Top Collectible Figures and Mystery Boxes'
+description: A vinyl toy manufacturer creates collectible figures using durable vinyl
+  material. These toys often feature popular characters from games, cartoons, and
+  movies.
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-toy-manufacturer&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-toy-manufacturer&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **A vinyl toy manufacturer creates collectible figures using durable vinyl material. These toys often feature popular characters from games, cartoons, and movies.**

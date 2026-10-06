@@ -1,10 +1,14 @@
 ---
-title: "Halo Master Chief Action Figure: Ultimate Collector’s Must-Have Guide"
-description: "If you’re a fan of Halo or love collecting action figures, the Halo Master Chief Action Figure is something you don’t want to miss. This figure brings the iconi"
+title: 'Halo Master Chief Action Figure: Ultimate Collector’s Must-Have Guide'
+description: If you’re a fan of Halo or love collecting action figures, the Halo Master
+  Chief Action Figure is something you don’t want to miss. This figure brings the
+  iconi
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=halo-master-chief-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=halo-master-chief-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Halo or love collecting action figures, the Halo Master Chief Action Figure is something you don’t want to miss. This figure brings the iconic hero from your favorite game right into your hands with amazing detail and quality.**

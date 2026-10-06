@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Golden Book Collection: Discover Timeless Adventures for Kids"
 description: "The Toy Story Golden Book series brings the magic of Disney and Pixar to young readers. These books tell the fun stories of Woody, Buzz, and their friends in si"
 pubDate: 2025-10-15

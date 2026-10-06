@@ -1,10 +1,14 @@
 ---
-title: "Handmade Doll Toy Quilt: Charming Comfort for Kids’ Playtime"
-description: "Are you looking for a special gift that brings warmth and charm to your child’s playtime? A handmade doll toy quilt might be exactly what you need. Imagine a so"
+title: 'Handmade Doll Toy Quilt: Charming Comfort for Kids’ Playtime'
+description: Are you looking for a special gift that brings warmth and charm to your
+  child’s playtime? A handmade doll toy quilt might be exactly what you need. Imagine
+  a so
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-doll-toy-quilt&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=handmade-doll-toy-quilt&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for a special gift that brings warmth and charm to your child’s playtime? A handmade doll toy quilt might be exactly what you need.**

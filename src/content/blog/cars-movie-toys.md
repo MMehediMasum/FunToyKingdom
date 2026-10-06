@@ -1,10 +1,14 @@
 ---
-title: "Cars Movie Toys: Top Collectible Die-Cast Vehicles and Playsets Reviewed"
-description: "Cars Movie Toys bring the excitement of Disney Pixar’s Cars movies to life. These toys include mini racers, playsets, and collectible vehicles inspired by popul"
+title: 'Cars Movie Toys: Top Collectible Die-Cast Vehicles and Playsets Reviewed'
+description: Cars Movie Toys bring the excitement of Disney Pixar’s Cars movies to
+  life. These toys include mini racers, playsets, and collectible vehicles inspired
+  by popul
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-movie-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-movie-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Cars Movie Toys bring the excitement of Disney Pixar’s Cars movies to life. These toys include mini racers, playsets, and collectible vehicles inspired by popular characters.**

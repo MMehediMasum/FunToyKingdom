@@ -1,10 +1,14 @@
 ---
-title: "Rare Coin Bank Collectible Toys: Top Treasures You Must Own"
-description: "Have you ever held a coin bank that’s more than just a place to save money? Rare coin bank collectible toys aren’t just fun—they’re treasures that can grow in v"
+title: 'Rare Coin Bank Collectible Toys: Top Treasures You Must Own'
+description: Have you ever held a coin bank that’s more than just a place to save
+  money? Rare coin bank collectible toys aren’t just fun—they’re treasures that can
+  grow in v
 pubDate: 2025-09-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-coin-bank-collectible-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=rare-coin-bank-collectible-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever held a coin bank that’s more than just a place to save money? Rare coin bank collectible toys aren’t just fun—they’re treasures that can grow in value over time.**

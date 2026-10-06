@@ -1,10 +1,14 @@
 ---
-title: "Best Interactive Toys for Small Dogs to Boost Brain and Fun"
-description: "Interactive toys can transform playtime for small dogs, keeping them engaged and mentally stimulated. Discover the best toys designed to challenge their minds a"
+title: Best Interactive Toys for Small Dogs to Boost Brain and Fun
+description: Interactive toys can transform playtime for small dogs, keeping them
+  engaged and mentally stimulated. Discover the best toys designed to challenge their
+  minds a
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-interactive-toys-for-small-dogs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Interactive Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-interactive-toys-for-small-dogs&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Interactive toys can transform playtime for small dogs, keeping them engaged and mentally stimulated. Discover the best toys designed to challenge their minds and alleviate boredom.**

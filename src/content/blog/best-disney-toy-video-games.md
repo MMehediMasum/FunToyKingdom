@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Disney Toy Video Games: Top Picks for Ultimate Fun"
 description: "Are you ready to dive into the world of Disney toys like never before? Imagine your favorite characters coming to life right on your screen, offering endless fu"
 pubDate: 2026-06-27

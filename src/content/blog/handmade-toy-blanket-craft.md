@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Blanket Craft: Ultimate Guide to Cozy Creations"
-description: "Are you looking for a special way to create something cozy and fun for your little one? A handmade toy blanket craft is the perfect project for you. It’s more t"
+title: 'Handmade Toy Blanket Craft: Ultimate Guide to Cozy Creations'
+description: Are you looking for a special way to create something cozy and fun for
+  your little one? A handmade toy blanket craft is the perfect project for you. It’s
+  more t
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-blanket-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Rocket Cardboard Craft
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-blanket-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a special way to create something cozy and fun for your little one? A handmade toy blanket craft is the perfect project for you.**

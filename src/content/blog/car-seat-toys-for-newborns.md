@@ -1,10 +1,14 @@
 ---
-title: "Car Seat Toys for Newborns: Top Sensory Spiral Toys for Babies"
-description: "Car seat toys offer entertainment and stimulation for newborns during car rides. These toys engage babies with colors and sounds. Choosing the right car seat to"
+title: 'Car Seat Toys for Newborns: Top Sensory Spiral Toys for Babies'
+description: Car seat toys offer entertainment and stimulation for newborns during
+  car rides. These toys engage babies with colors and sounds. Choosing the right car
+  seat to
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=car-seat-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Seat Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=car-seat-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Car seat toys offer entertainment and stimulation for newborns during car rides. These toys engage babies with colors and sounds.**

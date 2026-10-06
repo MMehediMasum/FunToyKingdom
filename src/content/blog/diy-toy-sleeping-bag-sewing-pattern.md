@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Sleeping Bag Sewing Pattern: Easy Steps for Cozy Creations"
-description: "Are you looking for a fun and simple project to make for your child’s favorite toy? A DIY toy sleeping bag sewing pattern is exactly what you need. Imagine crea"
+title: 'Diy Toy Sleeping Bag Sewing Pattern: Easy Steps for Cozy Creations'
+description: Are you looking for a fun and simple project to make for your child’s
+  favorite toy? A DIY toy sleeping bag sewing pattern is exactly what you need. Imagine
+  crea
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-sleeping-bag-sewing-pattern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-sleeping-bag-sewing-pattern&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple project to make for your child’s favorite toy? A DIY toy sleeping bag sewing pattern is exactly what you need.**

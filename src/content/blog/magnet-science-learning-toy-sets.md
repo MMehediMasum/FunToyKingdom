@@ -1,10 +1,14 @@
 ---
-title: "Magnet Science Learning Toy Sets: Unlock Creative STEM Fun"
-description: "Are you looking for a fun and exciting way to spark your child’s curiosity? Magnet science learning toy sets might be exactly what you need. These toys turn sim"
+title: 'Magnet Science Learning Toy Sets: Unlock Creative STEM Fun'
+description: Are you looking for a fun and exciting way to spark your child’s curiosity?
+  Magnet science learning toy sets might be exactly what you need. These toys turn
+  sim
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=magnet-science-learning-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Flash Card Toy Learning Sets
+heroImage: https://tse1.mm.bing.net/th?q=magnet-science-learning-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s curiosity? Magnet science learning toy sets might be exactly what you need.**

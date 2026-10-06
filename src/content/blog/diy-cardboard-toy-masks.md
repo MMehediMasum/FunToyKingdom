@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Masks: Creative Fun for Kids and Adults"
-description: "Have you ever wanted to create something fun and unique with your own hands? DIY cardboard toy masks are the perfect way to bring your imagination to life. Whet"
+title: 'Diy Cardboard Toy Masks: Creative Fun for Kids and Adults'
+description: Have you ever wanted to create something fun and unique with your own
+  hands? DIY cardboard toy masks are the perfect way to bring your imagination to
+  life. Whet
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-masks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-masks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and unique with your own hands? DIY cardboard toy masks are the perfect way to bring your imagination to life.**

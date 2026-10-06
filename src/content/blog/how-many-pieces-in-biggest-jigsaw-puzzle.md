@@ -1,10 +1,14 @@
 ---
-title: "How Many Pieces in Biggest Jigsaw Puzzle: Discover the Record-Breaker!"
-description: "Have you ever wondered just how many pieces make up the biggest jigsaw puzzle in the world? If you love puzzles or are curious about extreme challenges, you’re "
+title: 'How Many Pieces in Biggest Jigsaw Puzzle: Discover the Record-Breaker!'
+description: 'Have you ever wondered just how many pieces make up the biggest jigsaw
+  puzzle in the world? If you love puzzles or are curious about extreme challenges,
+  you’re '
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-pieces-in-biggest-jigsaw-puzzle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Jigsaw Puzzle
+heroImage: https://tse1.mm.bing.net/th?q=how-many-pieces-in-biggest-jigsaw-puzzle&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered just how many pieces make up the biggest jigsaw puzzle in the world? If you love puzzles or are curious about extreme challenges, you’re about to discover something truly mind-blowing.**

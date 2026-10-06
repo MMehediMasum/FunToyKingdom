@@ -1,10 +1,14 @@
 ---
-title: "Cleaning Set Toys: Top Kids’ Pretend Playsets for Fun & Learning"
-description: "Cleaning set toys offer a fun way for kids to learn about tidiness while playing. These toy sets mimic real cleaning tools, providing children with both enterta"
+title: 'Cleaning Set Toys: Top Kids’ Pretend Playsets for Fun & Learning'
+description: Cleaning set toys offer a fun way for kids to learn about tidiness while
+  playing. These toy sets mimic real cleaning tools, providing children with both
+  enterta
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cleaning-set-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cleaning-set-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Cleaning set toys offer a fun way for kids to learn about tidiness while playing. These toy sets mimic real cleaning tools, providing children with both entertainment and educational value.**

@@ -1,10 +1,14 @@
 ---
-title: "Robot Movie Toys: Top Multi-Jointed Action Figures for Game Lovers"
-description: "Robot movie toys bring your favorite film characters to life with movable joints and detailed designs. These toys combine fun, creativity, and display value for"
+title: 'Robot Movie Toys: Top Multi-Jointed Action Figures for Game Lovers'
+description: Robot movie toys bring your favorite film characters to life with movable
+  joints and detailed designs. These toys combine fun, creativity, and display value
+  for
 pubDate: 2026-02-05
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-movie-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=robot-movie-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot movie toys bring your favorite film characters to life with movable joints and detailed designs. These toys combine fun, creativity, and display value for kids and collectors alike.**

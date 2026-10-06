@@ -1,10 +1,14 @@
 ---
-title: "Vintage Superhero Toy Figurines: Ultimate Collector's Guide Revealed"
-description: "Have you ever held a vintage superhero toy figurine in your hand and felt a rush of nostalgia? These small figures carry big stories and memories. Whether you’r"
+title: 'Vintage Superhero Toy Figurines: Ultimate Collector''s Guide Revealed'
+description: Have you ever held a vintage superhero toy figurine in your hand and
+  felt a rush of nostalgia? These small figures carry big stories and memories. Whether
+  you’r
 pubDate: 2025-10-11
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-superhero-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=vintage-superhero-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever held a vintage superhero toy figurine in your hand and felt a rush of nostalgia? These small figures carry big stories and memories.**

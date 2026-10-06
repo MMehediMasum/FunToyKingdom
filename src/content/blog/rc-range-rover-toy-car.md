@@ -1,10 +1,14 @@
 ---
-title: "Rc Range Rover Toy Car: Ultimate Guide to Fun & Performance"
-description: "Are you ready to take your toy car collection to the next level? The RC Range Rover toy car offers a thrilling mix of style, speed, and control that you’ll love"
+title: 'Rc Range Rover Toy Car: Ultimate Guide to Fun & Performance'
+description: Are you ready to take your toy car collection to the next level? The
+  RC Range Rover toy car offers a thrilling mix of style, speed, and control that
+  you’ll love
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-range-rover-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-range-rover-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your toy car collection to the next level? The RC Range Rover toy car offers a thrilling mix of style, speed, and control that you’ll love.**

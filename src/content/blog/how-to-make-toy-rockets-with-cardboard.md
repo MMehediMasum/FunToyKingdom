@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Rockets With Cardboard: Easy DIY Guide"
-description: "Have you ever wanted to build your own toy rocket right at home? Making toy rockets with cardboard is a fun and simple project you can do using everyday materia"
+title: 'How to Make Toy Rockets With Cardboard: Easy DIY Guide'
+description: Have you ever wanted to build your own toy rocket right at home? Making
+  toy rockets with cardboard is a fun and simple project you can do using everyday
+  materia
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-rockets-with-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-rockets-with-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to build your own toy rocket right at home? Making toy rockets with cardboard is a fun and simple project you can do using everyday materials.**

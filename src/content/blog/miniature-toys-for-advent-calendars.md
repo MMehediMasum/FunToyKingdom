@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toys for Advent Calendars: Top Picks for Holiday Fun and Surprises"
-description: "Miniature toys make advent calendars extra special and fun for kids. Small, themed toys fit perfectly behind each door. Advent calendars with miniature toys bri"
+title: 'Miniature Toys for Advent Calendars: Top Picks for Holiday Fun and Surprises'
+description: Miniature toys make advent calendars extra special and fun for kids.
+  Small, themed toys fit perfectly behind each door. Advent calendars with miniature
+  toys bri
 pubDate: 2026-03-01
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toys-for-advent-calendars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toys-for-advent-calendars&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature toys make advent calendars extra special and fun for kids. Small, themed toys fit perfectly behind each door.**

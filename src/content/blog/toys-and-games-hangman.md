@@ -1,10 +1,14 @@
 ---
-title: "Toys And Games Hangman: Top Magnetic & Travel Word Guessing Games"
-description: "Toys and games like Hangman offer endless fun for kids and families. These games are perfect for travel and learning. Hangman games have long been a favorite fo"
+title: 'Toys And Games Hangman: Top Magnetic & Travel Word Guessing Games'
+description: Toys and games like Hangman offer endless fun for kids and families.
+  These games are perfect for travel and learning. Hangman games have long been a
+  favorite fo
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-and-games-hangman&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=toys-and-games-hangman&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Toys and games like Hangman offer endless fun for kids and families. These games are perfect for travel and learning.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Robot Kit: Build 12-in-1 Solar STEM Robots for Kids Fun"
-description: "Toy robot kits offer fun and learning in one package. Kids build robots that move and work using simple parts. These kits help children explore science, technol"
+title: 'Toy Robot Kit: Build 12-in-1 Solar STEM Robots for Kids Fun'
+description: Toy robot kits offer fun and learning in one package. Kids build robots
+  that move and work using simple parts. These kits help children explore science,
+  technol
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-robot-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=toy-robot-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Toy robot kits offer fun and learning in one package. Kids build robots that move and work using simple parts.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Story 4 Forky Plush: The Ultimate Cuddly Companion for Fans"
-description: "Toy Story 4 introduced Forky, a unique and endearing character that captured the hearts of many. Now, fans can bring Forky home with a variety of plush toys and"
+title: 'Toy Story 4 Forky Plush: The Ultimate Cuddly Companion for Fans'
+description: Toy Story 4 introduced Forky, a unique and endearing character that captured
+  the hearts of many. Now, fans can bring Forky home with a variety of plush toys
+  and
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-4-forky-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Ball
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-4-forky-plush&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story 4 introduced Forky, a unique and endearing character that captured the hearts of many. Now, fans can bring Forky home with a variety of plush toys and creative sets.**

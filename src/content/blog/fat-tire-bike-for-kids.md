@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Fat Tire Bike for Kids: Ultimate Guide to Fun & Safety"
 description: "Looking for the perfect bike that your child will love and feel safe on? A fat tire bike for kids might be exactly what you need. These bikes offer extra stabil"
 pubDate: 2025-11-16

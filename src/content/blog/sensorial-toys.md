@@ -1,10 +1,14 @@
 ---
-title: "Sensorial Toys: Top Stress-Relief Fidget Sets for Kids and Adults"
-description: "Sensorial toys help children and adults explore their senses while having fun. These toys support focus, calmness, and stress relief in daily life. Sensory toys"
+title: 'Sensorial Toys: Top Stress-Relief Fidget Sets for Kids and Adults'
+description: Sensorial toys help children and adults explore their senses while having
+  fun. These toys support focus, calmness, and stress relief in daily life. Sensory
+  toys
 pubDate: 2026-03-05
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensorial-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=sensorial-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Sensorial toys help children and adults explore their senses while having fun. These toys support focus, calmness, and stress relief in daily life.**

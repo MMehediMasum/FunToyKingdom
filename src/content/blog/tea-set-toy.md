@@ -1,10 +1,14 @@
 ---
-title: "Tea Set Toy Ideas: Perfect Pretend Playsets for Kids’ Imaginative Fun"
-description: "Tea set toys invite children into a world of imagination and social play. These sets include cups, plates, and pretend treats for creative fun. Tea set toys hel"
+title: 'Tea Set Toy Ideas: Perfect Pretend Playsets for Kids’ Imaginative Fun'
+description: Tea set toys invite children into a world of imagination and social play.
+  These sets include cups, plates, and pretend treats for creative fun. Tea set toys
+  hel
 pubDate: 2026-02-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tea-set-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=tea-set-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Tea set toys invite children into a world of imagination and social play. These sets include cups, plates, and pretend treats for creative fun.**

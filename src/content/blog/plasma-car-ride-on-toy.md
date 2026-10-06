@@ -1,10 +1,14 @@
 ---
-title: "Plasma Car Ride on Toy: Ultimate Fun and Safe Kids' Adventure"
-description: "Are you looking for a fun and exciting way to keep your child active and entertained? The Plasma Car Ride on Toy might be just what you need. This simple yet th"
+title: 'Plasma Car Ride on Toy: Ultimate Fun and Safe Kids'' Adventure'
+description: Are you looking for a fun and exciting way to keep your child active
+  and entertained? The Plasma Car Ride on Toy might be just what you need. This simple
+  yet th
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=plasma-car-ride-on-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=plasma-car-ride-on-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your child active and entertained? The Plasma Car Ride on Toy might be just what you need.**

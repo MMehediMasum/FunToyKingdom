@@ -1,10 +1,14 @@
 ---
-title: "Dragon Robot Toy: Ultimate Remote Control Fire-Breathing Dragon for Kids"
-description: "The Dragon Robot Toy brings excitement and adventure to playtime. It features smoke breath, roaring sounds, and light-up eyes. This toy combines the magic of dr"
+title: 'Dragon Robot Toy: Ultimate Remote Control Fire-Breathing Dragon for Kids'
+description: The Dragon Robot Toy brings excitement and adventure to playtime. It
+  features smoke breath, roaring sounds, and light-up eyes. This toy combines the
+  magic of dr
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=dragon-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Dragon Robot Toy brings excitement and adventure to playtime. It features smoke breath, roaring sounds, and light-up eyes.**

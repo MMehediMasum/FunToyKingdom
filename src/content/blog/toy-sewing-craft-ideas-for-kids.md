@@ -1,10 +1,14 @@
 ---
-title: "Toy Sewing Craft Ideas for Kids: Fun & Easy Projects to Try Today"
-description: "Looking for a fun and creative way to keep your kids entertained? Toy sewing craft ideas for kids are just what you need. These simple projects not only spark i"
+title: 'Toy Sewing Craft Ideas for Kids: Fun & Easy Projects to Try Today'
+description: Looking for a fun and creative way to keep your kids entertained? Toy
+  sewing craft ideas for kids are just what you need. These simple projects not only
+  spark i
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-sewing-craft-ideas-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Rocket Cardboard Craft
+heroImage: https://tse1.mm.bing.net/th?q=toy-sewing-craft-ideas-for-kids&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative way to keep your kids entertained? Toy sewing craft ideas for kids are just what you need.**

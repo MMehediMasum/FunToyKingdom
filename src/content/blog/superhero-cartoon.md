@@ -1,10 +1,14 @@
 ---
-title: "Superhero Cartoon Favorites: Top Movies and Series for Kids and Fans"
-description: "Superhero cartoons bring action and adventure to screens for kids and fans alike. They feature heroes with powers fighting villains and saving the day. These ca"
+title: 'Superhero Cartoon Favorites: Top Movies and Series for Kids and Fans'
+description: Superhero cartoons bring action and adventure to screens for kids and
+  fans alike. They feature heroes with powers fighting villains and saving the day.
+  These ca
 pubDate: 2026-02-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=superhero-cartoon&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=superhero-cartoon&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Superhero cartoons bring action and adventure to screens for kids and fans alike. They feature heroes with powers fighting villains and saving the day.**

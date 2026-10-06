@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 2 Year Olds: Top Realistic and Cute Baby Doll Sets"
-description: "Choosing the best dolls for 2 year olds helps support their play and learning. Dolls with soft bodies and simple features work well for this age group. Toddlers"
+title: 'Best Dolls for 2 Year Olds: Top Realistic and Cute Baby Doll Sets'
+description: Choosing the best dolls for 2 year olds helps support their play and
+  learning. Dolls with soft bodies and simple features work well for this age group.
+  Toddlers
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-2-year-olds-top-realistic-and-cute-baby-doll-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-2-year-olds-top-realistic-and-cute-baby-doll-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for 2 year olds helps support their play and learning. Dolls with soft bodies and simple features work well for this age group.**

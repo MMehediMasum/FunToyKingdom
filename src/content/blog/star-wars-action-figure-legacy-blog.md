@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Star Wars Action Figure Legacy Blog: Ultimate Collectors' Guide"
 description: "Are you a Star Wars fan who loves action figures? You’re not alone. These little collectibles hold stories, memories, and a special kind of magic. Imagine holdi"
 pubDate: 2026-07-29

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Whale Sprinkler Inflatable: Ultimate Summer Fun for Kids"
-description: "Looking for a fun and refreshing way to keep cool this summer? The Outdoor Whale Sprinkler Inflatable might be exactly what you need. Imagine your backyard turn"
+title: 'Outdoor Whale Sprinkler Inflatable: Ultimate Summer Fun for Kids'
+description: Looking for a fun and refreshing way to keep cool this summer? The Outdoor
+  Whale Sprinkler Inflatable might be exactly what you need. Imagine your backyard
+  turn
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-whale-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-whale-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and refreshing way to keep cool this summer? The Outdoor Whale Sprinkler Inflatable might be exactly what you need.**

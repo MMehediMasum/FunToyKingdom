@@ -1,10 +1,14 @@
 ---
-title: "A Toy Drone: Ultimate Guide to Fun and Affordable Flying Gadgets"
-description: "Have you ever wanted to see the world from a bird’s eye view without spending a fortune? A toy drone can give you that thrilling experience right in your backya"
+title: 'A Toy Drone: Ultimate Guide to Fun and Affordable Flying Gadgets'
+description: Have you ever wanted to see the world from a bird’s eye view without
+  spending a fortune? A toy drone can give you that thrilling experience right in
+  your backya
 pubDate: 2026-06-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=a-toy-drone&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=a-toy-drone&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to see the world from a bird’s eye view without spending a fortune? A toy drone can give you that thrilling experience right in your backyard.**

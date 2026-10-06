@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Duck Sprinkler Pool Toy: Ultimate Summer Fun for Kids"
-description: "Imagine your backyard turning into the coolest spot for fun and refreshment this summer. The Outdoor Duck Sprinkler Pool Toy is just what you need to keep your "
+title: 'Outdoor Duck Sprinkler Pool Toy: Ultimate Summer Fun for Kids'
+description: 'Imagine your backyard turning into the coolest spot for fun and refreshment
+  this summer. The Outdoor Duck Sprinkler Pool Toy is just what you need to keep your '
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-duck-sprinkler-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-duck-sprinkler-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your backyard turning into the coolest spot for fun and refreshment this summer. The Outdoor Duck Sprinkler Pool Toy is just what you need to keep your kids laughing and playing for hours.**

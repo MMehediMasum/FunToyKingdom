@@ -1,10 +1,14 @@
 ---
-title: "How to Play Mexican Train Dominoes: Ultimate Beginner’s Guide"
-description: "Are you ready to discover a fun and exciting game that you can enjoy with friends and family? Mexican Train Dominoes is easy to learn, yet offers plenty of stra"
+title: 'How to Play Mexican Train Dominoes: Ultimate Beginner’s Guide'
+description: Are you ready to discover a fun and exciting game that you can enjoy
+  with friends and family? Mexican Train Dominoes is easy to learn, yet offers plenty
+  of stra
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-play-mexican-train-dominoes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=how-to-play-mexican-train-dominoes&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to discover a fun and exciting game that you can enjoy with friends and family? Mexican Train Dominoes is easy to learn, yet offers plenty of strategy and laughs.**

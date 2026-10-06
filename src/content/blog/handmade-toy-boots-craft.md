@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Boots Craft: Creative Ideas to Inspire Playtime Fun"
-description: "Are you looking for a fun and creative way to make something special with your own hands? Handmade toy boots craft is a perfect project for you. Not only will y"
+title: 'Handmade Toy Boots Craft: Creative Ideas to Inspire Playtime Fun'
+description: Are you looking for a fun and creative way to make something special
+  with your own hands? Handmade toy boots craft is a perfect project for you. Not
+  only will y
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-boots-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Rocket Cardboard Craft
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-boots-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to make something special with your own hands? Handmade toy boots craft is a perfect project for you.**

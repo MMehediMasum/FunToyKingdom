@@ -1,10 +1,14 @@
 ---
-title: "Best Dollhouse for 18 Month Old: Top Toddler Dollhouses with Lights & Furniture"
-description: "Choosing the best dollhouse for an 18-month-old helps encourage early play and imagination. A safe, engaging dollhouse suits toddlers’ growing skills and intere"
+title: 'Best Dollhouse for 18 Month Old: Top Toddler Dollhouses with Lights & Furniture'
+description: Choosing the best dollhouse for an 18-month-old helps encourage early
+  play and imagination. A safe, engaging dollhouse suits toddlers’ growing skills
+  and intere
 pubDate: 2025-10-21
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouse-for-18-month-old-top-toddler-dollhouses-with-lights-furniture&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouses For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouse-for-18-month-old-top-toddler-dollhouses-with-lights-furniture&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dollhouse for an 18-month-old helps encourage early play and imagination. A safe, engaging dollhouse suits toddlers’ growing skills and interests.**

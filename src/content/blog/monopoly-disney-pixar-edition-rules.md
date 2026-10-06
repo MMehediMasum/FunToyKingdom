@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Disney Pixar Edition Rules: Ultimate Guide to Winning Fast"
-description: "Are you ready to dive into a fun twist on a classic game? Monopoly Disney Pixar Edition brings your favorite characters and movies right to your game board. But"
+title: 'Monopoly Disney Pixar Edition Rules: Ultimate Guide to Winning Fast'
+description: Are you ready to dive into a fun twist on a classic game? Monopoly Disney
+  Pixar Edition brings your favorite characters and movies right to your game board.
+  But
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-disney-pixar-edition-rules&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-disney-pixar-edition-rules&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to dive into a fun twist on a classic game? Monopoly Disney Pixar Edition brings your favorite characters and movies right to your game board.**

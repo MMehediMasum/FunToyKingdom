@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck With Metal Gears: Ultimate Durability and Performance Guide"
-description: "Are you ready to take your RC truck experience to the next level? Imagine a truck built tough, with metal gears that give you power, durability, and precision l"
+title: 'Rc Truck With Metal Gears: Ultimate Durability and Performance Guide'
+description: Are you ready to take your RC truck experience to the next level? Imagine
+  a truck built tough, with metal gears that give you power, durability, and precision
+  l
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-with-metal-gears&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-with-metal-gears&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC truck experience to the next level? Imagine a truck built tough, with metal gears that give you power, durability, and precision like never before.**

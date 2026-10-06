@@ -1,10 +1,14 @@
 ---
-title: "Drone Toys for 11 Year Old: Top Fun & Safe Picks in 2025"
-description: "Looking for the perfect drone toy for your 11-year-old? You want something fun, safe, and easy to use—but also exciting enough to keep them hooked. Choosing the"
+title: 'Drone Toys for 11 Year Old: Top Fun & Safe Picks in 2025'
+description: Looking for the perfect drone toy for your 11-year-old? You want something
+  fun, safe, and easy to use—but also exciting enough to keep them hooked. Choosing
+  the
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=drone-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=drone-toys-for-11-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the perfect drone toy for your 11-year-old? You want something fun, safe, and easy to use—but also exciting enough to keep them hooked.**

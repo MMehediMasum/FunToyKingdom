@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Two Adults: Top Picks for Fun and Strategy"
-description: "Finding the best board games for two adults can make any evening more fun and engaging. Choosing games that suit both players ensures great interaction and last"
+title: 'Best Board Games for Two Adults: Top Picks for Fun and Strategy'
+description: Finding the best board games for two adults can make any evening more
+  fun and engaging. Choosing games that suit both players ensures great interaction
+  and last
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-two-adults-top-picks-for-fun-and-strategy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-two-adults-top-picks-for-fun-and-strategy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for two adults can make any evening more fun and engaging. Choosing games that suit both players ensures great interaction and lasting memories.**

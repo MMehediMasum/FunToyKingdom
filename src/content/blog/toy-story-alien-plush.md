@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Alien Plush: The Ultimate Cuddly Companion for Fans"
-description: "The Toy Story Alien Plush is a beloved character toy from Disney Pixar's famous movie. This soft, cuddly plush appeals to fans of all ages and makes a great gif"
+title: 'Toy Story Alien Plush: The Ultimate Cuddly Companion for Fans'
+description: The Toy Story Alien Plush is a beloved character toy from Disney Pixar's
+  famous movie. This soft, cuddly plush appeals to fans of all ages and makes a great
+  gif
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-alien-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-alien-plush&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **The Toy Story Alien Plush is a beloved character toy from Disney Pixar's famous movie. This soft, cuddly plush appeals to fans of all ages and makes a great gift.**

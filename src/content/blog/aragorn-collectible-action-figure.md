@@ -1,10 +1,14 @@
 ---
-title: "Aragorn Collectible Action Figure: Ultimate Guide for Fans"
-description: "If you’re a fan of epic adventures and legendary heroes, the Aragorn Collectible Action Figure is exactly what your collection needs. Imagine holding a detailed"
+title: 'Aragorn Collectible Action Figure: Ultimate Guide for Fans'
+description: If you’re a fan of epic adventures and legendary heroes, the Aragorn
+  Collectible Action Figure is exactly what your collection needs. Imagine holding
+  a detailed
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=aragorn-collectible-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=aragorn-collectible-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of epic adventures and legendary heroes, the Aragorn Collectible Action Figure is exactly what your collection needs. Imagine holding a detailed, lifelike figure of one of the most iconic characters from Middle-earth right in your hands.**

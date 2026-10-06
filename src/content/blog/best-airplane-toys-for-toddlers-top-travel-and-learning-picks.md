@@ -1,10 +1,14 @@
 ---
-title: "Best Airplane Toys for Toddlers: Top Travel and Learning Picks"
-description: "Toddlers love airplane toys that spark imagination and develop skills. Choosing the best ones helps keep them engaged and happy. Airplane toys offer fun and lea"
+title: 'Best Airplane Toys for Toddlers: Top Travel and Learning Picks'
+description: Toddlers love airplane toys that spark imagination and develop skills.
+  Choosing the best ones helps keep them engaged and happy. Airplane toys offer fun
+  and lea
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-airplane-toys-for-toddlers-top-travel-and-learning-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toys For Airplane Travel
+heroImage: https://tse1.mm.bing.net/th?q=best-airplane-toys-for-toddlers-top-travel-and-learning-picks&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toddlers love airplane toys that spark imagination and develop skills. Choosing the best ones helps keep them engaged and happy.**

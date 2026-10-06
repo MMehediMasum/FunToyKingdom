@@ -1,10 +1,13 @@
 ---
-title: "Toy Story Kite: Ultimate Fun with Colorful Delta and Diamond Kites"
-description: "Toy Story Kite brings fun and color to outdoor play with beloved characters. These kites are perfect for kids and adults who enjoy flying kites. Toy Story-theme"
+title: 'Toy Story Kite: Ultimate Fun with Colorful Delta and Diamond Kites'
+description: Toy Story Kite brings fun and color to outdoor play with beloved characters.
+  These kites are perfect for kids and adults who enjoy flying kites. Toy Story-theme
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-kite&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-kite&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story Kite brings fun and color to outdoor play with beloved characters. These kites are perfect for kids and adults who enjoy flying kites.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Projector With Stars And Planets: Magical Night Light Experience"
-description: "Imagine turning your room into a magical night sky filled with twinkling stars and colorful planets. A toy projector with stars and planets can do just that for"
+title: 'Toy Projector With Stars And Planets: Magical Night Light Experience'
+description: Imagine turning your room into a magical night sky filled with twinkling
+  stars and colorful planets. A toy projector with stars and planets can do just that
+  for
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-projector-with-stars-and-planets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=toy-projector-with-stars-and-planets&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning your room into a magical night sky filled with twinkling stars and colorful planets. A toy projector with stars and planets can do just that for you.**

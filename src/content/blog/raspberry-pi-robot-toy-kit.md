@@ -1,10 +1,14 @@
 ---
-title: "Raspberry Pi Robot Toy Kit: Build, Learn & Play Smart!"
-description: "Are you ready to bring your creativity to life with a fun and exciting project? The Raspberry Pi Robot Toy Kit is the perfect way to build your own robot while "
+title: 'Raspberry Pi Robot Toy Kit: Build, Learn & Play Smart!'
+description: 'Are you ready to bring your creativity to life with a fun and exciting
+  project? The Raspberry Pi Robot Toy Kit is the perfect way to build your own robot
+  while '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=raspberry-pi-robot-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=raspberry-pi-robot-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to bring your creativity to life with a fun and exciting project? The Raspberry Pi Robot Toy Kit is the perfect way to build your own robot while learning new skills.**

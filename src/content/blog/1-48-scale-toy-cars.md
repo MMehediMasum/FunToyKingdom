@@ -1,10 +1,14 @@
 ---
-title: "1 48 Scale Toy Cars: Top Die-Cast Models for Collectors and Kids"
-description: "1:48 scale toy cars offer detailed models that fit perfectly in your hand. These mini vehicles bring classic and modern cars to life. Collectors and kids enjoy "
+title: '1 48 Scale Toy Cars: Top Die-Cast Models for Collectors and Kids'
+description: '1:48 scale toy cars offer detailed models that fit perfectly in your
+  hand. These mini vehicles bring classic and modern cars to life. Collectors and
+  kids enjoy '
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1-48-scale-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=1-48-scale-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **1:48 scale toy cars offer detailed models that fit perfectly in your hand. These mini vehicles bring classic and modern cars to life.**

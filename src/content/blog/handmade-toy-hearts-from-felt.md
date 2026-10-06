@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Hearts from Felt: Charming DIY Gifts to Craft"
-description: "Are you looking for a charming way to add warmth and personality to your home or gift something truly special? Handmade toy hearts made from felt offer a simple"
+title: 'Handmade Toy Hearts from Felt: Charming DIY Gifts to Craft'
+description: Are you looking for a charming way to add warmth and personality to your
+  home or gift something truly special? Handmade toy hearts made from felt offer a
+  simple
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-hearts-from-felt&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-hearts-from-felt&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a charming way to add warmth and personality to your home or gift something truly special? Handmade toy hearts made from felt offer a simple yet meaningful touch that can brighten any space or moment.**

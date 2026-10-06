@@ -1,10 +1,13 @@
 ---
-title: "Cars 2 Holley Shiftwell Toy Review: Ultimate Diecast Collectible Guide"
-description: "The Cars 2 Holley Shiftwell toy captures the excitement of Disney Pixar’s spy car character. This die-cast model offers realistic details and fun play features."
+title: 'Cars 2 Holley Shiftwell Toy Review: Ultimate Diecast Collectible Guide'
+description: The Cars 2 Holley Shiftwell toy captures the excitement of Disney Pixar’s
+  spy car character. This die-cast model offers realistic details and fun play features.
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-holley-shiftwell-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-holley-shiftwell-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 Holley Shiftwell toy captures the excitement of Disney Pixar’s spy car character. This die-cast model offers realistic details and fun play features.**

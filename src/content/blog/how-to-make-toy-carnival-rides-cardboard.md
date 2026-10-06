@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Carnival Rides Cardboard: Easy DIY Fun Ideas"
-description: "Have you ever wanted to create your own mini carnival right at home? Making toy carnival rides out of cardboard is a fun and simple way to bring joy to your spa"
+title: 'How to Make Toy Carnival Rides Cardboard: Easy DIY Fun Ideas'
+description: Have you ever wanted to create your own mini carnival right at home?
+  Making toy carnival rides out of cardboard is a fun and simple way to bring joy
+  to your spa
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-carnival-rides-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-carnival-rides-cardboard&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to create your own mini carnival right at home? Making toy carnival rides out of cardboard is a fun and simple way to bring joy to your space without spending a fortune.**

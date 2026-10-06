@@ -1,10 +1,14 @@
 ---
-title: "Spawn Action Figures Collectibles: Ultimate Guide to Rare Finds"
-description: "Are you a fan of dark, thrilling comics and powerful collectibles? Spawn action figures bring your favorite anti-hero to life with incredible detail and fierce "
+title: 'Spawn Action Figures Collectibles: Ultimate Guide to Rare Finds'
+description: 'Are you a fan of dark, thrilling comics and powerful collectibles? Spawn
+  action figures bring your favorite anti-hero to life with incredible detail and
+  fierce '
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=spawn-action-figures-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=spawn-action-figures-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of dark, thrilling comics and powerful collectibles? Spawn action figures bring your favorite anti-hero to life with incredible detail and fierce style.**

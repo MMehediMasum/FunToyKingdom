@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Next Gen Racers Toys: Top Diecast Collectibles for Fans"
-description: "Cars 3 Next Gen Racers Toys bring excitement from the movie right into your hands. These diecast and mini racer toys feature popular characters in detailed desi"
+title: 'Cars 3 Next Gen Racers Toys: Top Diecast Collectibles for Fans'
+description: Cars 3 Next Gen Racers Toys bring excitement from the movie right into
+  your hands. These diecast and mini racer toys feature popular characters in detailed
+  desi
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-next-gen-racers-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-next-gen-racers-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 3 Next Gen Racers Toys bring excitement from the movie right into your hands. These diecast and mini racer toys feature popular characters in detailed designs.**

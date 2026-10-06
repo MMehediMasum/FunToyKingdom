@@ -1,10 +1,13 @@
 ---
-title: "Boggle Vs Scrabble Differences: Ultimate Guide to Game Showdown"
-description: "Are you trying to decide between Boggle and Scrabble for your next game night? Both games challenge your word skills, but they offer very different experiences."
+title: 'Boggle Vs Scrabble Differences: Ultimate Guide to Game Showdown'
+description: Are you trying to decide between Boggle and Scrabble for your next game
+  night? Both games challenge your word skills, but they offer very different experiences.
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=boggle-vs-scrabble-differences&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=boggle-vs-scrabble-differences&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you trying to decide between Boggle and Scrabble for your next game night? Both games challenge your word skills, but they offer very different experiences.**

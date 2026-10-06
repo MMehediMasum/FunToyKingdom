@@ -1,10 +1,14 @@
 ---
-title: "M2 Toy Cars: Ultimate Diecast Collectibles for Kids and Enthusiasts"
-description: "M2 Toy Cars offer detailed, collectible diecast models loved by kids and adults alike. These cars come in various scales and designs, perfect for play or displa"
+title: 'M2 Toy Cars: Ultimate Diecast Collectibles for Kids and Enthusiasts'
+description: M2 Toy Cars offer detailed, collectible diecast models loved by kids
+  and adults alike. These cars come in various scales and designs, perfect for play
+  or displa
 pubDate: 2026-08-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=m2-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=m2-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **M2 Toy Cars offer detailed, collectible diecast models loved by kids and adults alike. These cars come in various scales and designs, perfect for play or display.**

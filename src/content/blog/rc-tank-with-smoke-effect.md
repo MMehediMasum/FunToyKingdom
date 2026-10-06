@@ -1,10 +1,14 @@
 ---
-title: "Rc Tank With Smoke Effect: Ultimate Realism for Enthusiasts"
-description: "Imagine controlling a powerful RC tank that doesn’t just move but also breathes life with realistic smoke effects. If you’re looking to add excitement and authe"
+title: 'Rc Tank With Smoke Effect: Ultimate Realism for Enthusiasts'
+description: Imagine controlling a powerful RC tank that doesn’t just move but also
+  breathes life with realistic smoke effects. If you’re looking to add excitement
+  and authe
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-tank-with-smoke-effect&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-tank-with-smoke-effect&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling a powerful RC tank that doesn’t just move but also breathes life with realistic smoke effects. If you’re looking to add excitement and authenticity to your remote control experience, an RC tank with smoke effect is exactly what you need.**

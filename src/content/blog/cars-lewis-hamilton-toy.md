@@ -1,10 +1,14 @@
 ---
-title: "Cars Lewis Hamilton Toy: Ultimate Collectible Mercedes AMG F1 Model Guide"
-description: "Lewis Hamilton cars toys bring the excitement of Formula 1 racing to fans of all ages. These miniature models and collectibles capture the speed and style of th"
+title: 'Cars Lewis Hamilton Toy: Ultimate Collectible Mercedes AMG F1 Model Guide'
+description: Lewis Hamilton cars toys bring the excitement of Formula 1 racing to
+  fans of all ages. These miniature models and collectibles capture the speed and
+  style of th
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-lewis-hamilton-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-lewis-hamilton-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Lewis Hamilton cars toys bring the excitement of Formula 1 racing to fans of all ages. These miniature models and collectibles capture the speed and style of the famous driver’s cars.**

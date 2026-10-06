@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Mars Rover: Easy Steps for Kids’ Space Fun"
-description: "Have you ever wanted to explore Mars without leaving your home? Building your own DIY cardboard toy Mars rover is a fun and creative way to do just that. Not on"
+title: 'Diy Cardboard Toy Mars Rover: Easy Steps for Kids’ Space Fun'
+description: Have you ever wanted to explore Mars without leaving your home? Building
+  your own DIY cardboard toy Mars rover is a fun and creative way to do just that.
+  Not on
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-mars-rover&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-mars-rover&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to explore Mars without leaving your home? Building your own DIY cardboard toy Mars rover is a fun and creative way to do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rc Submarine With Camera: Explore Underwater Adventures Today"
-description: "Imagine controlling your very own submarine, exploring underwater worlds without getting wet. With an outdoor RC submarine equipped with a camera, you can dive "
+title: 'Outdoor Rc Submarine With Camera: Explore Underwater Adventures Today'
+description: 'Imagine controlling your very own submarine, exploring underwater worlds
+  without getting wet. With an outdoor RC submarine equipped with a camera, you can
+  dive '
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rc-submarine-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rc-submarine-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling your very own submarine, exploring underwater worlds without getting wet. With an outdoor RC submarine equipped with a camera, you can dive into lakes, ponds, or pools and see everything beneath the surface in real time.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Sound Effects: Ultimate Fun for Kids and Adults"
-description: "Are you ready to take your RC car experience to a whole new level? Imagine controlling a car that doesn’t just speed around but also roars, honks, and makes eng"
+title: 'Rc Car With Sound Effects: Ultimate Fun for Kids and Adults'
+description: Are you ready to take your RC car experience to a whole new level? Imagine
+  controlling a car that doesn’t just speed around but also roars, honks, and makes
+  eng
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-sound-effects&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-sound-effects&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to a whole new level? Imagine controlling a car that doesn’t just speed around but also roars, honks, and makes engine sounds just like the real thing.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Toys 6 12 Months: Top Picks for Learning and Play"
-description: "Choosing the best toys for infants aged 6 to 12 months supports their growth and curiosity. Toys that stimulate senses and motor skills help babies learn throug"
+title: 'Best Infant Toys 6 12 Months: Top Picks for Learning and Play'
+description: Choosing the best toys for infants aged 6 to 12 months supports their
+  growth and curiosity. Toys that stimulate senses and motor skills help babies learn
+  throug
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-toys-6-12-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-toys-6-12-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for infants aged 6 to 12 months supports their growth and curiosity. Toys that stimulate senses and motor skills help babies learn through play.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy School Bus: Easy Step-by-Step Craft Guide"
-description: "Imagine giving your child a toy that’s not only fun but also made with your own hands. A DIY wooden toy school bus is more than just a plaything—it’s a chance t"
+title: 'Diy Wooden Toy School Bus: Easy Step-by-Step Craft Guide'
+description: Imagine giving your child a toy that’s not only fun but also made with
+  your own hands. A DIY wooden toy school bus is more than just a plaything—it’s a
+  chance t
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-school-bus&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-school-bus&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that’s not only fun but also made with your own hands. A DIY wooden toy school bus is more than just a plaything—it’s a chance to create something special, safe, and unique.**

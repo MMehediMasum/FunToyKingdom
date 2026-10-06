@@ -1,10 +1,14 @@
 ---
-title: "Best Camera for Rc Helicopter: Top Mini Drones with HD Dual Cameras"
-description: "Choosing the best camera for your RC helicopter enhances your flying experience and captures stunning aerial views. A good camera offers clear images, easy cont"
+title: 'Best Camera for Rc Helicopter: Top Mini Drones with HD Dual Cameras'
+description: Choosing the best camera for your RC helicopter enhances your flying
+  experience and captures stunning aerial views. A good camera offers clear images,
+  easy cont
 pubDate: 2025-12-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-camera-for-rc-helicopter-top-mini-drones-with-hd-dual-cameras&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mini Toy Drone With Camera
+heroImage: https://tse1.mm.bing.net/th?q=best-camera-for-rc-helicopter-top-mini-drones-with-hd-dual-cameras&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best camera for your RC helicopter enhances your flying experience and captures stunning aerial views. A good camera offers clear images, easy control, and reliable performance.**

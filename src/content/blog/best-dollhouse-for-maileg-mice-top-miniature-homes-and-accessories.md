@@ -1,10 +1,14 @@
 ---
-title: "Best Dollhouse for Maileg Mice: Top Miniature Homes and Accessories"
-description: "Finding the best dollhouse for Maileg mice can be tricky. This guide highlights top options to fit their small size perfectly. Maileg mice are tiny and need dol"
+title: 'Best Dollhouse for Maileg Mice: Top Miniature Homes and Accessories'
+description: Finding the best dollhouse for Maileg mice can be tricky. This guide
+  highlights top options to fit their small size perfectly. Maileg mice are tiny and
+  need dol
 pubDate: 2025-10-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouse-for-maileg-mice-top-miniature-homes-and-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouse-for-maileg-mice-top-miniature-homes-and-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Finding the best dollhouse for Maileg mice can be tricky. This guide highlights top options to fit their small size perfectly.**

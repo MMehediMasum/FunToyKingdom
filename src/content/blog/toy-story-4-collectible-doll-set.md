@@ -1,10 +1,14 @@
 ---
-title: "Toy Story 4 Collectible Doll Set: Ultimate Guide to Must-Have Toys"
-description: "Are you a fan of Toy Story and love collecting unique items? The Toy Story 4 Collectible Doll Set is made just for you. Imagine having your favorite characters "
+title: 'Toy Story 4 Collectible Doll Set: Ultimate Guide to Must-Have Toys'
+description: 'Are you a fan of Toy Story and love collecting unique items? The Toy
+  Story 4 Collectible Doll Set is made just for you. Imagine having your favorite
+  characters '
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-4-collectible-doll-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-4-collectible-doll-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Toy Story and love collecting unique items? The Toy Story 4 Collectible Doll Set is made just for you.**

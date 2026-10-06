@@ -1,10 +1,13 @@
 ---
-title: "Collectible Transformers Toy Figures: Ultimate Guide to Rare Finds"
-description: "Are you a fan of action-packed adventures and iconic robots that transform before your eyes? Collectible Transformers toy figures offer more than just nostalgia"
+title: 'Collectible Transformers Toy Figures: Ultimate Guide to Rare Finds'
+description: Are you a fan of action-packed adventures and iconic robots that transform
+  before your eyes? Collectible Transformers toy figures offer more than just nostalgia
 pubDate: 2025-11-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-transformers-toy-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=collectible-transformers-toy-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of action-packed adventures and iconic robots that transform before your eyes? Collectible Transformers toy figures offer more than just nostalgia—they bring excitement, creativity, and a unique story to your collection.**

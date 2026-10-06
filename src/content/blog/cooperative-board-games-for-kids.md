@@ -1,10 +1,14 @@
 ---
-title: "Cooperative Board Games for Kids: Fun, Teamwork & Learning Boost"
-description: "Looking for a fun way to bring your kids together while teaching them teamwork? Cooperative board games for kids are the perfect choice. These games turn playti"
+title: 'Cooperative Board Games for Kids: Fun, Teamwork & Learning Boost'
+description: Looking for a fun way to bring your kids together while teaching them
+  teamwork? Cooperative board games for kids are the perfect choice. These games turn
+  playti
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=cooperative-board-games-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=cooperative-board-games-for-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your kids together while teaching them teamwork? Cooperative board games for kids are the perfect choice.**

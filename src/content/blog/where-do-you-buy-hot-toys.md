@@ -1,10 +1,14 @@
 ---
-title: "Where Do You Buy Hot Toys: Top Trusted Stores Revealed"
-description: "Are you searching for the perfect place to buy Hot Toys? You’re not alone. These highly detailed collectible figures are in huge demand, and finding a reliable "
+title: 'Where Do You Buy Hot Toys: Top Trusted Stores Revealed'
+description: 'Are you searching for the perfect place to buy Hot Toys? You’re not
+  alone. These highly detailed collectible figures are in huge demand, and finding
+  a reliable '
 pubDate: 2025-09-04
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-do-you-buy-hot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toys Cheap
+heroImage: https://tse1.mm.bing.net/th?q=where-do-you-buy-hot-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you searching for the perfect place to buy Hot Toys? You’re not alone.**

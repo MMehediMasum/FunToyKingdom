@@ -1,10 +1,14 @@
 ---
-title: "Rare Cabbage Patch Kids Worth Money: Top Valuable Collectibles Revealed"
-description: "Have you ever wondered if your old Cabbage Patch Kids could be worth more than just childhood memories? Some rare dolls from this beloved collection can actuall"
+title: 'Rare Cabbage Patch Kids Worth Money: Top Valuable Collectibles Revealed'
+description: Have you ever wondered if your old Cabbage Patch Kids could be worth
+  more than just childhood memories? Some rare dolls from this beloved collection
+  can actuall
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-cabbage-patch-kids-worth-money&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=rare-cabbage-patch-kids-worth-money&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever wondered if your old Cabbage Patch Kids could be worth more than just childhood memories? Some rare dolls from this beloved collection can actually bring in serious money.**

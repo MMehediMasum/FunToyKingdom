@@ -1,10 +1,14 @@
 ---
-title: "Kids Gymnastics Rings Outdoor Play: Ultimate Fun & Fitness Guide"
-description: "Are you looking for a fun and healthy way to keep your kids active outdoors? Kids gymnastics rings for outdoor play might be just what you need. These simple bu"
+title: 'Kids Gymnastics Rings Outdoor Play: Ultimate Fun & Fitness Guide'
+description: Are you looking for a fun and healthy way to keep your kids active outdoors?
+  Kids gymnastics rings for outdoor play might be just what you need. These simple
+  bu
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-gymnastics-rings-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=kids-gymnastics-rings-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and healthy way to keep your kids active outdoors? Kids gymnastics rings for outdoor play might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Toy Dog Plush: Easy Steps for Adorable Results"
-description: "Have you ever wanted to create a soft, cuddly toy dog all by yourself? Sewing your own toy dog plush is easier than you might think, and it’s a fun way to bring"
+title: 'How to Sew Toy Dog Plush: Easy Steps for Adorable Results'
+description: Have you ever wanted to create a soft, cuddly toy dog all by yourself?
+  Sewing your own toy dog plush is easier than you might think, and it’s a fun way
+  to bring
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-toy-dog-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-toy-dog-plush&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to create a soft, cuddly toy dog all by yourself? Sewing your own toy dog plush is easier than you might think, and it’s a fun way to bring a special friend to life.**

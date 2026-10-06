@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "English Toy Terrier Vs Miniature Pinscher: Key Differences and Figurine Collectibles"
 description: "Deciding between the English Toy Terrier and the Miniature Pinscher can be challenging. Both breeds offer unique traits and charm. These small dogs are perfect "
 pubDate: 2026-02-17

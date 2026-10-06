@@ -1,10 +1,14 @@
 ---
-title: "Oral Sensory Seeking Toys: Top Chew Necklaces for Autism and ADHD"
-description: "Oral sensory seeking toys offer comfort and focus for children and adults with sensory needs. These toys aid in managing anxiety and fidgeting. Children and adu"
+title: 'Oral Sensory Seeking Toys: Top Chew Necklaces for Autism and ADHD'
+description: Oral sensory seeking toys offer comfort and focus for children and adults
+  with sensory needs. These toys aid in managing anxiety and fidgeting. Children and
+  adu
 pubDate: 2026-09-03
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=oral-sensory-seeking-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=oral-sensory-seeking-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Oral sensory seeking toys offer comfort and focus for children and adults with sensory needs. These toys aid in managing anxiety and fidgeting.**

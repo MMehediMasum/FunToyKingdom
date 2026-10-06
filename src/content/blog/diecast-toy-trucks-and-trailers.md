@@ -1,10 +1,13 @@
 ---
-title: "Diecast Toy Trucks And Trailers: Top Collectible Models for Enthusiasts"
-description: "Diecast toy trucks and trailers capture the detailed charm of real vehicles in miniature form. Collectors and kids enjoy these metal models for play and display"
+title: 'Diecast Toy Trucks And Trailers: Top Collectible Models for Enthusiasts'
+description: Diecast toy trucks and trailers capture the detailed charm of real vehicles
+  in miniature form. Collectors and kids enjoy these metal models for play and display
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-trucks-and-trailers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-trucks-and-trailers&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy trucks and trailers capture the detailed charm of real vehicles in miniature form. Collectors and kids enjoy these metal models for play and display.**

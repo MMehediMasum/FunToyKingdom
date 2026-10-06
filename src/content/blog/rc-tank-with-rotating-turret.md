@@ -1,10 +1,14 @@
 ---
-title: "Rc Tank With Rotating Turret: Ultimate Guide to Realistic Battles"
-description: "Imagine controlling your very own battle machine right from your living room. An RC tank with a rotating turret puts you in the driver’s seat, letting you exper"
+title: 'Rc Tank With Rotating Turret: Ultimate Guide to Realistic Battles'
+description: Imagine controlling your very own battle machine right from your living
+  room. An RC tank with a rotating turret puts you in the driver’s seat, letting you
+  exper
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-tank-with-rotating-turret&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-tank-with-rotating-turret&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling your very own battle machine right from your living room. An RC tank with a rotating turret puts you in the driver’s seat, letting you experience realistic movements and precise aiming like never before.**

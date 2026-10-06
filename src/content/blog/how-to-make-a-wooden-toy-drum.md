@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Drum: Easy Steps for a Fun DIY Project"
-description: "Do you want to create something fun and special with your own hands? Making a wooden toy drum is a perfect way to do that. It’s simple, rewarding, and lets you "
+title: 'How to Make a Wooden Toy Drum: Easy Steps for a Fun DIY Project'
+description: 'Do you want to create something fun and special with your own hands?
+  Making a wooden toy drum is a perfect way to do that. It’s simple, rewarding, and
+  lets you '
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-drum&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Drum Set For Age
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-drum&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Do you want to create something fun and special with your own hands? Making a wooden toy drum is a perfect way to do that.**

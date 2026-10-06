@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Tractor Trailers: Top Realistic Farm Truck Sets for Kids"
-description: "Diecast toy tractor trailers offer fun and realistic play for children and collectors alike. These miniature vehicles bring farm and construction scenes to life"
+title: 'Diecast Toy Tractor Trailers: Top Realistic Farm Truck Sets for Kids'
+description: Diecast toy tractor trailers offer fun and realistic play for children
+  and collectors alike. These miniature vehicles bring farm and construction scenes
+  to life
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-tractor-trailers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-tractor-trailers&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Diecast toy tractor trailers offer fun and realistic play for children and collectors alike. These miniature vehicles bring farm and construction scenes to life with detailed designs.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Bath Toys for 3 Year Olds: Fun, Safe, and Engaging Picks"
-description: "Choosing the best bath toys for a 3-year-old makes bath time fun and safe. Toddlers enjoy toys that float, squirt, and light up. Bath toys help young children l"
+title: 'Best Bath Toys for 3 Year Olds: Fun, Safe, and Engaging Picks'
+description: Choosing the best bath toys for a 3-year-old makes bath time fun and
+  safe. Toddlers enjoy toys that float, squirt, and light up. Bath toys help young
+  children l
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bath-toys-for-3-year-olds-fun-safe-and-engaging-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-bath-toys-for-3-year-olds-fun-safe-and-engaging-picks&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best bath toys for a 3-year-old makes bath time fun and safe. Toddlers enjoy toys that float, squirt, and light up.**

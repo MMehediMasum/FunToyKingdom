@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Zipline Kit Backyard Play: Ultimate Fun for Kids"
-description: "Imagine turning your backyard into the ultimate adventure zone where fun and excitement never end. With an outdoor zipline kit, you can do just that—bringing th"
+title: 'Outdoor Zipline Kit Backyard Play: Ultimate Fun for Kids'
+description: Imagine turning your backyard into the ultimate adventure zone where
+  fun and excitement never end. With an outdoor zipline kit, you can do just that—bringing
+  th
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-zipline-kit-backyard-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-zipline-kit-backyard-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate adventure zone where fun and excitement never end. With an outdoor zipline kit, you can do just that—bringing thrilling rides right to your home.**

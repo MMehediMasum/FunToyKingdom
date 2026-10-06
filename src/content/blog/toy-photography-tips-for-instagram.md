@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Photography Tips for Instagram: Capture Stunning Shots Easily"
 description: "Are you ready to take your toy photography on Instagram to the next level? Imagine your photos grabbing attention, getting more likes, and building a loyal foll"
 pubDate: 2025-10-19

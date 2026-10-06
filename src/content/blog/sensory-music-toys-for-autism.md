@@ -1,10 +1,14 @@
 ---
-title: "Sensory Music Toys for Autism: Engaging Lights and Sounds for Kids"
-description: "Sensory music toys provide engaging and stimulating experiences for children with autism. These toys combine music, light, and movement to create interactive pl"
+title: 'Sensory Music Toys for Autism: Engaging Lights and Sounds for Kids'
+description: Sensory music toys provide engaging and stimulating experiences for children
+  with autism. These toys combine music, light, and movement to create interactive
+  pl
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-music-toys-for-autism&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=sensory-music-toys-for-autism&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory music toys provide engaging and stimulating experiences for children with autism. These toys combine music, light, and movement to create interactive play.**

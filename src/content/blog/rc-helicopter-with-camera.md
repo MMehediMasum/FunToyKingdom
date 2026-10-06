@@ -1,10 +1,13 @@
 ---
-title: "Rc Helicopter With Camera: Ultimate Guide to Aerial Adventure"
-description: "Have you ever wanted to see the world from a bird’s eye view? An RC helicopter with a camera lets you do just that—capturing stunning aerial shots while you fly"
+title: 'Rc Helicopter With Camera: Ultimate Guide to Aerial Adventure'
+description: Have you ever wanted to see the world from a bird’s eye view? An RC helicopter
+  with a camera lets you do just that—capturing stunning aerial shots while you fly
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-helicopter-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-helicopter-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to see the world from a bird’s eye view? An RC helicopter with a camera lets you do just that—capturing stunning aerial shots while you fly.**

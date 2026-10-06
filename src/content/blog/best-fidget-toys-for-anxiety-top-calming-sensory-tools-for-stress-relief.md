@@ -1,10 +1,13 @@
 ---
-title: "Best Fidget Toys for Anxiety: Top Calming Sensory Tools for Stress Relief"
-description: "Fidget toys help ease anxiety by keeping hands busy and minds calm. These small, simple tools suit both kids and adults. Stress and anxiety often cause restless"
+title: 'Best Fidget Toys for Anxiety: Top Calming Sensory Tools for Stress Relief'
+description: Fidget toys help ease anxiety by keeping hands busy and minds calm. These
+  small, simple tools suit both kids and adults. Stress and anxiety often cause restless
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-fidget-toys-for-anxiety-top-calming-sensory-tools-for-stress-relief&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-fidget-toys-for-anxiety-top-calming-sensory-tools-for-stress-relief&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Fidget toys help ease anxiety by keeping hands busy and minds calm. These small, simple tools suit both kids and adults.**

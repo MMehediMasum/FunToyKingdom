@@ -1,10 +1,13 @@
 ---
-title: "Toys for Infant Gifts: Top Sensory and Developmental Picks for Babies"
-description: "Choosing the perfect toy for an infant gift can be a delightful yet challenging task. With countless options, it's essential to select toys that are not only fu"
+title: 'Toys for Infant Gifts: Top Sensory and Developmental Picks for Babies'
+description: Choosing the perfect toy for an infant gift can be a delightful yet challenging
+  task. With countless options, it's essential to select toys that are not only fu
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-infant-gifts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-infant-gifts&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the perfect toy for an infant gift can be a delightful yet challenging task. With countless options, it's essential to select toys that are not only fun but also aid in development.**

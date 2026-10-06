@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Panda Inflatable Ride on: Ultimate Fun for Kids Outdoors"
-description: "Are you looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Panda Inflatable Ride On is just what you need. Imagine your child’s f"
+title: 'Outdoor Panda Inflatable Ride on: Ultimate Fun for Kids Outdoors'
+description: Are you looking for a fun and exciting way to keep your kids active outdoors?
+  The Outdoor Panda Inflatable Ride On is just what you need. Imagine your child’s
+  f
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-panda-inflatable-ride-on&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-panda-inflatable-ride-on&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Panda Inflatable Ride On is just what you need.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Like a Noisy Toy Crossword: Fun, Bold Puzzles for Brain Stimulation"
 description: "“Like a Noisy Toy Crossword” offers a fun twist to classic puzzles. It brings fresh excitement to crossword lovers of all ages. Crossword puzzles improve focus "
 pubDate: 2025-10-15

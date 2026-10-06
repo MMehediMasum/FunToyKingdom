@@ -1,10 +1,14 @@
 ---
-title: "How to Make Fabric Toy Blocks: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and creative project that brings joy to your child and adds a personal touch to their playtime? Making fabric toy blocks is easier tha"
+title: 'How to Make Fabric Toy Blocks: Easy Steps for Creative Fun'
+description: Are you looking for a fun and creative project that brings joy to your
+  child and adds a personal touch to their playtime? Making fabric toy blocks is easier
+  tha
 pubDate: 2026-07-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-fabric-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-fabric-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to your child and adds a personal touch to their playtime? Making fabric toy blocks is easier than you think, and it’s a fantastic way to create safe, colorful, and soft toys right at home.**

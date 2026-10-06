@@ -1,10 +1,14 @@
 ---
-title: "Dangerous Toys Vinyl: Exclusive Limited Edition Colored LPs You Must Own"
-description: "Dangerous Toys vinyl records offer a unique way to enjoy classic rock music. Each album has its own style and color, making them special for collectors. These v"
+title: 'Dangerous Toys Vinyl: Exclusive Limited Edition Colored LPs You Must Own'
+description: Dangerous Toys vinyl records offer a unique way to enjoy classic rock
+  music. Each album has its own style and color, making them special for collectors.
+  These v
 pubDate: 2025-10-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=dangerous-toys-vinyl&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=dangerous-toys-vinyl&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Dangerous Toys vinyl records offer a unique way to enjoy classic rock music. Each album has its own style and color, making them special for collectors.**

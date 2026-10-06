@@ -1,10 +1,14 @@
 ---
-title: "Arya Stark Collectible Doll: Ultimate Must-Have for Fans"
-description: "Are you a fan of Arya Stark and looking for a special way to celebrate your favorite character? The Arya Stark collectible doll is more than just a toy—it’s a p"
+title: 'Arya Stark Collectible Doll: Ultimate Must-Have for Fans'
+description: Are you a fan of Arya Stark and looking for a special way to celebrate
+  your favorite character? The Arya Stark collectible doll is more than just a toy—it’s
+  a p
 pubDate: 2025-12-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=arya-stark-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=arya-stark-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Arya Stark and looking for a special way to celebrate your favorite character? The Arya Stark collectible doll is more than just a toy—it’s a piece of the story you love.**

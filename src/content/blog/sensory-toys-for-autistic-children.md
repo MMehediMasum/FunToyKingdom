@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Autistic Children: Top Picks for Calm and Focus"
-description: "Sensory toys help autistic children focus and calm their minds. These toys provide comfort and support daily learning and play. Choosing the right sensory toys "
+title: 'Sensory Toys for Autistic Children: Top Picks for Calm and Focus'
+description: 'Sensory toys help autistic children focus and calm their minds. These
+  toys provide comfort and support daily learning and play. Choosing the right sensory
+  toys '
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-autistic-children&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-autistic-children&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help autistic children focus and calm their minds. These toys provide comfort and support daily learning and play.**

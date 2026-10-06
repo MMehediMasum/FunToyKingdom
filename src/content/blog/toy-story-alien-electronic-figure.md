@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Alien Electronic Figure: Ultimate Collectible for Fans"
-description: "Imagine holding a Toy Story Alien Electronic Figure in your hands—one that lights up, talks, and brings your favorite little green friend to life. If you grew u"
+title: 'Toy Story Alien Electronic Figure: Ultimate Collectible for Fans'
+description: Imagine holding a Toy Story Alien Electronic Figure in your hands—one
+  that lights up, talks, and brings your favorite little green friend to life. If
+  you grew u
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-alien-electronic-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-alien-electronic-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine holding a Toy Story Alien Electronic Figure in your hands—one that lights up, talks, and brings your favorite little green friend to life. If you grew up loving the Toy Story movies or want to surprise a young fan with a magical toy, this figure is exactly what you need.**

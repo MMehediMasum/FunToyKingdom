@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for 2 Year Old: Top Fun Picks for Active Playtime"
-description: "Looking for the perfect outdoor toys for your 2-year-old? You want something safe, fun, and that sparks your little one’s curiosity. Choosing the right toys can"
+title: 'Outdoor Toys for 2 Year Old: Top Fun Picks for Active Playtime'
+description: Looking for the perfect outdoor toys for your 2-year-old? You want something
+  safe, fun, and that sparks your little one’s curiosity. Choosing the right toys
+  can
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-2-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect outdoor toys for your 2-year-old? You want something safe, fun, and that sparks your little one’s curiosity.**

@@ -1,10 +1,14 @@
 ---
-title: "Green Robot Toy: Top Interactive RC Robots Kids Will Love"
-description: "Children adore toys that spark their imagination and creativity. Green robot toys do exactly that, offering endless fun and learning. These interactive toys are"
+title: 'Green Robot Toy: Top Interactive RC Robots Kids Will Love'
+description: Children adore toys that spark their imagination and creativity. Green
+  robot toys do exactly that, offering endless fun and learning. These interactive
+  toys are
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=green-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=green-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Children adore toys that spark their imagination and creativity. Green robot toys do exactly that, offering endless fun and learning.**

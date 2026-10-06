@@ -1,10 +1,14 @@
 ---
-title: "Kids Garden Wheelbarrow Toy: Fun, Durable, and Educational Playtime"
-description: "Are you looking for a fun and engaging way to get your kids outside and active? The Kids Garden Wheelbarrow Toy is just what you need. It’s not only a toy but a"
+title: 'Kids Garden Wheelbarrow Toy: Fun, Durable, and Educational Playtime'
+description: Are you looking for a fun and engaging way to get your kids outside and
+  active? The Kids Garden Wheelbarrow Toy is just what you need. It’s not only a toy
+  but a
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-garden-wheelbarrow-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Car Rides Engaging
+heroImage: https://tse1.mm.bing.net/th?q=kids-garden-wheelbarrow-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and engaging way to get your kids outside and active? The Kids Garden Wheelbarrow Toy is just what you need.**

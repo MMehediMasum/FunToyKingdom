@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Car Collection: Top Muscle, Sports & Classic Models for Kids"
-description: "Diecast toy cars bring miniature vehicles to life with real metal parts and detailed designs. These models offer fun for kids and collectors alike. Diecast toy "
+title: 'Diecast Toy Car Collection: Top Muscle, Sports & Classic Models for Kids'
+description: 'Diecast toy cars bring miniature vehicles to life with real metal parts
+  and detailed designs. These models offer fun for kids and collectors alike. Diecast
+  toy '
 pubDate: 2026-03-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy cars bring miniature vehicles to life with real metal parts and detailed designs. These models offer fun for kids and collectors alike.**

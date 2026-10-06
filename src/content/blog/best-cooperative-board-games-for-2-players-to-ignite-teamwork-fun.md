@@ -1,10 +1,14 @@
 ---
-title: "Best Cooperative Board Games for 2 Players to Ignite Teamwork Fun"
-description: "Cooperative board games for 2 players create fun and teamwork in every session. These games challenge players to solve problems and win together. Playing cooper"
+title: Best Cooperative Board Games for 2 Players to Ignite Teamwork Fun
+description: Cooperative board games for 2 players create fun and teamwork in every
+  session. These games challenge players to solve problems and win together. Playing
+  cooper
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cooperative-board-games-for-2-players-to-ignite-teamwork-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-cooperative-board-games-for-2-players-to-ignite-teamwork-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Cooperative board games for 2 players create fun and teamwork in every session. These games challenge players to solve problems and win together.**

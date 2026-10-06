@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Ring Frisbee Toss Game: Ultimate Fun for All Ages"
-description: "Looking for a fun way to bring your friends and family together outdoors? The Outdoor Ring Frisbee Toss Game is the perfect choice for you. It’s easy to set up,"
+title: 'Outdoor Ring Frisbee Toss Game: Ultimate Fun for All Ages'
+description: Looking for a fun way to bring your friends and family together outdoors?
+  The Outdoor Ring Frisbee Toss Game is the perfect choice for you. It’s easy to set
+  up,
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ring-frisbee-toss-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ring-frisbee-toss-game&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your friends and family together outdoors? The Outdoor Ring Frisbee Toss Game is the perfect choice for you.**

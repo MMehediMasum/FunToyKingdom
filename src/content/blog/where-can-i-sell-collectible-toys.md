@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Sell Collectible Toys: Top Profitable Marketplaces Revealed"
-description: "Are you wondering where you can sell your collectible toys for the best price? Whether you have action figures, vintage dolls, or rare collectibles, finding the"
+title: 'Where Can I Sell Collectible Toys: Top Profitable Marketplaces Revealed'
+description: Are you wondering where you can sell your collectible toys for the best
+  price? Whether you have action figures, vintage dolls, or rare collectibles, finding
+  the
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-sell-collectible-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-sell-collectible-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you wondering where you can sell your collectible toys for the best price? Whether you have action figures, vintage dolls, or rare collectibles, finding the right place to sell them can be tricky.**

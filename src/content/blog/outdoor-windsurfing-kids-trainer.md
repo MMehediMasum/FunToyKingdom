@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Windsurfing Kids Trainer: Ultimate Fun & Safety Guide"
 description: "Are you looking for a fun and safe way to introduce your child to windsurfing? An outdoor windsurfing kids trainer might be just what you need. It helps your ch"
 pubDate: 2025-10-19

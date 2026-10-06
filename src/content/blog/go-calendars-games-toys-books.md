@@ -1,10 +1,14 @@
 ---
-title: "Go Calendars Games Toys & Books: Top Magnetic Go Game Sets Reviewed"
-description: "Discover the fascinating world of Go with our diverse selection of Go game sets. Perfect for beginners and seasoned players alike. Go is a timeless strategy gam"
+title: 'Go Calendars Games Toys & Books: Top Magnetic Go Game Sets Reviewed'
+description: Discover the fascinating world of Go with our diverse selection of Go
+  game sets. Perfect for beginners and seasoned players alike. Go is a timeless strategy
+  gam
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=go-calendars-games-toys-books&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=go-calendars-games-toys-books&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Discover the fascinating world of Go with our diverse selection of Go game sets. Perfect for beginners and seasoned players alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Do Bearded Dragons Like Toys: Fun Ways to Keep Them Engaged"
-description: "Have you ever wondered if your bearded dragon enjoys playing with toys? If you want to keep your scaly friend happy and healthy, understanding their interests i"
+title: 'Do Bearded Dragons Like Toys: Fun Ways to Keep Them Engaged'
+description: Have you ever wondered if your bearded dragon enjoys playing with toys?
+  If you want to keep your scaly friend happy and healthy, understanding their interests
+  i
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-bearded-dragons-like-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dentist Toy Set With Braces
+heroImage: https://tse1.mm.bing.net/th?q=do-bearded-dragons-like-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered if your bearded dragon enjoys playing with toys? If you want to keep your scaly friend happy and healthy, understanding their interests is key.**

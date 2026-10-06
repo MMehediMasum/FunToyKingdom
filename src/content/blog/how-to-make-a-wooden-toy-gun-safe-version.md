@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Gun Safe Version: Easy & Kid-Friendly Guide"
-description: "Are you looking for a fun and safe way to create a wooden toy gun? Making your own wooden toy gun can be a great project that brings joy without any worry. In t"
+title: 'How to Make a Wooden Toy Gun Safe Version: Easy & Kid-Friendly Guide'
+description: Are you looking for a fun and safe way to create a wooden toy gun? Making
+  your own wooden toy gun can be a great project that brings joy without any worry.
+  In t
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-gun-safe-version&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-gun-safe-version&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and safe way to create a wooden toy gun? Making your own wooden toy gun can be a great project that brings joy without any worry.**

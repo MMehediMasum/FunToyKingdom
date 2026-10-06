@@ -1,10 +1,14 @@
 ---
-title: "Rc Monster Truck Kids Beginner: Ultimate Guide for Easy Fun"
-description: "Are you looking for the perfect RC monster truck that your kids can enjoy without any hassle? Choosing the right beginner-friendly RC monster truck can be trick"
+title: 'Rc Monster Truck Kids Beginner: Ultimate Guide for Easy Fun'
+description: Are you looking for the perfect RC monster truck that your kids can enjoy
+  without any hassle? Choosing the right beginner-friendly RC monster truck can be
+  trick
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-monster-truck-kids-beginner&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-monster-truck-kids-beginner&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect RC monster truck that your kids can enjoy without any hassle? Choosing the right beginner-friendly RC monster truck can be tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars Tractor Toy Guide: Top Durable and Realistic Kids Outdoor Vehicles"
-description: "Cars Tractor Toy sets bring fun and learning together for young children. These toys offer hands-on play with realistic farm and construction vehicles. Kids enj"
+title: 'Cars Tractor Toy Guide: Top Durable and Realistic Kids Outdoor Vehicles'
+description: Cars Tractor Toy sets bring fun and learning together for young children.
+  These toys offer hands-on play with realistic farm and construction vehicles. Kids
+  enj
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-tractor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-tractor-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Tractor Toy sets bring fun and learning together for young children. These toys offer hands-on play with realistic farm and construction vehicles.**

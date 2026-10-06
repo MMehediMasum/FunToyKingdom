@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Tent Sewing Project: Easy Steps for a Fun Kids’ Playhouse"
-description: "Looking for a fun and creative project that you can make at home? A DIY toy tent sewing project is just what you need. Imagine giving your child a cozy little h"
+title: 'Diy Toy Tent Sewing Project: Easy Steps for a Fun Kids’ Playhouse'
+description: Looking for a fun and creative project that you can make at home? A DIY
+  toy tent sewing project is just what you need. Imagine giving your child a cozy
+  little h
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-tent-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-tent-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative project that you can make at home? A DIY toy tent sewing project is just what you need.**

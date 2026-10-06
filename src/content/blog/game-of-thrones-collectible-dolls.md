@@ -1,10 +1,13 @@
 ---
-title: "Game of Thrones Collectible Dolls: Ultimate Guide for Fans 2025"
-description: "Are you a true Game of Thrones fan looking to bring a piece of Westeros into your home? Game of Thrones collectible dolls let you hold your favorite characters "
+title: 'Game of Thrones Collectible Dolls: Ultimate Guide for Fans 2025'
+description: 'Are you a true Game of Thrones fan looking to bring a piece of Westeros
+  into your home? Game of Thrones collectible dolls let you hold your favorite characters '
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=game-of-thrones-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=game-of-thrones-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a true Game of Thrones fan looking to bring a piece of Westeros into your home? Game of Thrones collectible dolls let you hold your favorite characters in your hands, making the magic of the series feel real.**

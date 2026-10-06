@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Whale Inflatable Ride On: Ultimate Summer Fun Guide"
-description: "Imagine turning your outdoor fun into an unforgettable adventure with an exciting twist. The Outdoor Whale Inflatable Ride-On is more than just a toy—it's your "
+title: 'Outdoor Whale Inflatable Ride On: Ultimate Summer Fun Guide'
+description: 'Imagine turning your outdoor fun into an unforgettable adventure with
+  an exciting twist. The Outdoor Whale Inflatable Ride-On is more than just a toy—it''s
+  your '
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-whale-inflatable-ride-on&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-whale-inflatable-ride-on&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your outdoor fun into an unforgettable adventure with an exciting twist. The Outdoor Whale Inflatable Ride-On is more than just a toy—it's your ticket to endless laughter and joy.**

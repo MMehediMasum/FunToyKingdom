@@ -1,10 +1,14 @@
 ---
-title: "Best Sensory Toys for Newborns to Boost Development and Engagement"
-description: "Choosing the best sensory toys for newborns helps support early brain and motor skill development. Sensory toys engage babies’ senses through touch, sight, and "
+title: Best Sensory Toys for Newborns to Boost Development and Engagement
+description: 'Choosing the best sensory toys for newborns helps support early brain
+  and motor skill development. Sensory toys engage babies’ senses through touch, sight,
+  and '
 pubDate: 2025-10-19
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sensory-toys-for-newborns-to-boost-development-and-engagement&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-sensory-toys-for-newborns-to-boost-development-and-engagement&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best sensory toys for newborns helps support early brain and motor skill development. Sensory toys engage babies’ senses through touch, sight, and sound.**

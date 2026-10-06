@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Poodle Vs Miniature Poodle: Key Differences and Best Gift Ideas"
 description: "Toy Poodle and Miniature Poodle often confuse dog lovers. Both look similar but have key differences. These two poodle types share a playful nature and curly co"
 pubDate: 2026-02-28

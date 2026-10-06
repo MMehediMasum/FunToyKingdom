@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Ball Rope: Durable Chew and Tug Toys for Active Dogs"
-description: "Dog toy ball ropes offer fun and exercise for dogs of all sizes. These toys combine a durable ball with a strong rope for tugging and chewing. A dog toy ball ro"
+title: 'Dog Toy Ball Rope: Durable Chew and Tug Toys for Active Dogs'
+description: Dog toy ball ropes offer fun and exercise for dogs of all sizes. These
+  toys combine a durable ball with a strong rope for tugging and chewing. A dog toy
+  ball ro
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-ball-rope&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-ball-rope&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy ball ropes offer fun and exercise for dogs of all sizes. These toys combine a durable ball with a strong rope for tugging and chewing.**

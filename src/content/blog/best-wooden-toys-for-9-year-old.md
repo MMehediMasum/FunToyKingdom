@@ -1,10 +1,14 @@
 ---
-title: "Best Wooden Toys for 9 Year Old: Top Durable & Fun Picks"
-description: "Finding the best wooden toys for your 9-year-old can feel overwhelming. You want something fun, safe, and that sparks their creativity. Wooden toys are perfect "
+title: 'Best Wooden Toys for 9 Year Old: Top Durable & Fun Picks'
+description: 'Finding the best wooden toys for your 9-year-old can feel overwhelming.
+  You want something fun, safe, and that sparks their creativity. Wooden toys are
+  perfect '
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wooden-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-wooden-toys-for-9-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Finding the best wooden toys for your 9-year-old can feel overwhelming. You want something fun, safe, and that sparks their creativity.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Card Games for PC: Top Digital Classics and Game Pass Picks"
 description: "Card games on PC offer fun and challenge for all players. They combine classic rules with modern technology for easy access. Playing card games on a PC lets you"
 pubDate: 2025-12-31

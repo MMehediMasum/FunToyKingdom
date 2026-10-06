@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Manchester Terrier Vs Miniature Pinscher: Which Realistic Dog Model Shines?"
 description: "Toy Manchester Terriers and Miniature Pinschers are often confused due to their similar appearance. Both breeds have unique traits and characteristics. Deciding"
 pubDate: 2026-02-13

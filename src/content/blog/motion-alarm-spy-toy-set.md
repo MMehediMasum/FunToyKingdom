@@ -1,10 +1,14 @@
 ---
-title: "Motion Alarm Spy Toy Set: Ultimate Fun and Security Gadget"
-description: "Imagine having a secret way to protect your space while having fun at the same time. The Motion Alarm Spy Toy Set lets you do just that. It’s not just a toy—it’"
+title: 'Motion Alarm Spy Toy Set: Ultimate Fun and Security Gadget'
+description: Imagine having a secret way to protect your space while having fun at
+  the same time. The Motion Alarm Spy Toy Set lets you do just that. It’s not just
+  a toy—it’
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=motion-alarm-spy-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=motion-alarm-spy-toy-set&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Imagine having a secret way to protect your space while having fun at the same time. The Motion Alarm Spy Toy Set lets you do just that.**

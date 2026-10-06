@@ -1,10 +1,14 @@
 ---
-title: "Summer Travel Board Games: Ultimate Fun for Road Trips"
-description: "Looking for a fun way to keep your summer trips exciting? Summer travel board games are the perfect solution to turn long car rides, beach days, or camping nigh"
+title: 'Summer Travel Board Games: Ultimate Fun for Road Trips'
+description: Looking for a fun way to keep your summer trips exciting? Summer travel
+  board games are the perfect solution to turn long car rides, beach days, or camping
+  nigh
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=summer-travel-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=summer-travel-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to keep your summer trips exciting? Summer travel board games are the perfect solution to turn long car rides, beach days, or camping nights into unforgettable moments.**

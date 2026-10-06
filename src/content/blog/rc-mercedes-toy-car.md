@@ -1,10 +1,14 @@
 ---
-title: "Rc Mercedes Toy Car: Ultimate Guide to Speed and Style"
-description: "Are you ready to bring the thrill of driving a Mercedes right to your fingertips? The RC Mercedes toy car offers you a fun and exciting way to enjoy the luxury "
+title: 'Rc Mercedes Toy Car: Ultimate Guide to Speed and Style'
+description: 'Are you ready to bring the thrill of driving a Mercedes right to your
+  fingertips? The RC Mercedes toy car offers you a fun and exciting way to enjoy the
+  luxury '
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-mercedes-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-mercedes-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to bring the thrill of driving a Mercedes right to your fingertips? The RC Mercedes toy car offers you a fun and exciting way to enjoy the luxury and style of this iconic brand without leaving your home.**

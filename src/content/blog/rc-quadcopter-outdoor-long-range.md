@@ -1,10 +1,14 @@
 ---
-title: "Rc Quadcopter Outdoor Long Range: Ultimate Guide for Epic Flights"
-description: "Are you ready to take your flying experience to the next level? Imagine controlling an RC quadcopter that can soar far beyond the usual limits, giving you breat"
+title: 'Rc Quadcopter Outdoor Long Range: Ultimate Guide for Epic Flights'
+description: Are you ready to take your flying experience to the next level? Imagine
+  controlling an RC quadcopter that can soar far beyond the usual limits, giving you
+  breat
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-quadcopter-outdoor-long-range&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-quadcopter-outdoor-long-range&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your flying experience to the next level? Imagine controlling an RC quadcopter that can soar far beyond the usual limits, giving you breathtaking views and endless fun outdoors.**

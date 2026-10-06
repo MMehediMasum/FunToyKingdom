@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games for Five Players to Elevate Your Game Night Fun"
-description: "Finding the best board games for five players can make any gathering more fun and engaging. Games that suit five players keep everyone involved and entertained "
+title: Best Board Games for Five Players to Elevate Your Game Night Fun
+description: 'Finding the best board games for five players can make any gathering
+  more fun and engaging. Games that suit five players keep everyone involved and entertained '
 pubDate: 2025-11-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-five-players-to-elevate-your-game-night-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-five-players-to-elevate-your-game-night-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for five players can make any gathering more fun and engaging. Games that suit five players keep everyone involved and entertained throughout.**

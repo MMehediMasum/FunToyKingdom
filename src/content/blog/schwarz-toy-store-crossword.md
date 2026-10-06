@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Schwarz Toy Store Crossword: Ultimate Large Print Puzzle Bundle for Seniors"
 description: "Schwarz Toy Store offers a delightful range of crossword puzzle collections for every enthusiast. Perfect for seniors and adults alike, these puzzles provide ho"
 pubDate: 2026-08-01

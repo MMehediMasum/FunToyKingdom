@@ -1,10 +1,14 @@
 ---
-title: "Mystery Board Games Like Clue: Top Thrilling Picks for Detectives"
-description: "Have you ever found yourself glued to a game of Clue, trying to solve the mystery before anyone else? If you love the thrill of uncovering secrets and piecing t"
+title: 'Mystery Board Games Like Clue: Top Thrilling Picks for Detectives'
+description: Have you ever found yourself glued to a game of Clue, trying to solve
+  the mystery before anyone else? If you love the thrill of uncovering secrets and
+  piecing t
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=mystery-board-games-like-clue&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=mystery-board-games-like-clue&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever found yourself glued to a game of Clue, trying to solve the mystery before anyone else? If you love the thrill of uncovering secrets and piecing together clues, you’re in the right place.**

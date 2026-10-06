@@ -1,10 +1,14 @@
 ---
-title: "Pogo Stick Beginner Kids: Ultimate Guide to Safe Fun and Fitness"
-description: "Are you looking for a fun and exciting way to keep your kids active? A pogo stick might be the perfect choice! It’s more than just a toy—it helps build balance,"
+title: 'Pogo Stick Beginner Kids: Ultimate Guide to Safe Fun and Fitness'
+description: Are you looking for a fun and exciting way to keep your kids active?
+  A pogo stick might be the perfect choice! It’s more than just a toy—it helps build
+  balance,
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=pogo-stick-beginner-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=pogo-stick-beginner-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active? A pogo stick might be the perfect choice!**

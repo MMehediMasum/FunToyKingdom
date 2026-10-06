@@ -1,10 +1,14 @@
 ---
-title: "Burger Stack Toy: Boost Fine Motor Skills with Montessori Wooden Fun"
-description: "Burger stack toys offer fun and learning for young children. These toys help kids build fine motor skills while playing. Montessori wooden burger stacking toys "
+title: 'Burger Stack Toy: Boost Fine Motor Skills with Montessori Wooden Fun'
+description: 'Burger stack toys offer fun and learning for young children. These toys
+  help kids build fine motor skills while playing. Montessori wooden burger stacking
+  toys '
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=burger-stack-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Burger King Toy Promotions
+heroImage: https://tse1.mm.bing.net/th?q=burger-stack-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Burger stack toys offer fun and learning for young children. These toys help kids build fine motor skills while playing.**

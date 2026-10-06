@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Truck With Towing Hitch: Ultimate Fun for Kids"
-description: "Looking for a fun and exciting way to keep your child entertained? A ride on toy truck with a towing hitch might be just what you need. Imagine your little one "
+title: 'Ride on Toy Truck With Towing Hitch: Ultimate Fun for Kids'
+description: 'Looking for a fun and exciting way to keep your child entertained? A
+  ride on toy truck with a towing hitch might be just what you need. Imagine your
+  little one '
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-truck-with-towing-hitch&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-truck-with-towing-hitch&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a fun and exciting way to keep your child entertained? A ride on toy truck with a towing hitch might be just what you need.**

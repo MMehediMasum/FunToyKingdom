@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Truck Trailer With Wood: Easy Step-by-Step Guide"
-description: "Are you looking for a fun and creative project that you can build with your own hands? Making a DIY toy truck trailer with wood is a perfect way to bring your i"
+title: 'Diy Toy Truck Trailer With Wood: Easy Step-by-Step Guide'
+description: Are you looking for a fun and creative project that you can build with
+  your own hands? Making a DIY toy truck trailer with wood is a perfect way to bring
+  your i
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-truck-trailer-with-wood&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-truck-trailer-with-wood&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can build with your own hands? Making a DIY toy truck trailer with wood is a perfect way to bring your ideas to life while enjoying quality time.**

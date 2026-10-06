@@ -1,10 +1,14 @@
 ---
-title: "How to Wash Bath Toys: Easy Tips for a Safe, Clean Playtime"
-description: "Do you ever wonder if your bath toys are really clean? You use them every day, but tiny germs can hide inside and cause problems for your child’s health. Knowin"
+title: 'How to Wash Bath Toys: Easy Tips for a Safe, Clean Playtime'
+description: Do you ever wonder if your bath toys are really clean? You use them every
+  day, but tiny germs can hide inside and cause problems for your child’s health.
+  Knowin
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Do you ever wonder if your bath toys are really clean? You use them every day, but tiny germs can hide inside and cause problems for your child’s health.**

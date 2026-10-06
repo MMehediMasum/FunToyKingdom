@@ -1,10 +1,14 @@
 ---
-title: "Shape Matching Puzzle Toy: Boost Brain Power & Fun Learning"
-description: "Are you looking for a fun and simple way to boost your child’s learning? A Shape Matching Puzzle Toy might be exactly what you need. This toy is more than just "
+title: 'Shape Matching Puzzle Toy: Boost Brain Power & Fun Learning'
+description: 'Are you looking for a fun and simple way to boost your child’s learning?
+  A Shape Matching Puzzle Toy might be exactly what you need. This toy is more than
+  just '
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=shape-matching-puzzle-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=shape-matching-puzzle-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and simple way to boost your child’s learning? A Shape Matching Puzzle Toy might be exactly what you need.**

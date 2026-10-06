@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Race Car Pool Float: Ultimate Summer Fun for Kids"
-description: "Imagine turning your pool into the ultimate race track with an Inflatable Race Car Pool Float designed just for you. This fun and eye-catching float isn’t just "
+title: 'Inflatable Race Car Pool Float: Ultimate Summer Fun for Kids'
+description: 'Imagine turning your pool into the ultimate race track with an Inflatable
+  Race Car Pool Float designed just for you. This fun and eye-catching float isn’t
+  just '
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-race-car-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-race-car-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your pool into the ultimate race track with an Inflatable Race Car Pool Float designed just for you. This fun and eye-catching float isn’t just about looking cool—it’s about making your pool time more exciting and memorable.**

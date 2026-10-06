@@ -1,10 +1,14 @@
 ---
-title: "Ultimate Edition WWE Toys: Top Collectible Action Figures & Accessories Guide"
-description: "Ultimate Edition WWE toys bring top wrestling stars to life with detailed action figures and accessories. Fans enjoy figures like Roman Reigns, John Cena, and T"
+title: 'Ultimate Edition WWE Toys: Top Collectible Action Figures & Accessories Guide'
+description: Ultimate Edition WWE toys bring top wrestling stars to life with detailed
+  action figures and accessories. Fans enjoy figures like Roman Reigns, John Cena,
+  and T
 pubDate: 2026-08-02
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ultimate-edition-wwe-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=ultimate-edition-wwe-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Ultimate Edition WWE toys bring top wrestling stars to life with detailed action figures and accessories. Fans enjoy figures like Roman Reigns, John Cena, and The Rock in collectible sets.**

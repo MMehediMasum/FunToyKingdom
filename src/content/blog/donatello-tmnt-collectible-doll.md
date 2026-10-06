@@ -1,10 +1,14 @@
 ---
-title: "Donatello Tmnt Collectible Doll: Ultimate Guide for Fans & Collectors"
-description: "Are you a fan of Teenage Mutant Ninja Turtles? Imagine having Donatello, the tech-savvy turtle, right on your shelf. The Donatello TMNT collectible doll isn’t j"
+title: 'Donatello Tmnt Collectible Doll: Ultimate Guide for Fans & Collectors'
+description: Are you a fan of Teenage Mutant Ninja Turtles? Imagine having Donatello,
+  the tech-savvy turtle, right on your shelf. The Donatello TMNT collectible doll
+  isn’t j
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=donatello-tmnt-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=donatello-tmnt-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Teenage Mutant Ninja Turtles? Imagine having Donatello, the tech-savvy turtle, right on your shelf.**

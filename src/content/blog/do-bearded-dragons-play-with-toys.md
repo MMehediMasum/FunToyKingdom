@@ -1,10 +1,14 @@
 ---
-title: "Do Bearded Dragons Play With Toys: Surprising Facts Revealed"
-description: "Have you ever caught yourself wondering if your bearded dragon enjoys playing with toys? You’re not alone. Many reptile owners ask the same question because the"
+title: 'Do Bearded Dragons Play With Toys: Surprising Facts Revealed'
+description: Have you ever caught yourself wondering if your bearded dragon enjoys
+  playing with toys? You’re not alone. Many reptile owners ask the same question because
+  the
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-bearded-dragons-play-with-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drop Off Toys For Christmas
+heroImage: https://tse1.mm.bing.net/th?q=do-bearded-dragons-play-with-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever caught yourself wondering if your bearded dragon enjoys playing with toys? You’re not alone.**

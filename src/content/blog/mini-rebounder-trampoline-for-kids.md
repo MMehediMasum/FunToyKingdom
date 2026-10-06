@@ -1,10 +1,14 @@
 ---
-title: "Mini Rebounder Trampoline for Kids: Fun, Safe, and Active Play"
-description: "Are you looking for a fun and healthy way to keep your kids active right at home? A mini rebounder trampoline for kids might be just what you need. It’s more th"
+title: 'Mini Rebounder Trampoline for Kids: Fun, Safe, and Active Play'
+description: Are you looking for a fun and healthy way to keep your kids active right
+  at home? A mini rebounder trampoline for kids might be just what you need. It’s
+  more th
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-rebounder-trampoline-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=mini-rebounder-trampoline-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and healthy way to keep your kids active right at home? A mini rebounder trampoline for kids might be just what you need.**

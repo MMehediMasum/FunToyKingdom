@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for 1 Year Old: Fun, Safe, and Engaging Picks"
-description: "Choosing the right outdoor toys for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one grow. Imagine your child"
+title: 'Outdoor Toys for 1 Year Old: Fun, Safe, and Engaging Picks'
+description: Choosing the right outdoor toys for your 1-year-old can feel overwhelming.
+  You want something safe, fun, and that helps your little one grow. Imagine your
+  child
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-1-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Choosing the right outdoor toys for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one grow.**

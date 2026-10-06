@@ -1,10 +1,14 @@
 ---
-title: "Abc Toy Blocks: Top Educational Building Sets for Toddlers and Kids"
-description: "Abc Toy Blocks help children learn letters and numbers while they play. These blocks build skills like hand-eye coordination and problem-solving. Abc Toy Blocks"
+title: 'Abc Toy Blocks: Top Educational Building Sets for Toddlers and Kids'
+description: Abc Toy Blocks help children learn letters and numbers while they play.
+  These blocks build skills like hand-eye coordination and problem-solving. Abc Toy
+  Blocks
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=abc-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=abc-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Abc Toy Blocks help children learn letters and numbers while they play. These blocks build skills like hand-eye coordination and problem-solving.**

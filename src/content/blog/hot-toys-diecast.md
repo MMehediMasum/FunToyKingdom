@@ -1,10 +1,14 @@
 ---
-title: "Hot Toys Diecast: Ultimate Guide to Greenlight 2008 Police Interceptor Collectible"
-description: "Hot Toys Diecast models captivate collectors with their stunning detail and craftsmanship. These collectibles are more than just toys. The Greenlight 85553 Hot "
+title: 'Hot Toys Diecast: Ultimate Guide to Greenlight 2008 Police Interceptor Collectible'
+description: 'Hot Toys Diecast models captivate collectors with their stunning detail
+  and craftsmanship. These collectibles are more than just toys. The Greenlight 85553
+  Hot '
 pubDate: 2026-08-11
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hot-toys-diecast&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=hot-toys-diecast&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Hot Toys Diecast models captivate collectors with their stunning detail and craftsmanship. These collectibles are more than just toys.**

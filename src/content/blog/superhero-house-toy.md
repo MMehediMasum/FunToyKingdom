@@ -1,10 +1,14 @@
 ---
-title: "Superhero House Toy Ideas: Ultimate Indoor Playhouses for Kids Fun"
-description: "Superhero-themed toys captivate young imaginations, providing endless adventure. Discover the perfect superhero house toy for your child today. Kids love playin"
+title: 'Superhero House Toy Ideas: Ultimate Indoor Playhouses for Kids Fun'
+description: Superhero-themed toys captivate young imaginations, providing endless
+  adventure. Discover the perfect superhero house toy for your child today. Kids love
+  playin
 pubDate: 2026-02-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=superhero-house-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=superhero-house-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Superhero-themed toys captivate young imaginations, providing endless adventure. Discover the perfect superhero house toy for your child today.**

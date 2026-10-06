@@ -1,10 +1,14 @@
 ---
-title: "Giant Easter Bunny Inflatable Yard Toy: Ultimate Holiday Decor Delight"
-description: "Imagine turning your yard into the most exciting spot in the neighborhood this Easter. With a Giant Easter Bunny Inflatable Yard Toy, you can do just that! This"
+title: 'Giant Easter Bunny Inflatable Yard Toy: Ultimate Holiday Decor Delight'
+description: Imagine turning your yard into the most exciting spot in the neighborhood
+  this Easter. With a Giant Easter Bunny Inflatable Yard Toy, you can do just that!
+  This
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-easter-bunny-inflatable-yard-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Unicorn Pool Float
+heroImage: https://tse1.mm.bing.net/th?q=giant-easter-bunny-inflatable-yard-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your yard into the most exciting spot in the neighborhood this Easter. With a Giant Easter Bunny Inflatable Yard Toy, you can do just that!**

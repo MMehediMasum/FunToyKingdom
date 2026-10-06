@@ -1,10 +1,14 @@
 ---
-title: "Two Player Board Games Ideas: Ultimate Fun for Game Night"
-description: "Looking for fun ways to spend quality time with someone special? Two player board games are perfect for you. They bring excitement, challenge, and connection ri"
+title: 'Two Player Board Games Ideas: Ultimate Fun for Game Night'
+description: Looking for fun ways to spend quality time with someone special? Two
+  player board games are perfect for you. They bring excitement, challenge, and connection
+  ri
 pubDate: 2025-10-13
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=two-player-board-games-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=two-player-board-games-ideas&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for fun ways to spend quality time with someone special? Two player board games are perfect for you.**

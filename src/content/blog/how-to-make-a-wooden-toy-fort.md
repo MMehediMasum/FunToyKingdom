@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Fort: Easy Steps for Creative Fun"
-description: "Imagine creating a wooden toy fort that your kids will treasure for years. You want something sturdy, safe, and fun—built with your own hands. This guide will s"
+title: 'How to Make a Wooden Toy Fort: Easy Steps for Creative Fun'
+description: Imagine creating a wooden toy fort that your kids will treasure for years.
+  You want something sturdy, safe, and fun—built with your own hands. This guide will
+  s
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-fort&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-fort&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a wooden toy fort that your kids will treasure for years. You want something sturdy, safe, and fun—built with your own hands.**

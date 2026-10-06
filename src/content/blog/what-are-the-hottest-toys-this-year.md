@@ -1,10 +1,14 @@
 ---
-title: "What are the Hottest Toys This Year: Top Must-Have Picks 2025"
-description: "Are you ready to discover the hottest toys this year? Whether you’re shopping for a birthday, holiday, or just because, finding the perfect toy can feel overwhe"
+title: 'What are the Hottest Toys This Year: Top Must-Have Picks 2025'
+description: Are you ready to discover the hottest toys this year? Whether you’re
+  shopping for a birthday, holiday, or just because, finding the perfect toy can feel
+  overwhe
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-the-hottest-toys-this-year&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-are-the-hottest-toys-this-year&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to discover the hottest toys this year? Whether you’re shopping for a birthday, holiday, or just because, finding the perfect toy can feel overwhelming.**

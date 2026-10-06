@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Action Figure Unboxing Blog Ideas: Must-Try Themes for Creators"
 description: "Are you ready to take your action figure unboxing videos or blogs to the next level? Whether you’re a seasoned collector or just starting out, coming up with fr"
 pubDate: 2025-12-17

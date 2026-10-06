@@ -1,10 +1,13 @@
 ---
-title: "Where are Douglas Cuddle Toys Made: Discover Their Origin Now"
-description: "Have you ever wondered where your favorite Douglas Cuddle Toys come from? Knowing where these soft, huggable companions are made can give you a deeper connectio"
+title: 'Where are Douglas Cuddle Toys Made: Discover Their Origin Now'
+description: Have you ever wondered where your favorite Douglas Cuddle Toys come from?
+  Knowing where these soft, huggable companions are made can give you a deeper connectio
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-are-douglas-cuddle-toys-made&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing
+heroImage: https://tse1.mm.bing.net/th?q=where-are-douglas-cuddle-toys-made&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered where your favorite Douglas Cuddle Toys come from? Knowing where these soft, huggable companions are made can give you a deeper connection to the toy and the quality behind it.**

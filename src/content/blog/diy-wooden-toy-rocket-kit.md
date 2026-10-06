@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Rocket Kit: Build, Play, and Learn Together!"
-description: "Are you looking for a fun and creative project that brings out your inner builder? The DIY Wooden Toy Rocket Kit is exactly what you need. It’s not just a toy—i"
+title: 'Diy Wooden Toy Rocket Kit: Build, Play, and Learn Together!'
+description: Are you looking for a fun and creative project that brings out your inner
+  builder? The DIY Wooden Toy Rocket Kit is exactly what you need. It’s not just a
+  toy—i
 pubDate: 2026-07-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-rocket-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-rocket-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings out your inner builder? The DIY Wooden Toy Rocket Kit is exactly what you need.**

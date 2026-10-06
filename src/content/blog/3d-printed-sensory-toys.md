@@ -1,10 +1,14 @@
 ---
-title: "3D Printed Sensory Toys: Ultimate Stress Relief and Fidget Fun Guide"
-description: "3D printed sensory toys offer unique shapes and textures that help reduce stress and improve focus. These toys combine creativity and function for both kids and"
+title: '3D Printed Sensory Toys: Ultimate Stress Relief and Fidget Fun Guide'
+description: 3D printed sensory toys offer unique shapes and textures that help reduce
+  stress and improve focus. These toys combine creativity and function for both kids
+  and
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=3d-printed-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=3d-printed-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **3D printed sensory toys offer unique shapes and textures that help reduce stress and improve focus. These toys combine creativity and function for both kids and adults.**

@@ -1,10 +1,14 @@
 ---
-title: "Frozen Elsa And Anna Dolls Set: Magical Fun for Kids"
-description: "Are you looking for the perfect gift that will light up a child’s face instantly? The Frozen Elsa and Anna Dolls Set might be exactly what you need. These dolls"
+title: 'Frozen Elsa And Anna Dolls Set: Magical Fun for Kids'
+description: Are you looking for the perfect gift that will light up a child’s face
+  instantly? The Frozen Elsa and Anna Dolls Set might be exactly what you need. These
+  dolls
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=frozen-elsa-and-anna-dolls-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=frozen-elsa-and-anna-dolls-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for the perfect gift that will light up a child’s face instantly? The Frozen Elsa and Anna Dolls Set might be exactly what you need.**

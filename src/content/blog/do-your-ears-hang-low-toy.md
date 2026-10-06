@@ -1,10 +1,14 @@
 ---
-title: "Do Your Ears Hang Low Toy: Fun Gifts Kids Will Love!"
-description: "Have you ever wondered why the classic song \"Do Your Ears Hang Low\" is so catchy and fun to sing? What if you could bring that playful spirit into your life wit"
+title: 'Do Your Ears Hang Low Toy: Fun Gifts Kids Will Love!'
+description: Have you ever wondered why the classic song "Do Your Ears Hang Low" is
+  so catchy and fun to sing? What if you could bring that playful spirit into your
+  life wit
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-your-ears-hang-low-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=do-your-ears-hang-low-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered why the classic song "Do Your Ears Hang Low" is so catchy and fun to sing? What if you could bring that playful spirit into your life with a toy inspired by this timeless tune?**

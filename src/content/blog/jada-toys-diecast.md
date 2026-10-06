@@ -1,10 +1,14 @@
 ---
-title: "Jada Toys Diecast: Ultimate Collectible Fast & Furious Model Cars Review"
-description: "Jada Toys Diecast cars offer detailed and realistic models loved by collectors and fans. These diecast cars feature popular designs from movies and games. Jada "
+title: 'Jada Toys Diecast: Ultimate Collectible Fast & Furious Model Cars Review'
+description: 'Jada Toys Diecast cars offer detailed and realistic models loved by
+  collectors and fans. These diecast cars feature popular designs from movies and
+  games. Jada '
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-diecast&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-diecast&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jada Toys Diecast cars offer detailed and realistic models loved by collectors and fans. These diecast cars feature popular designs from movies and games.**

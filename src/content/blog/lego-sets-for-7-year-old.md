@@ -1,10 +1,13 @@
 ---
-title: "Lego Sets for 7 Year Old: Top Creative Picks for Fun & Learning"
-description: "Are you looking for the perfect Lego sets that will keep your 7-year-old excited and engaged? Choosing the right Lego set can spark creativity, boost problem-so"
+title: 'Lego Sets for 7 Year Old: Top Creative Picks for Fun & Learning'
+description: Are you looking for the perfect Lego sets that will keep your 7-year-old
+  excited and engaged? Choosing the right Lego set can spark creativity, boost problem-so
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-sets-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-sets-for-7-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect Lego sets that will keep your 7-year-old excited and engaged? Choosing the right Lego set can spark creativity, boost problem-solving skills, and provide hours of fun.**

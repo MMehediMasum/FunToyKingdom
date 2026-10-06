@@ -1,10 +1,14 @@
 ---
-title: "Are Toy Guns Illegal in California: What You Need to Know Now"
-description: "Are you wondering if toy guns are illegal in California? You’re not alone. Many people worry about the rules around toy guns because they can look very real. Kn"
+title: 'Are Toy Guns Illegal in California: What You Need to Know Now'
+description: Are you wondering if toy guns are illegal in California? You’re not alone.
+  Many people worry about the rules around toy guns because they can look very real.
+  Kn
 pubDate: 2025-09-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-toy-guns-illegal-in-california&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=are-toy-guns-illegal-in-california&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you wondering if toy guns are illegal in California? You’re not alone.**

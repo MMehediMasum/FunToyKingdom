@@ -1,10 +1,13 @@
 ---
-title: "Dog Rope Chew Toys for Aggressive Chewers: Durable, Tough, and Fun"
-description: "Dog rope chew toys offer a strong and safe option for aggressive chewers. These toys help protect your dog’s teeth while keeping them busy and happy. Aggressive"
+title: 'Dog Rope Chew Toys for Aggressive Chewers: Durable, Tough, and Fun'
+description: Dog rope chew toys offer a strong and safe option for aggressive chewers.
+  These toys help protect your dog’s teeth while keeping them busy and happy. Aggressive
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-chew-toys-for-aggressive-chewers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-chew-toys-for-aggressive-chewers&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope chew toys offer a strong and safe option for aggressive chewers. These toys help protect your dog’s teeth while keeping them busy and happy.**

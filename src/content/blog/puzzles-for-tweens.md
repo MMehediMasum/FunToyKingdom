@@ -1,10 +1,14 @@
 ---
-title: "Puzzles for Tweens: Fun Brain Boosters to Challenge Young Minds"
-description: "Are you looking for a fun and challenging way to keep your tween engaged? Puzzles for tweens are the perfect solution to spark their curiosity and boost their b"
+title: 'Puzzles for Tweens: Fun Brain Boosters to Challenge Young Minds'
+description: Are you looking for a fun and challenging way to keep your tween engaged?
+  Puzzles for tweens are the perfect solution to spark their curiosity and boost their
+  b
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzles-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=puzzles-for-tweens&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and challenging way to keep your tween engaged? Puzzles for tweens are the perfect solution to spark their curiosity and boost their brainpower.**

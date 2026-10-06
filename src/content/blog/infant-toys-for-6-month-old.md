@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 6 Month Old Babies: Top Montessori and Sensory Picks"
-description: "Choosing the right infant toys for a 6-month-old helps support their growth and curiosity. Toys at this age boost senses, motor skills, and early learning. Babi"
+title: 'Infant Toys for 6 Month Old Babies: Top Montessori and Sensory Picks'
+description: Choosing the right infant toys for a 6-month-old helps support their
+  growth and curiosity. Toys at this age boost senses, motor skills, and early learning.
+  Babi
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-6-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Learning Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-6-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right infant toys for a 6-month-old helps support their growth and curiosity. Toys at this age boost senses, motor skills, and early learning.**

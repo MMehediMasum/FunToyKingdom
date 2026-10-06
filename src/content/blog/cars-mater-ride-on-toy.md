@@ -1,10 +1,14 @@
 ---
-title: "Cars Mater Ride on Toy: Ultimate Fun for Kids and Disney Fans"
-description: "Cars Mater ride on toys bring the fun of the famous Pixar character to life. Kids enjoy driving or playing with these colorful, detailed vehicles. Cars Mater to"
+title: 'Cars Mater Ride on Toy: Ultimate Fun for Kids and Disney Fans'
+description: Cars Mater ride on toys bring the fun of the famous Pixar character to
+  life. Kids enjoy driving or playing with these colorful, detailed vehicles. Cars
+  Mater to
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mater-ride-on-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=cars-mater-ride-on-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Cars Mater ride on toys bring the fun of the famous Pixar character to life. Kids enjoy driving or playing with these colorful, detailed vehicles.**

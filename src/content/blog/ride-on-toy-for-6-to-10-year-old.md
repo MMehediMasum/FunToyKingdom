@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for 6 to 10 Year Old: Ultimate Fun and Safety Guide"
-description: "Are you looking for the perfect ride-on toy for your 6 to 10 year old? Choosing the right one can be tricky. You want something safe, fun, and that keeps your c"
+title: 'Ride on Toy for 6 to 10 Year Old: Ultimate Fun and Safety Guide'
+description: Are you looking for the perfect ride-on toy for your 6 to 10 year old?
+  Choosing the right one can be tricky. You want something safe, fun, and that keeps
+  your c
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-6-to-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-6-to-10-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect ride-on toy for your 6 to 10 year old? Choosing the right one can be tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "Giant Floor Puzzles for Toddlers: Fun, Learning & Playtime Ideas"
-description: "Are you looking for a fun and educational activity that keeps your toddler engaged for hours? Giant floor puzzles might be just what you need. These oversized p"
+title: 'Giant Floor Puzzles for Toddlers: Fun, Learning & Playtime Ideas'
+description: Are you looking for a fun and educational activity that keeps your toddler
+  engaged for hours? Giant floor puzzles might be just what you need. These oversized
+  p
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-floor-puzzles-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=giant-floor-puzzles-for-toddlers&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and educational activity that keeps your toddler engaged for hours? Giant floor puzzles might be just what you need.**

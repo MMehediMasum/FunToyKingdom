@@ -1,10 +1,14 @@
 ---
-title: "Rare Miniature Toy Airplanes Collectibles: Ultimate Guide to Value"
-description: "Are you fascinated by tiny treasures that hold big stories? Rare miniature toy airplanes collectibles offer just that—a chance to own a piece of history in the "
+title: 'Rare Miniature Toy Airplanes Collectibles: Ultimate Guide to Value'
+description: 'Are you fascinated by tiny treasures that hold big stories? Rare miniature
+  toy airplanes collectibles offer just that—a chance to own a piece of history in
+  the '
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-miniature-toy-airplanes-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=rare-miniature-toy-airplanes-collectibles&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you fascinated by tiny treasures that hold big stories? Rare miniature toy airplanes collectibles offer just that—a chance to own a piece of history in the palm of your hand.**

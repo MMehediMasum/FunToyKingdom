@@ -1,10 +1,14 @@
 ---
-title: "Safe Toys for 5 Year Old: Top Picks for Fun & Safety"
-description: "Choosing the right toys for your 5-year-old can feel overwhelming. You want to make sure they are safe, fun, and help your child grow. But with so many options,"
+title: 'Safe Toys for 5 Year Old: Top Picks for Fun & Safety'
+description: Choosing the right toys for your 5-year-old can feel overwhelming. You
+  want to make sure they are safe, fun, and help your child grow. But with so many
+  options,
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=safe-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=safe-toys-for-5-year-old&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Choosing the right toys for your 5-year-old can feel overwhelming. You want to make sure they are safe, fun, and help your child grow.**

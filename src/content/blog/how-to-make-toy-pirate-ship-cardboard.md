@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Pirate Ship Cardboard: Easy Step-by-Step Guide"
-description: "Are you looking for a fun and creative project to do with your kids or even by yourself? Making a toy pirate ship out of cardboard is easier than you think, and"
+title: 'How to Make Toy Pirate Ship Cardboard: Easy Step-by-Step Guide'
+description: Are you looking for a fun and creative project to do with your kids or
+  even by yourself? Making a toy pirate ship out of cardboard is easier than you think,
+  and
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-pirate-ship-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Boats
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-pirate-ship-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project to do with your kids or even by yourself? Making a toy pirate ship out of cardboard is easier than you think, and it’s a great way to bring imagination to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Bath Toys for 1 Year Old: Top Safe & Fun Picks for Playtime"
-description: "Bath time can be a special moment for you and your little one. But if your 1-year-old is restless or bored, it might turn into a challenge instead of fun. That’"
+title: 'Bath Toys for 1 Year Old: Top Safe & Fun Picks for Playtime'
+description: Bath time can be a special moment for you and your little one. But if
+  your 1-year-old is restless or bored, it might turn into a challenge instead of
+  fun. That’
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=bath-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=bath-toys-for-1-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Bath time can be a special moment for you and your little one. But if your 1-year-old is restless or bored, it might turn into a challenge instead of fun.**

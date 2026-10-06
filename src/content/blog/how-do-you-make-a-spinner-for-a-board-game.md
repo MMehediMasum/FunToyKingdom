@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Spinner for a Board Game: Easy DIY Guide"
-description: "Have you ever wanted to add a fun, interactive spinner to your board game but didn’t know where to start? Making your own spinner is easier than you might think"
+title: 'How Do You Make a Spinner for a Board Game: Easy DIY Guide'
+description: Have you ever wanted to add a fun, interactive spinner to your board
+  game but didn’t know where to start? Making your own spinner is easier than you
+  might think
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-spinner-for-a-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-spinner-for-a-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wanted to add a fun, interactive spinner to your board game but didn’t know where to start? Making your own spinner is easier than you might think, and it can bring a whole new level of excitement to your game nights.**

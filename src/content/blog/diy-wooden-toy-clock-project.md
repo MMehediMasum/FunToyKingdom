@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Clock Project: Easy Steps for Fun Learning Craft"
-description: "Are you looking for a fun and creative project that you can do with your kids or on your own? Building a DIY wooden toy clock is a perfect way to combine learni"
+title: 'Diy Wooden Toy Clock Project: Easy Steps for Fun Learning Craft'
+description: Are you looking for a fun and creative project that you can do with your
+  kids or on your own? Building a DIY wooden toy clock is a perfect way to combine
+  learni
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-clock-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-clock-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can do with your kids or on your own? Building a DIY wooden toy clock is a perfect way to combine learning and play.**

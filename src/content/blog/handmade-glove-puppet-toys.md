@@ -1,10 +1,14 @@
 ---
-title: "Handmade Glove Puppet Toys: Delightful Fun for Kids and Adults"
-description: "Imagine holding a tiny world of fun right in your hands. Handmade glove puppet toys are more than just playthings—they bring stories to life and spark your crea"
+title: 'Handmade Glove Puppet Toys: Delightful Fun for Kids and Adults'
+description: Imagine holding a tiny world of fun right in your hands. Handmade glove
+  puppet toys are more than just playthings—they bring stories to life and spark your
+  crea
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-glove-puppet-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=handmade-glove-puppet-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Imagine holding a tiny world of fun right in your hands. Handmade glove puppet toys are more than just playthings—they bring stories to life and spark your creativity.**

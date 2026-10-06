@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Toy Poodle Puppies’ Favorite Soft Squeaky Chew Toys Set"
 description: "Miniature Toy Poodle puppies are small, lively, and full of charm. They bring joy and energy to any home. These tiny dogs need special toys to keep them happy a"
 pubDate: 2026-03-01

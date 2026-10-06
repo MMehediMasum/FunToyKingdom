@@ -1,10 +1,14 @@
 ---
-title: "Miniature Tiny Dogs: Top Nutrition and Care Essentials for Small Breeds"
-description: "Miniature tiny dogs make great pets for people living in small spaces. They need special care, food, and toys to stay healthy and happy. Miniature breeds like M"
+title: 'Miniature Tiny Dogs: Top Nutrition and Care Essentials for Small Breeds'
+description: Miniature tiny dogs make great pets for people living in small spaces.
+  They need special care, food, and toys to stay healthy and happy. Miniature breeds
+  like M
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-tiny-dogs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-tiny-dogs&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature tiny dogs make great pets for people living in small spaces. They need special care, food, and toys to stay healthy and happy.**

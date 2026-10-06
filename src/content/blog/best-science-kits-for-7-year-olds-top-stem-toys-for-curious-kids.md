@@ -1,10 +1,14 @@
 ---
-title: "Best Science Kits for 7 Year Olds: Top STEM Toys for Curious Kids"
-description: "Choosing the best science kits for 7 year olds helps kids explore and learn about the world. These kits combine fun and education through hands-on activities. S"
+title: 'Best Science Kits for 7 Year Olds: Top STEM Toys for Curious Kids'
+description: Choosing the best science kits for 7 year olds helps kids explore and
+  learn about the world. These kits combine fun and education through hands-on activities.
+  S
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-science-kits-for-7-year-olds-top-stem-toys-for-curious-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=best-science-kits-for-7-year-olds-top-stem-toys-for-curious-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the best science kits for 7 year olds helps kids explore and learn about the world. These kits combine fun and education through hands-on activities.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars Happy Meal Toys: Top Collectible Cars and Fun Playsets Review"
-description: "Cars Happy Meal Toys bring fun and excitement to children’s mealtime. These toys feature popular car characters and playful sets that spark imagination. Kids en"
+title: 'Cars Happy Meal Toys: Top Collectible Cars and Fun Playsets Review'
+description: Cars Happy Meal Toys bring fun and excitement to children’s mealtime.
+  These toys feature popular car characters and playful sets that spark imagination.
+  Kids en
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-happy-meal-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-happy-meal-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Happy Meal Toys bring fun and excitement to children’s mealtime. These toys feature popular car characters and playful sets that spark imagination.**

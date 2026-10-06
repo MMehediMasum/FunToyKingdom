@@ -1,10 +1,14 @@
 ---
-title: "Cars Toys Dinoco: Ultimate Diecast Movie Car Set for Kids Fun"
-description: "Cars Toys Dinoco bring the excitement of Disney Pixar’s Cars movies to life. These toys feature popular characters like The King, Cruz Ramirez, and Jackson Stor"
+title: 'Cars Toys Dinoco: Ultimate Diecast Movie Car Set for Kids Fun'
+description: Cars Toys Dinoco bring the excitement of Disney Pixar’s Cars movies to
+  life. These toys feature popular characters like The King, Cruz Ramirez, and Jackson
+  Stor
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toys-dinoco&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-toys-dinoco&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toys Dinoco bring the excitement of Disney Pixar’s Cars movies to life. These toys feature popular characters like The King, Cruz Ramirez, and Jackson Storm.**

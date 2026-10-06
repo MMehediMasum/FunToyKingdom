@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Spaceship: Easy Steps for Creative Fun"
-description: "Looking for a fun, creative project that you and your kids can enjoy together? Building a DIY cardboard toy spaceship is the perfect way to spark imagination an"
+title: 'Diy Cardboard Toy Spaceship: Easy Steps for Creative Fun'
+description: Looking for a fun, creative project that you and your kids can enjoy
+  together? Building a DIY cardboard toy spaceship is the perfect way to spark imagination
+  an
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-spaceship&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-spaceship&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun, creative project that you and your kids can enjoy together? Building a DIY cardboard toy spaceship is the perfect way to spark imagination and keep everyone entertained.**

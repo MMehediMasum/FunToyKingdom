@@ -1,10 +1,13 @@
 ---
-title: "Dolls for 11 Year Old: Top Picks for Fun and Creativity"
-description: "Are you searching for the perfect doll that will truly delight your 11-year-old? Choosing a doll isn't just about picking a toy—it’s about finding something tha"
+title: 'Dolls for 11 Year Old: Top Picks for Fun and Creativity'
+description: Are you searching for the perfect doll that will truly delight your 11-year-old?
+  Choosing a doll isn't just about picking a toy—it’s about finding something tha
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolls-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=dolls-for-11-year-old&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you searching for the perfect doll that will truly delight your 11-year-old? Choosing a doll isn't just about picking a toy—it’s about finding something that sparks imagination, encourages creativity, and grows with your child.**

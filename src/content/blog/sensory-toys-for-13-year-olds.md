@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 13 Year Olds: Top Picks for Fun and Focus"
-description: "Sensory toys help 13-year-olds develop focus, calmness, and fine motor skills. These toys offer fun ways to reduce stress and boost learning. Choosing the right"
+title: 'Sensory Toys for 13 Year Olds: Top Picks for Fun and Focus'
+description: Sensory toys help 13-year-olds develop focus, calmness, and fine motor
+  skills. These toys offer fun ways to reduce stress and boost learning. Choosing
+  the right
 pubDate: 2026-08-18
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-13-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-13-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 13-year-olds develop focus, calmness, and fine motor skills. These toys offer fun ways to reduce stress and boost learning.**

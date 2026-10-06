@@ -1,10 +1,14 @@
 ---
-title: "How to Change Batteries in Princess Toy Doll: Easy Step-by-Step Guide"
-description: "Is your Princess Toy Doll not lighting up or making sounds like it used to? It might be time to change the batteries. You don’t have to be a tech expert to do t"
+title: 'How to Change Batteries in Princess Toy Doll: Easy Step-by-Step Guide'
+description: Is your Princess Toy Doll not lighting up or making sounds like it used
+  to? It might be time to change the batteries. You don’t have to be a tech expert
+  to do t
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-change-batteries-in-princess-toy-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=how-to-change-batteries-in-princess-toy-doll&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Is your Princess Toy Doll not lighting up or making sounds like it used to? It might be time to change the batteries.**

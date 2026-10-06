@@ -1,10 +1,14 @@
 ---
-title: "Chew Toys for Infants: Safe, Soothing, and Sensory-Boosting Essentials"
-description: "Choosing the right chew toys for infants helps soothe teething discomfort and supports early development. Safe, soft, and easy-to-hold toys make teething less s"
+title: 'Chew Toys for Infants: Safe, Soothing, and Sensory-Boosting Essentials'
+description: Choosing the right chew toys for infants helps soothe teething discomfort
+  and supports early development. Safe, soft, and easy-to-hold toys make teething
+  less s
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=chew-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Babies
+heroImage: https://tse1.mm.bing.net/th?q=chew-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right chew toys for infants helps soothe teething discomfort and supports early development. Safe, soft, and easy-to-hold toys make teething less stressful for babies and parents alike.**

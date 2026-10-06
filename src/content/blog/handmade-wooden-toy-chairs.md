@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Chairs: Timeless Craftsmanship for Kids"
-description: "Are you looking for a special piece that adds charm and comfort to your child’s playroom? Handmade wooden toy chairs are more than just furniture—they bring war"
+title: 'Handmade Wooden Toy Chairs: Timeless Craftsmanship for Kids'
+description: Are you looking for a special piece that adds charm and comfort to your
+  child’s playroom? Handmade wooden toy chairs are more than just furniture—they bring
+  war
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-chairs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Crowns
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-chairs&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a special piece that adds charm and comfort to your child’s playroom? Handmade wooden toy chairs are more than just furniture—they bring warmth, creativity, and lasting joy to your little one’s space.**

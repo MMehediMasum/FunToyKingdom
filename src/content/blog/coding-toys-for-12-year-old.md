@@ -1,10 +1,13 @@
 ---
-title: "Coding Toys for 12 Year Old: Top Picks to Spark Creativity"
-description: "Are you looking for the perfect way to spark your 12-year-old’s interest in coding? Finding toys that make learning to code fun and exciting can be a challenge."
+title: 'Coding Toys for 12 Year Old: Top Picks to Spark Creativity'
+description: Are you looking for the perfect way to spark your 12-year-old’s interest
+  in coding? Finding toys that make learning to code fun and exciting can be a challenge.
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toys-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toys-for-12-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect way to spark your 12-year-old’s interest in coding? Finding toys that make learning to code fun and exciting can be a challenge.**

@@ -1,10 +1,14 @@
 ---
-title: "Rare Gi Joe Action Figure Value: Ultimate Collector's Guide 2026"
-description: "Are you curious about how much your rare G.I. Joe action figure could be worth? Whether you found it in your attic or bought it years ago, some of these collect"
+title: 'Rare Gi Joe Action Figure Value: Ultimate Collector''s Guide 2026'
+description: Are you curious about how much your rare G.I. Joe action figure could
+  be worth? Whether you found it in your attic or bought it years ago, some of these
+  collect
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-gi-joe-action-figure-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=rare-gi-joe-action-figure-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about how much your rare G.I. Joe action figure could be worth?**

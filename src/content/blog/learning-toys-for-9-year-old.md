@@ -1,10 +1,14 @@
 ---
-title: "Learning Toys for 9 Year Old: Top Picks to Boost Creativity"
-description: "Finding the perfect learning toys for your 9-year-old can be tricky. You want something that sparks their curiosity and keeps them excited to learn. Imagine giv"
+title: 'Learning Toys for 9 Year Old: Top Picks to Boost Creativity'
+description: Finding the perfect learning toys for your 9-year-old can be tricky.
+  You want something that sparks their curiosity and keeps them excited to learn.
+  Imagine giv
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=learning-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=learning-toys-for-9-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Finding the perfect learning toys for your 9-year-old can be tricky. You want something that sparks their curiosity and keeps them excited to learn.**

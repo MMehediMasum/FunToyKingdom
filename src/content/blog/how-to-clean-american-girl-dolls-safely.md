@@ -1,10 +1,14 @@
 ---
-title: "How to Clean American Girl Dolls Safely: Easy & Effective Tips"
-description: "Your American Girl doll holds special memories and endless playtime fun. Keeping her clean and fresh is important, but you might worry about damaging her delica"
+title: 'How to Clean American Girl Dolls Safely: Easy & Effective Tips'
+description: Your American Girl doll holds special memories and endless playtime fun.
+  Keeping her clean and fresh is important, but you might worry about damaging her
+  delica
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-american-girl-dolls-safely&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-american-girl-dolls-safely&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Your American Girl doll holds special memories and endless playtime fun. Keeping her clean and fresh is important, but you might worry about damaging her delicate clothes or soft hair.**

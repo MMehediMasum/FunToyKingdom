@@ -1,10 +1,14 @@
 ---
-title: "1 64 Scale Toy Cars: Top Packs for Collectors and Kids Alike"
-description: "Toy cars in a 1:64 scale offer endless fun for children and collectors alike. These miniature vehicles replicate real-life cars, trucks, and more. The charm of "
+title: '1 64 Scale Toy Cars: Top Packs for Collectors and Kids Alike'
+description: 'Toy cars in a 1:64 scale offer endless fun for children and collectors
+  alike. These miniature vehicles replicate real-life cars, trucks, and more. The
+  charm of '
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1-64-scale-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=1-64-scale-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy cars in a 1:64 scale offer endless fun for children and collectors alike. These miniature vehicles replicate real-life cars, trucks, and more.**

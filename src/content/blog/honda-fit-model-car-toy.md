@@ -1,10 +1,14 @@
 ---
-title: "Honda Fit Model Car Toy: Realistic Diecast Collectible with Lights and Sound"
-description: "The Honda Fit model car toy captures the charm of the real vehicle in miniature form. It offers detailed designs and fun features for collectors and kids alike."
+title: 'Honda Fit Model Car Toy: Realistic Diecast Collectible with Lights and Sound'
+description: The Honda Fit model car toy captures the charm of the real vehicle in
+  miniature form. It offers detailed designs and fun features for collectors and kids
+  alike.
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=honda-fit-model-car-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=honda-fit-model-car-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Honda Fit model car toy captures the charm of the real vehicle in miniature form. It offers detailed designs and fun features for collectors and kids alike.**

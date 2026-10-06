@@ -1,10 +1,14 @@
 ---
-title: "Wendy'S Superhero Toys: Top Marvel Action Figures Kids Will Love"
-description: "Wendy’s Superhero Toys offer a fun collection of Marvel action figures and playsets. Kids can enjoy popular characters like Captain America, Spider-Man, and Iro"
+title: 'Wendy''S Superhero Toys: Top Marvel Action Figures Kids Will Love'
+description: Wendy’s Superhero Toys offer a fun collection of Marvel action figures
+  and playsets. Kids can enjoy popular characters like Captain America, Spider-Man,
+  and Iro
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=wendys-superhero-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wendys-superhero-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Wendy’s Superhero Toys offer a fun collection of Marvel action figures and playsets. Kids can enjoy popular characters like Captain America, Spider-Man, and Iron Man.**

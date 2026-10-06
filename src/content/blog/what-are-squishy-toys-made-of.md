@@ -1,10 +1,14 @@
 ---
-title: "What are Squishy Toys Made of: Surprising Materials Revealed"
-description: "Have you ever wondered what makes squishy toys so soft and satisfying to squeeze? These playful little objects aren’t just fun—they’re made from special materia"
+title: 'What are Squishy Toys Made of: Surprising Materials Revealed'
+description: Have you ever wondered what makes squishy toys so soft and satisfying
+  to squeeze? These playful little objects aren’t just fun—they’re made from special
+  materia
 pubDate: 2026-01-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-squishy-toys-made-of&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=what-are-squishy-toys-made-of&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered what makes squishy toys so soft and satisfying to squeeze? These playful little objects aren’t just fun—they’re made from special materials that give them their unique feel and bounce.**

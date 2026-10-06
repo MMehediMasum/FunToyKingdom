@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Easter Bunny Costumes: Creative Ideas for Festive Fun"
-description: "Are you ready to make this Easter unforgettable for your little ones? Imagine the joy on their faces when they hop around in their very own DIY toy Easter bunny"
+title: 'Diy Toy Easter Bunny Costumes: Creative Ideas for Festive Fun'
+description: Are you ready to make this Easter unforgettable for your little ones?
+  Imagine the joy on their faces when they hop around in their very own DIY toy Easter
+  bunny
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-easter-bunny-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-easter-bunny-costumes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to make this Easter unforgettable for your little ones? Imagine the joy on their faces when they hop around in their very own DIY toy Easter bunny costumes.**

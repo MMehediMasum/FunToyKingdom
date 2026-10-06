@@ -1,10 +1,13 @@
 ---
-title: "Best Puzzle Tables for Adults: Top Portable and Adjustable Jigsaw Boards"
-description: "Puzzles provide a relaxing and fun way to spend time alone or with friends. The right puzzle table helps keep pieces organized and offers a comfortable workspac"
+title: 'Best Puzzle Tables for Adults: Top Portable and Adjustable Jigsaw Boards'
+description: Puzzles provide a relaxing and fun way to spend time alone or with friends.
+  The right puzzle table helps keep pieces organized and offers a comfortable workspac
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-puzzle-tables-for-adults-top-portable-and-adjustable-jigsaw-boards&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Jigsaw Puzzle
+heroImage: https://tse1.mm.bing.net/th?q=best-puzzle-tables-for-adults-top-portable-and-adjustable-jigsaw-boards&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Puzzles provide a relaxing and fun way to spend time alone or with friends. The right puzzle table helps keep pieces organized and offers a comfortable workspace.**

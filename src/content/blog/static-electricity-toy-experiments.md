@@ -1,10 +1,14 @@
 ---
-title: "Static Electricity Toy Experiments: Fun and Easy Science Activities"
-description: "Have you ever wondered how a simple balloon can make your hair stand up or make tiny paper pieces jump? Static electricity toys let you see this invisible force"
+title: 'Static Electricity Toy Experiments: Fun and Easy Science Activities'
+description: Have you ever wondered how a simple balloon can make your hair stand
+  up or make tiny paper pieces jump? Static electricity toys let you see this invisible
+  force
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=static-electricity-toy-experiments&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=static-electricity-toy-experiments&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered how a simple balloon can make your hair stand up or make tiny paper pieces jump? Static electricity toys let you see this invisible force in action, turning everyday objects into fun experiments.**

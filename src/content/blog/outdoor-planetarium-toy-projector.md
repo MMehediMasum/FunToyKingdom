@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Planetarium Toy Projector: Explore Stars Like Never Before"
-description: "Have you ever wished you could bring the magic of the night sky right to your backyard? Imagine turning your outdoor space into a stunning planetarium where sta"
+title: 'Outdoor Planetarium Toy Projector: Explore Stars Like Never Before'
+description: Have you ever wished you could bring the magic of the night sky right
+  to your backyard? Imagine turning your outdoor space into a stunning planetarium
+  where sta
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-planetarium-toy-projector&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-planetarium-toy-projector&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wished you could bring the magic of the night sky right to your backyard? Imagine turning your outdoor space into a stunning planetarium where stars, planets, and galaxies come alive.**

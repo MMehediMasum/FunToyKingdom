@@ -1,10 +1,14 @@
 ---
-title: "Rare Collectible Toy Train Sets: Ultimate Guide to Hidden Treasures"
-description: "Have you ever held a piece of history in your hands? Rare collectible toy train sets are more than just toys—they are treasures that tell stories from the past."
+title: 'Rare Collectible Toy Train Sets: Ultimate Guide to Hidden Treasures'
+description: Have you ever held a piece of history in your hands? Rare collectible
+  toy train sets are more than just toys—they are treasures that tell stories from
+  the past.
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-collectible-toy-train-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Train Sets For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=rare-collectible-toy-train-sets&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever held a piece of history in your hands? Rare collectible toy train sets are more than just toys—they are treasures that tell stories from the past.**

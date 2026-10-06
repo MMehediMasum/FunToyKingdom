@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Stickers: Ultimate Waterproof Pack for Kids’ DIY Fun"
 description: "Toy Story stickers bring the magic of Pixar's beloved characters to life. Perfect for kids and fans alike. These stickers offer a fun and creative way to decora"
 pubDate: 2026-03-14

@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Fossils: Creative DIY Fun for Kids"
-description: "Have you ever wondered what it feels like to discover ancient fossils without leaving your home? Handmade cardboard toy fossils bring that excitement straight t"
+title: 'Handmade Cardboard Toy Fossils: Creative DIY Fun for Kids'
+description: Have you ever wondered what it feels like to discover ancient fossils
+  without leaving your home? Handmade cardboard toy fossils bring that excitement
+  straight t
 pubDate: 2026-07-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-fossils&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-fossils&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered what it feels like to discover ancient fossils without leaving your home? Handmade cardboard toy fossils bring that excitement straight to your hands.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Squid Catching Game Toy: Ultimate Fun for All Ages"
-description: "Looking for a fun way to enjoy the outdoors with your family or friends? The Outdoor Squid Catching Game Toy is just what you need to add excitement to your pla"
+title: 'Outdoor Squid Catching Game Toy: Ultimate Fun for All Ages'
+description: Looking for a fun way to enjoy the outdoors with your family or friends?
+  The Outdoor Squid Catching Game Toy is just what you need to add excitement to your
+  pla
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-squid-catching-game-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-squid-catching-game-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to enjoy the outdoors with your family or friends? The Outdoor Squid Catching Game Toy is just what you need to add excitement to your playtime.**

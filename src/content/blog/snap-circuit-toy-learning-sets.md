@@ -1,10 +1,14 @@
 ---
-title: "Snap Circuit Toy Learning Sets: Unlock Creative STEM Fun Today"
-description: "Are you looking for a fun and exciting way to spark your child's curiosity about science and technology? Snap Circuit Toy Learning Sets are designed just for yo"
+title: 'Snap Circuit Toy Learning Sets: Unlock Creative STEM Fun Today'
+description: Are you looking for a fun and exciting way to spark your child's curiosity
+  about science and technology? Snap Circuit Toy Learning Sets are designed just for
+  yo
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=snap-circuit-toy-learning-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=snap-circuit-toy-learning-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child's curiosity about science and technology? Snap Circuit Toy Learning Sets are designed just for you.**

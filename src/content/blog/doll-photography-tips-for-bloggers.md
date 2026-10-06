@@ -1,10 +1,14 @@
 ---
-title: "Doll Photography Tips for Bloggers: Capture Stunning Shots Easily"
-description: "Are you ready to make your doll photos stand out and grab attention? Whether you’re sharing your passion on a blog or social media, great photos can turn casual"
+title: 'Doll Photography Tips for Bloggers: Capture Stunning Shots Easily'
+description: Are you ready to make your doll photos stand out and grab attention?
+  Whether you’re sharing your passion on a blog or social media, great photos can
+  turn casual
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=doll-photography-tips-for-bloggers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=doll-photography-tips-for-bloggers&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to make your doll photos stand out and grab attention? Whether you’re sharing your passion on a blog or social media, great photos can turn casual viewers into loyal followers.**

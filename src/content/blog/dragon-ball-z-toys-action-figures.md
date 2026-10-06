@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Toys Action Figures: Ultimate Collectors’ Must-Have Picks"
-description: "Dragon Ball Z action figures capture the excitement of the anime series. They bring iconic characters to life in vivid detail. From Goku's Ultra Instinct to Sup"
+title: 'Dragon Ball Z Toys Action Figures: Ultimate Collectors’ Must-Have Picks'
+description: Dragon Ball Z action figures capture the excitement of the anime series.
+  They bring iconic characters to life in vivid detail. From Goku's Ultra Instinct
+  to Sup
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-toys-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-toys-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z action figures capture the excitement of the anime series. They bring iconic characters to life in vivid detail.**

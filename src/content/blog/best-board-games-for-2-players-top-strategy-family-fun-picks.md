@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for 2 Players: Top Strategy & Family Fun Picks"
-description: "Finding the best board games for 2 players can make any game night more fun. These games suit kids and adults, offering hours of enjoyment. Board games designed"
+title: 'Best Board Games for 2 Players: Top Strategy & Family Fun Picks'
+description: Finding the best board games for 2 players can make any game night more
+  fun. These games suit kids and adults, offering hours of enjoyment. Board games
+  designed
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-2-players-top-strategy-family-fun-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-2-players-top-strategy-family-fun-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for 2 players can make any game night more fun. These games suit kids and adults, offering hours of enjoyment.**

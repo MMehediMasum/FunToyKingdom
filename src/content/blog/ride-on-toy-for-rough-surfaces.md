@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Rough Surfaces: Ultimate Durability and Fun Guide"
-description: "Are you tired of your child’s ride-on toy getting stuck or damaged on rough surfaces? Finding the perfect ride-on toy that can handle bumpy sidewalks, gravel, o"
+title: 'Ride on Toy for Rough Surfaces: Ultimate Durability and Fun Guide'
+description: Are you tired of your child’s ride-on toy getting stuck or damaged on
+  rough surfaces? Finding the perfect ride-on toy that can handle bumpy sidewalks,
+  gravel, o
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-rough-surfaces&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-rough-surfaces&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you tired of your child’s ride-on toy getting stuck or damaged on rough surfaces? Finding the perfect ride-on toy that can handle bumpy sidewalks, gravel, or uneven backyard terrain can be frustrating.**

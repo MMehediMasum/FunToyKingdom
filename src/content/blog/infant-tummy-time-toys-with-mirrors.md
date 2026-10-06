@@ -1,10 +1,14 @@
 ---
-title: "Infant Tummy Time Toys With Mirrors: Boost Baby’s Growth & Fun"
-description: "If you’re a parent, you know how important tummy time is for your baby’s growth. But getting your little one to enjoy it can be tricky. That’s where infant tumm"
+title: 'Infant Tummy Time Toys With Mirrors: Boost Baby’s Growth & Fun'
+description: If you’re a parent, you know how important tummy time is for your baby’s
+  growth. But getting your little one to enjoy it can be tricky. That’s where infant
+  tumm
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-tummy-time-toys-with-mirrors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-tummy-time-toys-with-mirrors&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent, you know how important tummy time is for your baby’s growth. But getting your little one to enjoy it can be tricky.**

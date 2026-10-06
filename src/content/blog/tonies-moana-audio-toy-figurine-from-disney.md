@@ -1,10 +1,14 @@
 ---
-title: "Tonies Moana Audio Toy Figurine from Disney: Magical Storytelling Fun"
-description: "The Tonies Moana Audio Toy Figurine from Disney brings Moana’s story to life through sound. Kids can enjoy hours of fun listening to her adventures anytime. Thi"
+title: 'Tonies Moana Audio Toy Figurine from Disney: Magical Storytelling Fun'
+description: The Tonies Moana Audio Toy Figurine from Disney brings Moana’s story
+  to life through sound. Kids can enjoy hours of fun listening to her adventures anytime.
+  Thi
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=tonies-moana-audio-toy-figurine-from-disney&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Figurine
+heroImage: https://tse1.mm.bing.net/th?q=tonies-moana-audio-toy-figurine-from-disney&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Tonies Moana Audio Toy Figurine from Disney brings Moana’s story to life through sound. Kids can enjoy hours of fun listening to her adventures anytime.**

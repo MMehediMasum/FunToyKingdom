@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bear Inflatable Ride on Kids: Ultimate Fun & Safety Guide"
-description: "Looking for a fun and exciting way to keep your kids active outdoors? An outdoor bear inflatable ride is just what you need! Imagine your child bouncing, slidin"
+title: 'Outdoor Bear Inflatable Ride on Kids: Ultimate Fun & Safety Guide'
+description: Looking for a fun and exciting way to keep your kids active outdoors?
+  An outdoor bear inflatable ride is just what you need! Imagine your child bouncing,
+  slidin
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bear-inflatable-ride-on-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bear-inflatable-ride-on-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids active outdoors? An outdoor bear inflatable ride is just what you need!**

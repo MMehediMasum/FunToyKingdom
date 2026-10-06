@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Slip And Slide With Pool: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into the ultimate summer playground where fun never ends. An outdoor slip and slide with a pool is exactly what you need to beat t"
+title: 'Outdoor Slip And Slide With Pool: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into the ultimate summer playground where
+  fun never ends. An outdoor slip and slide with a pool is exactly what you need to
+  beat t
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-slip-and-slide-with-pool&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Slide For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-slip-and-slide-with-pool&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate summer playground where fun never ends. An outdoor slip and slide with a pool is exactly what you need to beat the heat and create unforgettable moments with your family and friends.**

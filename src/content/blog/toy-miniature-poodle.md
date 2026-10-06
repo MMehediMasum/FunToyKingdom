@@ -1,10 +1,14 @@
 ---
-title: "Toy Miniature Poodle Figurines and Plush Toys Kids Will Love"
-description: "Toy Miniature Poodles are small, charming dog figurines loved by children and collectors. These toys capture the real poodle’s look with great detail and size v"
+title: Toy Miniature Poodle Figurines and Plush Toys Kids Will Love
+description: Toy Miniature Poodles are small, charming dog figurines loved by children
+  and collectors. These toys capture the real poodle’s look with great detail and
+  size v
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-miniature-poodle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-miniature-poodle&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Miniature Poodles are small, charming dog figurines loved by children and collectors. These toys capture the real poodle’s look with great detail and size variety.**

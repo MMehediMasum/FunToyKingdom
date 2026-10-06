@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toucan Inflatable Float: Ultimate Summer Pool Accessory Guide"
-description: "Imagine turning your pool or beach day into an unforgettable adventure with one simple addition. The Outdoor Toucan Inflatable Float isn’t just any float—it’s y"
+title: 'Outdoor Toucan Inflatable Float: Ultimate Summer Pool Accessory Guide'
+description: Imagine turning your pool or beach day into an unforgettable adventure
+  with one simple addition. The Outdoor Toucan Inflatable Float isn’t just any float—it’s
+  y
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toucan-inflatable-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toucan-inflatable-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your pool or beach day into an unforgettable adventure with one simple addition. The Outdoor Toucan Inflatable Float isn’t just any float—it’s your ticket to fun, relaxation, and eye-catching style all in one.**

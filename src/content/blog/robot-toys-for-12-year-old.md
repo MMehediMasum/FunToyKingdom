@@ -1,10 +1,14 @@
 ---
-title: "Robot Toys for 12 Year Old: Top Fun & Educational Picks 2026"
-description: "Are you looking for the perfect robot toy for a 12-year-old? Choosing a toy that sparks curiosity and keeps them engaged can be tricky. You want something fun, "
+title: 'Robot Toys for 12 Year Old: Top Fun & Educational Picks 2026'
+description: 'Are you looking for the perfect robot toy for a 12-year-old? Choosing
+  a toy that sparks curiosity and keeps them engaged can be tricky. You want something
+  fun, '
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-toys-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=robot-toys-for-12-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect robot toy for a 12-year-old? Choosing a toy that sparks curiosity and keeps them engaged can be tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Teething Toy for Breastfed Baby: Top Soothing Picks 2025"
-description: "If you’re a parent of a breastfed baby, you know how tough teething can be—for both of you. Your little one’s gums get sore and uncomfortable, and you want to f"
+title: 'Best Teething Toy for Breastfed Baby: Top Soothing Picks 2025'
+description: If you’re a parent of a breastfed baby, you know how tough teething can
+  be—for both of you. Your little one’s gums get sore and uncomfortable, and you want
+  to f
 pubDate: 2026-09-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-teething-toy-for-breastfed-baby&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=best-teething-toy-for-breastfed-baby&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent of a breastfed baby, you know how tough teething can be—for both of you. Your little one’s gums get sore and uncomfortable, and you want to find the best way to soothe them quickly and safely.**

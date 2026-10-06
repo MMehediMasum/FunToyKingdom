@@ -1,10 +1,14 @@
 ---
-title: "Skeleton Toy for Kids Learning: Fun Educational Anatomy Play"
-description: "Have you ever wondered how to make learning about the human body fun and exciting for your child? A skeleton toy for kids learning could be the perfect answer. "
+title: 'Skeleton Toy for Kids Learning: Fun Educational Anatomy Play'
+description: 'Have you ever wondered how to make learning about the human body fun
+  and exciting for your child? A skeleton toy for kids learning could be the perfect
+  answer. '
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=skeleton-toy-for-kids-learning&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=skeleton-toy-for-kids-learning&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered how to make learning about the human body fun and exciting for your child? A skeleton toy for kids learning could be the perfect answer.**

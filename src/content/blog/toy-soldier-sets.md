@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Sets: Ultimate Military Action Figures for Kids’ Imaginative Play"
-description: "Toy soldier sets bring hours of fun and creativity to children of all ages. These miniature figures and accessories let kids imagine exciting battles and heroic"
+title: 'Toy Soldier Sets: Ultimate Military Action Figures for Kids’ Imaginative Play'
+description: Toy soldier sets bring hours of fun and creativity to children of all
+  ages. These miniature figures and accessories let kids imagine exciting battles
+  and heroic
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy soldier sets bring hours of fun and creativity to children of all ages. These miniature figures and accessories let kids imagine exciting battles and heroic missions.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy Dora the Explorer Toys: Top Stores Revealed!"
-description: "Are you looking to surprise your little one with Dora the Explorer toys but don’t know where to start? Finding the perfect Dora toy can feel overwhelming with s"
+title: 'Where Can I Buy Dora the Explorer Toys: Top Stores Revealed!'
+description: Are you looking to surprise your little one with Dora the Explorer toys
+  but don’t know where to start? Finding the perfect Dora toy can feel overwhelming
+  with s
 pubDate: 2025-10-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-dora-the-explorer-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toys Cheap
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-dora-the-explorer-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking to surprise your little one with Dora the Explorer toys but don’t know where to start? Finding the perfect Dora toy can feel overwhelming with so many options out there.**

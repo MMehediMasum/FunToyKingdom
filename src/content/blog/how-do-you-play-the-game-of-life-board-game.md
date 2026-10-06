@@ -1,10 +1,14 @@
 ---
-title: "How Do You Play the Game of Life Board Game: Ultimate Guide"
-description: "Have you ever wondered how to master the Game of Life board game? Whether you’re playing with family or friends, knowing the rules and strategies can make your "
+title: 'How Do You Play the Game of Life Board Game: Ultimate Guide'
+description: 'Have you ever wondered how to master the Game of Life board game? Whether
+  you’re playing with family or friends, knowing the rules and strategies can make
+  your '
 pubDate: 2025-09-11
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-play-the-game-of-life-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-play-the-game-of-life-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how to master the Game of Life board game? Whether you’re playing with family or friends, knowing the rules and strategies can make your experience more exciting and rewarding.**

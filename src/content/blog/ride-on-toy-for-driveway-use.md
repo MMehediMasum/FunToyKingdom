@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Driveway Use: Ultimate Fun and Safety Guide"
-description: "Looking for the perfect ride on toy for your driveway? You want something safe, fun, and easy for your child to use right outside your home. Imagine your little"
+title: 'Ride on Toy for Driveway Use: Ultimate Fun and Safety Guide'
+description: Looking for the perfect ride on toy for your driveway? You want something
+  safe, fun, and easy for your child to use right outside your home. Imagine your
+  little
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-driveway-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-driveway-use&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect ride on toy for your driveway? You want something safe, fun, and easy for your child to use right outside your home.**

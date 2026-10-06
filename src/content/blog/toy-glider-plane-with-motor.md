@@ -1,10 +1,14 @@
 ---
-title: "Toy Glider Plane With Motor: Ultimate Guide for Sky-High Fun"
-description: "Are you looking for a fun way to bring the excitement of flight right to your fingertips? A toy glider plane with motor is exactly what you need. It’s not just "
+title: 'Toy Glider Plane With Motor: Ultimate Guide for Sky-High Fun'
+description: 'Are you looking for a fun way to bring the excitement of flight right
+  to your fingertips? A toy glider plane with motor is exactly what you need. It’s
+  not just '
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-glider-plane-with-motor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=toy-glider-plane-with-motor&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun way to bring the excitement of flight right to your fingertips? A toy glider plane with motor is exactly what you need.**

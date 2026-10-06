@@ -1,10 +1,14 @@
 ---
-title: "Pj Mask Toy Set: Ultimate Adventure Playsets Kids Will Love"
-description: "PJ Masks toys bring the beloved heroes to life with action-packed playsets and figures. Perfect for young fans, these toys offer endless fun and adventure. The "
+title: 'Pj Mask Toy Set: Ultimate Adventure Playsets Kids Will Love'
+description: 'PJ Masks toys bring the beloved heroes to life with action-packed playsets
+  and figures. Perfect for young fans, these toys offer endless fun and adventure.
+  The '
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=pj-mask-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=pj-mask-toy-set&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **PJ Masks toys bring the beloved heroes to life with action-packed playsets and figures. Perfect for young fans, these toys offer endless fun and adventure.**

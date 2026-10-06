@@ -1,10 +1,14 @@
 ---
-title: "Rc Bulldozer Toy for Kids: Ultimate Fun and Learning Guide"
-description: "Are you looking for a fun and exciting toy that will keep your child entertained for hours? An RC bulldozer toy for kids could be exactly what you need. Imagine"
+title: 'Rc Bulldozer Toy for Kids: Ultimate Fun and Learning Guide'
+description: Are you looking for a fun and exciting toy that will keep your child
+  entertained for hours? An RC bulldozer toy for kids could be exactly what you need.
+  Imagine
 pubDate: 2025-10-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-bulldozer-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-bulldozer-toy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting toy that will keep your child entertained for hours? An RC bulldozer toy for kids could be exactly what you need.**

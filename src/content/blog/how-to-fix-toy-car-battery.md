@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Toy Car Battery: Quick and Easy Repair Tips"
-description: "Is your child’s toy car not running because the battery won’t hold a charge? You’re not alone, and fixing it might be easier than you think. Imagine your little"
+title: 'How to Fix Toy Car Battery: Quick and Easy Repair Tips'
+description: Is your child’s toy car not running because the battery won’t hold a
+  charge? You’re not alone, and fixing it might be easier than you think. Imagine
+  your little
 pubDate: 2025-08-31
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-toy-car-battery&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Race Tracks For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-toy-car-battery&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Is your child’s toy car not running because the battery won’t hold a charge? You’re not alone, and fixing it might be easier than you think.**

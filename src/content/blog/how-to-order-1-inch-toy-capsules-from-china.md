@@ -1,10 +1,14 @@
 ---
-title: "How to Order 1 Inch Toy Capsules from China: Ultimate Guide 2025"
-description: "Are you looking to order 1 inch toy capsules from China but don’t know where to start? You’re not alone. Finding reliable suppliers and getting the best deal ca"
+title: 'How to Order 1 Inch Toy Capsules from China: Ultimate Guide 2025'
+description: Are you looking to order 1 inch toy capsules from China but don’t know
+  where to start? You’re not alone. Finding reliable suppliers and getting the best
+  deal ca
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-order-1-inch-toy-capsules-from-china&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-order-1-inch-toy-capsules-from-china&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking to order 1 inch toy capsules from China but don’t know where to start? You’re not alone.**

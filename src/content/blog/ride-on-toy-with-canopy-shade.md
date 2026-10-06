@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy With Canopy Shade: Ultimate Fun and Sun Protection"
-description: "Looking for the perfect ride-on toy that keeps your child safe and comfortable? A ride-on toy with a canopy shade might be just what you need. Imagine your litt"
+title: 'Ride on Toy With Canopy Shade: Ultimate Fun and Sun Protection'
+description: Looking for the perfect ride-on toy that keeps your child safe and comfortable?
+  A ride-on toy with a canopy shade might be just what you need. Imagine your litt
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-canopy-shade&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-canopy-shade&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect ride-on toy that keeps your child safe and comfortable? A ride-on toy with a canopy shade might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars And Trucks for 9 Year Old: Top Fun & Safe Picks 2025"
-description: "Are you looking for the perfect cars and trucks for your 9-year-old? Choosing the right toy or ride-on vehicle can be tricky. You want something fun, safe, and "
+title: 'Cars And Trucks for 9 Year Old: Top Fun & Safe Picks 2025'
+description: 'Are you looking for the perfect cars and trucks for your 9-year-old?
+  Choosing the right toy or ride-on vehicle can be tricky. You want something fun,
+  safe, and '
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-and-trucks-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-and-trucks-for-9-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect cars and trucks for your 9-year-old? Choosing the right toy or ride-on vehicle can be tricky.**

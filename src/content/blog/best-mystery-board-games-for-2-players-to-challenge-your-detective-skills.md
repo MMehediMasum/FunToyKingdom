@@ -1,10 +1,14 @@
 ---
-title: "Best Mystery Board Games for 2 Players to Challenge Your Detective Skills"
-description: "Mystery board games for two players offer thrilling challenges and fun competition. These games keep you guessing and thinking with every move. Playing a myster"
+title: Best Mystery Board Games for 2 Players to Challenge Your Detective Skills
+description: Mystery board games for two players offer thrilling challenges and fun
+  competition. These games keep you guessing and thinking with every move. Playing
+  a myster
 pubDate: 2025-12-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-mystery-board-games-for-2-players-to-challenge-your-detective-skills&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-mystery-board-games-for-2-players-to-challenge-your-detective-skills&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Mystery board games for two players offer thrilling challenges and fun competition. These games keep you guessing and thinking with every move.**

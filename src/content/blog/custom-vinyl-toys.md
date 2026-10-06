@@ -1,10 +1,13 @@
 ---
-title: "Custom Vinyl Toys: Unique Personalized Collectibles for Every Fan"
-description: "Custom vinyl toys have become a captivating trend in the world of collectibles. These unique figures offer a personal touch to any collection. From personalized"
+title: 'Custom Vinyl Toys: Unique Personalized Collectibles for Every Fan'
+description: Custom vinyl toys have become a captivating trend in the world of collectibles.
+  These unique figures offer a personal touch to any collection. From personalized
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=custom-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=custom-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Custom vinyl toys have become a captivating trend in the world of collectibles. These unique figures offer a personal touch to any collection.**

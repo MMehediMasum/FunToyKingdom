@@ -1,10 +1,14 @@
 ---
-title: "Voice Controlled Robot Toy: Ultimate Fun and Smart Playtime Guide"
-description: "Imagine having a toy that listens to your every word and moves just the way you want. A voice controlled robot toy does exactly that. It brings your commands to"
+title: 'Voice Controlled Robot Toy: Ultimate Fun and Smart Playtime Guide'
+description: Imagine having a toy that listens to your every word and moves just the
+  way you want. A voice controlled robot toy does exactly that. It brings your commands
+  to
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=voice-controlled-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=voice-controlled-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having a toy that listens to your every word and moves just the way you want. A voice controlled robot toy does exactly that.**

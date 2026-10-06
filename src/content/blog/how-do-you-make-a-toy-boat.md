@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Toy Boat: Easy Steps for Kids and Beginners"
-description: "Have you ever wanted to create something simple, fun, and exciting with your own hands? Making a toy boat is easier than you think, and it can bring hours of jo"
+title: 'How Do You Make a Toy Boat: Easy Steps for Kids and Beginners'
+description: Have you ever wanted to create something simple, fun, and exciting with
+  your own hands? Making a toy boat is easier than you think, and it can bring hours
+  of jo
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy-boat&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy-boat&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something simple, fun, and exciting with your own hands? Making a toy boat is easier than you think, and it can bring hours of joy to you and those around you.**

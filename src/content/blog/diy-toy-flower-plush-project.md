@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Flower Plush Project: Easy Steps for Adorable Handmade Gifts"
-description: "Are you looking for a fun and creative project that brings joy to both kids and adults? This DIY Toy Flower Plush Project is perfect for you! Imagine making a s"
+title: 'Diy Toy Flower Plush Project: Easy Steps for Adorable Handmade Gifts'
+description: Are you looking for a fun and creative project that brings joy to both
+  kids and adults? This DIY Toy Flower Plush Project is perfect for you! Imagine making
+  a s
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-flower-plush-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-flower-plush-project&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to both kids and adults? This DIY Toy Flower Plush Project is perfect for you!**

@@ -1,10 +1,14 @@
 ---
-title: "Ancient Board Games History: Unveiling Timeless Classic Strategies"
-description: "Have you ever wondered how people entertained themselves thousands of years ago? Ancient board games are more than just old pastimes—they reveal secrets about h"
+title: 'Ancient Board Games History: Unveiling Timeless Classic Strategies'
+description: Have you ever wondered how people entertained themselves thousands of
+  years ago? Ancient board games are more than just old pastimes—they reveal secrets
+  about h
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=ancient-board-games-history&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=ancient-board-games-history&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how people entertained themselves thousands of years ago? Ancient board games are more than just old pastimes—they reveal secrets about human creativity, culture, and connection.**

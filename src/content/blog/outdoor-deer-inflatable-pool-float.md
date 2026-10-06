@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Deer Inflatable Pool Float: Ultimate Summer Fun Guide"
-description: "Imagine yourself lounging on a sunny day, floating effortlessly on water, surrounded by fun and relaxation. Now, picture doing that on an outdoor deer inflatabl"
+title: 'Outdoor Deer Inflatable Pool Float: Ultimate Summer Fun Guide'
+description: Imagine yourself lounging on a sunny day, floating effortlessly on water,
+  surrounded by fun and relaxation. Now, picture doing that on an outdoor deer inflatabl
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-deer-inflatable-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-deer-inflatable-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself lounging on a sunny day, floating effortlessly on water, surrounded by fun and relaxation. Now, picture doing that on an outdoor deer inflatable pool float—a playful and unique way to enjoy your pool or lake.**

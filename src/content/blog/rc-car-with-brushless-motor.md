@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Brushless Motor: Ultimate Speed and Performance Guide"
-description: "Are you ready to take your RC car experience to the next level? Imagine having a car that accelerates faster, runs smoother, and lasts longer—all thanks to a br"
+title: 'Rc Car With Brushless Motor: Ultimate Speed and Performance Guide'
+description: Are you ready to take your RC car experience to the next level? Imagine
+  having a car that accelerates faster, runs smoother, and lasts longer—all thanks
+  to a br
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-brushless-motor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-brushless-motor&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to the next level? Imagine having a car that accelerates faster, runs smoother, and lasts longer—all thanks to a brushless motor.**

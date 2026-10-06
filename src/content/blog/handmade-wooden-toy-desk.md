@@ -1,10 +1,13 @@
 ---
-title: "Handmade Wooden Toy Desk: Charming, Durable, and Eco-Friendly"
-description: "Imagine a space where your child’s creativity can soar, and every moment spent feels warm and special. A handmade wooden toy desk isn’t just a piece of furnitur"
+title: 'Handmade Wooden Toy Desk: Charming, Durable, and Eco-Friendly'
+description: Imagine a space where your child’s creativity can soar, and every moment
+  spent feels warm and special. A handmade wooden toy desk isn’t just a piece of furnitur
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-desk&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-desk&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine a space where your child’s creativity can soar, and every moment spent feels warm and special. A handmade wooden toy desk isn’t just a piece of furniture—it’s a gateway to learning, play, and imagination.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Ford Mustang Toy Car: Ultimate Guide to Speed and Fun"
-description: "Are you looking for a fun way to bring the thrill of the Ford Mustang right to your fingertips? The RC Ford Mustang toy car lets you experience the power and st"
+title: 'Rc Ford Mustang Toy Car: Ultimate Guide to Speed and Fun'
+description: Are you looking for a fun way to bring the thrill of the Ford Mustang
+  right to your fingertips? The RC Ford Mustang toy car lets you experience the power
+  and st
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-ford-mustang-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-ford-mustang-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun way to bring the thrill of the Ford Mustang right to your fingertips? The RC Ford Mustang toy car lets you experience the power and style of this classic muscle car, all in a compact, remote-controlled package.**

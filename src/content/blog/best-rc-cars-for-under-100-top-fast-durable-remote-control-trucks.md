@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Cars for Under 100: Top Fast & Durable Remote Control Trucks"
-description: "Finding the best RC cars under $100 can be tough but rewarding. Affordable models still offer speed, durability, and fun features. Remote control cars provide e"
+title: 'Best Rc Cars for Under 100: Top Fast & Durable Remote Control Trucks'
+description: Finding the best RC cars under $100 can be tough but rewarding. Affordable
+  models still offer speed, durability, and fun features. Remote control cars provide
+  e
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-cars-for-under-100-top-fast-durable-remote-control-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-cars-for-under-100-top-fast-durable-remote-control-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best RC cars under $100 can be tough but rewarding. Affordable models still offer speed, durability, and fun features.**

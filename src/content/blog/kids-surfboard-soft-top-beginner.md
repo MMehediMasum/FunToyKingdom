@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Surfboard Soft Top Beginner: Ultimate Guide for Safe Surfing Fun"
 description: "Looking for the perfect surfboard to help your child catch their very first wave? Choosing the right kids surfboard soft top beginner model can make all the dif"
 pubDate: 2026-03-28

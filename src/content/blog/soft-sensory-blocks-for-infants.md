@@ -1,10 +1,13 @@
 ---
-title: "Soft Sensory Blocks for Infants: Boost Development & Fun Play"
-description: "Are you looking for a fun and safe way to help your baby learn and grow? Soft sensory blocks for infants might be just what you need. These colorful, touch-frie"
+title: 'Soft Sensory Blocks for Infants: Boost Development & Fun Play'
+description: Are you looking for a fun and safe way to help your baby learn and grow?
+  Soft sensory blocks for infants might be just what you need. These colorful, touch-frie
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-sensory-blocks-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=soft-sensory-blocks-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe way to help your baby learn and grow? Soft sensory blocks for infants might be just what you need.**

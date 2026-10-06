@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Toys Racers: Top Pull Back and Friction Powered Race Cars"
-description: "Cars 3 toys racers captivate young minds with thrilling designs and endless play possibilities. These toys bring the excitement of racing to life for toddlers a"
+title: 'Cars 3 Toys Racers: Top Pull Back and Friction Powered Race Cars'
+description: Cars 3 toys racers captivate young minds with thrilling designs and endless
+  play possibilities. These toys bring the excitement of racing to life for toddlers
+  a
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-toys-racers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-toys-racers&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 3 toys racers captivate young minds with thrilling designs and endless play possibilities. These toys bring the excitement of racing to life for toddlers and kids.**

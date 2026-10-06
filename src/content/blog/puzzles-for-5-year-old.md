@@ -1,10 +1,14 @@
 ---
-title: "Puzzles for 5 Year Old: Fun and Educational Brain Boosters"
-description: "Are you looking for fun and simple ways to boost your 5-year-old’s brain power? Puzzles are a perfect choice. They not only keep your child entertained but also"
+title: 'Puzzles for 5 Year Old: Fun and Educational Brain Boosters'
+description: Are you looking for fun and simple ways to boost your 5-year-old’s brain
+  power? Puzzles are a perfect choice. They not only keep your child entertained but
+  also
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzles-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Puzzles For Toddlers Top
+heroImage: https://tse1.mm.bing.net/th?q=puzzles-for-5-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for fun and simple ways to boost your 5-year-old’s brain power? Puzzles are a perfect choice.**

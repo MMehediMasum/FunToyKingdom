@@ -1,10 +1,14 @@
 ---
-title: "Harry Potter Dobby Collectible Doll: Ultimate Must-Have for Fans"
-description: "If you’re a true Harry Potter fan, adding a Dobby collectible doll to your collection is a must. This little house-elf isn’t just a character; he’s a symbol of "
+title: 'Harry Potter Dobby Collectible Doll: Ultimate Must-Have for Fans'
+description: 'If you’re a true Harry Potter fan, adding a Dobby collectible doll to
+  your collection is a must. This little house-elf isn’t just a character; he’s a
+  symbol of '
 pubDate: 2025-10-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=harry-potter-dobby-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=harry-potter-dobby-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a true Harry Potter fan, adding a Dobby collectible doll to your collection is a must. This little house-elf isn’t just a character; he’s a symbol of loyalty, bravery, and heart.**

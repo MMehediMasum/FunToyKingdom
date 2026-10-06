@@ -1,10 +1,13 @@
 ---
-title: "Interactive Clue Board Game Electronic: Ultimate Mystery Adventure Fun"
-description: "Are you ready to take your game nights to a whole new level? The Interactive Clue Board Game Electronic brings excitement, mystery, and technology right to your"
+title: 'Interactive Clue Board Game Electronic: Ultimate Mystery Adventure Fun'
+description: Are you ready to take your game nights to a whole new level? The Interactive
+  Clue Board Game Electronic brings excitement, mystery, and technology right to your
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-clue-board-game-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Interactive Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=interactive-clue-board-game-electronic&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to take your game nights to a whole new level? The Interactive Clue Board Game Electronic brings excitement, mystery, and technology right to your fingertips.**

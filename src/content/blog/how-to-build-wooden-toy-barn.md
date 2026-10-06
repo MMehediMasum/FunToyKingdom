@@ -1,10 +1,14 @@
 ---
-title: "How to Build Wooden Toy Barn: Easy Steps for a Perfect Playhouse"
-description: "Are you ready to create a charming wooden toy barn that will bring joy to your child and add a touch of rustic fun to playtime? Building your own wooden toy bar"
+title: 'How to Build Wooden Toy Barn: Easy Steps for a Perfect Playhouse'
+description: Are you ready to create a charming wooden toy barn that will bring joy
+  to your child and add a touch of rustic fun to playtime? Building your own wooden
+  toy bar
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-barn&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-barn&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create a charming wooden toy barn that will bring joy to your child and add a touch of rustic fun to playtime? Building your own wooden toy barn is easier than you might think, and it’s a rewarding project you can be proud of.**

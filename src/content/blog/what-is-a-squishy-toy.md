@@ -1,10 +1,14 @@
 ---
-title: "What is a Squishy Toy: Ultimate Guide to Fun & Stress Relief"
-description: "Have you ever held a squishy toy in your hand and felt an instant wave of calm wash over you? These soft, squeezable toys aren’t just fun—they can also help red"
+title: 'What is a Squishy Toy: Ultimate Guide to Fun & Stress Relief'
+description: Have you ever held a squishy toy in your hand and felt an instant wave
+  of calm wash over you? These soft, squeezable toys aren’t just fun—they can also
+  help red
 pubDate: 2025-09-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-squishy-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-squishy-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever held a squishy toy in your hand and felt an instant wave of calm wash over you? These soft, squeezable toys aren’t just fun—they can also help reduce stress and boost your mood.**

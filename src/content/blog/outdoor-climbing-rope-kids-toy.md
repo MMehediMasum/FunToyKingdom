@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Climbing Rope Kids Toy: Safe, Fun, and Durable Playtime Gear"
-description: "Are you looking for a fun and safe way to keep your kids active outdoors? An outdoor climbing rope kids toy could be exactly what you need. It’s not just a toy—"
+title: 'Outdoor Climbing Rope Kids Toy: Safe, Fun, and Durable Playtime Gear'
+description: Are you looking for a fun and safe way to keep your kids active outdoors?
+  An outdoor climbing rope kids toy could be exactly what you need. It’s not just
+  a toy—
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-climbing-rope-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-climbing-rope-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to keep your kids active outdoors? An outdoor climbing rope kids toy could be exactly what you need.**

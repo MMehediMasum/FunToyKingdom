@@ -1,10 +1,14 @@
 ---
-title: "Science Kits for 12 Year Old: Top Fun & Educational Picks 2025"
-description: "Are you looking for the perfect science kit for a 12-year-old in your life? Finding one that sparks curiosity and keeps your child excited about learning can be"
+title: 'Science Kits for 12 Year Old: Top Fun & Educational Picks 2025'
+description: Are you looking for the perfect science kit for a 12-year-old in your
+  life? Finding one that sparks curiosity and keeps your child excited about learning
+  can be
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kits-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kits-for-12-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect science kit for a 12-year-old in your life? Finding one that sparks curiosity and keeps your child excited about learning can be tricky.**

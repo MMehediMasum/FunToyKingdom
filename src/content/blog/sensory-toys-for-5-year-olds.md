@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 5 Year Olds That Boost Calmness and Focus Instantly"
-description: "Sensory toys help 5-year-olds explore and learn through touch and movement. These toys support focus, calmness, and creativity in young children. Choosing the r"
+title: Sensory Toys for 5 Year Olds That Boost Calmness and Focus Instantly
+description: Sensory toys help 5-year-olds explore and learn through touch and movement.
+  These toys support focus, calmness, and creativity in young children. Choosing the
+  r
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-5-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-5-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 5-year-olds explore and learn through touch and movement. These toys support focus, calmness, and creativity in young children.**

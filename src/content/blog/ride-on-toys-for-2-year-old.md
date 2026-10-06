@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toys for 2 Year Old: Top Safe & Fun Picks for Toddlers"
-description: "Looking for the perfect ride on toy for your 2-year-old? You want something safe, fun, and that helps your little one grow. Choosing the right toy can boost the"
+title: 'Ride on Toys for 2 Year Old: Top Safe & Fun Picks for Toddlers'
+description: Looking for the perfect ride on toy for your 2-year-old? You want something
+  safe, fun, and that helps your little one grow. Choosing the right toy can boost
+  the
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toys-for-2-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect ride on toy for your 2-year-old? You want something safe, fun, and that helps your little one grow.**

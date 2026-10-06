@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate New Toys: Top Charities to Spread Joy Today"
-description: "Are you wondering where you can donate new toys to make a real difference? You have the power to bring joy and hope to children who need it most. Donating new t"
+title: 'Where Can I Donate New Toys: Top Charities to Spread Joy Today'
+description: Are you wondering where you can donate new toys to make a real difference?
+  You have the power to bring joy and hope to children who need it most. Donating
+  new t
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-new-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-new-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can donate new toys to make a real difference? You have the power to bring joy and hope to children who need it most.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Train Sprinkler Inflatable Toy: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into a fun-filled water wonderland that keeps your kids laughing for hours. The Outdoor Train Sprinkler Inflatable Toy is designed"
+title: 'Outdoor Train Sprinkler Inflatable Toy: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into a fun-filled water wonderland that
+  keeps your kids laughing for hours. The Outdoor Train Sprinkler Inflatable Toy is
+  designed
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-train-sprinkler-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-train-sprinkler-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun-filled water wonderland that keeps your kids laughing for hours. The Outdoor Train Sprinkler Inflatable Toy is designed just for that – combining the excitement of a train ride with the refreshing splash of a sprinkler.**

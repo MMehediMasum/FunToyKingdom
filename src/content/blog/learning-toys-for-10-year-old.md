@@ -1,10 +1,14 @@
 ---
-title: "Learning Toys for 10 Year Old: Top Engaging Picks for Smart Play"
-description: "Are you looking for the perfect learning toys for your 10-year-old? Choosing toys that spark curiosity and boost skills can be tricky. You want something fun, b"
+title: 'Learning Toys for 10 Year Old: Top Engaging Picks for Smart Play'
+description: Are you looking for the perfect learning toys for your 10-year-old? Choosing
+  toys that spark curiosity and boost skills can be tricky. You want something fun,
+  b
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=learning-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=learning-toys-for-10-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect learning toys for your 10-year-old? Choosing toys that spark curiosity and boost skills can be tricky.**

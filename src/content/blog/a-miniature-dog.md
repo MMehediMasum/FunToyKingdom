@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "A Miniature Dog’s Ultimate Guide to Nutrition, Care, and Toys"
 description: "Caring for a miniature dog involves more than just love and attention. It requires the right products to ensure their health and happiness. Understanding what y"
 pubDate: 2026-09-03

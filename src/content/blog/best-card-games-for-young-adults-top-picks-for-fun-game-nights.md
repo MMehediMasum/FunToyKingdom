@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for Young Adults: Top Picks for Fun Game Nights"
-description: "Card games offer fun and easy ways for young adults to connect and relax. They bring laughter, challenge, and friendly competition to any gathering. Choosing th"
+title: 'Best Card Games for Young Adults: Top Picks for Fun Game Nights'
+description: Card games offer fun and easy ways for young adults to connect and relax.
+  They bring laughter, challenge, and friendly competition to any gathering. Choosing
+  th
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-young-adults-top-picks-for-fun-game-nights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-young-adults-top-picks-for-fun-game-nights&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Card games offer fun and easy ways for young adults to connect and relax. They bring laughter, challenge, and friendly competition to any gathering.**

@@ -1,10 +1,14 @@
 ---
-title: "John Deere Diecast Toy Tractors: Top Collectible Replicas and Playsets"
-description: "John Deere diecast toy tractors bring farm adventures to life for kids and collectors alike. These toys combine realism with fun, offering detailed replicas of "
+title: 'John Deere Diecast Toy Tractors: Top Collectible Replicas and Playsets'
+description: 'John Deere diecast toy tractors bring farm adventures to life for kids
+  and collectors alike. These toys combine realism with fun, offering detailed replicas
+  of '
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=john-deere-diecast-toy-tractors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=john-deere-diecast-toy-tractors&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **John Deere diecast toy tractors bring farm adventures to life for kids and collectors alike. These toys combine realism with fun, offering detailed replicas of iconic farm machinery.**

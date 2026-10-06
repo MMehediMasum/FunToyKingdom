@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Knight Sword DIY: Easy Steps for a Magical Build"
-description: "Are you ready to create something amazing with your own hands? Imagine crafting a wooden toy knight sword that feels just right in your grip. This DIY project i"
+title: 'Wooden Toy Knight Sword DIY: Easy Steps for a Magical Build'
+description: Are you ready to create something amazing with your own hands? Imagine
+  crafting a wooden toy knight sword that feels just right in your grip. This DIY
+  project i
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-knight-sword-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-knight-sword-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something amazing with your own hands? Imagine crafting a wooden toy knight sword that feels just right in your grip.**

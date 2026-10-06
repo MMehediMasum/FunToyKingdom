@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Barbie Doll Controversies Blog Article: Shocking Truths Revealed"
 description: "Have you ever wondered why Barbie dolls spark so much debate? You might think of Barbie as just a toy, but there’s a lot more beneath the surface. This blog art"
 pubDate: 2026-07-29

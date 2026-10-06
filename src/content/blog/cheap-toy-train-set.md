@@ -1,10 +1,14 @@
 ---
-title: "Cheap Toy Train Set: Top Affordable Wooden Train Playsets for Kids"
-description: "Affordable toy train sets bring hours of fun and learning for young kids. These sets come with tracks, engines, and accessories to spark creativity. Toy train s"
+title: 'Cheap Toy Train Set: Top Affordable Wooden Train Playsets for Kids'
+description: Affordable toy train sets bring hours of fun and learning for young kids.
+  These sets come with tracks, engines, and accessories to spark creativity. Toy train
+  s
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cheap-toy-train-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cheap-toy-train-set&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Affordable toy train sets bring hours of fun and learning for young kids. These sets come with tracks, engines, and accessories to spark creativity.**

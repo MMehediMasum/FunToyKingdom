@@ -1,10 +1,14 @@
 ---
-title: "Blue Batman Robot Toy: Ultimate Interactive Action Figure for Kids"
-description: "The Blue Batman Robot Toy brings action and fun to any playtime. Kids enjoy its lights, sounds, and cool moves. This toy combines Batman’s hero power with excit"
+title: 'Blue Batman Robot Toy: Ultimate Interactive Action Figure for Kids'
+description: The Blue Batman Robot Toy brings action and fun to any playtime. Kids
+  enjoy its lights, sounds, and cool moves. This toy combines Batman’s hero power
+  with excit
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=blue-batman-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=blue-batman-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Blue Batman Robot Toy brings action and fun to any playtime. Kids enjoy its lights, sounds, and cool moves.**

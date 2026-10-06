@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Diving Mask Toy Set: Ultimate Fun for Kids Outdoors"
-description: "Are you ready to turn your outdoor playtime into an exciting underwater adventure? The Outdoor Diving Mask Toy Set is just what you need to dive into fun, explo"
+title: 'Outdoor Diving Mask Toy Set: Ultimate Fun for Kids Outdoors'
+description: Are you ready to turn your outdoor playtime into an exciting underwater
+  adventure? The Outdoor Diving Mask Toy Set is just what you need to dive into fun,
+  explo
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-diving-mask-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-diving-mask-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your outdoor playtime into an exciting underwater adventure? The Outdoor Diving Mask Toy Set is just what you need to dive into fun, explore the mysteries beneath the surface, and spark your imagination.**

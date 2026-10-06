@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Sea Scooter Kids Play: Ultimate Fun and Safety Guide"
-description: "Imagine your kids zooming through the water with big smiles on their faces, exploring the sea like little adventurers. An outdoor sea scooter designed for kids "
+title: 'Outdoor Sea Scooter Kids Play: Ultimate Fun and Safety Guide'
+description: 'Imagine your kids zooming through the water with big smiles on their
+  faces, exploring the sea like little adventurers. An outdoor sea scooter designed
+  for kids '
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-sea-scooter-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-sea-scooter-kids-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids zooming through the water with big smiles on their faces, exploring the sea like little adventurers. An outdoor sea scooter designed for kids can turn a simple day at the beach into an unforgettable experience.**

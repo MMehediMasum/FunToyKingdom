@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Adults And Kids Together: Ultimate Family Fun Guide"
-description: "Looking for a fun way to bring your family or friends closer? The best board games for adults and kids together can turn any gathering into a memorable experien"
+title: 'Best Board Games for Adults And Kids Together: Ultimate Family Fun Guide'
+description: Looking for a fun way to bring your family or friends closer? The best
+  board games for adults and kids together can turn any gathering into a memorable
+  experien
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-adults-and-kids-together&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-adults-and-kids-together&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your family or friends closer? The best board games for adults and kids together can turn any gathering into a memorable experience filled with laughter and friendly competition.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Car for Drifting: Top Picks for Ultimate Control"
-description: "Are you ready to take your RC car skills to the next level? If drifting is your passion, finding the best RC car for drifting is key to unlocking that smooth, c"
+title: 'Best Rc Car for Drifting: Top Picks for Ultimate Control'
+description: Are you ready to take your RC car skills to the next level? If drifting
+  is your passion, finding the best RC car for drifting is key to unlocking that smooth,
+  c
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-car-for-drifting&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-car-for-drifting&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car skills to the next level? If drifting is your passion, finding the best RC car for drifting is key to unlocking that smooth, controlled slide every time.**

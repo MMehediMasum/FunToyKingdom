@@ -1,10 +1,14 @@
 ---
-title: "Mars Exploration Rc Toy: Ultimate Adventure for Space Fans"
-description: "Imagine controlling your very own Mars rover from the comfort of your home. The Mars Exploration RC Toy lets you do just that, bringing the excitement of space "
+title: 'Mars Exploration Rc Toy: Ultimate Adventure for Space Fans'
+description: 'Imagine controlling your very own Mars rover from the comfort of your
+  home. The Mars Exploration RC Toy lets you do just that, bringing the excitement
+  of space '
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mars-exploration-rc-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=mars-exploration-rc-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling your very own Mars rover from the comfort of your home. The Mars Exploration RC Toy lets you do just that, bringing the excitement of space exploration right to your fingertips.**

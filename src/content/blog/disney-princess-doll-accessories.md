@@ -1,10 +1,14 @@
 ---
-title: "Disney Princess Doll Accessories: Must-Have Magical Add-Ons"
-description: "Imagine giving your Disney Princess dolls a magical makeover that makes playtime even more enchanting. You’ve got the dolls, but what about the accessories that"
+title: 'Disney Princess Doll Accessories: Must-Have Magical Add-Ons'
+description: Imagine giving your Disney Princess dolls a magical makeover that makes
+  playtime even more enchanting. You’ve got the dolls, but what about the accessories
+  that
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-princess-doll-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=disney-princess-doll-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine giving your Disney Princess dolls a magical makeover that makes playtime even more enchanting. You’ve got the dolls, but what about the accessories that bring their stories to life?**

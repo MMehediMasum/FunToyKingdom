@@ -1,10 +1,14 @@
 ---
-title: "Toyota Fj Cruiser Toy Car: Top Diecast Models for Collectors and Kids"
-description: "The Toyota FJ Cruiser toy car is a miniature marvel for collectors and kids alike. Its detailed design captures the essence of the real SUV. These toy cars come"
+title: 'Toyota Fj Cruiser Toy Car: Top Diecast Models for Collectors and Kids'
+description: The Toyota FJ Cruiser toy car is a miniature marvel for collectors and
+  kids alike. Its detailed design captures the essence of the real SUV. These toy
+  cars come
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyota-fj-cruiser-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toyota-fj-cruiser-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Toyota FJ Cruiser toy car is a miniature marvel for collectors and kids alike. Its detailed design captures the essence of the real SUV.**

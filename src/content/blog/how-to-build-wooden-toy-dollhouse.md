@@ -1,10 +1,14 @@
 ---
-title: "How to Build Wooden Toy Dollhouse: Easy Steps for Perfect Craftsmanship"
-description: "Are you ready to create something special that brings joy for years? Building a wooden toy dollhouse is more than just a craft—it's a chance to make a beautiful"
+title: 'How to Build Wooden Toy Dollhouse: Easy Steps for Perfect Craftsmanship'
+description: Are you ready to create something special that brings joy for years?
+  Building a wooden toy dollhouse is more than just a craft—it's a chance to make
+  a beautiful
 pubDate: 2026-07-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-dollhouse&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-dollhouse&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to create something special that brings joy for years? Building a wooden toy dollhouse is more than just a craft—it's a chance to make a beautiful, lasting treasure with your own hands.**

@@ -1,10 +1,14 @@
 ---
-title: "How Long Can Gonorrhea Live on Toys: Essential Facts Revealed"
-description: "Have you ever wondered how safe your toys really are when it comes to germs? If you’re concerned about gonorrhea and how long it can live on your toys, you’re n"
+title: 'How Long Can Gonorrhea Live on Toys: Essential Facts Revealed'
+description: Have you ever wondered how safe your toys really are when it comes to
+  germs? If you’re concerned about gonorrhea and how long it can live on your toys,
+  you’re n
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-can-gonorrhea-live-on-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Germ Safety
+heroImage: https://tse1.mm.bing.net/th?q=how-long-can-gonorrhea-live-on-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered how safe your toys really are when it comes to germs? If you’re concerned about gonorrhea and how long it can live on your toys, you’re not alone.**

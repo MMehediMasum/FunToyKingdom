@@ -1,10 +1,14 @@
 ---
-title: "Electronic Candy Dispenser Toy: Fun, Interactive, and Sweet Delight"
-description: "Imagine having a fun, colorful gadget that not only brightens up your room but also delivers candy right to your hand with just a push of a button. That’s exact"
+title: 'Electronic Candy Dispenser Toy: Fun, Interactive, and Sweet Delight'
+description: Imagine having a fun, colorful gadget that not only brightens up your
+  room but also delivers candy right to your hand with just a push of a button. That’s
+  exact
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-candy-dispenser-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=electronic-candy-dispenser-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine having a fun, colorful gadget that not only brightens up your room but also delivers candy right to your hand with just a push of a button. That’s exactly what an Electronic Candy Dispenser Toy does for you.**

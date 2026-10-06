@@ -1,10 +1,14 @@
 ---
-title: "Uno Card Game Rules Explained: Master the Game Quickly"
-description: "Are you ready to become the ultimate Uno champion? Understanding the rules is the first step to mastering this fun and fast-paced card game. Whether you’re play"
+title: 'Uno Card Game Rules Explained: Master the Game Quickly'
+description: Are you ready to become the ultimate Uno champion? Understanding the
+  rules is the first step to mastering this fun and fast-paced card game. Whether
+  you’re play
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=uno-card-game-rules-explained&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=uno-card-game-rules-explained&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to become the ultimate Uno champion? Understanding the rules is the first step to mastering this fun and fast-paced card game.**

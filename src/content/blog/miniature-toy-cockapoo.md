@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Cockapoo Figurines: Perfect Collectibles and Playset Accessories"
-description: "Miniature Toy Cockapoo figurines capture the charm of this popular dog breed in small, detailed forms. These tiny toys bring joy to kids and collectors alike wi"
+title: 'Miniature Toy Cockapoo Figurines: Perfect Collectibles and Playset Accessories'
+description: Miniature Toy Cockapoo figurines capture the charm of this popular dog
+  breed in small, detailed forms. These tiny toys bring joy to kids and collectors
+  alike wi
 pubDate: 2026-02-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-cockapoo&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-cockapoo&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature Toy Cockapoo figurines capture the charm of this popular dog breed in small, detailed forms. These tiny toys bring joy to kids and collectors alike with their realistic designs.**

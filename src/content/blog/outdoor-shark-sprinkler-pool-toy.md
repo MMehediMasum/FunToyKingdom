@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Shark Sprinkler Pool Toy: Ultimate Summer Fun for Kids"
-description: "Are you ready to turn your backyard into a splash-filled adventure? The Outdoor Shark Sprinkler Pool Toy is exactly what you need to bring hours of fun and cool"
+title: 'Outdoor Shark Sprinkler Pool Toy: Ultimate Summer Fun for Kids'
+description: Are you ready to turn your backyard into a splash-filled adventure? The
+  Outdoor Shark Sprinkler Pool Toy is exactly what you need to bring hours of fun
+  and cool
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-shark-sprinkler-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-shark-sprinkler-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your backyard into a splash-filled adventure? The Outdoor Shark Sprinkler Pool Toy is exactly what you need to bring hours of fun and cool relief on hot days.**

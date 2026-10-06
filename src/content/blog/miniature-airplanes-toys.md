@@ -1,10 +1,13 @@
 ---
-title: "Miniature Airplanes Toys: Top Diecast Jets and Playsets for Kids"
-description: "Miniature airplane toys capture the imagination of young aviation enthusiasts. These toys offer endless fun and learning opportunities. Miniature airplane toys "
+title: 'Miniature Airplanes Toys: Top Diecast Jets and Playsets for Kids'
+description: 'Miniature airplane toys capture the imagination of young aviation enthusiasts.
+  These toys offer endless fun and learning opportunities. Miniature airplane toys '
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-airplanes-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-airplanes-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature airplane toys capture the imagination of young aviation enthusiasts. These toys offer endless fun and learning opportunities.**

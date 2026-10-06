@@ -1,10 +1,14 @@
 ---
-title: "Parachute Rocket Toy for Kids: Ultimate Fun and Learning Guide"
-description: "Are you looking for a fun and exciting toy that will keep your kids active and curious? The Parachute Rocket Toy for Kids is exactly what you need. It’s simple "
+title: 'Parachute Rocket Toy for Kids: Ultimate Fun and Learning Guide'
+description: 'Are you looking for a fun and exciting toy that will keep your kids
+  active and curious? The Parachute Rocket Toy for Kids is exactly what you need.
+  It’s simple '
 pubDate: 2026-05-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=parachute-rocket-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=parachute-rocket-toy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting toy that will keep your kids active and curious? The Parachute Rocket Toy for Kids is exactly what you need.**

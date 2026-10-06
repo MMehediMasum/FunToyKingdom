@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Crane Sprinkler Inflatable: Ultimate Guide for Summer Fun"
-description: "Are you looking to add a fun and eye-catching feature to your outdoor space? An outdoor crane sprinkler inflatable might be just what you need. Imagine a giant,"
+title: 'Outdoor Crane Sprinkler Inflatable: Ultimate Guide for Summer Fun'
+description: Are you looking to add a fun and eye-catching feature to your outdoor
+  space? An outdoor crane sprinkler inflatable might be just what you need. Imagine
+  a giant,
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crane-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crane-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking to add a fun and eye-catching feature to your outdoor space? An outdoor crane sprinkler inflatable might be just what you need.**

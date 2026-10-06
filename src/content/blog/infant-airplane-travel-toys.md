@@ -1,10 +1,14 @@
 ---
-title: "Infant Airplane Travel Toys: Top Sensory and Interactive Picks for Toddlers"
-description: "Infant airplane travel toys keep babies happy and calm during flights. They offer fun and learning in small, easy-to-carry designs. Traveling with an infant can"
+title: 'Infant Airplane Travel Toys: Top Sensory and Interactive Picks for Toddlers'
+description: Infant airplane travel toys keep babies happy and calm during flights.
+  They offer fun and learning in small, easy-to-carry designs. Traveling with an infant
+  can
 pubDate: 2026-08-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-airplane-travel-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toys For Airplane Travel
+heroImage: https://tse1.mm.bing.net/th?q=infant-airplane-travel-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant airplane travel toys keep babies happy and calm during flights. They offer fun and learning in small, easy-to-carry designs.**

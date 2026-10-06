@@ -1,10 +1,13 @@
 ---
-title: "Sensory Toys for SPD: Top Calming Fidget Tools for Autism & ADHD"
-description: "Sensory toys play a vital role in supporting individuals with Sensory Processing Disorder (SPD). These toys offer a range of benefits, from calming overstimulat"
+title: 'Sensory Toys for SPD: Top Calming Fidget Tools for Autism & ADHD'
+description: Sensory toys play a vital role in supporting individuals with Sensory
+  Processing Disorder (SPD). These toys offer a range of benefits, from calming overstimulat
 pubDate: 2026-02-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-spd&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-spd&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys play a vital role in supporting individuals with Sensory Processing Disorder (SPD). These toys offer a range of benefits, from calming overstimulation to improving focus.**

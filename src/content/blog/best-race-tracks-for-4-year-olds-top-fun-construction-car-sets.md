@@ -1,10 +1,14 @@
 ---
-title: "Best Race Tracks for 4 Year Olds: Top Fun Construction Car Sets"
-description: "Finding the best race tracks for 4 year olds can be fun and educational. These tracks offer safe play and creative learning for young kids. Race tracks for 4 ye"
+title: 'Best Race Tracks for 4 Year Olds: Top Fun Construction Car Sets'
+description: Finding the best race tracks for 4 year olds can be fun and educational.
+  These tracks offer safe play and creative learning for young kids. Race tracks for
+  4 ye
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-race-tracks-for-4-year-olds-top-fun-construction-car-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Race Tracks For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-race-tracks-for-4-year-olds-top-fun-construction-car-sets&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best race tracks for 4 year olds can be fun and educational. These tracks offer safe play and creative learning for young kids.**

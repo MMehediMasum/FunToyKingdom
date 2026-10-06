@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane With Brushless Motor: Ultimate Speed and Efficiency Guide"
-description: "Are you ready to take your RC airplane experience to the next level? An RC airplane with a brushless motor offers you more power, longer flight times, and smoot"
+title: 'Rc Airplane With Brushless Motor: Ultimate Speed and Efficiency Guide'
+description: Are you ready to take your RC airplane experience to the next level?
+  An RC airplane with a brushless motor offers you more power, longer flight times,
+  and smoot
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-brushless-motor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-brushless-motor&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC airplane experience to the next level? An RC airplane with a brushless motor offers you more power, longer flight times, and smoother control than traditional motors.**

@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 2 Months: Top Sensory and Teething Toys for Babies"
-description: "Choosing the right toys for a 2-month-old baby can boost their early development. At this age, sensory and simple interactive toys are ideal. Infants at two mon"
+title: 'Infant Toys for 2 Months: Top Sensory and Teething Toys for Babies'
+description: Choosing the right toys for a 2-month-old baby can boost their early
+  development. At this age, sensory and simple interactive toys are ideal. Infants
+  at two mon
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-2-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-2-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a 2-month-old baby can boost their early development. At this age, sensory and simple interactive toys are ideal.**

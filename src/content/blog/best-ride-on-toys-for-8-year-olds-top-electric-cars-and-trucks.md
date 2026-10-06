@@ -1,10 +1,14 @@
 ---
-title: "Best Ride on Toys for 8 Year Olds: Top Electric Cars and Trucks"
-description: "Finding the best ride on toys for 8 year olds can be tricky. Kids want fun, parents want safety and quality. Ride on toys bring joy and active play to children."
+title: 'Best Ride on Toys for 8 Year Olds: Top Electric Cars and Trucks'
+description: Finding the best ride on toys for 8 year olds can be tricky. Kids want
+  fun, parents want safety and quality. Ride on toys bring joy and active play to
+  children.
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-8-year-olds-top-electric-cars-and-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-8-year-olds-top-electric-cars-and-trucks&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Finding the best ride on toys for 8 year olds can be tricky. Kids want fun, parents want safety and quality.**

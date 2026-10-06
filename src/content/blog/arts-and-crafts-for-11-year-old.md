@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 11 Year Old: Fun and Creative Projects"
-description: "Looking for fun and creative ways to keep your 11-year-old busy? Arts and crafts are the perfect way to spark their imagination and help them express themselves"
+title: 'Arts And Crafts for 11 Year Old: Fun and Creative Projects'
+description: Looking for fun and creative ways to keep your 11-year-old busy? Arts
+  and crafts are the perfect way to spark their imagination and help them express
+  themselves
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-11-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for fun and creative ways to keep your 11-year-old busy? Arts and crafts are the perfect way to spark their imagination and help them express themselves.**

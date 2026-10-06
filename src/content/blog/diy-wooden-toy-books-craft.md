@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Books Craft: Creative Ideas for Fun & Learning"
-description: "Are you looking for a fun and creative project that brings joy to both you and your kids? Making DIY wooden toy books is the perfect way to combine learning and"
+title: 'Diy Wooden Toy Books Craft: Creative Ideas for Fun & Learning'
+description: Are you looking for a fun and creative project that brings joy to both
+  you and your kids? Making DIY wooden toy books is the perfect way to combine learning
+  and
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-books-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-books-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to both you and your kids? Making DIY wooden toy books is the perfect way to combine learning and play.**

@@ -1,10 +1,14 @@
 ---
-title: "Story Cubes Educational Toy Sets: Boost Creativity & Learning Fun"
-description: "Imagine a simple toy that sparks your child’s creativity, boosts their storytelling skills, and turns learning into an exciting game. That’s exactly what Story "
+title: 'Story Cubes Educational Toy Sets: Boost Creativity & Learning Fun'
+description: 'Imagine a simple toy that sparks your child’s creativity, boosts their
+  storytelling skills, and turns learning into an exciting game. That’s exactly what
+  Story '
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=story-cubes-educational-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=story-cubes-educational-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine a simple toy that sparks your child’s creativity, boosts their storytelling skills, and turns learning into an exciting game. That’s exactly what Story Cubes Educational Toy Sets offer you and your family.**

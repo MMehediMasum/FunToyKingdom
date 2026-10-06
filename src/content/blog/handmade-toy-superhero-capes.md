@@ -1,10 +1,13 @@
 ---
-title: "Handmade Toy Superhero Capes: Unleash Imagination and Adventure"
-description: "Imagine your child’s eyes lighting up the moment they put on a cape that feels made just for them. Handmade toy superhero capes do more than complete a costume—"
+title: 'Handmade Toy Superhero Capes: Unleash Imagination and Adventure'
+description: Imagine your child’s eyes lighting up the moment they put on a cape that
+  feels made just for them. Handmade toy superhero capes do more than complete a costume—
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-superhero-capes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-superhero-capes&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine your child’s eyes lighting up the moment they put on a cape that feels made just for them. Handmade toy superhero capes do more than complete a costume—they unlock creativity, boost confidence, and turn playtime into unforgettable adventures.**

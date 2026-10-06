@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Monopoly Rules: Ultimate Guide to Win Every Game"
-description: "Are you ready to dive into the exciting world of Toy Story Monopoly? Whether you're a fan of Woody, Buzz, or all the lovable characters, understanding the rules"
+title: 'Toy Story Monopoly Rules: Ultimate Guide to Win Every Game'
+description: Are you ready to dive into the exciting world of Toy Story Monopoly?
+  Whether you're a fan of Woody, Buzz, or all the lovable characters, understanding
+  the rules
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-monopoly-rules&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-monopoly-rules&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to dive into the exciting world of Toy Story Monopoly? Whether you're a fan of Woody, Buzz, or all the lovable characters, understanding the rules is key to having the most fun.**

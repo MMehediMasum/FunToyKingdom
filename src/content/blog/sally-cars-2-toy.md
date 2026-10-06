@@ -1,10 +1,14 @@
 ---
-title: "Sally Cars 2 Toy: Ultimate Diecast Collectible Set for Kids Fun"
-description: "Sally Cars 2 Toy brings favorite characters from the Disney Pixar Cars movie to life. These diecast mini cars offer fun and collectibility for kids and fans ali"
+title: 'Sally Cars 2 Toy: Ultimate Diecast Collectible Set for Kids Fun'
+description: Sally Cars 2 Toy brings favorite characters from the Disney Pixar Cars
+  movie to life. These diecast mini cars offer fun and collectibility for kids and
+  fans ali
 pubDate: 2026-02-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sally-cars-2-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=sally-cars-2-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Sally Cars 2 Toy brings favorite characters from the Disney Pixar Cars movie to life. These diecast mini cars offer fun and collectibility for kids and fans alike.**

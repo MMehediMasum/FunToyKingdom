@@ -1,10 +1,14 @@
 ---
-title: "Arpo the Robot Toy: Interactive Gesture-Controlled Fun for Kids"
-description: "Arpo the Robot Toy brings fun and learning together for young children. This interactive toy offers smart features that engage kids in play and education. Arpo "
+title: 'Arpo the Robot Toy: Interactive Gesture-Controlled Fun for Kids'
+description: 'Arpo the Robot Toy brings fun and learning together for young children.
+  This interactive toy offers smart features that engage kids in play and education.
+  Arpo '
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=arpo-the-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=arpo-the-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Arpo the Robot Toy brings fun and learning together for young children. This interactive toy offers smart features that engage kids in play and education.**

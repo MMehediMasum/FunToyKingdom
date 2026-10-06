@@ -1,10 +1,14 @@
 ---
-title: "Motor Skill Toys for Infants: Top Picks to Boost Early Development"
-description: "Motor skill toys help infants develop hand-eye coordination and fine motor skills early. These toys keep babies engaged while supporting their growth. Choosing "
+title: 'Motor Skill Toys for Infants: Top Picks to Boost Early Development'
+description: 'Motor skill toys help infants develop hand-eye coordination and fine
+  motor skills early. These toys keep babies engaged while supporting their growth.
+  Choosing '
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=motor-skill-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Motor Skill Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=motor-skill-toys-for-infants&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Motor skill toys help infants develop hand-eye coordination and fine motor skills early. These toys keep babies engaged while supporting their growth.**

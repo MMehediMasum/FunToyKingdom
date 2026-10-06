@@ -1,10 +1,14 @@
 ---
-title: "Jump Rope Outdoor Toy Kids: Fun, Fitness, and Fresh Air Play"
-description: "Looking for a fun way to get your kids moving outside? A jump rope is the perfect outdoor toy that brings endless joy and energy to playtime. Imagine your child"
+title: 'Jump Rope Outdoor Toy Kids: Fun, Fitness, and Fresh Air Play'
+description: Looking for a fun way to get your kids moving outside? A jump rope is
+  the perfect outdoor toy that brings endless joy and energy to playtime. Imagine
+  your child
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jump-rope-outdoor-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=jump-rope-outdoor-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids moving outside? A jump rope is the perfect outdoor toy that brings endless joy and energy to playtime.**

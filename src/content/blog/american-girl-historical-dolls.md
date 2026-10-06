@@ -1,10 +1,14 @@
 ---
-title: "American Girl Historical Dolls: Timeless Stories in Every Doll"
-description: "Have you ever wished to step back in time and experience history through the eyes of a child? American Girl Historical Dolls let you do just that. Each doll tel"
+title: 'American Girl Historical Dolls: Timeless Stories in Every Doll'
+description: Have you ever wished to step back in time and experience history through
+  the eyes of a child? American Girl Historical Dolls let you do just that. Each doll
+  tel
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=american-girl-historical-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=american-girl-historical-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wished to step back in time and experience history through the eyes of a child? American Girl Historical Dolls let you do just that.**

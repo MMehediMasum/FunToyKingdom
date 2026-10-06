@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Bluetooth Control: Ultimate Guide to Smart Racing Fun"
-description: "Imagine having full control of your RC car right from your smartphone. No bulky remote, no tangled wires—just smooth, easy driving with a tap or swipe. If you l"
+title: 'Rc Car With Bluetooth Control: Ultimate Guide to Smart Racing Fun'
+description: Imagine having full control of your RC car right from your smartphone.
+  No bulky remote, no tangled wires—just smooth, easy driving with a tap or swipe.
+  If you l
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-bluetooth-control&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-bluetooth-control&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine having full control of your RC car right from your smartphone. No bulky remote, no tangled wires—just smooth, easy driving with a tap or swipe.**

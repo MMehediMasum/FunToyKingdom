@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Pull along Toy Diy: Easy Step-by-Step Guide"
-description: "Are you looking for a fun and creative project that you can make with your own hands? Making a pull along toy DIY is a simple and rewarding way to create someth"
+title: 'How to Make a Pull along Toy Diy: Easy Step-by-Step Guide'
+description: Are you looking for a fun and creative project that you can make with
+  your own hands? Making a pull along toy DIY is a simple and rewarding way to create
+  someth
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-pull-along-toy-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-pull-along-toy-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with your own hands? Making a pull along toy DIY is a simple and rewarding way to create something special for your child or as a gift.**

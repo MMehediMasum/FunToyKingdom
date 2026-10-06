@@ -1,10 +1,14 @@
 ---
-title: "Kids Outdoor Cooking Playset: Ultimate Fun & Learning Adventure"
-description: "Imagine your child’s laughter filling the backyard as they whip up their very own pretend meals. A Kids Outdoor Cooking Playset is more than just a toy – it’s a"
+title: 'Kids Outdoor Cooking Playset: Ultimate Fun & Learning Adventure'
+description: Imagine your child’s laughter filling the backyard as they whip up their
+  very own pretend meals. A Kids Outdoor Cooking Playset is more than just a toy –
+  it’s a
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-outdoor-cooking-playset&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=kids-outdoor-cooking-playset&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s laughter filling the backyard as they whip up their very own pretend meals. A Kids Outdoor Cooking Playset is more than just a toy – it’s a gateway to creativity, learning, and endless fun right outside your door.**

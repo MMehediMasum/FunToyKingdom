@@ -1,10 +1,14 @@
 ---
-title: "Schuco Toy Cars: Detailed Diecast Models for Collectors and Kids"
-description: "Schuco toy cars offer detailed and collectible diecast models loved by many. These miniature vehicles capture the charm of classic and modern cars with great ac"
+title: 'Schuco Toy Cars: Detailed Diecast Models for Collectors and Kids'
+description: Schuco toy cars offer detailed and collectible diecast models loved by
+  many. These miniature vehicles capture the charm of classic and modern cars with
+  great ac
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=schuco-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=schuco-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Schuco toy cars offer detailed and collectible diecast models loved by many. These miniature vehicles capture the charm of classic and modern cars with great accuracy.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for Infants 9 12 Months: Top Educational & Sensory Picks"
-description: "Choosing the best toys for infants aged 9 to 12 months helps support their growth and learning. This stage is full of curiosity and new skills. Infants between "
+title: 'Best Toys for Infants 9 12 Months: Top Educational & Sensory Picks'
+description: 'Choosing the best toys for infants aged 9 to 12 months helps support
+  their growth and learning. This stage is full of curiosity and new skills. Infants
+  between '
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-infants-9-12-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 12 Months
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-infants-9-12-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for infants aged 9 to 12 months helps support their growth and learning. This stage is full of curiosity and new skills.**

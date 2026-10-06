@@ -1,10 +1,14 @@
 ---
-title: "Best Yo Yos for Tricks: Top Picks for Beginners and Pros"
-description: "Choosing the best yo-yos for tricks helps you improve skills and enjoy playtime more. Yo-yos come in many types designed for beginners and advanced users. Trick"
+title: 'Best Yo Yos for Tricks: Top Picks for Beginners and Pros'
+description: Choosing the best yo-yos for tricks helps you improve skills and enjoy
+  playtime more. Yo-yos come in many types designed for beginners and advanced users.
+  Trick
 pubDate: 2025-12-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-yo-yos-for-tricks-top-picks-for-beginners-and-pros&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=best-yo-yos-for-tricks-top-picks-for-beginners-and-pros&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Choosing the best yo-yos for tricks helps you improve skills and enjoy playtime more. Yo-yos come in many types designed for beginners and advanced users.**

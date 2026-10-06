@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys Subscription Box: Ultimate Fidget Fun for Kids and Toddlers"
-description: "Discover the joy of sensory play with a sensory toys subscription box. Perfect for children of all ages, these boxes offer endless entertainment and learning op"
+title: 'Sensory Toys Subscription Box: Ultimate Fidget Fun for Kids and Toddlers'
+description: Discover the joy of sensory play with a sensory toys subscription box.
+  Perfect for children of all ages, these boxes offer endless entertainment and learning
+  op
 pubDate: 2026-08-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-subscription-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-subscription-box&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Discover the joy of sensory play with a sensory toys subscription box. Perfect for children of all ages, these boxes offer endless entertainment and learning opportunities.**

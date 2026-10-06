@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Miniature Toy Soldiers: Top Trusted Stores Revealed"
-description: "Are you looking to add miniature toy soldiers to your collection or start a new hobby? Finding the right place to buy these tiny figures can be tricky. You want"
+title: 'Where to Buy Miniature Toy Soldiers: Top Trusted Stores Revealed'
+description: Are you looking to add miniature toy soldiers to your collection or start
+  a new hobby? Finding the right place to buy these tiny figures can be tricky. You
+  want
 pubDate: 2026-07-29
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-miniature-toy-soldiers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-miniature-toy-soldiers&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking to add miniature toy soldiers to your collection or start a new hobby? Finding the right place to buy these tiny figures can be tricky.**

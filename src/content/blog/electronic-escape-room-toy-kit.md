@@ -1,10 +1,14 @@
 ---
-title: "Electronic Escape Room Toy Kit: Ultimate Fun & Brain Challenge"
-description: "Imagine unlocking a world of fun and challenge right in your own home. The Electronic Escape Room Toy Kit is designed to test your problem-solving skills while "
+title: 'Electronic Escape Room Toy Kit: Ultimate Fun & Brain Challenge'
+description: 'Imagine unlocking a world of fun and challenge right in your own home.
+  The Electronic Escape Room Toy Kit is designed to test your problem-solving skills
+  while '
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-escape-room-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=electronic-escape-room-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine unlocking a world of fun and challenge right in your own home. The Electronic Escape Room Toy Kit is designed to test your problem-solving skills while keeping you entertained for hours.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Toy Soldier Fort: Ultimate Step-by-Step Guide"
-description: "Imagine creating a toy soldier fort that feels so real, you’ll want to jump right in and command your troops. You might think building one is hard, but it’s eas"
+title: 'How to Build a Toy Soldier Fort: Ultimate Step-by-Step Guide'
+description: Imagine creating a toy soldier fort that feels so real, you’ll want to
+  jump right in and command your troops. You might think building one is hard, but
+  it’s eas
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-toy-soldier-fort&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-toy-soldier-fort&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine creating a toy soldier fort that feels so real, you’ll want to jump right in and command your troops. You might think building one is hard, but it’s easier than you expect—and a lot more fun.**

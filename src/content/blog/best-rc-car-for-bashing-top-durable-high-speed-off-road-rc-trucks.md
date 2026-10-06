@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Car for Bashing: Top Durable High-Speed Off-Road RC Trucks"
-description: "Choosing the best RC car for bashing means finding a model built tough for rough play and high speeds. These cars handle jumps, crashes, and all kinds of terrai"
+title: 'Best Rc Car for Bashing: Top Durable High-Speed Off-Road RC Trucks'
+description: Choosing the best RC car for bashing means finding a model built tough
+  for rough play and high speeds. These cars handle jumps, crashes, and all kinds
+  of terrai
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-car-for-bashing-top-durable-high-speed-off-road-rc-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Bashing Top
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-car-for-bashing-top-durable-high-speed-off-road-rc-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best RC car for bashing means finding a model built tough for rough play and high speeds. These cars handle jumps, crashes, and all kinds of terrain without breaking down.**

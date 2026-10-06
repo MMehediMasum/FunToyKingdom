@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Patio Kit: Upgrade Your Outdoor Space with Easy Conversion"
 description: "A Toy Hauler Patio Kit adds extra outdoor living space to your toy hauler. It creates a comfortable patio area while keeping your door secure. This kit includes"
 pubDate: 2026-08-28

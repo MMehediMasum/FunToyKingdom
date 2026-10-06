@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for Car Trips: Top Magnetic & Sensory Travel Activities"
-description: "Long car trips can be challenging for kids and parents alike. Choosing the best toys helps keep children calm and entertained on the road. This list features fu"
+title: 'Best Toys for Car Trips: Top Magnetic & Sensory Travel Activities'
+description: Long car trips can be challenging for kids and parents alike. Choosing
+  the best toys helps keep children calm and entertained on the road. This list features
+  fu
 pubDate: 2025-10-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-car-trips-top-magnetic-sensory-travel-activities&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-car-trips-top-magnetic-sensory-travel-activities&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Long car trips can be challenging for kids and parents alike. Choosing the best toys helps keep children calm and entertained on the road.**

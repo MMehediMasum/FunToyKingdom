@@ -1,10 +1,14 @@
 ---
-title: "Do Kittens Need Teething Toys: Essential Tips for Happy Pets"
-description: "If you have a playful kitten at home, you might be wondering how to keep those tiny teeth healthy and your furniture safe. Just like human babies, kittens go th"
+title: 'Do Kittens Need Teething Toys: Essential Tips for Happy Pets'
+description: If you have a playful kitten at home, you might be wondering how to keep
+  those tiny teeth healthy and your furniture safe. Just like human babies, kittens
+  go th
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-kittens-need-teething-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- When Can I Give My
+heroImage: https://tse1.mm.bing.net/th?q=do-kittens-need-teething-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you have a playful kitten at home, you might be wondering how to keep those tiny teeth healthy and your furniture safe. Just like human babies, kittens go through a teething phase that can make them chew on anything they find.**

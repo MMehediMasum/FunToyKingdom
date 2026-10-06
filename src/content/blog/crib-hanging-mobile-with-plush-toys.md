@@ -1,10 +1,14 @@
 ---
-title: "Crib Hanging Mobile With Plush Toys: Delightful Soothing Decor Ideas"
-description: "Looking for a way to keep your baby calm and entertained? A crib hanging mobile with plush toys might be just what you need. These soft, colorful toys gently sp"
+title: 'Crib Hanging Mobile With Plush Toys: Delightful Soothing Decor Ideas'
+description: Looking for a way to keep your baby calm and entertained? A crib hanging
+  mobile with plush toys might be just what you need. These soft, colorful toys gently
+  sp
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=crib-hanging-mobile-with-plush-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=crib-hanging-mobile-with-plush-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Looking for a way to keep your baby calm and entertained? A crib hanging mobile with plush toys might be just what you need.**

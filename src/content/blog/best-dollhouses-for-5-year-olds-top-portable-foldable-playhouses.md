@@ -1,10 +1,14 @@
 ---
-title: "Best Dollhouses for 5 Year Olds: Top Portable & Foldable Playhouses"
-description: "Choosing the best dollhouse for a 5-year-old can be fun but tricky. The right dollhouse sparks creativity and hours of play. Dollhouses help children develop im"
+title: 'Best Dollhouses for 5 Year Olds: Top Portable & Foldable Playhouses'
+description: Choosing the best dollhouse for a 5-year-old can be fun but tricky. The
+  right dollhouse sparks creativity and hours of play. Dollhouses help children develop
+  im
 pubDate: 2025-09-22
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouses-for-5-year-olds-top-portable-foldable-playhouses&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouses-for-5-year-olds-top-portable-foldable-playhouses&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dollhouse for a 5-year-old can be fun but tricky. The right dollhouse sparks creativity and hours of play.**

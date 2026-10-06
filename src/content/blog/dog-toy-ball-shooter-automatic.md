@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Ball Shooter Automatic: Ultimate Fetch Fun for Energetic Dogs"
-description: "A dog toy ball shooter automatic makes fetch easy and fun for dogs and owners. It throws balls quickly, letting dogs play more without tiring you out. These aut"
+title: 'Dog Toy Ball Shooter Automatic: Ultimate Fetch Fun for Energetic Dogs'
+description: A dog toy ball shooter automatic makes fetch easy and fun for dogs and
+  owners. It throws balls quickly, letting dogs play more without tiring you out.
+  These aut
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-ball-shooter-automatic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-ball-shooter-automatic&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog toy ball shooter automatic makes fetch easy and fun for dogs and owners. It throws balls quickly, letting dogs play more without tiring you out.**

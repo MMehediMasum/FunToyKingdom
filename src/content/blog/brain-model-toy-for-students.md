@@ -1,10 +1,14 @@
 ---
-title: "Brain Model Toy for Students: Boost Learning with Interactive Fun"
-description: "Have you ever wished learning about the brain could be fun and hands-on? A brain model toy for students might be exactly what you need. Imagine holding a colorf"
+title: 'Brain Model Toy for Students: Boost Learning with Interactive Fun'
+description: Have you ever wished learning about the brain could be fun and hands-on?
+  A brain model toy for students might be exactly what you need. Imagine holding a
+  colorf
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=brain-model-toy-for-students&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=brain-model-toy-for-students&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wished learning about the brain could be fun and hands-on? A brain model toy for students might be exactly what you need.**

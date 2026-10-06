@@ -1,10 +1,14 @@
 ---
-title: "Guardians of the Galaxy Action Figures Set: Ultimate Collector’s Guide"
-description: "Are you ready to bring the excitement of the Guardians of the Galaxy right into your hands? The Guardians of the Galaxy Action Figures Set lets you recreate epi"
+title: 'Guardians of the Galaxy Action Figures Set: Ultimate Collector’s Guide'
+description: Are you ready to bring the excitement of the Guardians of the Galaxy
+  right into your hands? The Guardians of the Galaxy Action Figures Set lets you recreate
+  epi
 pubDate: 2025-10-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=guardians-of-the-galaxy-action-figures-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=guardians-of-the-galaxy-action-figures-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring the excitement of the Guardians of the Galaxy right into your hands? The Guardians of the Galaxy Action Figures Set lets you recreate epic battles and heroic moments with your favorite characters.**

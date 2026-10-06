@@ -1,10 +1,14 @@
 ---
-title: "Electronic Toys for Infants: Top Picks for Fun and Learning"
-description: "Electronic toys for infants combine fun and learning in one package. They help babies develop senses and motor skills early on. These toys use sounds, lights, a"
+title: 'Electronic Toys for Infants: Top Picks for Fun and Learning'
+description: Electronic toys for infants combine fun and learning in one package.
+  They help babies develop senses and motor skills early on. These toys use sounds,
+  lights, a
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=electronic-toys-for-infants&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Electronic toys for infants combine fun and learning in one package. They help babies develop senses and motor skills early on.**

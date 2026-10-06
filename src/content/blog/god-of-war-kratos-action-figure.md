@@ -1,10 +1,13 @@
 ---
-title: "God of War Kratos Action Figure: Ultimate Collector’s Edition Unveiled"
-description: "If you’re a fan of God of War, you know Kratos is more than just a character—he’s a legend. Now, imagine having your very own Kratos action figure, packed with "
+title: 'God of War Kratos Action Figure: Ultimate Collector’s Edition Unveiled'
+description: 'If you’re a fan of God of War, you know Kratos is more than just a character—he’s
+  a legend. Now, imagine having your very own Kratos action figure, packed with '
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=god-of-war-kratos-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=god-of-war-kratos-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of God of War, you know Kratos is more than just a character—he’s a legend. Now, imagine having your very own Kratos action figure, packed with incredible details that bring your favorite warrior to life.**

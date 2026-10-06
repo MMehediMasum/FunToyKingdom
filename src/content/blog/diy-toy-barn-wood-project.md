@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Barn Wood Project: Easy Steps for Stunning Rustic Toys"
-description: "Are you looking for a fun and creative project that adds charm to your home and keeps your kids entertained? A DIY Toy Barn Wood Project might be exactly what y"
+title: 'Diy Toy Barn Wood Project: Easy Steps for Stunning Rustic Toys'
+description: Are you looking for a fun and creative project that adds charm to your
+  home and keeps your kids entertained? A DIY Toy Barn Wood Project might be exactly
+  what y
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-barn-wood-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-barn-wood-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that adds charm to your home and keeps your kids entertained? A DIY Toy Barn Wood Project might be exactly what you need.**

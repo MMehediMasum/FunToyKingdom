@@ -1,10 +1,14 @@
 ---
-title: "Mini Electronic Kitchen Toy Set: Ultimate Fun for Kids' Imagination"
-description: "Imagine giving your child a kitchen where they can create, explore, and learn—all in a safe, fun way. The Mini Electronic Kitchen Toy Set does just that. It’s m"
+title: 'Mini Electronic Kitchen Toy Set: Ultimate Fun for Kids'' Imagination'
+description: Imagine giving your child a kitchen where they can create, explore, and
+  learn—all in a safe, fun way. The Mini Electronic Kitchen Toy Set does just that.
+  It’s m
 pubDate: 2026-07-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-electronic-kitchen-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=mini-electronic-kitchen-toy-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine giving your child a kitchen where they can create, explore, and learn—all in a safe, fun way. The Mini Electronic Kitchen Toy Set does just that.**

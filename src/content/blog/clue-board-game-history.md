@@ -1,10 +1,14 @@
 ---
-title: "Clue Board Game History: Unveiling the Mystery Behind the Classic"
-description: "Have you ever wondered how the Clue board game came to be one of the most beloved mystery games in the world? If you love solving puzzles and piecing together c"
+title: 'Clue Board Game History: Unveiling the Mystery Behind the Classic'
+description: Have you ever wondered how the Clue board game came to be one of the
+  most beloved mystery games in the world? If you love solving puzzles and piecing
+  together c
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=clue-board-game-history&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=clue-board-game-history&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how the Clue board game came to be one of the most beloved mystery games in the world? If you love solving puzzles and piecing together clues, knowing the story behind Clue will make your next game night even more exciting.**

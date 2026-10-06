@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Army Soldier Set Toy: Ultimate Adventure for Kids"
-description: "Are you looking for the perfect toy that sparks adventure and creativity in your child’s playtime? The Outdoor Army Soldier Set Toy is exactly what you need. Im"
+title: 'Outdoor Army Soldier Set Toy: Ultimate Adventure for Kids'
+description: Are you looking for the perfect toy that sparks adventure and creativity
+  in your child’s playtime? The Outdoor Army Soldier Set Toy is exactly what you need.
+  Im
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-army-soldier-set-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-army-soldier-set-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect toy that sparks adventure and creativity in your child’s playtime? The Outdoor Army Soldier Set Toy is exactly what you need.**

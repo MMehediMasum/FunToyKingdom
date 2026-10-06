@@ -1,10 +1,14 @@
 ---
-title: "Pictionary Game Rules: Ultimate Guide to Fun and Winning Strategies"
-description: "Are you ready to turn your drawing skills into endless fun? Whether you’re playing with family or friends, knowing the Pictionary game rules can make all the di"
+title: 'Pictionary Game Rules: Ultimate Guide to Fun and Winning Strategies'
+description: Are you ready to turn your drawing skills into endless fun? Whether you’re
+  playing with family or friends, knowing the Pictionary game rules can make all the
+  di
 pubDate: 2025-10-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=pictionary-game-rules&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=pictionary-game-rules&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to turn your drawing skills into endless fun? Whether you’re playing with family or friends, knowing the Pictionary game rules can make all the difference between a chaotic mess and a smooth, exciting game night.**

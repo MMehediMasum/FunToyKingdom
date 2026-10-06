@@ -1,10 +1,13 @@
 ---
-title: "Toy Guitar With Lights And Sounds: Ultimate Fun for Kids!"
-description: "Are you looking for a fun and exciting way to spark your child’s creativity? A toy guitar with lights and sounds could be just what you need. Imagine your littl"
+title: 'Toy Guitar With Lights And Sounds: Ultimate Fun for Kids!'
+description: Are you looking for a fun and exciting way to spark your child’s creativity?
+  A toy guitar with lights and sounds could be just what you need. Imagine your littl
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-guitar-with-lights-and-sounds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Drum Set For Age
+heroImage: https://tse1.mm.bing.net/th?q=toy-guitar-with-lights-and-sounds&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s creativity? A toy guitar with lights and sounds could be just what you need.**

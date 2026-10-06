@@ -1,10 +1,13 @@
 ---
-title: "Moose Board Games: Ultimate Family Fun with Wild and Hilarious Adventures"
-description: "Moose-themed board games bring excitement to family game nights. These games entertain all ages with unique and fun challenges. Explore the world of moose-theme"
+title: 'Moose Board Games: Ultimate Family Fun with Wild and Hilarious Adventures'
+description: Moose-themed board games bring excitement to family game nights. These
+  games entertain all ages with unique and fun challenges. Explore the world of moose-theme
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=moose-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=moose-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Moose-themed board games bring excitement to family game nights. These games entertain all ages with unique and fun challenges.**

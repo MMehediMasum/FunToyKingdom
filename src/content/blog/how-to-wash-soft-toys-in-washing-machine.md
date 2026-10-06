@@ -1,10 +1,14 @@
 ---
-title: "How to Wash Soft Toys in Washing Machine: Easy, Safe Steps"
-description: "Are your soft toys looking a little tired and in need of a fresh clean? You might be wondering if it’s safe to toss them in your washing machine without ruining"
+title: 'How to Wash Soft Toys in Washing Machine: Easy, Safe Steps'
+description: Are your soft toys looking a little tired and in need of a fresh clean?
+  You might be wondering if it’s safe to toss them in your washing machine without
+  ruining
 pubDate: 2025-09-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-wash-soft-toys-in-washing-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-wash-soft-toys-in-washing-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are your soft toys looking a little tired and in need of a fresh clean? You might be wondering if it’s safe to toss them in your washing machine without ruining their softness or shape.**

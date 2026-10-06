@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Washing Machine: Easy DIY Guide"
-description: "Are you ready to create something fun and unique with your own hands? Making a wooden toy washing machine is a fantastic project that brings imagination to life"
+title: 'How to Make a Wooden Toy Washing Machine: Easy DIY Guide'
+description: Are you ready to create something fun and unique with your own hands?
+  Making a wooden toy washing machine is a fantastic project that brings imagination
+  to life
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-washing-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-washing-machine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something fun and unique with your own hands? Making a wooden toy washing machine is a fantastic project that brings imagination to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Diecast Aircraft Toys: Top Military Plane Sets with Lights & Sounds"
-description: "Diecast aircraft toys capture the excitement of flying with realistic metal models. These toys offer fun and education for kids and collectors alike. Diecast ai"
+title: 'Diecast Aircraft Toys: Top Military Plane Sets with Lights & Sounds'
+description: Diecast aircraft toys capture the excitement of flying with realistic
+  metal models. These toys offer fun and education for kids and collectors alike.
+  Diecast ai
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-aircraft-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-aircraft-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast aircraft toys capture the excitement of flying with realistic metal models. These toys offer fun and education for kids and collectors alike.**

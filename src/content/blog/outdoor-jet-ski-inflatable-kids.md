@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Jet Ski Inflatable Kids: Ultimate Fun & Safety Guide"
-description: "Looking for a fun and safe way to introduce your kids to water adventures? An outdoor jet ski inflatable designed just for kids might be exactly what you need. "
+title: 'Outdoor Jet Ski Inflatable Kids: Ultimate Fun & Safety Guide'
+description: 'Looking for a fun and safe way to introduce your kids to water adventures?
+  An outdoor jet ski inflatable designed just for kids might be exactly what you need. '
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-jet-ski-inflatable-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-jet-ski-inflatable-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to introduce your kids to water adventures? An outdoor jet ski inflatable designed just for kids might be exactly what you need.**

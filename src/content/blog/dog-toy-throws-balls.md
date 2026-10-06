@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Throws Balls: Top Launchers for Endless Fetch Fun"
-description: "Dogs love to play fetch, and a good ball launcher makes it even more exciting. These toys keep dogs active and engaged. Ball launchers are popular among dog own"
+title: 'Dog Toy Throws Balls: Top Launchers for Endless Fetch Fun'
+description: Dogs love to play fetch, and a good ball launcher makes it even more
+  exciting. These toys keep dogs active and engaged. Ball launchers are popular among
+  dog own
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-throws-balls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-throws-balls&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dogs love to play fetch, and a good ball launcher makes it even more exciting. These toys keep dogs active and engaged.**

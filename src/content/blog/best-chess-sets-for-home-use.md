@@ -1,10 +1,14 @@
 ---
-title: "Best Chess Sets for Home Use: Top Picks for Every Player"
-description: "Are you looking to bring more excitement and strategy into your home? A great chess set can do just that. Whether you're a beginner or a seasoned player, having"
+title: 'Best Chess Sets for Home Use: Top Picks for Every Player'
+description: Are you looking to bring more excitement and strategy into your home?
+  A great chess set can do just that. Whether you're a beginner or a seasoned player,
+  having
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-chess-sets-for-home-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=best-chess-sets-for-home-use&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking to bring more excitement and strategy into your home? A great chess set can do just that.**

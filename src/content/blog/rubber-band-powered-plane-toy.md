@@ -1,10 +1,14 @@
 ---
-title: "Rubber Band Powered Plane Toy: Ultimate Guide to Fun & Flight"
-description: "Have you ever wanted to build a flying toy that’s simple, fun, and powered by just a rubber band? Imagine holding a small plane in your hands, winding it up, an"
+title: 'Rubber Band Powered Plane Toy: Ultimate Guide to Fun & Flight'
+description: Have you ever wanted to build a flying toy that’s simple, fun, and powered
+  by just a rubber band? Imagine holding a small plane in your hands, winding it up,
+  an
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rubber-band-powered-plane-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=rubber-band-powered-plane-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to build a flying toy that’s simple, fun, and powered by just a rubber band? Imagine holding a small plane in your hands, winding it up, and watching it soar through the air.**

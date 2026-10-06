@@ -1,10 +1,14 @@
 ---
-title: "Matchbox Collectible Toy Cars: Ultimate Guide to Rare Finds & Values"
-description: "Are you fascinated by tiny cars that pack a big punch of nostalgia and fun? Matchbox collectible toy cars offer more than just miniature vehicles—they open a wo"
+title: 'Matchbox Collectible Toy Cars: Ultimate Guide to Rare Finds & Values'
+description: Are you fascinated by tiny cars that pack a big punch of nostalgia and
+  fun? Matchbox collectible toy cars offer more than just miniature vehicles—they
+  open a wo
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=matchbox-collectible-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=matchbox-collectible-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you fascinated by tiny cars that pack a big punch of nostalgia and fun? Matchbox collectible toy cars offer more than just miniature vehicles—they open a world of memories, excitement, and value.**

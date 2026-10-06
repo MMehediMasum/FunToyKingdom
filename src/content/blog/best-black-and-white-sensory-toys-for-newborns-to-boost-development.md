@@ -1,10 +1,14 @@
 ---
-title: "Best Black And White Sensory Toys for Newborns to Boost Development"
-description: "Black and white sensory toys help newborns focus and explore their world. These toys support early brain growth and visual skills. Newborn babies see high contr"
+title: Best Black And White Sensory Toys for Newborns to Boost Development
+description: Black and white sensory toys help newborns focus and explore their world.
+  These toys support early brain growth and visual skills. Newborn babies see high
+  contr
 pubDate: 2025-12-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-black-and-white-sensory-toys-for-newborns-to-boost-development&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-black-and-white-sensory-toys-for-newborns-to-boost-development&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Black and white sensory toys help newborns focus and explore their world. These toys support early brain growth and visual skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Electronic Dj Mixing Toy: Ultimate Fun for Aspiring DJs"
-description: "Are you ready to bring your music skills to life in a fun and exciting way? The Electronic DJ Mixing Toy is designed just for you. Whether you're dreaming of cr"
+title: 'Electronic Dj Mixing Toy: Ultimate Fun for Aspiring DJs'
+description: Are you ready to bring your music skills to life in a fun and exciting
+  way? The Electronic DJ Mixing Toy is designed just for you. Whether you're dreaming
+  of cr
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-dj-mixing-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=electronic-dj-mixing-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to bring your music skills to life in a fun and exciting way? The Electronic DJ Mixing Toy is designed just for you.**

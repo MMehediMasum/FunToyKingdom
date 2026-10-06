@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Rocket Launcher Safe: Fun, Easy & Kid-Friendly"
-description: "Are you looking for a fun and safe way to spark your child's imagination? A DIY wooden toy rocket launcher could be just what you need. It’s simple to build, us"
+title: 'Diy Wooden Toy Rocket Launcher Safe: Fun, Easy & Kid-Friendly'
+description: Are you looking for a fun and safe way to spark your child's imagination?
+  A DIY wooden toy rocket launcher could be just what you need. It’s simple to build,
+  us
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-rocket-launcher-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-rocket-launcher-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and safe way to spark your child's imagination? A DIY wooden toy rocket launcher could be just what you need.**

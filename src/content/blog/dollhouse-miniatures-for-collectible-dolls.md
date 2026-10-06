@@ -1,10 +1,14 @@
 ---
-title: "Dollhouse Miniatures for Collectible Dolls: Ultimate Guide to Stunning Sets"
-description: "Are you passionate about collectible dolls and want to create the perfect tiny world for them? Dollhouse miniatures offer a magical way to bring your dolls to l"
+title: 'Dollhouse Miniatures for Collectible Dolls: Ultimate Guide to Stunning Sets'
+description: Are you passionate about collectible dolls and want to create the perfect
+  tiny world for them? Dollhouse miniatures offer a magical way to bring your dolls
+  to l
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=dollhouse-miniatures-for-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=dollhouse-miniatures-for-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you passionate about collectible dolls and want to create the perfect tiny world for them? Dollhouse miniatures offer a magical way to bring your dolls to life, adding charm and detail that make your collection truly unique.**

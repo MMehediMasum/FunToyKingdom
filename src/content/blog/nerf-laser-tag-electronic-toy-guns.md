@@ -1,10 +1,14 @@
 ---
-title: "Nerf Laser Tag Electronic Toy Guns: Ultimate Fun for All Ages"
-description: "Are you ready to take your playtime to the next level? Nerf Laser Tag Electronic Toy Guns offer an exciting way to bring action and adventure right into your ho"
+title: 'Nerf Laser Tag Electronic Toy Guns: Ultimate Fun for All Ages'
+description: Are you ready to take your playtime to the next level? Nerf Laser Tag
+  Electronic Toy Guns offer an exciting way to bring action and adventure right into
+  your ho
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nerf-laser-tag-electronic-toy-guns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=nerf-laser-tag-electronic-toy-guns&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to take your playtime to the next level? Nerf Laser Tag Electronic Toy Guns offer an exciting way to bring action and adventure right into your home or backyard.**

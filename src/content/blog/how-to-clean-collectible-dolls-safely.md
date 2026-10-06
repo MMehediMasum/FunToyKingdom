@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Collectible Dolls Safely: Expert Tips Revealed"
-description: "You’ve spent time and care building your collection of beautiful dolls. Now, keeping them clean without causing damage is crucial. But how do you clean your col"
+title: 'How to Clean Collectible Dolls Safely: Expert Tips Revealed'
+description: You’ve spent time and care building your collection of beautiful dolls.
+  Now, keeping them clean without causing damage is crucial. But how do you clean
+  your col
 pubDate: 2025-09-03
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-collectible-dolls-safely&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-collectible-dolls-safely&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **You’ve spent time and care building your collection of beautiful dolls. Now, keeping them clean without causing damage is crucial.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Camera from Cardboard: Easy DIY Guide"
-description: "Have you ever wanted to create something fun and unique with your own hands? Making a toy camera from cardboard is easier than you think, and it’s a great way t"
+title: 'How to Make Toy Camera from Cardboard: Easy DIY Guide'
+description: Have you ever wanted to create something fun and unique with your own
+  hands? Making a toy camera from cardboard is easier than you think, and it’s a great
+  way t
 pubDate: 2026-07-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-camera-from-cardboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-camera-from-cardboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and unique with your own hands? Making a toy camera from cardboard is easier than you think, and it’s a great way to spark your creativity.**

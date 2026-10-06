@@ -1,10 +1,14 @@
 ---
-title: "Snowboard Beginner Kids Outdoor Toy: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun way to get your kids outside and active this winter? A snowboard beginner kids outdoor toy could be just what you need. Imagine your c"
+title: 'Snowboard Beginner Kids Outdoor Toy: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun way to get your kids outside and active this
+  winter? A snowboard beginner kids outdoor toy could be just what you need. Imagine
+  your c
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=snowboard-beginner-kids-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=snowboard-beginner-kids-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids outside and active this winter? A snowboard beginner kids outdoor toy could be just what you need.**

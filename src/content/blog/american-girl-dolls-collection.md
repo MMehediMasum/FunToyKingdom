@@ -1,10 +1,14 @@
 ---
-title: "American Girl Dolls Collection: Ultimate Guide to Must-Have Sets"
-description: "If you love dolls that tell stories and inspire creativity, the American Girl Dolls Collection is made just for you. Each doll in this collection has a unique p"
+title: 'American Girl Dolls Collection: Ultimate Guide to Must-Have Sets'
+description: If you love dolls that tell stories and inspire creativity, the American
+  Girl Dolls Collection is made just for you. Each doll in this collection has a unique
+  p
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=american-girl-dolls-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=american-girl-dolls-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you love dolls that tell stories and inspire creativity, the American Girl Dolls Collection is made just for you. Each doll in this collection has a unique personality and a special story that connects with your own experiences and dreams.**

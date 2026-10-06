@@ -1,10 +1,14 @@
 ---
-title: "Rare Star Wars Action Figure Worth Money: Top Collectors’ Treasure"
-description: "If you’re a Star Wars fan or a collector, you know that not all action figures are created equal. Some rare Star Wars action figures can be worth a surprising a"
+title: 'Rare Star Wars Action Figure Worth Money: Top Collectors’ Treasure'
+description: If you’re a Star Wars fan or a collector, you know that not all action
+  figures are created equal. Some rare Star Wars action figures can be worth a surprising
+  a
 pubDate: 2025-09-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-star-wars-action-figure-worth-money&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=rare-star-wars-action-figure-worth-money&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a Star Wars fan or a collector, you know that not all action figures are created equal. Some rare Star Wars action figures can be worth a surprising amount of money—sometimes thousands of dollars.**

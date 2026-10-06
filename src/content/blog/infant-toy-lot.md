@@ -1,10 +1,14 @@
 ---
-title: "Infant Toy Lot: Top 10 Sensory Rattles and Teethers for Babies"
-description: "An infant toy lot offers a variety of toys designed to support babies' early growth. These toys help develop senses, motor skills, and hand-eye coordination. In"
+title: 'Infant Toy Lot: Top 10 Sensory Rattles and Teethers for Babies'
+description: An infant toy lot offers a variety of toys designed to support babies'
+  early growth. These toys help develop senses, motor skills, and hand-eye coordination.
+  In
 pubDate: 2026-02-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toy-lot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=infant-toy-lot&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **An infant toy lot offers a variety of toys designed to support babies' early growth. These toys help develop senses, motor skills, and hand-eye coordination.**

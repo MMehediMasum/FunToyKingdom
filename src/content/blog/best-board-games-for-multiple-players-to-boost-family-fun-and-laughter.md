@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Multiple Players to Boost Family Fun and Laughter"
-description: "Board games bring friends and family together for hours of fun. Choosing the best ones for multiple players adds excitement to any gathering. Playing games with"
+title: Best Board Games for Multiple Players to Boost Family Fun and Laughter
+description: Board games bring friends and family together for hours of fun. Choosing
+  the best ones for multiple players adds excitement to any gathering. Playing games
+  with
 pubDate: 2025-10-19
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-multiple-players-to-boost-family-fun-and-laughter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Party
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-multiple-players-to-boost-family-fun-and-laughter&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games bring friends and family together for hours of fun. Choosing the best ones for multiple players adds excitement to any gathering.**

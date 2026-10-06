@@ -1,10 +1,14 @@
 ---
-title: "How to Fix Toy Story Woody Pull String: Easy DIY Repair Tips"
-description: "Is your Toy Story Woody’s pull string not working like it used to? It can be really frustrating when your favorite cowboy won’t say his famous lines anymore. Bu"
+title: 'How to Fix Toy Story Woody Pull String: Easy DIY Repair Tips'
+description: Is your Toy Story Woody’s pull string not working like it used to? It
+  can be really frustrating when your favorite cowboy won’t say his famous lines anymore.
+  Bu
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-fix-toy-story-woody-pull-string&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-to-fix-toy-story-woody-pull-string&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Is your Toy Story Woody’s pull string not working like it used to? It can be really frustrating when your favorite cowboy won’t say his famous lines anymore.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Skimboard Beginner Outdoor Toy: Ultimate Fun for Kids & Families"
 description: "Are you looking for a fun way to enjoy the outdoors and make the most of sunny days? A skimboard might be just what you need. This beginner outdoor toy is easy "
 pubDate: 2026-05-04

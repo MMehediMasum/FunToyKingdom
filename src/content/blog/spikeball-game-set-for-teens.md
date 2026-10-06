@@ -1,10 +1,13 @@
 ---
-title: "Spikeball Game Set for Teens: Ultimate Outdoor Fun Essentials"
-description: "Looking for a fun way to get your teens moving and having a blast outdoors? A Spikeball game set might be exactly what you need. It’s easy to learn, fast-paced,"
+title: 'Spikeball Game Set for Teens: Ultimate Outdoor Fun Essentials'
+description: Looking for a fun way to get your teens moving and having a blast outdoors?
+  A Spikeball game set might be exactly what you need. It’s easy to learn, fast-paced,
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=spikeball-game-set-for-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=spikeball-game-set-for-teens&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to get your teens moving and having a blast outdoors? A Spikeball game set might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Playgrounds for Birthday Parties: Top Outdoor Games and Bounce Houses"
-description: "Finding the best playgrounds for birthday parties makes celebrations fun and memorable. Playgrounds with games and activities keep kids excited and engaged thro"
+title: 'Best Playgrounds for Birthday Parties: Top Outdoor Games and Bounce Houses'
+description: Finding the best playgrounds for birthday parties makes celebrations
+  fun and memorable. Playgrounds with games and activities keep kids excited and engaged
+  thro
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-playgrounds-for-birthday-parties-top-outdoor-games-and-bounce-houses&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-playgrounds-for-birthday-parties-top-outdoor-games-and-bounce-houses&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Finding the best playgrounds for birthday parties makes celebrations fun and memorable. Playgrounds with games and activities keep kids excited and engaged throughout the event.**

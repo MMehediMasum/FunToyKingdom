@@ -1,10 +1,14 @@
 ---
-title: "Puzzles for 7 Year Old: Fun and Brain-Boosting Challenges"
-description: "Are you looking for fun and engaging puzzles for your 7-year-old? You want something that challenges their mind but keeps them excited to learn. The right puzzl"
+title: 'Puzzles for 7 Year Old: Fun and Brain-Boosting Challenges'
+description: Are you looking for fun and engaging puzzles for your 7-year-old? You
+  want something that challenges their mind but keeps them excited to learn. The right
+  puzzl
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzles-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=puzzles-for-7-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for fun and engaging puzzles for your 7-year-old? You want something that challenges their mind but keeps them excited to learn.**

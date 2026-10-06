@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Crossbow Safe: Expert Safety Tips"
-description: "Are you excited about making your own wooden toy crossbow but worried about safety? You’re not alone. Building a fun and safe toy takes more than just putting p"
+title: 'How to Make Wooden Toy Crossbow Safe: Expert Safety Tips'
+description: Are you excited about making your own wooden toy crossbow but worried
+  about safety? You’re not alone. Building a fun and safe toy takes more than just
+  putting p
 pubDate: 2025-08-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-crossbow-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-crossbow-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you excited about making your own wooden toy crossbow but worried about safety? You’re not alone.**

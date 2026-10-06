@@ -1,10 +1,14 @@
 ---
-title: "Cube Magnet Toy: Top Magnetic Building Blocks for Kids’ Creativity"
-description: "Cube magnet toys captivate young minds with endless possibilities. These engaging toys foster creativity, learning, and fun. Perfect for children aged 3 and up,"
+title: 'Cube Magnet Toy: Top Magnetic Building Blocks for Kids’ Creativity'
+description: Cube magnet toys captivate young minds with endless possibilities. These
+  engaging toys foster creativity, learning, and fun. Perfect for children aged 3
+  and up,
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cube-magnet-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Benefits Of Building Block Toys
+heroImage: https://tse1.mm.bing.net/th?q=cube-magnet-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Cube magnet toys captivate young minds with endless possibilities. These engaging toys foster creativity, learning, and fun.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Quadcopter for Indoor Use: Top Picks for Safe, Fun Flying"
-description: "Are you looking for a fun way to enjoy flying without stepping outside? An RC quadcopter for indoor use could be exactly what you need. These small, agile drone"
+title: 'Rc Quadcopter for Indoor Use: Top Picks for Safe, Fun Flying'
+description: Are you looking for a fun way to enjoy flying without stepping outside?
+  An RC quadcopter for indoor use could be exactly what you need. These small, agile
+  drone
 pubDate: 2025-11-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-quadcopter-for-indoor-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-quadcopter-for-indoor-use&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun way to enjoy flying without stepping outside? An RC quadcopter for indoor use could be exactly what you need.**

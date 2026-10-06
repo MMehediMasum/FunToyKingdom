@@ -1,10 +1,14 @@
 ---
-title: "Toy Barbecue Set: Interactive Kids Grill Playset with Sound & Light"
-description: "A toy barbecue set lets children enjoy pretend cooking and outdoor play. It combines fun, learning, and creativity in one exciting package. These playsets often"
+title: 'Toy Barbecue Set: Interactive Kids Grill Playset with Sound & Light'
+description: A toy barbecue set lets children enjoy pretend cooking and outdoor play.
+  It combines fun, learning, and creativity in one exciting package. These playsets
+  often
 pubDate: 2026-08-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-barbecue-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-barbecue-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A toy barbecue set lets children enjoy pretend cooking and outdoor play. It combines fun, learning, and creativity in one exciting package.**

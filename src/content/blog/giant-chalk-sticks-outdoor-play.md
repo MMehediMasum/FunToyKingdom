@@ -1,10 +1,14 @@
 ---
-title: "Giant Chalk Sticks Outdoor Play: Ultimate Fun for Kids' Creativity"
-description: "Imagine your kids stepping outside with giant chalk sticks that turn your driveway or backyard into a colorful playground. These oversized chalks aren’t just fu"
+title: 'Giant Chalk Sticks Outdoor Play: Ultimate Fun for Kids'' Creativity'
+description: Imagine your kids stepping outside with giant chalk sticks that turn
+  your driveway or backyard into a colorful playground. These oversized chalks aren’t
+  just fu
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-chalk-sticks-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=giant-chalk-sticks-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids stepping outside with giant chalk sticks that turn your driveway or backyard into a colorful playground. These oversized chalks aren’t just fun—they spark creativity, encourage outdoor play, and keep your little ones entertained for hours.**

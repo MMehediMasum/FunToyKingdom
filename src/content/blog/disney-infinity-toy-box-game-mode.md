@@ -1,10 +1,14 @@
 ---
-title: "Disney Infinity Toy Box Game Mode: Ultimate Creative Adventure Guide"
-description: "Imagine a game where you control everything—your world, your rules, your adventure. That’s exactly what the Disney Infinity Toy Box Game Mode offers you. It’s n"
+title: 'Disney Infinity Toy Box Game Mode: Ultimate Creative Adventure Guide'
+description: Imagine a game where you control everything—your world, your rules, your
+  adventure. That’s exactly what the Disney Infinity Toy Box Game Mode offers you.
+  It’s n
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-infinity-toy-box-game-mode&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=disney-infinity-toy-box-game-mode&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine a game where you control everything—your world, your rules, your adventure. That’s exactly what the Disney Infinity Toy Box Game Mode offers you.**

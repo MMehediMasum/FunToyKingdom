@@ -1,10 +1,13 @@
 ---
-title: "Stand Up Paddle Board Youth: Ultimate Guide for Fun & Safety Tips"
-description: "Are you looking for a fun and exciting way to get your youth active outdoors? Stand up paddle boarding is the perfect choice. It’s easy to learn, great for buil"
+title: 'Stand Up Paddle Board Youth: Ultimate Guide for Fun & Safety Tips'
+description: Are you looking for a fun and exciting way to get your youth active outdoors?
+  Stand up paddle boarding is the perfect choice. It’s easy to learn, great for buil
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stand-up-paddle-board-youth&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tic Tac Toe Strategies
+heroImage: https://tse1.mm.bing.net/th?q=stand-up-paddle-board-youth&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and exciting way to get your youth active outdoors? Stand up paddle boarding is the perfect choice.**

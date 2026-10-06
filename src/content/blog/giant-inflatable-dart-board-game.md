@@ -1,10 +1,14 @@
 ---
-title: "Giant Inflatable Dart Board Game: Ultimate Fun for All Ages"
-description: "Imagine turning your backyard, party, or event into an instant fun zone with a Giant Inflatable Dart Board Game. This isn’t just any dart board—it’s huge, eye-c"
+title: 'Giant Inflatable Dart Board Game: Ultimate Fun for All Ages'
+description: Imagine turning your backyard, party, or event into an instant fun zone
+  with a Giant Inflatable Dart Board Game. This isn’t just any dart board—it’s huge,
+  eye-c
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-inflatable-dart-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=giant-inflatable-dart-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine turning your backyard, party, or event into an instant fun zone with a Giant Inflatable Dart Board Game. This isn’t just any dart board—it’s huge, eye-catching, and ready to bring out your competitive side.**

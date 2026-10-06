@@ -1,10 +1,14 @@
 ---
-title: "Jc Toys Lucas Baby Doll 18In All-Vinyl Real Boy Perfect Gift Idea"
-description: "The JC Toys Lucas Baby Doll is a lifelike 18-inch all-vinyl boy doll. Crafted with attention to detail, it offers realistic features. Parents and children adore"
+title: Jc Toys Lucas Baby Doll 18In All-Vinyl Real Boy Perfect Gift Idea
+description: The JC Toys Lucas Baby Doll is a lifelike 18-inch all-vinyl boy doll.
+  Crafted with attention to detail, it offers realistic features. Parents and children
+  adore
 pubDate: 2026-08-31
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=jc-toys-lucas-baby-doll-18in-all-vinyl-real-boy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=jc-toys-lucas-baby-doll-18in-all-vinyl-real-boy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The JC Toys Lucas Baby Doll is a lifelike 18-inch all-vinyl boy doll. Crafted with attention to detail, it offers realistic features.**

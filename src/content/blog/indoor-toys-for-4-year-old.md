@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for 4 Year Old: Top Fun & Educational Picks"
-description: "Finding the perfect indoor toys for your 4-year-old can feel overwhelming. You want something that keeps your child happy, sparks their imagination, and helps t"
+title: 'Indoor Toys for 4 Year Old: Top Fun & Educational Picks'
+description: Finding the perfect indoor toys for your 4-year-old can feel overwhelming.
+  You want something that keeps your child happy, sparks their imagination, and helps
+  t
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-4-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the perfect indoor toys for your 4-year-old can feel overwhelming. You want something that keeps your child happy, sparks their imagination, and helps them learn—all without turning your home into a mess.**

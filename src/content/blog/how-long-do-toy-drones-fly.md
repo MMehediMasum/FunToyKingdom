@@ -1,10 +1,14 @@
 ---
-title: "How Long Do Toy Drones Fly: Ultimate Flight Time Guide"
-description: "Have you ever wondered how long your toy drone can stay in the air before it needs to land? Knowing the flight time helps you plan your fun and avoid those frus"
+title: 'How Long Do Toy Drones Fly: Ultimate Flight Time Guide'
+description: Have you ever wondered how long your toy drone can stay in the air before
+  it needs to land? Knowing the flight time helps you plan your fun and avoid those
+  frus
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-do-toy-drones-fly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=how-long-do-toy-drones-fly&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered how long your toy drone can stay in the air before it needs to land? Knowing the flight time helps you plan your fun and avoid those frustrating mid-air shutdowns.**

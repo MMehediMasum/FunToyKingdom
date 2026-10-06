@@ -1,10 +1,14 @@
 ---
-title: "Pretend Play Toys for 6 Year Old: Top Creative Picks for Fun"
-description: "Are you looking for the perfect pretend play toys for your 6-year-old? Choosing toys that spark imagination and keep your child engaged can be tricky. You want "
+title: 'Pretend Play Toys for 6 Year Old: Top Creative Picks for Fun'
+description: 'Are you looking for the perfect pretend play toys for your 6-year-old?
+  Choosing toys that spark imagination and keep your child engaged can be tricky.
+  You want '
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=pretend-play-toys-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=pretend-play-toys-for-6-year-old&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect pretend play toys for your 6-year-old? Choosing toys that spark imagination and keep your child engaged can be tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Toy Box Out of Wood: Easy Step-by-Step Guide"
-description: "Are you tired of toys scattered all over your floor? Imagine having a sturdy, beautiful wooden toy box that keeps your space tidy and your kids happy. Building "
+title: 'How to Build a Toy Box Out of Wood: Easy Step-by-Step Guide'
+description: 'Are you tired of toys scattered all over your floor? Imagine having
+  a sturdy, beautiful wooden toy box that keeps your space tidy and your kids happy.
+  Building '
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-toy-box-out-of-wood&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-toy-box-out-of-wood&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you tired of toys scattered all over your floor? Imagine having a sturdy, beautiful wooden toy box that keeps your space tidy and your kids happy.**

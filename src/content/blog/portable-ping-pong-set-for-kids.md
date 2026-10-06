@@ -1,10 +1,14 @@
 ---
-title: "Portable Ping Pong Set for Kids: Ultimate Fun On-the-Go Guide"
-description: "Looking for a fun way to keep your kids active and entertained? A portable ping pong set for kids might be exactly what you need. Imagine having a mini ping pon"
+title: 'Portable Ping Pong Set for Kids: Ultimate Fun On-the-Go Guide'
+description: Looking for a fun way to keep your kids active and entertained? A portable
+  ping pong set for kids might be exactly what you need. Imagine having a mini ping
+  pon
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=portable-ping-pong-set-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=portable-ping-pong-set-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids active and entertained? A portable ping pong set for kids might be exactly what you need.**

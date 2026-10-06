@@ -1,10 +1,14 @@
 ---
-title: "What is the Largest Toy Store in New York City: Ultimate Guide"
-description: "Are you ready to discover a place where your inner child can run wild? If you’re looking for the largest toy store in New York City, you’re about to find out ex"
+title: 'What is the Largest Toy Store in New York City: Ultimate Guide'
+description: Are you ready to discover a place where your inner child can run wild?
+  If you’re looking for the largest toy store in New York City, you’re about to find
+  out ex
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-largest-toy-store-in-new-york-city&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-largest-toy-store-in-new-york-city&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to discover a place where your inner child can run wild? If you’re looking for the largest toy store in New York City, you’re about to find out exactly where to go.**

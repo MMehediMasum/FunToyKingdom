@@ -1,10 +1,14 @@
 ---
-title: "Memory Matching Toy Games: Boost Brainpower with Fun Challenges"
-description: "Have you ever wished you could boost your memory while having fun? Memory matching toy games are the perfect way to do just that. These games challenge your bra"
+title: 'Memory Matching Toy Games: Boost Brainpower with Fun Challenges'
+description: Have you ever wished you could boost your memory while having fun? Memory
+  matching toy games are the perfect way to do just that. These games challenge your
+  bra
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=memory-matching-toy-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=memory-matching-toy-games&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wished you could boost your memory while having fun? Memory matching toy games are the perfect way to do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Large Groups of Adults to Ignite Game Night Fun"
-description: "Finding the best board games for large adult groups can make any gathering more fun and lively. These games bring people together, spark laughter, and keep ever"
+title: Best Board Games for Large Groups of Adults to Ignite Game Night Fun
+description: Finding the best board games for large adult groups can make any gathering
+  more fun and lively. These games bring people together, spark laughter, and keep
+  ever
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-large-groups-of-adults-to-ignite-game-night-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-large-groups-of-adults-to-ignite-game-night-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for large adult groups can make any gathering more fun and lively. These games bring people together, spark laughter, and keep everyone engaged.**

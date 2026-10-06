@@ -1,10 +1,14 @@
 ---
-title: "Country Flags Learning Toy Sets: Fun & Educational for Kids"
-description: "Are you looking for a fun and simple way to help your child learn about the world? Country flags learning toy sets are the perfect choice. These colorful toys g"
+title: 'Country Flags Learning Toy Sets: Fun & Educational for Kids'
+description: Are you looking for a fun and simple way to help your child learn about
+  the world? Country flags learning toy sets are the perfect choice. These colorful
+  toys g
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=country-flags-learning-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Flash Card Toy Learning Sets
+heroImage: https://tse1.mm.bing.net/th?q=country-flags-learning-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and simple way to help your child learn about the world? Country flags learning toy sets are the perfect choice.**

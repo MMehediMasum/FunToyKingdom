@@ -1,10 +1,14 @@
 ---
-title: "How to Tell If Toy Figurines are Rare: Expert Tips Revealed"
-description: "Have you ever wondered if the toy figurines you own might be rare treasures? Knowing whether your collection holds something unique can be exciting—and even val"
+title: 'How to Tell If Toy Figurines are Rare: Expert Tips Revealed'
+description: Have you ever wondered if the toy figurines you own might be rare treasures?
+  Knowing whether your collection holds something unique can be exciting—and even
+  val
 pubDate: 2026-07-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-tell-if-toy-figurines-are-rare&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-tell-if-toy-figurines-are-rare&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered if the toy figurines you own might be rare treasures? Knowing whether your collection holds something unique can be exciting—and even valuable.**

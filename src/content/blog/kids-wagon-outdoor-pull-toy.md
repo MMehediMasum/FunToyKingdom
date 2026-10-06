@@ -1,10 +1,14 @@
 ---
-title: "Kids Wagon Outdoor Pull Toy: Ultimate Fun for Active Playtime"
-description: "Looking for the perfect way to add fun and adventure to your child's outdoor playtime? A kids wagon outdoor pull toy could be just what you need. Imagine your l"
+title: 'Kids Wagon Outdoor Pull Toy: Ultimate Fun for Active Playtime'
+description: Looking for the perfect way to add fun and adventure to your child's
+  outdoor playtime? A kids wagon outdoor pull toy could be just what you need. Imagine
+  your l
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-wagon-outdoor-pull-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=kids-wagon-outdoor-pull-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect way to add fun and adventure to your child's outdoor playtime? A kids wagon outdoor pull toy could be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Banana-Shaped Baby Teething Toy: Safe, Fun, and Soothing Choices"
-description: "If your little one is struggling with sore gums, you know how tough teething can be—for both of you. Imagine giving your baby a teething toy that’s not only saf"
+title: 'Banana-Shaped Baby Teething Toy: Safe, Fun, and Soothing Choices'
+description: If your little one is struggling with sore gums, you know how tough teething
+  can be—for both of you. Imagine giving your baby a teething toy that’s not only
+  saf
 pubDate: 2026-07-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=banana-shaped-baby-teething-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=banana-shaped-baby-teething-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If your little one is struggling with sore gums, you know how tough teething can be—for both of you. Imagine giving your baby a teething toy that’s not only safe and soothing but also fun to hold and chew.**

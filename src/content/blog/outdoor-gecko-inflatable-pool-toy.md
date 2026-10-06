@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Gecko Inflatable Pool Toy: Ultimate Summer Fun Essential"
-description: "Looking for a fun way to make your outdoor time more exciting? The Outdoor Gecko Inflatable Pool Toy could be just what you need. Imagine lounging on a bright, "
+title: 'Outdoor Gecko Inflatable Pool Toy: Ultimate Summer Fun Essential'
+description: 'Looking for a fun way to make your outdoor time more exciting? The Outdoor
+  Gecko Inflatable Pool Toy could be just what you need. Imagine lounging on a bright, '
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-gecko-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-gecko-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to make your outdoor time more exciting? The Outdoor Gecko Inflatable Pool Toy could be just what you need.**

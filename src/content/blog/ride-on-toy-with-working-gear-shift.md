@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Working Gear Shift: Ultimate Fun for Kids"
-description: "Are you looking for a ride-on toy that feels just like the real thing? Imagine your child’s excitement as they shift gears and control their own little vehicle."
+title: 'Ride on Toy With Working Gear Shift: Ultimate Fun for Kids'
+description: Are you looking for a ride-on toy that feels just like the real thing?
+  Imagine your child’s excitement as they shift gears and control their own little
+  vehicle.
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-working-gear-shift&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-working-gear-shift&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a ride-on toy that feels just like the real thing? Imagine your child’s excitement as they shift gears and control their own little vehicle.**

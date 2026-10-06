@@ -1,10 +1,14 @@
 ---
-title: "Rc Supra Drift Car: Ultimate Guide to Mastering Drift Skills"
-description: "If you love the thrill of drifting and the sleek style of the Supra, then an RC Supra Drift Car is exactly what you need. Imagine controlling a miniature versio"
+title: 'Rc Supra Drift Car: Ultimate Guide to Mastering Drift Skills'
+description: If you love the thrill of drifting and the sleek style of the Supra,
+  then an RC Supra Drift Car is exactly what you need. Imagine controlling a miniature
+  versio
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-supra-drift-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-supra-drift-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **If you love the thrill of drifting and the sleek style of the Supra, then an RC Supra Drift Car is exactly what you need. Imagine controlling a miniature version of this iconic sports car, sliding smoothly around corners and leaving your friends amazed.**

@@ -1,10 +1,14 @@
 ---
-title: "Scrabble Junior for Kids: Fun Learning Game to Boost Vocabulary"
-description: "Are you looking for a fun way to boost your child’s reading and spelling skills? Scrabble Junior for Kids is the perfect game to make learning exciting. It’s si"
+title: 'Scrabble Junior for Kids: Fun Learning Game to Boost Vocabulary'
+description: Are you looking for a fun way to boost your child’s reading and spelling
+  skills? Scrabble Junior for Kids is the perfect game to make learning exciting.
+  It’s si
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=scrabble-junior-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=scrabble-junior-for-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to boost your child’s reading and spelling skills? Scrabble Junior for Kids is the perfect game to make learning exciting.**

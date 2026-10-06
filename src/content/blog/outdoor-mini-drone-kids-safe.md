@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Mini Drone Kids Safe: Ultimate Fun with Secure Flying"
-description: "Looking for a fun, exciting way to keep your kids entertained outdoors? An outdoor mini drone designed with safety in mind could be exactly what you need. Imagi"
+title: 'Outdoor Mini Drone Kids Safe: Ultimate Fun with Secure Flying'
+description: Looking for a fun, exciting way to keep your kids entertained outdoors?
+  An outdoor mini drone designed with safety in mind could be exactly what you need.
+  Imagi
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-mini-drone-kids-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mini Toy Drone With Camera
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-mini-drone-kids-safe&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a fun, exciting way to keep your kids entertained outdoors? An outdoor mini drone designed with safety in mind could be exactly what you need.**

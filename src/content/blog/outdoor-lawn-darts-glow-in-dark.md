@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Lawn Darts Glow in Dark: Ultimate Night Game Fun Guide"
-description: "Are you ready to take your outdoor fun to the next level? Imagine playing lawn darts that glow brightly as the sun sets, turning your backyard into an exciting "
+title: 'Outdoor Lawn Darts Glow in Dark: Ultimate Night Game Fun Guide'
+description: 'Are you ready to take your outdoor fun to the next level? Imagine playing
+  lawn darts that glow brightly as the sun sets, turning your backyard into an exciting '
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-lawn-darts-glow-in-dark&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-lawn-darts-glow-in-dark&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your outdoor fun to the next level? Imagine playing lawn darts that glow brightly as the sun sets, turning your backyard into an exciting game zone even after dark.**

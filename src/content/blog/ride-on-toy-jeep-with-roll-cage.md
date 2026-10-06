@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Jeep With Roll Cage: Ultimate Adventure for Kids"
-description: "Imagine your child’s eyes lighting up as they climb into their very own ride on toy jeep with a roll cage. This isn’t just any toy—it’s an adventure waiting to "
+title: 'Ride on Toy Jeep With Roll Cage: Ultimate Adventure for Kids'
+description: 'Imagine your child’s eyes lighting up as they climb into their very
+  own ride on toy jeep with a roll cage. This isn’t just any toy—it’s an adventure
+  waiting to '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-jeep-with-roll-cage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-jeep-with-roll-cage&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they climb into their very own ride on toy jeep with a roll cage. This isn’t just any toy—it’s an adventure waiting to happen right in your backyard.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Galaxy Sprinkler Inflatable Toy: Ultimate Summer Fun Guide"
-description: "Are you looking for a fun way to make your outdoor time more exciting? The Outdoor Galaxy Sprinkler Inflatable Toy might be just what you need. Imagine a colorf"
+title: 'Outdoor Galaxy Sprinkler Inflatable Toy: Ultimate Summer Fun Guide'
+description: Are you looking for a fun way to make your outdoor time more exciting?
+  The Outdoor Galaxy Sprinkler Inflatable Toy might be just what you need. Imagine
+  a colorf
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-galaxy-sprinkler-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-galaxy-sprinkler-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to make your outdoor time more exciting? The Outdoor Galaxy Sprinkler Inflatable Toy might be just what you need.**

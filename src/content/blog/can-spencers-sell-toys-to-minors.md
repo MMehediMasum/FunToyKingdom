@@ -1,10 +1,14 @@
 ---
-title: "Can Spencer'S Sell Toys to Minors: Truths Revealed Today"
-description: "Are you wondering if Spencer’s sells toys to minors? It’s a question many parents and young shoppers have. Knowing the rules can save you time and avoid confusi"
+title: 'Can Spencer''S Sell Toys to Minors: Truths Revealed Today'
+description: Are you wondering if Spencer’s sells toys to minors? It’s a question
+  many parents and young shoppers have. Knowing the rules can save you time and avoid
+  confusi
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-spencers-sell-toys-to-minors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tic Tac Toe Strategies
+heroImage: https://tse1.mm.bing.net/th?q=can-spencers-sell-toys-to-minors&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you wondering if Spencer’s sells toys to minors? It’s a question many parents and young shoppers have.**

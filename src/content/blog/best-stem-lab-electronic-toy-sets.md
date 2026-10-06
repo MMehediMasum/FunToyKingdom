@@ -1,10 +1,13 @@
 ---
-title: "Best Stem Lab Electronic Toy Sets: Top Picks for Smart Kids"
-description: "Are you looking for a fun way to spark your child’s curiosity and creativity? The best STEM lab electronic toy sets can turn learning into an exciting adventure"
+title: 'Best Stem Lab Electronic Toy Sets: Top Picks for Smart Kids'
+description: Are you looking for a fun way to spark your child’s curiosity and creativity?
+  The best STEM lab electronic toy sets can turn learning into an exciting adventure
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-stem-lab-electronic-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=best-stem-lab-electronic-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to spark your child’s curiosity and creativity? The best STEM lab electronic toy sets can turn learning into an exciting adventure right at home.**

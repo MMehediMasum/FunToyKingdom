@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Camera Live Feed: Ultimate Guide for Real-Time Fun"
-description: "Imagine controlling an RC car and seeing exactly what it sees in real time. With an RC car with camera live feed, you get a thrilling new way to explore your su"
+title: 'Rc Car With Camera Live Feed: Ultimate Guide for Real-Time Fun'
+description: Imagine controlling an RC car and seeing exactly what it sees in real
+  time. With an RC car with camera live feed, you get a thrilling new way to explore
+  your su
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-camera-live-feed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-camera-live-feed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine controlling an RC car and seeing exactly what it sees in real time. With an RC car with camera live feed, you get a thrilling new way to explore your surroundings from a fresh perspective.**

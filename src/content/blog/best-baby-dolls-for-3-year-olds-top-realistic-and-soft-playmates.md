@@ -1,10 +1,14 @@
 ---
-title: "Best Baby Dolls for 3 Year Olds: Top Realistic and Soft Playmates"
-description: "Choosing the best baby doll for a 3-year-old can be tricky. Dolls must be safe, soft, and fun to play with at this age. Young children love baby dolls that look"
+title: 'Best Baby Dolls for 3 Year Olds: Top Realistic and Soft Playmates'
+description: Choosing the best baby doll for a 3-year-old can be tricky. Dolls must
+  be safe, soft, and fun to play with at this age. Young children love baby dolls
+  that look
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-baby-dolls-for-3-year-olds-top-realistic-and-soft-playmates&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-baby-dolls-for-3-year-olds-top-realistic-and-soft-playmates&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best baby doll for a 3-year-old can be tricky. Dolls must be safe, soft, and fun to play with at this age.**

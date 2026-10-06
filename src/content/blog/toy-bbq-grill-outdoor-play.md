@@ -1,10 +1,14 @@
 ---
-title: "Toy Bbq Grill Outdoor Play: Ultimate Fun for Kids' Imagination"
-description: "Imagine your child hosting their very own backyard barbecue, right in your garden or playground. A toy BBQ grill for outdoor play is more than just a fun gadget"
+title: 'Toy Bbq Grill Outdoor Play: Ultimate Fun for Kids'' Imagination'
+description: Imagine your child hosting their very own backyard barbecue, right in
+  your garden or playground. A toy BBQ grill for outdoor play is more than just a
+  fun gadget
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-bbq-grill-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=toy-bbq-grill-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child hosting their very own backyard barbecue, right in your garden or playground. A toy BBQ grill for outdoor play is more than just a fun gadget—it sparks creativity, encourages social skills, and brings hours of laughter.**

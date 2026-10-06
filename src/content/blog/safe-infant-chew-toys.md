@@ -1,10 +1,14 @@
 ---
-title: "Safe Infant Chew Toys: Top Picks for Healthy Teething Relief"
-description: "When your little one starts teething, it can be a tough time for both of you. You want to help soothe their sore gums, but you also worry about what they put in"
+title: 'Safe Infant Chew Toys: Top Picks for Healthy Teething Relief'
+description: When your little one starts teething, it can be a tough time for both
+  of you. You want to help soothe their sore gums, but you also worry about what they
+  put in
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=safe-infant-chew-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Babies
+heroImage: https://tse1.mm.bing.net/th?q=safe-infant-chew-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **When your little one starts teething, it can be a tough time for both of you. You want to help soothe their sore gums, but you also worry about what they put in their mouth.**

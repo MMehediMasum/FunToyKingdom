@@ -1,10 +1,14 @@
 ---
-title: "Online Scrabble Game Free: Play, Compete & Improve Your Skills!"
-description: "Are you ready to challenge your mind and have fun at the same time? Playing an online Scrabble game free lets you do just that—sharpen your vocabulary, boost yo"
+title: 'Online Scrabble Game Free: Play, Compete & Improve Your Skills!'
+description: Are you ready to challenge your mind and have fun at the same time? Playing
+  an online Scrabble game free lets you do just that—sharpen your vocabulary, boost
+  yo
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=online-scrabble-game-free&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=online-scrabble-game-free&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind and have fun at the same time? Playing an online Scrabble game free lets you do just that—sharpen your vocabulary, boost your brainpower, and enjoy hours of entertainment without spending a dime.**

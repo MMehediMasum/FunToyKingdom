@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Drum Craft Project: Fun DIY Music Maker for Kids"
-description: "Are you looking for a fun and creative project that brings joy and learning to your little one? A wooden toy drum craft project is the perfect way to spark imag"
+title: 'Wooden Toy Drum Craft Project: Fun DIY Music Maker for Kids'
+description: Are you looking for a fun and creative project that brings joy and learning
+  to your little one? A wooden toy drum craft project is the perfect way to spark
+  imag
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-drum-craft-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Drum Set For Age
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-drum-craft-project&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy and learning to your little one? A wooden toy drum craft project is the perfect way to spark imagination and develop motor skills while spending quality time together.**

@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Construction Theme: Ultimate Fun for Kids!"
-description: "Are you looking for a fun way to spark your child’s imagination while keeping them active? A ride-on toy with a construction theme might be exactly what you nee"
+title: 'Ride on Toy With Construction Theme: Ultimate Fun for Kids!'
+description: Are you looking for a fun way to spark your child’s imagination while
+  keeping them active? A ride-on toy with a construction theme might be exactly what
+  you nee
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-construction-theme&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy With Police
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-construction-theme&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to spark your child’s imagination while keeping them active? A ride-on toy with a construction theme might be exactly what you need.**

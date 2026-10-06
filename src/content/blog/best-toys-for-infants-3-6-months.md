@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for Infants 3 6 Months: Top Picks for Sensory Development"
-description: "Choosing the best toys for infants aged 3 to 6 months helps support their growth and learning. Toys in this stage focus on sensory development, motor skills, an"
+title: 'Best Toys for Infants 3 6 Months: Top Picks for Sensory Development'
+description: Choosing the best toys for infants aged 3 to 6 months helps support their
+  growth and learning. Toys in this stage focus on sensory development, motor skills,
+  an
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-infants-3-6-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-infants-3-6-months&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best toys for infants aged 3 to 6 months helps support their growth and learning. Toys in this stage focus on sensory development, motor skills, and safe exploration.**

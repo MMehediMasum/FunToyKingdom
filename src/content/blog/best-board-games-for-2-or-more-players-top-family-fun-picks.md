@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for 2 Or More Players: Top Family Fun Picks"
-description: "Board games bring fun and excitement to gatherings with friends and family. They work great for two or more players, making every moment enjoyable. This list hi"
+title: 'Best Board Games for 2 Or More Players: Top Family Fun Picks'
+description: Board games bring fun and excitement to gatherings with friends and family.
+  They work great for two or more players, making every moment enjoyable. This list
+  hi
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-2-or-more-players-top-family-fun-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-2-or-more-players-top-family-fun-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games bring fun and excitement to gatherings with friends and family. They work great for two or more players, making every moment enjoyable.**

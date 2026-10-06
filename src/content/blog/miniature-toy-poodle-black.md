@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Toy Poodle Black Essentials: Top Toys, Harnesses, and Care Picks"
 description: "Miniature Toy Poodle Black dogs captivate with their charm and intelligence. These small companions bring joy and love to any home. The black Miniature Toy Pood"
 pubDate: 2026-02-14

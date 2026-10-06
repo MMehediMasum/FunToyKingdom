@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Bow And Arrow Safe: Easy, Fun, and Kid-Friendly Guide"
-description: "Are you looking for a fun and safe project to enjoy with your kids? Making a DIY wooden toy bow and arrow can be just the thing. Not only will you create a cool"
+title: 'Diy Wooden Toy Bow And Arrow Safe: Easy, Fun, and Kid-Friendly Guide'
+description: Are you looking for a fun and safe project to enjoy with your kids? Making
+  a DIY wooden toy bow and arrow can be just the thing. Not only will you create a
+  cool
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-bow-and-arrow-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-bow-and-arrow-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and safe project to enjoy with your kids? Making a DIY wooden toy bow and arrow can be just the thing.**

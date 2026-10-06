@@ -1,10 +1,14 @@
 ---
-title: "Chewable Sensory Toys: Top Silicone Necklaces for Autism and ADHD Relief"
-description: "Chewable sensory toys offer comfort for kids and adults with special needs. These tools help reduce anxiety and fidgeting. Children with autism, ADHD, or sensor"
+title: 'Chewable Sensory Toys: Top Silicone Necklaces for Autism and ADHD Relief'
+description: Chewable sensory toys offer comfort for kids and adults with special
+  needs. These tools help reduce anxiety and fidgeting. Children with autism, ADHD,
+  or sensor
 pubDate: 2026-03-16
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=chewable-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=chewable-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Chewable sensory toys offer comfort for kids and adults with special needs. These tools help reduce anxiety and fidgeting.**

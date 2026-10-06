@@ -1,10 +1,14 @@
 ---
-title: "Dolphin Fin Swim Trainer Kids: Boost Confidence & Fun Swimming"
-description: "Are you looking for a fun and effective way to help your child learn to swim? The Dolphin Fin Swim Trainer for kids could be just what you need. This simple yet"
+title: 'Dolphin Fin Swim Trainer Kids: Boost Confidence & Fun Swimming'
+description: Are you looking for a fun and effective way to help your child learn
+  to swim? The Dolphin Fin Swim Trainer for kids could be just what you need. This
+  simple yet
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dolphin-fin-swim-trainer-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=dolphin-fin-swim-trainer-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and effective way to help your child learn to swim? The Dolphin Fin Swim Trainer for kids could be just what you need.**

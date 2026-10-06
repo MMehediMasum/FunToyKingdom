@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Tug Toy: Durable, Teeth-Cleaning Fun for Aggressive Chewers"
-description: "Dog rope tug toys offer fun and exercise for dogs of all sizes. They help keep teeth clean while satisfying a dog’s natural urge to chew and play. These toys ar"
+title: 'Dog Rope Tug Toy: Durable, Teeth-Cleaning Fun for Aggressive Chewers'
+description: Dog rope tug toys offer fun and exercise for dogs of all sizes. They
+  help keep teeth clean while satisfying a dog’s natural urge to chew and play. These
+  toys ar
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-tug-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-tug-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope tug toys offer fun and exercise for dogs of all sizes. They help keep teeth clean while satisfying a dog’s natural urge to chew and play.**

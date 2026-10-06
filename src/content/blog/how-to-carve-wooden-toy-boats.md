@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Boats: Easy Steps for Perfect Craftsmanship"
-description: "Have you ever wanted to create something simple yet special with your own hands? Carving wooden toy boats is a fun and rewarding way to do just that. Whether yo"
+title: 'How to Carve Wooden Toy Boats: Easy Steps for Perfect Craftsmanship'
+description: Have you ever wanted to create something simple yet special with your
+  own hands? Carving wooden toy boats is a fun and rewarding way to do just that.
+  Whether yo
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-boats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Carve Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-boats&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something simple yet special with your own hands? Carving wooden toy boats is a fun and rewarding way to do just that.**

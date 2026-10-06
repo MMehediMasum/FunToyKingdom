@@ -1,10 +1,14 @@
 ---
-title: "Golf Club Toys Set: Perfect Mini Golf Fun for Toddlers and Kids"
-description: "Golf club toys sets offer fun and active play for young children. These sets help kids learn golf basics while enjoying indoor or outdoor time. Golf club toys s"
+title: 'Golf Club Toys Set: Perfect Mini Golf Fun for Toddlers and Kids'
+description: Golf club toys sets offer fun and active play for young children. These
+  sets help kids learn golf basics while enjoying indoor or outdoor time. Golf club
+  toys s
 pubDate: 2026-08-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=golf-club-toys-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=golf-club-toys-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Golf club toys sets offer fun and active play for young children. These sets help kids learn golf basics while enjoying indoor or outdoor time.**

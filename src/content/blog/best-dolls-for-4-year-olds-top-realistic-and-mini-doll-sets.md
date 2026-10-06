@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 4 Year Olds: Top Realistic and Mini Doll Sets"
-description: "Choosing the best dolls for 4 year olds can make playtime joyful and creative. Dolls help children learn care and develop imagination. Dolls come in many styles"
+title: 'Best Dolls for 4 Year Olds: Top Realistic and Mini Doll Sets'
+description: Choosing the best dolls for 4 year olds can make playtime joyful and
+  creative. Dolls help children learn care and develop imagination. Dolls come in
+  many styles
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-4-year-olds-top-realistic-and-mini-doll-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-4-year-olds-top-realistic-and-mini-doll-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for 4 year olds can make playtime joyful and creative. Dolls help children learn care and develop imagination.**

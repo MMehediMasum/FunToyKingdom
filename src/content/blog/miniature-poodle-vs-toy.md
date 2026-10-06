@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Poodle Vs Toy: Key Differences to Choose the Perfect Poodle Toy"
 description: "Miniature Poodles and Toy Poodles may seem similar, but they have distinct differences. Understanding these can help you choose wisely. Miniature Poodles and To"
 pubDate: 2026-08-02

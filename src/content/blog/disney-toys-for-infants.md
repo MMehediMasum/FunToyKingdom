@@ -1,10 +1,14 @@
 ---
-title: "Disney Toys for Infants: Top Picks for Sensory and Teething Fun"
-description: "Disney toys for infants combine fun with early learning through soft textures, sounds, and bright colors. These toys help babies explore safely and develop key "
+title: 'Disney Toys for Infants: Top Picks for Sensory and Teething Fun'
+description: 'Disney toys for infants combine fun with early learning through soft
+  textures, sounds, and bright colors. These toys help babies explore safely and develop
+  key '
 pubDate: 2026-02-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Disney toys for infants combine fun with early learning through soft textures, sounds, and bright colors. These toys help babies explore safely and develop key skills.**

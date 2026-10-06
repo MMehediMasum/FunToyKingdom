@@ -1,10 +1,14 @@
 ---
-title: "Toy Army Soldiers Sets: Ultimate Military Playsets for Creative Kids"
-description: "Toy army soldier sets captivate kids and collectors alike. These sets spark imagination and endless hours of creative play. Toy army soldier sets offer engaging"
+title: 'Toy Army Soldiers Sets: Ultimate Military Playsets for Creative Kids'
+description: Toy army soldier sets captivate kids and collectors alike. These sets
+  spark imagination and endless hours of creative play. Toy army soldier sets offer
+  engaging
 pubDate: 2026-09-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-army-soldiers-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=toy-army-soldiers-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy army soldier sets captivate kids and collectors alike. These sets spark imagination and endless hours of creative play.**

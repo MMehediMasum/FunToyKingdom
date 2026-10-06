@@ -1,10 +1,13 @@
 ---
-title: "Michelangelo Tmnt Action Figure: Ultimate Collector’s Must-Have Toy"
-description: "Are you a fan of the Teenage Mutant Ninja Turtles? If so, the Michelangelo TMNT action figure is a must-have for your collection. This figure brings your favori"
+title: 'Michelangelo Tmnt Action Figure: Ultimate Collector’s Must-Have Toy'
+description: Are you a fan of the Teenage Mutant Ninja Turtles? If so, the Michelangelo
+  TMNT action figure is a must-have for your collection. This figure brings your favori
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=michelangelo-tmnt-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=michelangelo-tmnt-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of the Teenage Mutant Ninja Turtles? If so, the Michelangelo TMNT action figure is a must-have for your collection.**

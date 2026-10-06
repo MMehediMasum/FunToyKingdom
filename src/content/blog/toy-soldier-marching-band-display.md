@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Marching Band Display: Stunning Holiday Decor Ideas"
-description: "Imagine your room coming alive with the rhythmic beat of a Toy Soldier Marching Band Display. You’re not just looking at toys; you’re entering a world where eve"
+title: 'Toy Soldier Marching Band Display: Stunning Holiday Decor Ideas'
+description: Imagine your room coming alive with the rhythmic beat of a Toy Soldier
+  Marching Band Display. You’re not just looking at toys; you’re entering a world
+  where eve
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-marching-band-display&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-marching-band-display&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine your room coming alive with the rhythmic beat of a Toy Soldier Marching Band Display. You’re not just looking at toys; you’re entering a world where every drumbeat and trumpet blast sparks joy and nostalgia.**

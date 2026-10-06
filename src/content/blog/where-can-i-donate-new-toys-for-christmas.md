@@ -1,10 +1,13 @@
 ---
-title: "Where Can I Donate New Toys for Christmas: Top Trusted Charities"
-description: "Are you wondering where you can donate new toys for Christmas this year? Your kindness can bring a smile to a child’s face and make their holiday unforgettable."
+title: 'Where Can I Donate New Toys for Christmas: Top Trusted Charities'
+description: Are you wondering where you can donate new toys for Christmas this year?
+  Your kindness can bring a smile to a child’s face and make their holiday unforgettable.
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-new-toys-for-christmas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-new-toys-for-christmas&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering where you can donate new toys for Christmas this year? Your kindness can bring a smile to a child’s face and make their holiday unforgettable.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Turbo Speed Mode: Ultimate Fast-Track Racing Thrill"
-description: "Are you ready to take your RC car experience to a whole new level? Imagine controlling a car that not only speeds across the track but also unleashes a turbo sp"
+title: 'Rc Car With Turbo Speed Mode: Ultimate Fast-Track Racing Thrill'
+description: Are you ready to take your RC car experience to a whole new level? Imagine
+  controlling a car that not only speeds across the track but also unleashes a turbo
+  sp
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-turbo-speed-mode&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-turbo-speed-mode&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to a whole new level? Imagine controlling a car that not only speeds across the track but also unleashes a turbo speed mode that leaves everything else in the dust.**

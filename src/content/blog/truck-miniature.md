@@ -1,10 +1,14 @@
 ---
-title: "Truck Miniature Die Cast Models: Top Collectible Pickup Trucks for Enthusiasts"
-description: "Exploring the world of truck miniatures offers endless fascination for collectors and enthusiasts. These detailed models capture the essence of real-life trucks"
+title: 'Truck Miniature Die Cast Models: Top Collectible Pickup Trucks for Enthusiasts'
+description: Exploring the world of truck miniatures offers endless fascination for
+  collectors and enthusiasts. These detailed models capture the essence of real-life
+  trucks
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=truck-miniature&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=truck-miniature&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Exploring the world of truck miniatures offers endless fascination for collectors and enthusiasts. These detailed models capture the essence of real-life trucks in small scale.**

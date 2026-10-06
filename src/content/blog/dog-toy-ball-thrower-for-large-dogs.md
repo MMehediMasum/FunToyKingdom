@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Ball Thrower for Large Dogs: Top Picks for Energetic Fetch Fun"
-description: "A dog toy ball thrower helps large dogs get exercise and have fun. It throws balls far, saving your arm while keeping your dog active. Large dogs need plenty of"
+title: 'Dog Toy Ball Thrower for Large Dogs: Top Picks for Energetic Fetch Fun'
+description: A dog toy ball thrower helps large dogs get exercise and have fun. It
+  throws balls far, saving your arm while keeping your dog active. Large dogs need
+  plenty of
 pubDate: 2026-08-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-ball-thrower-for-large-dogs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-ball-thrower-for-large-dogs&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog toy ball thrower helps large dogs get exercise and have fun. It throws balls far, saving your arm while keeping your dog active.**

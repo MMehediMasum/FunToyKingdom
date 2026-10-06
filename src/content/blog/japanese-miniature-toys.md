@@ -1,10 +1,14 @@
 ---
-title: "Japanese Miniature Toys: Unique Collectibles for Home and Office Decor"
-description: "Japanese miniature toys capture the charm of Japan in tiny, detailed forms. These collectibles bring traditional culture and modern fun to your home or office. "
+title: 'Japanese Miniature Toys: Unique Collectibles for Home and Office Decor'
+description: 'Japanese miniature toys capture the charm of Japan in tiny, detailed
+  forms. These collectibles bring traditional culture and modern fun to your home
+  or office. '
 pubDate: 2026-02-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=japanese-miniature-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=japanese-miniature-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Japanese miniature toys capture the charm of Japan in tiny, detailed forms. These collectibles bring traditional culture and modern fun to your home or office.**

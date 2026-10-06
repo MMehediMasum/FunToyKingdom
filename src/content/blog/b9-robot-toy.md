@@ -1,10 +1,14 @@
 ---
-title: "B9 Robot Toy: Ultimate Interactive Lost in Space Collectible Guide"
-description: "The B9 Robot Toy collection captivates fans of the classic \"Lost in Space\" series. These toys bring iconic robots to life with vibrant designs and interactive f"
+title: 'B9 Robot Toy: Ultimate Interactive Lost in Space Collectible Guide'
+description: The B9 Robot Toy collection captivates fans of the classic "Lost in Space"
+  series. These toys bring iconic robots to life with vibrant designs and interactive
+  f
 pubDate: 2026-03-14
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=b9-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=b9-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The B9 Robot Toy collection captivates fans of the classic "Lost in Space" series. These toys bring iconic robots to life with vibrant designs and interactive features.**

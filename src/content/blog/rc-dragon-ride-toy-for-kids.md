@@ -1,10 +1,14 @@
 ---
-title: "Rc Dragon Ride Toy for Kids: Ultimate Fun and Adventure Guide"
-description: "Looking for a toy that will spark your child’s imagination and keep them entertained for hours? The RC Dragon Ride Toy for Kids is exactly what you need. Imagin"
+title: 'Rc Dragon Ride Toy for Kids: Ultimate Fun and Adventure Guide'
+description: Looking for a toy that will spark your child’s imagination and keep them
+  entertained for hours? The RC Dragon Ride Toy for Kids is exactly what you need.
+  Imagin
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-dragon-ride-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-dragon-ride-toy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for a toy that will spark your child’s imagination and keep them entertained for hours? The RC Dragon Ride Toy for Kids is exactly what you need.**

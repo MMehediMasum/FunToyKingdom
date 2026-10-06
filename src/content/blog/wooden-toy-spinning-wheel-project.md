@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Spinning Wheel Project: Easy Steps for Kids’ Fun Craft"
-description: "Imagine creating a wooden toy spinning wheel with your own hands—something beautiful, simple, and full of charm. This project is not just about building a toy; "
+title: 'Wooden Toy Spinning Wheel Project: Easy Steps for Kids’ Fun Craft'
+description: 'Imagine creating a wooden toy spinning wheel with your own hands—something
+  beautiful, simple, and full of charm. This project is not just about building a
+  toy; '
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-spinning-wheel-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-spinning-wheel-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a wooden toy spinning wheel with your own hands—something beautiful, simple, and full of charm. This project is not just about building a toy; it’s about bringing a sense of wonder and joy to your space or to the children you care about.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane for Outdoor Flying: Ultimate Guide to Thrilling Adventures"
-description: "Are you ready to take your outdoor fun to new heights? An RC airplane for outdoor flying is the perfect way to enjoy the fresh air while mastering a thrilling h"
+title: 'Rc Airplane for Outdoor Flying: Ultimate Guide to Thrilling Adventures'
+description: Are you ready to take your outdoor fun to new heights? An RC airplane
+  for outdoor flying is the perfect way to enjoy the fresh air while mastering a thrilling
+  h
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-for-outdoor-flying&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-for-outdoor-flying&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your outdoor fun to new heights? An RC airplane for outdoor flying is the perfect way to enjoy the fresh air while mastering a thrilling hobby.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Sewing Accessories: Easy DIY Craft Ideas"
-description: "Do you want to add a fun, creative touch to your sewing projects? Making your own toy sewing accessories can be easier than you think. Imagine having unique, co"
+title: 'How to Make Toy Sewing Accessories: Easy DIY Craft Ideas'
+description: Do you want to add a fun, creative touch to your sewing projects? Making
+  your own toy sewing accessories can be easier than you think. Imagine having unique,
+  co
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-sewing-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-sewing-accessories&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to add a fun, creative touch to your sewing projects? Making your own toy sewing accessories can be easier than you think.**

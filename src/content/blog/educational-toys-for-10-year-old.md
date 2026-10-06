@@ -1,10 +1,14 @@
 ---
-title: "Educational Toys for 10 Year Old: Top Picks to Boost Learning Fun"
-description: "Are you looking for the perfect educational toys for your 10-year-old? Choosing the right toy can make a big difference in your child’s learning and fun. The ri"
+title: 'Educational Toys for 10 Year Old: Top Picks to Boost Learning Fun'
+description: Are you looking for the perfect educational toys for your 10-year-old?
+  Choosing the right toy can make a big difference in your child’s learning and fun.
+  The ri
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-10-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect educational toys for your 10-year-old? Choosing the right toy can make a big difference in your child’s learning and fun.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the Rarest Mochi Toy: Discover the Ultimate Collectible!"
-description: "Have you ever wondered which mochi toy is the rarest of them all? If you’re a collector or just curious about these squishy, adorable toys, this question probab"
+title: 'What is the Rarest Mochi Toy: Discover the Ultimate Collectible!'
+description: Have you ever wondered which mochi toy is the rarest of them all? If
+  you’re a collector or just curious about these squishy, adorable toys, this question
+  probab
 pubDate: 2025-09-08
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-rarest-mochi-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Selling Toys For Cash
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-rarest-mochi-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered which mochi toy is the rarest of them all? If you’re a collector or just curious about these squishy, adorable toys, this question probably crosses your mind.**

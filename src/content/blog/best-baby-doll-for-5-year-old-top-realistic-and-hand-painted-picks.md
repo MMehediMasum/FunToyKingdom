@@ -1,10 +1,14 @@
 ---
-title: "Best Baby Doll for 5 Year Old: Top Realistic and Hand-Painted Picks"
-description: "Choosing the best baby doll for a 5-year-old can be a fun yet tricky task. Dolls must feel real, be safe, and inspire imaginative play. This guide highlights to"
+title: 'Best Baby Doll for 5 Year Old: Top Realistic and Hand-Painted Picks'
+description: Choosing the best baby doll for a 5-year-old can be a fun yet tricky
+  task. Dolls must feel real, be safe, and inspire imaginative play. This guide highlights
+  to
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-baby-doll-for-5-year-old-top-realistic-and-hand-painted-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=best-baby-doll-for-5-year-old-top-realistic-and-hand-painted-picks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best baby doll for a 5-year-old can be a fun yet tricky task. Dolls must feel real, be safe, and inspire imaginative play.**

@@ -1,10 +1,14 @@
 ---
-title: "Sensory Learning Toys That Boost Toddler Development and Motor Skills"
-description: "Sensory learning toys help children explore and understand the world through touch, sight, and sound. These toys support brain development and improve motor ski"
+title: Sensory Learning Toys That Boost Toddler Development and Motor Skills
+description: Sensory learning toys help children explore and understand the world
+  through touch, sight, and sound. These toys support brain development and improve
+  motor ski
 pubDate: 2025-10-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-learning-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=sensory-learning-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory learning toys help children explore and understand the world through touch, sight, and sound. These toys support brain development and improve motor skills in a fun way.**

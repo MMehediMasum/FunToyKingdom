@@ -1,10 +1,14 @@
 ---
-title: "Best Water Toys for Pool Fun: Top Picks for Kids’ Summer Splash"
-description: "Finding the best water toys for your pool can make summer fun and exciting. Kids and adults both enjoy playing with colorful, splashy pool toys. Water toys add "
+title: 'Best Water Toys for Pool Fun: Top Picks for Kids’ Summer Splash'
+description: 'Finding the best water toys for your pool can make summer fun and exciting.
+  Kids and adults both enjoy playing with colorful, splashy pool toys. Water toys
+  add '
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-water-toys-for-pool-fun-top-picks-for-kids-summer-splash&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-water-toys-for-pool-fun-top-picks-for-kids-summer-splash&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best water toys for your pool can make summer fun and exciting. Kids and adults both enjoy playing with colorful, splashy pool toys.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Parkour Blocks Toy: Ultimate Fun for Active Kids"
-description: "Are you looking for a way to bring excitement and adventure right to your backyard? The Outdoor Parkour Blocks Toy is exactly what you need. Imagine turning you"
+title: 'Outdoor Parkour Blocks Toy: Ultimate Fun for Active Kids'
+description: Are you looking for a way to bring excitement and adventure right to
+  your backyard? The Outdoor Parkour Blocks Toy is exactly what you need. Imagine
+  turning you
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-parkour-blocks-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-parkour-blocks-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a way to bring excitement and adventure right to your backyard? The Outdoor Parkour Blocks Toy is exactly what you need.**

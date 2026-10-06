@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Treasure Chest: Timeless Fun for Kids"
-description: "Imagine giving your child a special treasure chest that sparks creativity and hours of joyful play. A handmade wooden toy treasure chest is more than just a toy"
+title: 'Handmade Wooden Toy Treasure Chest: Timeless Fun for Kids'
+description: Imagine giving your child a special treasure chest that sparks creativity
+  and hours of joyful play. A handmade wooden toy treasure chest is more than just
+  a toy
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-treasure-chest&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-treasure-chest&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a special treasure chest that sparks creativity and hours of joyful play. A handmade wooden toy treasure chest is more than just a toy—it’s a timeless keepsake that grows with your child.**

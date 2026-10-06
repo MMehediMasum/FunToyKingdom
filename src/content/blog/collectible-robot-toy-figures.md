@@ -1,10 +1,14 @@
 ---
-title: "Collectible Robot Toy Figures: Ultimate Guide to Rare Finds"
-description: "Are you fascinated by robots and love collecting unique toys? Collectible robot toy figures can bring a spark of excitement to your collection and a touch of no"
+title: 'Collectible Robot Toy Figures: Ultimate Guide to Rare Finds'
+description: Are you fascinated by robots and love collecting unique toys? Collectible
+  robot toy figures can bring a spark of excitement to your collection and a touch
+  of no
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-robot-toy-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=collectible-robot-toy-figures&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you fascinated by robots and love collecting unique toys? Collectible robot toy figures can bring a spark of excitement to your collection and a touch of nostalgia to your day.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars Toon Toys: Ultimate Guide to Disney Pixar Die-Cast Vehicles Fun"
-description: "Cars Toon Toys bring the fun and excitement of Disney Pixar's Cars series to life. These toys capture the charm of favorite characters like Mater and Lightning "
+title: 'Cars Toon Toys: Ultimate Guide to Disney Pixar Die-Cast Vehicles Fun'
+description: 'Cars Toon Toys bring the fun and excitement of Disney Pixar''s Cars
+  series to life. These toys capture the charm of favorite characters like Mater and
+  Lightning '
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toon-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-toon-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toon Toys bring the fun and excitement of Disney Pixar's Cars series to life. These toys capture the charm of favorite characters like Mater and Lightning McQueen.**

@@ -1,10 +1,13 @@
 ---
-title: "Cars Mcdonalds Toys: Top Collectible Diecast & Playset Must-Haves"
-description: "Cars McDonald’s toys bring fun to kids and collectors alike. These toys feature popular characters from Disney Pixar’s Cars and special editions. This collectio"
+title: 'Cars Mcdonalds Toys: Top Collectible Diecast & Playset Must-Haves'
+description: Cars McDonald’s toys bring fun to kids and collectors alike. These toys
+  feature popular characters from Disney Pixar’s Cars and special editions. This collectio
 pubDate: 2026-02-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mcdonalds-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-mcdonalds-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars McDonald’s toys bring fun to kids and collectors alike. These toys feature popular characters from Disney Pixar’s Cars and special editions.**

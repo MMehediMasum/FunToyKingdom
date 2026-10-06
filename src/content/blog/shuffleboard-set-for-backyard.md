@@ -1,10 +1,14 @@
 ---
-title: "Shuffleboard Set for Backyard: Ultimate Fun & Family Entertainment"
-description: "Imagine turning your backyard into the ultimate fun zone where friends and family gather for endless laughter and excitement. A shuffleboard set for your backya"
+title: 'Shuffleboard Set for Backyard: Ultimate Fun & Family Entertainment'
+description: Imagine turning your backyard into the ultimate fun zone where friends
+  and family gather for endless laughter and excitement. A shuffleboard set for your
+  backya
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=shuffleboard-set-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=shuffleboard-set-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where friends and family gather for endless laughter and excitement. A shuffleboard set for your backyard is just the ticket to make that happen.**

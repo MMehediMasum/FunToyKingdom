@@ -1,10 +1,14 @@
 ---
-title: "Travel Shape Sorter Toy for Babies: Ultimate Fun & Learning Guide"
-description: "Are you looking for a fun and educational toy to keep your baby entertained on the go? The travel shape sorter toy for babies is exactly what you need. It’s des"
+title: 'Travel Shape Sorter Toy for Babies: Ultimate Fun & Learning Guide'
+description: Are you looking for a fun and educational toy to keep your baby entertained
+  on the go? The travel shape sorter toy for babies is exactly what you need. It’s
+  des
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=travel-shape-sorter-toy-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Shape Sorter Toy
+heroImage: https://tse1.mm.bing.net/th?q=travel-shape-sorter-toy-for-babies&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and educational toy to keep your baby entertained on the go? The travel shape sorter toy for babies is exactly what you need.**

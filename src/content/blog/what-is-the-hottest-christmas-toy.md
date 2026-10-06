@@ -1,10 +1,14 @@
 ---
-title: "What is the Hottest Christmas Toy: Top Trending Gifts of 2025"
-description: "Are you ready to find out what the hottest Christmas toy is this year? Imagine the joy on your child’s face when they unwrap the most wanted gift under the tree"
+title: 'What is the Hottest Christmas Toy: Top Trending Gifts of 2025'
+description: Are you ready to find out what the hottest Christmas toy is this year?
+  Imagine the joy on your child’s face when they unwrap the most wanted gift under
+  the tree
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-hottest-christmas-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-hottest-christmas-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to find out what the hottest Christmas toy is this year? Imagine the joy on your child’s face when they unwrap the most wanted gift under the tree.**

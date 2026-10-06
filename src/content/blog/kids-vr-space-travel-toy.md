@@ -1,10 +1,14 @@
 ---
-title: "Kids Vr Space Travel Toy: Ultimate Fun for Young Explorers"
-description: "Imagine giving your child the thrill of exploring outer space without leaving your living room. With the Kids VR Space Travel Toy, you can turn that dream into "
+title: 'Kids Vr Space Travel Toy: Ultimate Fun for Young Explorers'
+description: 'Imagine giving your child the thrill of exploring outer space without
+  leaving your living room. With the Kids VR Space Travel Toy, you can turn that dream
+  into '
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-vr-space-travel-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=kids-vr-space-travel-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Imagine giving your child the thrill of exploring outer space without leaving your living room. With the Kids VR Space Travel Toy, you can turn that dream into a fun and educational adventure.**

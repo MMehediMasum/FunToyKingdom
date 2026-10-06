@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Or Miniature Poodle: Top Chew Toys to Keep Your Puppy Happy"
 description: "Choosing between a Toy or Miniature Poodle can be challenging for potential dog owners. Both breeds share similarities yet differ in size and temperament. Toy a"
 pubDate: 2025-10-15

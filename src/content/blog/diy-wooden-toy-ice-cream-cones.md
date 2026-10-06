@@ -1,10 +1,13 @@
 ---
-title: "Diy Wooden Toy Ice Cream Cones: Fun, Easy & Creative Craft Ideas"
-description: "Imagine giving your child a toy that sparks creativity, encourages imaginative play, and lasts for years—all made by you. DIY wooden toy ice cream cones are the"
+title: 'Diy Wooden Toy Ice Cream Cones: Fun, Easy & Creative Craft Ideas'
+description: Imagine giving your child a toy that sparks creativity, encourages imaginative
+  play, and lasts for years—all made by you. DIY wooden toy ice cream cones are the
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-ice-cream-cones&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-ice-cream-cones&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages imaginative play, and lasts for years—all made by you. DIY wooden toy ice cream cones are the perfect project to bring joy and learning together.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Bath Bombs With Toys Inside: Fun DIY Guide"
-description: "Imagine turning bath time into an exciting surprise every single time. What if your bath bombs didn’t just fizz and smell amazing but also hid a fun toy inside?"
+title: 'How to Make Bath Bombs With Toys Inside: Fun DIY Guide'
+description: Imagine turning bath time into an exciting surprise every single time.
+  What if your bath bombs didn’t just fizz and smell amazing but also hid a fun toy
+  inside?
 pubDate: 2025-09-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-bath-bombs-with-toys-inside&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drop Off Toys For Christmas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-bath-bombs-with-toys-inside&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Imagine turning bath time into an exciting surprise every single time. What if your bath bombs didn’t just fizz and smell amazing but also hid a fun toy inside?**

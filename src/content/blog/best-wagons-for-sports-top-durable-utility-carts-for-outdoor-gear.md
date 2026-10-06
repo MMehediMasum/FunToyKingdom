@@ -1,10 +1,14 @@
 ---
-title: "Best Wagons for Sports: Top Durable Utility Carts for Outdoor Gear"
-description: "Choosing the best wagon for sports gear makes carrying equipment easier and faster. These wagons offer space, durability, and smooth movement on all surfaces. S"
+title: 'Best Wagons for Sports: Top Durable Utility Carts for Outdoor Gear'
+description: Choosing the best wagon for sports gear makes carrying equipment easier
+  and faster. These wagons offer space, durability, and smooth movement on all surfaces.
+  S
 pubDate: 2025-09-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wagons-for-sports-top-durable-utility-carts-for-outdoor-gear&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-wagons-for-sports-top-durable-utility-carts-for-outdoor-gear&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Choosing the best wagon for sports gear makes carrying equipment easier and faster. These wagons offer space, durability, and smooth movement on all surfaces.**

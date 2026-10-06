@@ -1,10 +1,14 @@
 ---
-title: "What are Those Toy Figurines for Ps3: Ultimate Gaming Collectibles Guide"
-description: "Have you ever wondered what those small toy figurines for your PS3 really do? They might look like simple collectibles, but they hold more power than you think."
+title: 'What are Those Toy Figurines for Ps3: Ultimate Gaming Collectibles Guide'
+description: Have you ever wondered what those small toy figurines for your PS3 really
+  do? They might look like simple collectibles, but they hold more power than you
+  think.
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-those-toy-figurines-for-ps3&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=what-are-those-toy-figurines-for-ps3&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered what those small toy figurines for your PS3 really do? They might look like simple collectibles, but they hold more power than you think.**

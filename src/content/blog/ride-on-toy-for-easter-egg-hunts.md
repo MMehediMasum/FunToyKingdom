@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Easter Egg Hunts: Ultimate Fun and Adventure Guide"
-description: "Are you looking for a fun and exciting way to make your Easter egg hunts even better? A ride on toy can turn a simple egg hunt into an unforgettable adventure f"
+title: 'Ride on Toy for Easter Egg Hunts: Ultimate Fun and Adventure Guide'
+description: Are you looking for a fun and exciting way to make your Easter egg hunts
+  even better? A ride on toy can turn a simple egg hunt into an unforgettable adventure
+  f
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-easter-egg-hunts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-easter-egg-hunts&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to make your Easter egg hunts even better? A ride on toy can turn a simple egg hunt into an unforgettable adventure for your kids.**

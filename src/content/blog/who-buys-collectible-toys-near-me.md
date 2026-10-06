@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who Buys Collectible Toys Near Me: Top Places to Sell Fast"
 description: "Are you wondering, “Who buys collectible toys near me?” Whether you have a few vintage action figures or a whole shelf of rare dolls, finding the right buyer ca"
 pubDate: 2025-09-10

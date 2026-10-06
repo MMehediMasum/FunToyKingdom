@@ -1,10 +1,14 @@
 ---
-title: "Best Ride-On Toys for 1 Year Old: Top Toddler Push Cars & Walkers"
-description: "Choosing the best ride-on toy for a 1-year-old can boost their fun and development. These toys help improve balance, coordination, and motor skills. Ride-on toy"
+title: 'Best Ride-On Toys for 1 Year Old: Top Toddler Push Cars & Walkers'
+description: Choosing the best ride-on toy for a 1-year-old can boost their fun and
+  development. These toys help improve balance, coordination, and motor skills. Ride-on
+  toy
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-1-year-old-top-toddler-push-cars-walkers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-1-year-old-top-toddler-push-cars-walkers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Choosing the best ride-on toy for a 1-year-old can boost their fun and development. These toys help improve balance, coordination, and motor skills.**

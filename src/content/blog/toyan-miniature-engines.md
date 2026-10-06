@@ -1,10 +1,13 @@
 ---
-title: "Toyan Miniature Engines: Build Fully Functional V8 Engine Models Easily"
-description: "Toyan Miniature Engines offer detailed, working engine models for hobbyists and learners. These kits combine fun and education through hands-on assembly. Toyan’"
+title: 'Toyan Miniature Engines: Build Fully Functional V8 Engine Models Easily'
+description: Toyan Miniature Engines offer detailed, working engine models for hobbyists
+  and learners. These kits combine fun and education through hands-on assembly. Toyan’
 pubDate: 2026-02-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyan-miniature-engines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toyan-miniature-engines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toyan Miniature Engines offer detailed, working engine models for hobbyists and learners. These kits combine fun and education through hands-on assembly.**

@@ -1,10 +1,14 @@
 ---
-title: "Is Petroleum Jelly Safe for Silicone Toys? Essential Safety Tips"
-description: "If you use silicone toys, you probably want to keep them safe and in great shape. But what about the products you use with them? You might be wondering, is petr"
+title: Is Petroleum Jelly Safe for Silicone Toys? Essential Safety Tips
+description: If you use silicone toys, you probably want to keep them safe and in
+  great shape. But what about the products you use with them? You might be wondering,
+  is petr
 pubDate: 2025-10-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-petroleum-jelly-safe-for-silicone-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Silicone Toy Care
+heroImage: https://tse1.mm.bing.net/th?q=is-petroleum-jelly-safe-for-silicone-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you use silicone toys, you probably want to keep them safe and in great shape. But what about the products you use with them?**

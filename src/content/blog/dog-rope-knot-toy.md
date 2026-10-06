@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Knot Toy: Durable Chew and Tug Fun for Active Dogs"
-description: "Dog rope knot toys offer fun and healthy playtime for dogs of all sizes. These durable toys help clean teeth and keep dogs engaged. Rope knot toys come in many "
+title: 'Dog Rope Knot Toy: Durable Chew and Tug Fun for Active Dogs'
+description: 'Dog rope knot toys offer fun and healthy playtime for dogs of all sizes.
+  These durable toys help clean teeth and keep dogs engaged. Rope knot toys come in
+  many '
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-knot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-knot-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope knot toys offer fun and healthy playtime for dogs of all sizes. These durable toys help clean teeth and keep dogs engaged.**

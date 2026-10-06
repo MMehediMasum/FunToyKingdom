@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Diving Rockets for Kids: Ultimate Fun and Adventure Guide"
-description: "Are you looking for a fun and exciting way to get your kids outside and active? Outdoor diving rockets for kids might be just what you need. These toys bring th"
+title: 'Outdoor Diving Rockets for Kids: Ultimate Fun and Adventure Guide'
+description: Are you looking for a fun and exciting way to get your kids outside and
+  active? Outdoor diving rockets for kids might be just what you need. These toys
+  bring th
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-diving-rockets-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-diving-rockets-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to get your kids outside and active? Outdoor diving rockets for kids might be just what you need.**

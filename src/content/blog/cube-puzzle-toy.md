@@ -1,10 +1,13 @@
 ---
-title: "Cube Puzzle Toy: Top Brain-Boosting Fidget Games for Kids and Adults"
-description: "Cube puzzles captivate minds with their intriguing designs and problem-solving challenges. These toys offer endless hours of entertainment. Cube puzzles come in"
+title: 'Cube Puzzle Toy: Top Brain-Boosting Fidget Games for Kids and Adults'
+description: Cube puzzles captivate minds with their intriguing designs and problem-solving
+  challenges. These toys offer endless hours of entertainment. Cube puzzles come in
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cube-puzzle-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=cube-puzzle-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Cube puzzles captivate minds with their intriguing designs and problem-solving challenges. These toys offer endless hours of entertainment.**

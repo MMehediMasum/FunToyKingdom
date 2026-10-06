@@ -1,10 +1,14 @@
 ---
-title: "Connect Four Electronic Toy Game: Ultimate Fun for All Ages"
-description: "Looking for a fun and exciting game that challenges your mind and keeps you entertained? The Connect Four Electronic Toy Game is just what you need. Imagine the"
+title: 'Connect Four Electronic Toy Game: Ultimate Fun for All Ages'
+description: Looking for a fun and exciting game that challenges your mind and keeps
+  you entertained? The Connect Four Electronic Toy Game is just what you need. Imagine
+  the
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=connect-four-electronic-toy-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=connect-four-electronic-toy-game&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for a fun and exciting game that challenges your mind and keeps you entertained? The Connect Four Electronic Toy Game is just what you need.**

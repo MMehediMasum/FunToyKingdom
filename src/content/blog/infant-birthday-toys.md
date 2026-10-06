@@ -1,10 +1,14 @@
 ---
-title: "Infant Birthday Toys: Top Sensory and Montessori Picks for Toddlers"
-description: "Choosing the right birthday toy for an infant can be challenging. With countless options available, finding the perfect gift is crucial. Selecting toys that are"
+title: 'Infant Birthday Toys: Top Sensory and Montessori Picks for Toddlers'
+description: Choosing the right birthday toy for an infant can be challenging. With
+  countless options available, finding the perfect gift is crucial. Selecting toys
+  that are
 pubDate: 2026-02-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-birthday-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Rope Toy For Teething
+heroImage: https://tse1.mm.bing.net/th?q=infant-birthday-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Choosing the right birthday toy for an infant can be challenging. With countless options available, finding the perfect gift is crucial.**

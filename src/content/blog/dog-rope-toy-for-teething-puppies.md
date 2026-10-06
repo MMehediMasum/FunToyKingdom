@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toy for Teething Puppies: Durable, Safe, and Fun Chew Toys"
-description: "Teething puppies need safe, effective toys to soothe sore gums and promote healthy teeth. Dog rope toys offer a natural way to clean teeth and keep puppies ente"
+title: 'Dog Rope Toy for Teething Puppies: Durable, Safe, and Fun Chew Toys'
+description: Teething puppies need safe, effective toys to soothe sore gums and promote
+  healthy teeth. Dog rope toys offer a natural way to clean teeth and keep puppies
+  ente
 pubDate: 2026-02-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toy-for-teething-puppies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Rope Toy For Teething
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toy-for-teething-puppies&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Teething puppies need safe, effective toys to soothe sore gums and promote healthy teeth. Dog rope toys offer a natural way to clean teeth and keep puppies entertained.**

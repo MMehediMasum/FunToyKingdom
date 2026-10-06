@@ -1,10 +1,14 @@
 ---
-title: "Orc Action Figures Lord of the Rings: Ultimate Collectors’ Guide"
-description: "Are you a fan of the epic battles and dark creatures from The Lord of the Rings? Imagine holding a piece of that adventure right in your hands. Orc action figur"
+title: 'Orc Action Figures Lord of the Rings: Ultimate Collectors’ Guide'
+description: Are you a fan of the epic battles and dark creatures from The Lord of
+  the Rings? Imagine holding a piece of that adventure right in your hands. Orc action
+  figur
 pubDate: 2025-12-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=orc-action-figures-lord-of-the-rings&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Do Toy Drones Need
+heroImage: https://tse1.mm.bing.net/th?q=orc-action-figures-lord-of-the-rings&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you a fan of the epic battles and dark creatures from The Lord of the Rings? Imagine holding a piece of that adventure right in your hands.**

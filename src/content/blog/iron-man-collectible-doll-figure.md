@@ -1,10 +1,14 @@
 ---
-title: "Iron Man Collectible Doll Figure: Ultimate Guide for Fans & Collectors"
-description: "Are you a true Iron Man fan looking to bring a piece of your favorite superhero into your home? An Iron Man collectible doll figure isn’t just a toy—it’s a trea"
+title: 'Iron Man Collectible Doll Figure: Ultimate Guide for Fans & Collectors'
+description: Are you a true Iron Man fan looking to bring a piece of your favorite
+  superhero into your home? An Iron Man collectible doll figure isn’t just a toy—it’s
+  a trea
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=iron-man-collectible-doll-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=iron-man-collectible-doll-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a true Iron Man fan looking to bring a piece of your favorite superhero into your home? An Iron Man collectible doll figure isn’t just a toy—it’s a treasure that sparks excitement every time you see it.**

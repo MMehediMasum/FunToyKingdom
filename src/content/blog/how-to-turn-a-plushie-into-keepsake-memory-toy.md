@@ -1,10 +1,14 @@
 ---
-title: "How to Turn a Plushie into Keepsake Memory Toy: Easy DIY Guide"
-description: "Do you have a plushie that holds a special place in your heart? Maybe it belonged to your child, a loved one, or even you. What if you could turn that soft, cud"
+title: 'How to Turn a Plushie into Keepsake Memory Toy: Easy DIY Guide'
+description: Do you have a plushie that holds a special place in your heart? Maybe
+  it belonged to your child, a loved one, or even you. What if you could turn that
+  soft, cud
 pubDate: 2026-09-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-turn-a-plushie-into-keepsake-memory-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=how-to-turn-a-plushie-into-keepsake-memory-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Do you have a plushie that holds a special place in your heart? Maybe it belonged to your child, a loved one, or even you.**

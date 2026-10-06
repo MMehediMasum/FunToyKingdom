@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Trixie Dinosaur Action Figure: Ultimate Collector’s Guide"
-description: "If you're a fan of Toy Story or simply love dinosaurs, the Toy Story Trixie Dinosaur Action Figure is made just for you. Imagine holding a toy that brings your "
+title: 'Toy Story Trixie Dinosaur Action Figure: Ultimate Collector’s Guide'
+description: 'If you''re a fan of Toy Story or simply love dinosaurs, the Toy Story
+  Trixie Dinosaur Action Figure is made just for you. Imagine holding a toy that brings
+  your '
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-trixie-dinosaur-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-trixie-dinosaur-action-figure&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **If you're a fan of Toy Story or simply love dinosaurs, the Toy Story Trixie Dinosaur Action Figure is made just for you. Imagine holding a toy that brings your favorite blue triceratops to life right in your hands.**

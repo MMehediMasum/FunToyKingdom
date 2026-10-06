@@ -1,10 +1,14 @@
 ---
-title: "John Deere Diecast Toys: Ultimate Collectible Tractors for Farm Enthusiasts"
-description: "John Deere diecast toys capture the charm of real farm machines in small, detailed models. These toys bring farming fun to kids and collectors alike. John Deere"
+title: 'John Deere Diecast Toys: Ultimate Collectible Tractors for Farm Enthusiasts'
+description: John Deere diecast toys capture the charm of real farm machines in small,
+  detailed models. These toys bring farming fun to kids and collectors alike. John
+  Deere
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=john-deere-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=john-deere-diecast-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **John Deere diecast toys capture the charm of real farm machines in small, detailed models. These toys bring farming fun to kids and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Parental Control Speed: Safe Fun for Kids"
-description: "Imagine giving your child the joy of riding their very own toy, while you stay in full control of their speed. With a ride on toy featuring parental control spe"
+title: 'Ride on Toy With Parental Control Speed: Safe Fun for Kids'
+description: Imagine giving your child the joy of riding their very own toy, while
+  you stay in full control of their speed. With a ride on toy featuring parental control
+  spe
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-parental-control-speed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-parental-control-speed&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child the joy of riding their very own toy, while you stay in full control of their speed. With a ride on toy featuring parental control speed, you can ensure your little one’s safety without taking away their fun.**

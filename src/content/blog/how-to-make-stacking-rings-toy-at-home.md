@@ -1,10 +1,14 @@
 ---
-title: "How to Make Stacking Rings Toy at Home: Easy DIY Guide"
-description: "Are you looking for a fun and simple project that you can create right at home? Making a stacking rings toy is easier than you think, and it’s a great way to ke"
+title: 'How to Make Stacking Rings Toy at Home: Easy DIY Guide'
+description: Are you looking for a fun and simple project that you can create right
+  at home? Making a stacking rings toy is easier than you think, and it’s a great
+  way to ke
 pubDate: 2026-09-12
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-stacking-rings-toy-at-home&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Developmental Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-stacking-rings-toy-at-home&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and simple project that you can create right at home? Making a stacking rings toy is easier than you think, and it’s a great way to keep your little ones entertained while boosting their learning.**

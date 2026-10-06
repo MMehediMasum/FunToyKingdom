@@ -1,10 +1,14 @@
 ---
-title: "Rc Car for Stunt Tricks: Ultimate Guide to Extreme Performance"
-description: "Are you ready to take your RC car experience to the next level? Imagine pulling off jaw-dropping flips, spins, and wheelies right in your backyard. With the rig"
+title: 'Rc Car for Stunt Tricks: Ultimate Guide to Extreme Performance'
+description: Are you ready to take your RC car experience to the next level? Imagine
+  pulling off jaw-dropping flips, spins, and wheelies right in your backyard. With
+  the rig
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-for-stunt-tricks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-for-stunt-tricks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to the next level? Imagine pulling off jaw-dropping flips, spins, and wheelies right in your backyard.**

@@ -1,10 +1,14 @@
 ---
-title: "Disney Villains Collectible Dolls: Must-Have Evil Treasures"
-description: "Are you a fan of Disney villains and love collecting unique dolls? Imagine owning detailed figures of your favorite iconic villains right at your fingertips. Th"
+title: 'Disney Villains Collectible Dolls: Must-Have Evil Treasures'
+description: Are you a fan of Disney villains and love collecting unique dolls? Imagine
+  owning detailed figures of your favorite iconic villains right at your fingertips.
+  Th
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-villains-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=disney-villains-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Disney villains and love collecting unique dolls? Imagine owning detailed figures of your favorite iconic villains right at your fingertips.**

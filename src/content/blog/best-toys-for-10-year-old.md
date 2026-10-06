@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 10 Year Old: Top Fun & Educational Picks 2025"
-description: "Finding the best toys for a 10-year-old can feel overwhelming. You want something fun, exciting, and that sparks your child’s creativity. But with so many optio"
+title: 'Best Toys for 10 Year Old: Top Fun & Educational Picks 2025'
+description: Finding the best toys for a 10-year-old can feel overwhelming. You want
+  something fun, exciting, and that sparks your child’s creativity. But with so many
+  optio
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-10-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best toys for a 10-year-old can feel overwhelming. You want something fun, exciting, and that sparks your child’s creativity.**

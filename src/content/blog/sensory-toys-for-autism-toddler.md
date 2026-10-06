@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Autism Toddler: Top Picks for Engaging Playtime"
-description: "Sensory toys help autistic toddlers explore and learn through touch, sound, and movement. These toys support development and calm sensory needs effectively. Tod"
+title: 'Sensory Toys for Autism Toddler: Top Picks for Engaging Playtime'
+description: Sensory toys help autistic toddlers explore and learn through touch,
+  sound, and movement. These toys support development and calm sensory needs effectively.
+  Tod
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-autism-toddler&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-autism-toddler&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help autistic toddlers explore and learn through touch, sound, and movement. These toys support development and calm sensory needs effectively.**

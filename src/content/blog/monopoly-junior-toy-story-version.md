@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Junior Toy Story Version: Ultimate Family Fun Game Guide"
-description: "Are you looking for a fun and exciting game to play with your little ones? The Monopoly Junior Toy Story Version might be just what you need. This game brings t"
+title: 'Monopoly Junior Toy Story Version: Ultimate Family Fun Game Guide'
+description: Are you looking for a fun and exciting game to play with your little
+  ones? The Monopoly Junior Toy Story Version might be just what you need. This game
+  brings t
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-junior-toy-story-version&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- How Much Money Do You
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-junior-toy-story-version&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and exciting game to play with your little ones? The Monopoly Junior Toy Story Version might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy Toy Dog Figurines: Top Trusted Stores Revealed"
-description: "Are you searching for the perfect place to buy toy dog figurines? Whether you want to add to your collection or find a special gift, knowing where to shop makes"
+title: 'Where to Buy Toy Dog Figurines: Top Trusted Stores Revealed'
+description: Are you searching for the perfect place to buy toy dog figurines? Whether
+  you want to add to your collection or find a special gift, knowing where to shop
+  makes
 pubDate: 2026-07-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-toy-dog-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-toy-dog-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you searching for the perfect place to buy toy dog figurines? Whether you want to add to your collection or find a special gift, knowing where to shop makes all the difference.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Sanitize Bath Toys: Easy Steps for a Germ-Free Clean"
-description: "Your child’s bath toys bring hours of fun, but they can also hide germs that you don’t want near your little one. Do you know the best way to keep those toys cl"
+title: 'How to Sanitize Bath Toys: Easy Steps for a Germ-Free Clean'
+description: Your child’s bath toys bring hours of fun, but they can also hide germs
+  that you don’t want near your little one. Do you know the best way to keep those
+  toys cl
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sanitize-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sanitize-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Your child’s bath toys bring hours of fun, but they can also hide germs that you don’t want near your little one. Do you know the best way to keep those toys clean and safe?**

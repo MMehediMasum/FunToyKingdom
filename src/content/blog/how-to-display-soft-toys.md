@@ -1,10 +1,14 @@
 ---
-title: "How to Display Soft Toys: Creative Ideas to Showcase Your Collection"
-description: "Are your soft toys just lying around, missing the spotlight they deserve? You have a collection full of charm and memories, but are unsure how to show them off "
+title: 'How to Display Soft Toys: Creative Ideas to Showcase Your Collection'
+description: 'Are your soft toys just lying around, missing the spotlight they deserve?
+  You have a collection full of charm and memories, but are unsure how to show them
+  off '
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-display-soft-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-display-soft-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are your soft toys just lying around, missing the spotlight they deserve? You have a collection full of charm and memories, but are unsure how to show them off in a way that adds warmth and personality to your space.**

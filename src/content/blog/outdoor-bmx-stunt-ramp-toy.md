@@ -1,10 +1,14 @@
 ---
-title: "Outdoor BMX Stunt Ramp Toy: Ultimate Fun for Kids & Teens"
-description: "Are you ready to take your BMX skills to the next level right in your backyard? An outdoor BMX stunt ramp toy is exactly what you need to practice tricks, build"
+title: 'Outdoor BMX Stunt Ramp Toy: Ultimate Fun for Kids & Teens'
+description: Are you ready to take your BMX skills to the next level right in your
+  backyard? An outdoor BMX stunt ramp toy is exactly what you need to practice tricks,
+  build
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bmx-stunt-ramp-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bmx-stunt-ramp-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your BMX skills to the next level right in your backyard? An outdoor BMX stunt ramp toy is exactly what you need to practice tricks, build confidence, and have nonstop fun.**

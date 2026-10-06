@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Camel Inflatable Ride on Float: Ultimate Summer Fun Guide"
-description: "Looking for a fun and unique way to enjoy your time in the pool or at the beach? The Outdoor Camel Inflatable Ride on Float is exactly what you need. Imagine yo"
+title: 'Outdoor Camel Inflatable Ride on Float: Ultimate Summer Fun Guide'
+description: Looking for a fun and unique way to enjoy your time in the pool or at
+  the beach? The Outdoor Camel Inflatable Ride on Float is exactly what you need.
+  Imagine yo
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-camel-inflatable-ride-on-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-camel-inflatable-ride-on-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to enjoy your time in the pool or at the beach? The Outdoor Camel Inflatable Ride on Float is exactly what you need.**

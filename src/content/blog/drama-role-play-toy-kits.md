@@ -1,10 +1,13 @@
 ---
-title: "Drama Role Play Toy Kits: Ignite Creativity and Imagination Today!"
-description: "Are you looking for a fun and creative way to boost your child’s imagination? Drama Role Play Toy Kits are exactly what you need. These kits let your child step"
+title: 'Drama Role Play Toy Kits: Ignite Creativity and Imagination Today!'
+description: Are you looking for a fun and creative way to boost your child’s imagination?
+  Drama Role Play Toy Kits are exactly what you need. These kits let your child step
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=drama-role-play-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=drama-role-play-toy-kits&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and creative way to boost your child’s imagination? Drama Role Play Toy Kits are exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Scrabble Board Game Tournaments: Ultimate Guide to Winning Big"
-description: "Are you ready to test your word skills and challenge your mind? Scrabble board game tournaments offer an exciting way to do just that. Whether you’re a casual p"
+title: 'Scrabble Board Game Tournaments: Ultimate Guide to Winning Big'
+description: Are you ready to test your word skills and challenge your mind? Scrabble
+  board game tournaments offer an exciting way to do just that. Whether you’re a casual
+  p
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=scrabble-board-game-tournaments&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=scrabble-board-game-tournaments&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to test your word skills and challenge your mind? Scrabble board game tournaments offer an exciting way to do just that.**

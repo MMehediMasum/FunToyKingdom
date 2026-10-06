@@ -1,10 +1,13 @@
 ---
-title: "Indoor Toys for 10 Year Old: Top Fun & Educational Picks"
-description: "Looking for the perfect indoor toys for your 10-year-old? You want something that keeps them busy, sparks their creativity, and helps them learn—all while havin"
+title: 'Indoor Toys for 10 Year Old: Top Fun & Educational Picks'
+description: Looking for the perfect indoor toys for your 10-year-old? You want something
+  that keeps them busy, sparks their creativity, and helps them learn—all while havin
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-10-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect indoor toys for your 10-year-old? You want something that keeps them busy, sparks their creativity, and helps them learn—all while having fun.**

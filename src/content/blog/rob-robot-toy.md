@@ -1,10 +1,14 @@
 ---
-title: "Rob Robot Toy: Ultimate Programmable Smart RC Robot for Kids Fun"
-description: "Rob Robot Toy offers a fun and interactive play experience for kids aged 3 to 10. These toys combine remote control, dancing, and programming features to engage"
+title: 'Rob Robot Toy: Ultimate Programmable Smart RC Robot for Kids Fun'
+description: Rob Robot Toy offers a fun and interactive play experience for kids aged
+  3 to 10. These toys combine remote control, dancing, and programming features to
+  engage
 pubDate: 2026-02-14
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rob-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=rob-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Rob Robot Toy offers a fun and interactive play experience for kids aged 3 to 10. These toys combine remote control, dancing, and programming features to engage young minds.**

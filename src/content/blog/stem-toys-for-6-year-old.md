@@ -1,10 +1,13 @@
 ---
-title: "Stem Toys for 6 Year Old: Top Educational Picks to Inspire Creativity"
-description: "Are you looking for the perfect toy that sparks your 6-year-old’s curiosity and helps them learn while having fun? Stem toys are designed to do just that. They "
+title: 'Stem Toys for 6 Year Old: Top Educational Picks to Inspire Creativity'
+description: 'Are you looking for the perfect toy that sparks your 6-year-old’s curiosity
+  and helps them learn while having fun? Stem toys are designed to do just that. They '
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-toys-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-toys-for-6-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toy that sparks your 6-year-old’s curiosity and helps them learn while having fun? Stem toys are designed to do just that.**

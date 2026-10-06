@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bird Feeder Craft Kit: Fun DIY Project for Nature Lovers"
-description: "Have you ever wanted to bring more life and color to your backyard while enjoying a fun, hands-on project? An outdoor bird feeder craft kit is the perfect way t"
+title: 'Outdoor Bird Feeder Craft Kit: Fun DIY Project for Nature Lovers'
+description: Have you ever wanted to bring more life and color to your backyard while
+  enjoying a fun, hands-on project? An outdoor bird feeder craft kit is the perfect
+  way t
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bird-feeder-craft-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bird-feeder-craft-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wanted to bring more life and color to your backyard while enjoying a fun, hands-on project? An outdoor bird feeder craft kit is the perfect way to do just that.**

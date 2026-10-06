@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Rocket Ship: Easy Steps for Kids’ Space Fun"
-description: "Imagine building your very own rocket ship right at home—using just cardboard and a few simple supplies. Sounds fun, right? If you’re looking for a creative pro"
+title: 'Diy Cardboard Toy Rocket Ship: Easy Steps for Kids’ Space Fun'
+description: Imagine building your very own rocket ship right at home—using just cardboard
+  and a few simple supplies. Sounds fun, right? If you’re looking for a creative pro
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-rocket-ship&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-rocket-ship&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine building your very own rocket ship right at home—using just cardboard and a few simple supplies. Sounds fun, right?**

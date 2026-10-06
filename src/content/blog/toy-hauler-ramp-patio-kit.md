@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Ramp Patio Kit: Ultimate Upgrade for Easy Outdoor Living"
 description: "Transform your toy hauler into a versatile outdoor space with a Toy Hauler Ramp Patio Kit. This kit allows you to enjoy the great outdoors while maximizing your"
 pubDate: 2026-08-18

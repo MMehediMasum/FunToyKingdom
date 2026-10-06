@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Moldy Bath Toys: Easy Steps for a Safe Playtime"
-description: "Moldy bath toys can turn your child’s fun bath time into a health hazard. If you’ve ever noticed that strange smell or seen those dark spots growing on your lit"
+title: 'How to Clean Moldy Bath Toys: Easy Steps for a Safe Playtime'
+description: Moldy bath toys can turn your child’s fun bath time into a health hazard.
+  If you’ve ever noticed that strange smell or seen those dark spots growing on your
+  lit
 pubDate: 2025-09-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-moldy-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-moldy-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Moldy bath toys can turn your child’s fun bath time into a health hazard. If you’ve ever noticed that strange smell or seen those dark spots growing on your little one’s favorite toys, you know how frustrating it is.**

@@ -1,10 +1,14 @@
 ---
-title: "How Do You Make a Toy Car: Easy Steps for Kids and Beginners"
-description: "Have you ever wondered how you can make a toy car all by yourself? Imagine holding a car you built with your own hands—something fun, creative, and unique. Maki"
+title: 'How Do You Make a Toy Car: Easy Steps for Kids and Beginners'
+description: Have you ever wondered how you can make a toy car all by yourself? Imagine
+  holding a car you built with your own hands—something fun, creative, and unique.
+  Maki
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how you can make a toy car all by yourself? Imagine holding a car you built with your own hands—something fun, creative, and unique.**

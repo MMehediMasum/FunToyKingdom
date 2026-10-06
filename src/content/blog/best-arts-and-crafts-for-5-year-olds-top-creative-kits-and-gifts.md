@@ -1,10 +1,14 @@
 ---
-title: "Best Arts And Crafts for 5 Year Olds: Top Creative Kits and Gifts"
-description: "Arts and crafts help 5 year olds learn and have fun. Simple projects boost creativity and fine motor skills. Choosing the best arts and crafts for young childre"
+title: 'Best Arts And Crafts for 5 Year Olds: Top Creative Kits and Gifts'
+description: Arts and crafts help 5 year olds learn and have fun. Simple projects
+  boost creativity and fine motor skills. Choosing the best arts and crafts for young
+  childre
 pubDate: 2025-10-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-5-year-olds-top-creative-kits-and-gifts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-5-year-olds-top-creative-kits-and-gifts&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Arts and crafts help 5 year olds learn and have fun. Simple projects boost creativity and fine motor skills.**

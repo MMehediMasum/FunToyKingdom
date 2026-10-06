@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Penguin Sewing Pattern: Easy Steps for Adorable Plush Toys"
-description: "Are you looking for a fun and creative project that brings joy and charm to your home? Imagine making your very own adorable toy penguin, stitched by your own h"
+title: 'Diy Toy Penguin Sewing Pattern: Easy Steps for Adorable Plush Toys'
+description: Are you looking for a fun and creative project that brings joy and charm
+  to your home? Imagine making your very own adorable toy penguin, stitched by your
+  own h
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-penguin-sewing-pattern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-penguin-sewing-pattern&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy and charm to your home? Imagine making your very own adorable toy penguin, stitched by your own hands.**

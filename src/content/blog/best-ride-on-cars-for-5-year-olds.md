@@ -1,10 +1,13 @@
 ---
-title: "Best Ride on Cars for 5 Year Olds: Top Safe & Fun Picks 2025"
-description: "Are you looking for the perfect ride-on car that will light up your 5-year-old’s face with joy? Choosing the best ride-on car can be tricky with so many options"
+title: 'Best Ride on Cars for 5 Year Olds: Top Safe & Fun Picks 2025'
+description: Are you looking for the perfect ride-on car that will light up your 5-year-old’s
+  face with joy? Choosing the best ride-on car can be tricky with so many options
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-cars-for-5-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-cars-for-5-year-olds&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect ride-on car that will light up your 5-year-old’s face with joy? Choosing the best ride-on car can be tricky with so many options out there.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Cool Miniature Dogs: Top Nutrition, Care, and Toys for Tiny Breeds"
 description: "Miniature dogs bring big joy in small packages. They fit well in apartments and need less space than larger breeds. These tiny dogs often have lively personalit"
 pubDate: 2026-08-03

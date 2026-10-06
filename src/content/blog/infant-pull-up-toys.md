@@ -1,10 +1,14 @@
 ---
-title: "Infant Pull Up Toys: Best Tools to Boost Baby’s First Steps"
-description: "Infant pull up toys help babies learn to stand and walk with confidence. These toys offer support and fun activities for early movers. Choosing the right pull u"
+title: 'Infant Pull Up Toys: Best Tools to Boost Baby’s First Steps'
+description: Infant pull up toys help babies learn to stand and walk with confidence.
+  These toys offer support and fun activities for early movers. Choosing the right
+  pull u
 pubDate: 2026-01-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-pull-up-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=infant-pull-up-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant pull up toys help babies learn to stand and walk with confidence. These toys offer support and fun activities for early movers.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rhino Inflatable Kids Toy: Ultimate Fun for Active Playtime"
-description: "Imagine giving your child a toy that sparks endless fun and keeps them active outdoors. The Outdoor Rhino Inflatable Kids Toy does just that. It’s not just any "
+title: 'Outdoor Rhino Inflatable Kids Toy: Ultimate Fun for Active Playtime'
+description: 'Imagine giving your child a toy that sparks endless fun and keeps them
+  active outdoors. The Outdoor Rhino Inflatable Kids Toy does just that. It’s not
+  just any '
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rhino-inflatable-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rhino-inflatable-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that sparks endless fun and keeps them active outdoors. The Outdoor Rhino Inflatable Kids Toy does just that.**

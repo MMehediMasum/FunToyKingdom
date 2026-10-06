@@ -1,10 +1,14 @@
 ---
-title: "Stunt Kite for Teens Outdoor Fun: Ultimate Guide to Thrilling Adventures"
-description: "Looking for a thrilling way to enjoy the outdoors? A stunt kite for teens might be just what you need. Imagine feeling the wind in your hands as you control a c"
+title: 'Stunt Kite for Teens Outdoor Fun: Ultimate Guide to Thrilling Adventures'
+description: Looking for a thrilling way to enjoy the outdoors? A stunt kite for teens
+  might be just what you need. Imagine feeling the wind in your hands as you control
+  a c
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stunt-kite-for-teens-outdoor-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=stunt-kite-for-teens-outdoor-fun&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a thrilling way to enjoy the outdoors? A stunt kite for teens might be just what you need.**

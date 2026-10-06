@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Quad Bike: Ultimate Fun for Kids Outdoors"
-description: "Imagine your child’s face lighting up as they zoom around on their very own ride on toy quad bike. This isn’t just any toy—it’s a thrilling experience that spar"
+title: 'Ride on Toy Quad Bike: Ultimate Fun for Kids Outdoors'
+description: Imagine your child’s face lighting up as they zoom around on their very
+  own ride on toy quad bike. This isn’t just any toy—it’s a thrilling experience that
+  spar
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-quad-bike&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-quad-bike&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they zoom around on their very own ride on toy quad bike. This isn’t just any toy—it’s a thrilling experience that sparks imagination, builds confidence, and keeps them active outdoors.**

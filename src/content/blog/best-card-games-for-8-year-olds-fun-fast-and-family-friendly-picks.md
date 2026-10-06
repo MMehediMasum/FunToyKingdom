@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for 8 Year Olds: Fun, Fast, and Family-Friendly Picks"
-description: "Choosing the best card games for 8-year-olds helps kids have fun and learn together. Card games boost thinking, social skills, and family bonding. Playing card "
+title: 'Best Card Games for 8 Year Olds: Fun, Fast, and Family-Friendly Picks'
+description: 'Choosing the best card games for 8-year-olds helps kids have fun and
+  learn together. Card games boost thinking, social skills, and family bonding. Playing
+  card '
 pubDate: 2025-12-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-8-year-olds-fun-fast-and-family-friendly-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-8-year-olds-fun-fast-and-family-friendly-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best card games for 8-year-olds helps kids have fun and learn together. Card games boost thinking, social skills, and family bonding.**

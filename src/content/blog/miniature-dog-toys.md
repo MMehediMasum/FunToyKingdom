@@ -1,10 +1,14 @@
 ---
-title: "Miniature Dog Toys: Top Picks for Small Breed Puppy Chew Fun"
-description: "Miniature dog toys keep small breeds happy and healthy by providing fun and safe playtime. These toys suit tiny mouths and help with teething and boredom. Small"
+title: 'Miniature Dog Toys: Top Picks for Small Breed Puppy Chew Fun'
+description: Miniature dog toys keep small breeds happy and healthy by providing fun
+  and safe playtime. These toys suit tiny mouths and help with teething and boredom.
+  Small
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-dog-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=miniature-dog-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature dog toys keep small breeds happy and healthy by providing fun and safe playtime. These toys suit tiny mouths and help with teething and boredom.**

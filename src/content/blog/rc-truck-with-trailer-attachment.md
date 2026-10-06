@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck With Trailer Attachment: Ultimate Guide for Enthusiasts"
-description: "Are you ready to take your RC truck experience to the next level? Imagine having the power and control of a rugged RC truck, combined with the versatility of a "
+title: 'Rc Truck With Trailer Attachment: Ultimate Guide for Enthusiasts'
+description: 'Are you ready to take your RC truck experience to the next level? Imagine
+  having the power and control of a rugged RC truck, combined with the versatility
+  of a '
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-with-trailer-attachment&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-with-trailer-attachment&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC truck experience to the next level? Imagine having the power and control of a rugged RC truck, combined with the versatility of a trailer attachment.**

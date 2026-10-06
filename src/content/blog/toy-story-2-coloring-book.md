@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 2 Coloring Book: Ultimate Fun with Stickers and Activities"
 description: "Toy Story 2 Coloring Book offers fun and creativity for kids. Dive into the enchanting world of Toy Story characters. Explore a delightful collection of Toy Sto"
 pubDate: 2026-02-09

@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Store Playsets: Ultimate Guide to Tiny Shopping Fun"
-description: "A miniature toy store brings tiny worlds to life with detailed playsets and accessories. These small-scale items offer endless fun for kids and collectors alike"
+title: 'Miniature Toy Store Playsets: Ultimate Guide to Tiny Shopping Fun'
+description: A miniature toy store brings tiny worlds to life with detailed playsets
+  and accessories. These small-scale items offer endless fun for kids and collectors
+  alike
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-store&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-store&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A miniature toy store brings tiny worlds to life with detailed playsets and accessories. These small-scale items offer endless fun for kids and collectors alike.**

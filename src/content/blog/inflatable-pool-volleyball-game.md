@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Pool Volleyball Game: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to spice up your pool time? An inflatable pool volleyball game is exactly what you need. Imagine turning your backyard pool into a lively "
+title: 'Inflatable Pool Volleyball Game: Ultimate Summer Fun Guide'
+description: 'Looking for a fun way to spice up your pool time? An inflatable pool
+  volleyball game is exactly what you need. Imagine turning your backyard pool into
+  a lively '
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-pool-volleyball-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-pool-volleyball-game&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to spice up your pool time? An inflatable pool volleyball game is exactly what you need.**

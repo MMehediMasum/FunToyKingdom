@@ -1,10 +1,14 @@
 ---
-title: "Toy Trivia: Ultimate Brain-Boosting Games for Family Fun and Learning"
-description: "Toys can teach, entertain, and bring people together. Trivia toys add fun by challenging your knowledge in many topics. Trivia toys are great for family and fri"
+title: 'Toy Trivia: Ultimate Brain-Boosting Games for Family Fun and Learning'
+description: Toys can teach, entertain, and bring people together. Trivia toys add
+  fun by challenging your knowledge in many topics. Trivia toys are great for family
+  and fri
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-trivia&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=toy-trivia&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toys can teach, entertain, and bring people together. Trivia toys add fun by challenging your knowledge in many topics.**

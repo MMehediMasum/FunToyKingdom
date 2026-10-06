@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Belts Sewing Project: Creative DIY Fun for Kids"
-description: "Are you looking for a fun and creative project that adds a personal touch to your toys? Making handmade toy belts is a simple way to bring extra charm and chara"
+title: 'Handmade Toy Belts Sewing Project: Creative DIY Fun for Kids'
+description: Are you looking for a fun and creative project that adds a personal touch
+  to your toys? Making handmade toy belts is a simple way to bring extra charm and
+  chara
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-belts-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-belts-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that adds a personal touch to your toys? Making handmade toy belts is a simple way to bring extra charm and character to your favorite playthings.**

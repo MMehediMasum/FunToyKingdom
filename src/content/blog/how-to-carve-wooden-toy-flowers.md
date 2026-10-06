@@ -1,10 +1,14 @@
 ---
-title: "How to Carve Wooden Toy Flowers: Easy Steps for Stunning Crafts"
-description: "Have you ever wanted to create something beautiful with your own hands? Carving wooden toy flowers is a fun and rewarding way to bring your creativity to life. "
+title: 'How to Carve Wooden Toy Flowers: Easy Steps for Stunning Crafts'
+description: 'Have you ever wanted to create something beautiful with your own hands?
+  Carving wooden toy flowers is a fun and rewarding way to bring your creativity to
+  life. '
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-flowers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Carve Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=how-to-carve-wooden-toy-flowers&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something beautiful with your own hands? Carving wooden toy flowers is a fun and rewarding way to bring your creativity to life.**

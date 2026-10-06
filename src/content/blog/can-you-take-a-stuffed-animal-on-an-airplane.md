@@ -1,10 +1,14 @@
 ---
-title: "Can You Take a Stuffed Animal on an Airplane: Essential Travel Tips"
-description: "Are you wondering if you can bring your favorite stuffed animal on an airplane? Whether it’s a beloved childhood companion or a gift you just can’t leave behind"
+title: 'Can You Take a Stuffed Animal on an Airplane: Essential Travel Tips'
+description: Are you wondering if you can bring your favorite stuffed animal on an
+  airplane? Whether it’s a beloved childhood companion or a gift you just can’t leave
+  behind
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-take-a-stuffed-animal-on-an-airplane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=can-you-take-a-stuffed-animal-on-an-airplane&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you wondering if you can bring your favorite stuffed animal on an airplane? Whether it’s a beloved childhood companion or a gift you just can’t leave behind, knowing the rules can save you stress at the airport.**

@@ -1,10 +1,13 @@
 ---
-title: "Stem Toys for 10 Year Old: Top Picks to Boost Creativity & Learning"
-description: "Are you looking for the perfect way to spark your 10-year-old’s curiosity and creativity? Stem toys are more than just fun—they help your child build important "
+title: 'Stem Toys for 10 Year Old: Top Picks to Boost Creativity & Learning'
+description: 'Are you looking for the perfect way to spark your 10-year-old’s curiosity
+  and creativity? Stem toys are more than just fun—they help your child build important '
 pubDate: 2026-03-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-toys-for-10-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect way to spark your 10-year-old’s curiosity and creativity? Stem toys are more than just fun—they help your child build important skills like problem-solving, critical thinking, and imagination.**

@@ -1,10 +1,14 @@
 ---
-title: "Play Store Educational Toy Sets: Top Picks for Smart Learning Fun"
-description: "Looking for the perfect educational toy sets that spark your child’s curiosity and make learning fun? You’re in the right place. Play Store Educational Toy Sets"
+title: 'Play Store Educational Toy Sets: Top Picks for Smart Learning Fun'
+description: Looking for the perfect educational toy sets that spark your child’s
+  curiosity and make learning fun? You’re in the right place. Play Store Educational
+  Toy Sets
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=play-store-educational-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=play-store-educational-toy-sets&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for the perfect educational toy sets that spark your child’s curiosity and make learning fun? You’re in the right place.**

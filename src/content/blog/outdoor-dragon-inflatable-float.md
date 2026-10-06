@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dragon Inflatable Float: Ultimate Summer Pool Fun Guide"
-description: "Imagine turning your next pool day or beach trip into an unforgettable adventure with a splash of fun and fantasy. The Outdoor Dragon Inflatable Float isn’t jus"
+title: 'Outdoor Dragon Inflatable Float: Ultimate Summer Pool Fun Guide'
+description: Imagine turning your next pool day or beach trip into an unforgettable
+  adventure with a splash of fun and fantasy. The Outdoor Dragon Inflatable Float
+  isn’t jus
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dragon-inflatable-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dragon-inflatable-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your next pool day or beach trip into an unforgettable adventure with a splash of fun and fantasy. The Outdoor Dragon Inflatable Float isn’t just any float—it’s your ticket to standing out, relaxing in style, and creating memories that last.**

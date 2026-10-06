@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Jellyfish Inflatable Float: Ultimate Summer Fun Guide"
-description: "Imagine yourself floating effortlessly on a sunny day, surrounded by clear blue water, on a fun and eye-catching float that turns heads. That’s exactly what an "
+title: 'Outdoor Jellyfish Inflatable Float: Ultimate Summer Fun Guide'
+description: 'Imagine yourself floating effortlessly on a sunny day, surrounded by
+  clear blue water, on a fun and eye-catching float that turns heads. That’s exactly
+  what an '
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-jellyfish-inflatable-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-jellyfish-inflatable-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself floating effortlessly on a sunny day, surrounded by clear blue water, on a fun and eye-catching float that turns heads. That’s exactly what an outdoor jellyfish inflatable float can do for your pool or beach time.**

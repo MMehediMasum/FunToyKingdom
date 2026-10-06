@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Plane Pool Float: Ultimate Summer Fun and Relaxation"
-description: "Imagine yourself lounging on the water, feeling the warm sun on your skin and the gentle breeze around you. An inflatable plane pool float can turn this simple "
+title: 'Inflatable Plane Pool Float: Ultimate Summer Fun and Relaxation'
+description: 'Imagine yourself lounging on the water, feeling the warm sun on your
+  skin and the gentle breeze around you. An inflatable plane pool float can turn this
+  simple '
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-plane-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-plane-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself lounging on the water, feeling the warm sun on your skin and the gentle breeze around you. An inflatable plane pool float can turn this simple pleasure into an unforgettable experience.**

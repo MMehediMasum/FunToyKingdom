@@ -1,10 +1,14 @@
 ---
-title: "Electronic Toy Gun With Lights And Sounds: Ultimate Fun Guide"
-description: "Are you looking for a toy that brings endless fun and excitement to playtime? An electronic toy gun with lights and sounds could be just what you need. Imagine "
+title: 'Electronic Toy Gun With Lights And Sounds: Ultimate Fun Guide'
+description: 'Are you looking for a toy that brings endless fun and excitement to
+  playtime? An electronic toy gun with lights and sounds could be just what you need.
+  Imagine '
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-toy-gun-with-lights-and-sounds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=electronic-toy-gun-with-lights-and-sounds&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a toy that brings endless fun and excitement to playtime? An electronic toy gun with lights and sounds could be just what you need.**

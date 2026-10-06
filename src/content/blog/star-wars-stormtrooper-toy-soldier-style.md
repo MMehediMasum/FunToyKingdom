@@ -1,10 +1,14 @@
 ---
-title: "Star Wars Stormtrooper Toy Soldier Style: Ultimate Collectors' Guide"
-description: "Imagine holding a piece of the Star Wars universe right in your hands. A Star Wars Stormtrooper toy soldier isn’t just a figure—it’s your chance to bring epic b"
+title: 'Star Wars Stormtrooper Toy Soldier Style: Ultimate Collectors'' Guide'
+description: Imagine holding a piece of the Star Wars universe right in your hands.
+  A Star Wars Stormtrooper toy soldier isn’t just a figure—it’s your chance to bring
+  epic b
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=star-wars-stormtrooper-toy-soldier-style&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=star-wars-stormtrooper-toy-soldier-style&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine holding a piece of the Star Wars universe right in your hands. A Star Wars Stormtrooper toy soldier isn’t just a figure—it’s your chance to bring epic battles and heroic adventures to life.**

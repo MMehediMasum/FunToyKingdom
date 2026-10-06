@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Tractor Sprinkler Inflatable: Ultimate Summer Fun Essential"
-description: "Are you looking to add a fun and eye-catching touch to your outdoor space? An outdoor tractor sprinkler inflatable might be just what you need. It’s not only a "
+title: 'Outdoor Tractor Sprinkler Inflatable: Ultimate Summer Fun Essential'
+description: 'Are you looking to add a fun and eye-catching touch to your outdoor
+  space? An outdoor tractor sprinkler inflatable might be just what you need. It’s
+  not only a '
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-tractor-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-tractor-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking to add a fun and eye-catching touch to your outdoor space? An outdoor tractor sprinkler inflatable might be just what you need.**

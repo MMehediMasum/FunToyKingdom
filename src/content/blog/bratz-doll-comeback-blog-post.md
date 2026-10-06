@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Bratz Doll Comeback Blog Post: Ultimate Revival of Iconic Fashion Toys"
 description: "Remember the excitement of unboxing your very first Bratz doll? That bold style, the unique personalities, and the endless hours of imaginative play. Now, imagi"
 pubDate: 2025-12-19

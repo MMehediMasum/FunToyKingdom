@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Ride on Toy for Rental Business Use: Boost Profits Instantly"
 description: "Are you looking for a smart way to boost your rental business and attract more customers? A ride on toy for rental business use could be exactly what you need. "
 pubDate: 2025-09-21

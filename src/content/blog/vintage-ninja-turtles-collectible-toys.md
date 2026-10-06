@@ -1,10 +1,14 @@
 ---
-title: "Vintage Ninja Turtles Collectible Toys: Ultimate Guide to Rare Finds"
-description: "Are you a fan of classic toys that bring back childhood memories? Vintage Ninja Turtles collectible toys are more than just playthings—they’re a piece of histor"
+title: 'Vintage Ninja Turtles Collectible Toys: Ultimate Guide to Rare Finds'
+description: Are you a fan of classic toys that bring back childhood memories? Vintage
+  Ninja Turtles collectible toys are more than just playthings—they’re a piece of
+  histor
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-ninja-turtles-collectible-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=vintage-ninja-turtles-collectible-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of classic toys that bring back childhood memories? Vintage Ninja Turtles collectible toys are more than just playthings—they’re a piece of history that connects you to the excitement and adventure of the past.**

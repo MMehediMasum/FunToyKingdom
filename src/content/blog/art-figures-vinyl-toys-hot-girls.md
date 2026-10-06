@@ -1,10 +1,13 @@
 ---
-title: "Art Figures Vinyl Toys Hot Girls: Top Collectible Funko POP! Models"
-description: "Art figures and vinyl toys capture imaginations worldwide. They appeal to both kids and adults with their unique designs. The Funko POP! Art Cover: Brandalised "
+title: 'Art Figures Vinyl Toys Hot Girls: Top Collectible Funko POP! Models'
+description: 'Art figures and vinyl toys capture imaginations worldwide. They appeal
+  to both kids and adults with their unique designs. The Funko POP! Art Cover: Brandalised '
 pubDate: 2026-02-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=art-figures-vinyl-toys-hot-girls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=art-figures-vinyl-toys-hot-girls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Art figures and vinyl toys capture imaginations worldwide. They appeal to both kids and adults with their unique designs.**

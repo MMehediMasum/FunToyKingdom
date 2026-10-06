@@ -1,10 +1,14 @@
 ---
-title: "Wooden Robot Toy: Top STEM Building Sets for Creative Kids Play"
-description: "Wooden robot toys combine fun and learning in one simple playset. Kids build, snap, and create robots using safe wooden pieces. These toys help children develop"
+title: 'Wooden Robot Toy: Top STEM Building Sets for Creative Kids Play'
+description: Wooden robot toys combine fun and learning in one simple playset. Kids
+  build, snap, and create robots using safe wooden pieces. These toys help children
+  develop
 pubDate: 2026-02-24
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=wooden-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Wooden robot toys combine fun and learning in one simple playset. Kids build, snap, and create robots using safe wooden pieces.**

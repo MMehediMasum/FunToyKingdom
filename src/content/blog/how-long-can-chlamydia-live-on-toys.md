@@ -1,10 +1,14 @@
 ---
-title: "How Long Can Chlamydia Live on Toys: Essential Facts Revealed"
-description: "You might be wondering how long chlamydia can survive on your toys and what that means for your health. Understanding this is crucial to keep yourself and your "
+title: 'How Long Can Chlamydia Live on Toys: Essential Facts Revealed'
+description: 'You might be wondering how long chlamydia can survive on your toys and
+  what that means for your health. Understanding this is crucial to keep yourself
+  and your '
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-can-chlamydia-live-on-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Germ Safety
+heroImage: https://tse1.mm.bing.net/th?q=how-long-can-chlamydia-live-on-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **You might be wondering how long chlamydia can survive on your toys and what that means for your health. Understanding this is crucial to keep yourself and your partners safe.**

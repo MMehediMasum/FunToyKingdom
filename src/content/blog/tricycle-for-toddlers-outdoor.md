@@ -1,10 +1,14 @@
 ---
-title: "Tricycle for Toddlers Outdoor: Ultimate Fun and Safety Guide"
-description: "Looking for the perfect way to get your little one outside and moving? A tricycle for toddlers outdoor is more than just a toy—it’s a key to your child’s growth"
+title: 'Tricycle for Toddlers Outdoor: Ultimate Fun and Safety Guide'
+description: Looking for the perfect way to get your little one outside and moving?
+  A tricycle for toddlers outdoor is more than just a toy—it’s a key to your child’s
+  growth
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tricycle-for-toddlers-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=tricycle-for-toddlers-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect way to get your little one outside and moving? A tricycle for toddlers outdoor is more than just a toy—it’s a key to your child’s growth, fun, and confidence.**

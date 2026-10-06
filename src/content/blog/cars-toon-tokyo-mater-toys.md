@@ -1,10 +1,14 @@
 ---
-title: "Cars Toon Tokyo Mater Toys: Ultimate Collectible Diecast for Fans"
-description: "Cars Toon Tokyo Mater toys bring the fun of Disney Pixar’s Mater character to life. These diecast vehicles capture Mater’s charm from the Tokyo adventures. Fans"
+title: 'Cars Toon Tokyo Mater Toys: Ultimate Collectible Diecast for Fans'
+description: Cars Toon Tokyo Mater toys bring the fun of Disney Pixar’s Mater character
+  to life. These diecast vehicles capture Mater’s charm from the Tokyo adventures.
+  Fans
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toon-tokyo-mater-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-toon-tokyo-mater-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toon Tokyo Mater toys bring the fun of Disney Pixar’s Mater character to life. These diecast vehicles capture Mater’s charm from the Tokyo adventures.**

@@ -1,10 +1,13 @@
 ---
-title: "Robot Blaze Toy: Ultimate Guide to Exciting Monster Machine Adventures"
-description: "The Robot Blaze Toy brings exciting adventures to young kids. It combines fun and learning in one colorful package. This toy features Blaze, the popular monster"
+title: 'Robot Blaze Toy: Ultimate Guide to Exciting Monster Machine Adventures'
+description: The Robot Blaze Toy brings exciting adventures to young kids. It combines
+  fun and learning in one colorful package. This toy features Blaze, the popular monster
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-blaze-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=robot-blaze-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Robot Blaze Toy brings exciting adventures to young kids. It combines fun and learning in one colorful package.**

@@ -1,10 +1,14 @@
 ---
-title: "How Long Does Monopoly Game Last: Ultimate Guide to Game Duration"
-description: "Have you ever started a game of Monopoly and wondered, “How long is this going to take?” You’re not alone. Monopoly is famous for being a game that can stretch "
+title: 'How Long Does Monopoly Game Last: Ultimate Guide to Game Duration'
+description: 'Have you ever started a game of Monopoly and wondered, “How long is
+  this going to take?” You’re not alone. Monopoly is famous for being a game that
+  can stretch '
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-does-monopoly-game-last&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-long-does-monopoly-game-last&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever started a game of Monopoly and wondered, “How long is this going to take?” You’re not alone. Monopoly is famous for being a game that can stretch on for hours, sometimes even days.**

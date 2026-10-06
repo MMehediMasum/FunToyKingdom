@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Mater Toy: Ultimate Diecast Set for Kids’ Fun and Play"
-description: "Cars 2 Mater toys bring the fun and adventure of the movie right to your hands. These toys capture the charm of Mater, the lovable tow truck, with great detail."
+title: 'Cars 2 Mater Toy: Ultimate Diecast Set for Kids’ Fun and Play'
+description: Cars 2 Mater toys bring the fun and adventure of the movie right to your
+  hands. These toys capture the charm of Mater, the lovable tow truck, with great
+  detail.
 pubDate: 2026-08-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-mater-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-mater-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 2 Mater toys bring the fun and adventure of the movie right to your hands. These toys capture the charm of Mater, the lovable tow truck, with great detail.**

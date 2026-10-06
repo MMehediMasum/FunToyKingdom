@@ -1,10 +1,14 @@
 ---
-title: "Weighted Sensory Toys: Calming Plushies for Anxiety and Focus"
-description: "Weighted sensory toys help calm anxiety and improve focus through gentle pressure and soft textures. These toys offer comfort for both kids and adults with sens"
+title: 'Weighted Sensory Toys: Calming Plushies for Anxiety and Focus'
+description: Weighted sensory toys help calm anxiety and improve focus through gentle
+  pressure and soft textures. These toys offer comfort for both kids and adults with
+  sens
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=weighted-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=weighted-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Weighted sensory toys help calm anxiety and improve focus through gentle pressure and soft textures. These toys offer comfort for both kids and adults with sensory needs.**

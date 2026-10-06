@@ -1,10 +1,14 @@
 ---
-title: "Vintage Diecast Trucks: Top Collectible Models for Classic Truck Enthusiasts"
-description: "Vintage diecast trucks capture the charm of classic vehicles in miniature form. Collectors and enthusiasts cherish these detailed replicas. These diecast models"
+title: 'Vintage Diecast Trucks: Top Collectible Models for Classic Truck Enthusiasts'
+description: Vintage diecast trucks capture the charm of classic vehicles in miniature
+  form. Collectors and enthusiasts cherish these detailed replicas. These diecast
+  models
 pubDate: 2026-03-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-diecast-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=vintage-diecast-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Vintage diecast trucks capture the charm of classic vehicles in miniature form. Collectors and enthusiasts cherish these detailed replicas.**

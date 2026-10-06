@@ -1,10 +1,14 @@
 ---
-title: "Custom Diecast Toy Trucks: Unique Personalized Collectibles for Truck Lovers"
-description: "Custom diecast toy trucks captivate collectors and enthusiasts alike. These miniature marvels offer both nostalgia and craftsmanship. Diecast toy trucks bring j"
+title: 'Custom Diecast Toy Trucks: Unique Personalized Collectibles for Truck Lovers'
+description: Custom diecast toy trucks captivate collectors and enthusiasts alike.
+  These miniature marvels offer both nostalgia and craftsmanship. Diecast toy trucks
+  bring j
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=custom-diecast-toy-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=custom-diecast-toy-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Custom diecast toy trucks captivate collectors and enthusiasts alike. These miniature marvels offer both nostalgia and craftsmanship.**

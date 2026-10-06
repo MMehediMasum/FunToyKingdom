@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Patio Enclosure Kit: Ultimate Upgrade for Outdoor Comfort"
 description: "A Toy Hauler Patio Enclosure Kit turns your open patio into a protected, cozy space. It keeps bugs, rain, and wind out while letting fresh air in. These kits fi"
 pubDate: 2026-08-29

@@ -1,10 +1,14 @@
 ---
-title: "Sensory Chew Toys for Adults: Top Solutions to Reduce Anxiety and Fidgeting"
-description: "Sensory chew toys for adults offer soothing relief for anxiety and stress. They cater to those with sensory processing disorders. These chew toys provide a disc"
+title: 'Sensory Chew Toys for Adults: Top Solutions to Reduce Anxiety and Fidgeting'
+description: Sensory chew toys for adults offer soothing relief for anxiety and stress.
+  They cater to those with sensory processing disorders. These chew toys provide a
+  disc
 pubDate: 2026-03-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-adults&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Chew Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-adults&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory chew toys for adults offer soothing relief for anxiety and stress. They cater to those with sensory processing disorders.**

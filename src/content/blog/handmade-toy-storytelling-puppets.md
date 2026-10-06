@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Storytelling Puppets: Magical Playtime Creations"
-description: "Imagine bringing your favorite stories to life with toys you can hold in your hands. Handmade Toy Storytelling Puppets let you do just that. They are more than "
+title: 'Handmade Toy Storytelling Puppets: Magical Playtime Creations'
+description: 'Imagine bringing your favorite stories to life with toys you can hold
+  in your hands. Handmade Toy Storytelling Puppets let you do just that. They are
+  more than '
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-storytelling-puppets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-storytelling-puppets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine bringing your favorite stories to life with toys you can hold in your hands. Handmade Toy Storytelling Puppets let you do just that.**

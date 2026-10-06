@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Walking Duck Toy DIY: Easy Steps for Fun Crafting"
-description: "Have you ever wanted to create a fun, moving toy that kids and adults alike will enjoy? Making a walking duck toy yourself is easier than you think, and it’s a "
+title: 'How to Make a Walking Duck Toy DIY: Easy Steps for Fun Crafting'
+description: 'Have you ever wanted to create a fun, moving toy that kids and adults
+  alike will enjoy? Making a walking duck toy yourself is easier than you think, and
+  it’s a '
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-walking-duck-toy-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-walking-duck-toy-diy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a fun, moving toy that kids and adults alike will enjoy? Making a walking duck toy yourself is easier than you think, and it’s a fantastic way to bring creativity and play together.**

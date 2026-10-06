@@ -1,10 +1,14 @@
 ---
-title: "How to Disinfect Soft Toys: Easy, Safe, and Effective Methods"
-description: "Your child’s soft toys are more than just playthings—they are comfort, friends, and even bedtime heroes. But have you ever stopped to think about how clean thos"
+title: 'How to Disinfect Soft Toys: Easy, Safe, and Effective Methods'
+description: Your child’s soft toys are more than just playthings—they are comfort,
+  friends, and even bedtime heroes. But have you ever stopped to think about how clean
+  thos
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-disinfect-soft-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-disinfect-soft-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Your child’s soft toys are more than just playthings—they are comfort, friends, and even bedtime heroes. But have you ever stopped to think about how clean those cuddly companions really are?**

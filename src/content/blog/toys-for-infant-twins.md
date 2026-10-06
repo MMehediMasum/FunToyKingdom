@@ -1,10 +1,14 @@
 ---
-title: "Toys for Infant Twins: Perfect Sensory and Teething Gifts for Babies"
-description: "Choosing the right toys for infant twins can be tricky but rewarding. Twins need toys that promote learning and comfort at the same time. Toys for infant twins "
+title: 'Toys for Infant Twins: Perfect Sensory and Teething Gifts for Babies'
+description: 'Choosing the right toys for infant twins can be tricky but rewarding.
+  Twins need toys that promote learning and comfort at the same time. Toys for infant
+  twins '
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-infant-twins&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-infant-twins&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for infant twins can be tricky but rewarding. Twins need toys that promote learning and comfort at the same time.**

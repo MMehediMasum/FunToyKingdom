@@ -1,10 +1,14 @@
 ---
-title: "Giant Inflatable Santa Yard Toy: Ultimate Holiday Decoration Delight"
-description: "Imagine your yard transformed into the ultimate holiday wonderland that catches everyone’s eye the moment they walk by. With a Giant Inflatable Santa Yard Toy, "
+title: 'Giant Inflatable Santa Yard Toy: Ultimate Holiday Decoration Delight'
+description: 'Imagine your yard transformed into the ultimate holiday wonderland that
+  catches everyone’s eye the moment they walk by. With a Giant Inflatable Santa Yard
+  Toy, '
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-inflatable-santa-yard-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Unicorn Pool Float
+heroImage: https://tse1.mm.bing.net/th?q=giant-inflatable-santa-yard-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your yard transformed into the ultimate holiday wonderland that catches everyone’s eye the moment they walk by. With a Giant Inflatable Santa Yard Toy, you can create a festive atmosphere that brings joy to your family and neighbors alike.**

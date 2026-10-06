@@ -1,10 +1,13 @@
 ---
-title: "Diy Cardboard Toy Computer Keyboard: Creative Fun for Kids"
-description: "Imagine turning simple cardboard into a fun, hands-on toy computer keyboard that sparks creativity and learning. You don’t need fancy tools or expensive materia"
+title: 'Diy Cardboard Toy Computer Keyboard: Creative Fun for Kids'
+description: Imagine turning simple cardboard into a fun, hands-on toy computer keyboard
+  that sparks creativity and learning. You don’t need fancy tools or expensive materia
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-computer-keyboard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-computer-keyboard&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning simple cardboard into a fun, hands-on toy computer keyboard that sparks creativity and learning. You don’t need fancy tools or expensive materials—just a bit of imagination and some everyday items.**

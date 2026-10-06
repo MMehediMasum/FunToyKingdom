@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Excavator Sprinkler Kids Toy: Ultimate Summer Fun Guide"
-description: "Imagine your child’s eyes lighting up as they control their very own outdoor excavator sprinkler toy. This isn’t just any toy—it’s a fun way to keep your little"
+title: 'Outdoor Excavator Sprinkler Kids Toy: Ultimate Summer Fun Guide'
+description: Imagine your child’s eyes lighting up as they control their very own
+  outdoor excavator sprinkler toy. This isn’t just any toy—it’s a fun way to keep
+  your little
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-excavator-sprinkler-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-excavator-sprinkler-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they control their very own outdoor excavator sprinkler toy. This isn’t just any toy—it’s a fun way to keep your little one cool, active, and entertained for hours.**

@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Axe Throwing Toy Set: Ultimate Fun for All Ages"
-description: "Looking for a fun and safe way to bring excitement to your parties or family gatherings? The Inflatable Axe Throwing Toy Set might be exactly what you need. Ima"
+title: 'Inflatable Axe Throwing Toy Set: Ultimate Fun for All Ages'
+description: Looking for a fun and safe way to bring excitement to your parties or
+  family gatherings? The Inflatable Axe Throwing Toy Set might be exactly what you
+  need. Ima
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-axe-throwing-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-axe-throwing-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to bring excitement to your parties or family gatherings? The Inflatable Axe Throwing Toy Set might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Watch Jelly Watch: Colorful Sensory Fun for Kids and Adults"
-description: "The Toy Watch Jelly Watch offers a colorful and fun way to tell time. Its unique jelly-like design appeals to kids and adults alike. This watch combines style a"
+title: 'Toy Watch Jelly Watch: Colorful Sensory Fun for Kids and Adults'
+description: The Toy Watch Jelly Watch offers a colorful and fun way to tell time.
+  Its unique jelly-like design appeals to kids and adults alike. This watch combines
+  style a
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-watch-jelly-watch&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Fidget Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=toy-watch-jelly-watch&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **The Toy Watch Jelly Watch offers a colorful and fun way to tell time. Its unique jelly-like design appeals to kids and adults alike.**

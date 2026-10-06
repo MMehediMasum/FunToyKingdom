@@ -1,10 +1,14 @@
 ---
-title: "Limited Edition Toy Collectibles: Must-Have Rare Finds for Every Fan"
-description: "Discover the magic of limited edition toys that captivate collectors and delight children alike. These unique creations hold special appeal. Limited edition toy"
+title: 'Limited Edition Toy Collectibles: Must-Have Rare Finds for Every Fan'
+description: Discover the magic of limited edition toys that captivate collectors
+  and delight children alike. These unique creations hold special appeal. Limited
+  edition toy
 pubDate: 2025-10-11
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=limited-edition-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=limited-edition-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Discover the magic of limited edition toys that captivate collectors and delight children alike. These unique creations hold special appeal.**

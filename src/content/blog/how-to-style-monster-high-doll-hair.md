@@ -1,10 +1,14 @@
 ---
-title: "How to Style Monster High Doll Hair: Easy Tips for Stunning Looks"
-description: "Are you ready to give your Monster High dolls a fresh, eye-catching look? Styling their unique hair can be fun but also tricky if you don’t know the right trick"
+title: 'How to Style Monster High Doll Hair: Easy Tips for Stunning Looks'
+description: Are you ready to give your Monster High dolls a fresh, eye-catching look?
+  Styling their unique hair can be fun but also tricky if you don’t know the right
+  trick
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-style-monster-high-doll-hair&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=how-to-style-monster-high-doll-hair&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to give your Monster High dolls a fresh, eye-catching look? Styling their unique hair can be fun but also tricky if you don’t know the right tricks.**

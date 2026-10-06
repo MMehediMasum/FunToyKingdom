@@ -1,10 +1,13 @@
 ---
-title: "Best Cooperative Board Games for Families to Boost Fun and Teamwork"
-description: "Cooperative board games bring families together to solve challenges as a team. They encourage communication, teamwork, and fun for all ages. Playing cooperative"
+title: Best Cooperative Board Games for Families to Boost Fun and Teamwork
+description: Cooperative board games bring families together to solve challenges as
+  a team. They encourage communication, teamwork, and fun for all ages. Playing cooperative
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-cooperative-board-games-for-families-to-boost-fun-and-teamwork&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-cooperative-board-games-for-families-to-boost-fun-and-teamwork&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Cooperative board games bring families together to solve challenges as a team. They encourage communication, teamwork, and fun for all ages.**

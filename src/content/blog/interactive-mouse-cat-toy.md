@@ -1,10 +1,14 @@
 ---
-title: "Interactive Mouse Cat Toy: Top Automatic Moving Toys for Energetic Cats"
-description: "Interactive mouse cat toys provide fun and exercise for indoor cats. These toys move, squeak, and engage your pet’s natural hunting instincts. Cats need activit"
+title: 'Interactive Mouse Cat Toy: Top Automatic Moving Toys for Energetic Cats'
+description: Interactive mouse cat toys provide fun and exercise for indoor cats.
+  These toys move, squeak, and engage your pet’s natural hunting instincts. Cats need
+  activit
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-mouse-cat-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=interactive-mouse-cat-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Interactive mouse cat toys provide fun and exercise for indoor cats. These toys move, squeak, and engage your pet’s natural hunting instincts.**

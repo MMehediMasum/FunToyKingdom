@@ -1,10 +1,14 @@
 ---
-title: "Most Expensive Toy Figurines Ever Sold: Ultimate Collector's Treasures"
-description: "Have you ever wondered how much a simple toy figurine can be worth? Some of these tiny collectibles have sold for jaw-dropping amounts, turning childhood memori"
+title: 'Most Expensive Toy Figurines Ever Sold: Ultimate Collector''s Treasures'
+description: Have you ever wondered how much a simple toy figurine can be worth? Some
+  of these tiny collectibles have sold for jaw-dropping amounts, turning childhood
+  memori
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=most-expensive-toy-figurines-ever-sold&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=most-expensive-toy-figurines-ever-sold&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered how much a simple toy figurine can be worth? Some of these tiny collectibles have sold for jaw-dropping amounts, turning childhood memories into serious investments.**

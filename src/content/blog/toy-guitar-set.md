@@ -1,10 +1,14 @@
 ---
-title: "Toy Guitar Set: Ultimate Musical Play Bundle for Kids with Lights & Mic"
-description: "A toy guitar set brings music and fun together for young children. It helps kids explore sounds and develop creativity. Toy guitar sets come in many styles, fro"
+title: 'Toy Guitar Set: Ultimate Musical Play Bundle for Kids with Lights & Mic'
+description: A toy guitar set brings music and fun together for young children. It
+  helps kids explore sounds and develop creativity. Toy guitar sets come in many styles,
+  fro
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-guitar-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Drum Set For Age
+heroImage: https://tse1.mm.bing.net/th?q=toy-guitar-set&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **A toy guitar set brings music and fun together for young children. It helps kids explore sounds and develop creativity.**

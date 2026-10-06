@@ -1,10 +1,14 @@
 ---
-title: "Infant Airplane Toys: Top Picks for Sensory and Travel Fun"
-description: "Traveling with an infant can be challenging, especially on airplanes. Choosing the right toys can make the journey smoother. Infant airplane toys keep your baby"
+title: 'Infant Airplane Toys: Top Picks for Sensory and Travel Fun'
+description: Traveling with an infant can be challenging, especially on airplanes.
+  Choosing the right toys can make the journey smoother. Infant airplane toys keep
+  your baby
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-airplane-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=infant-airplane-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Traveling with an infant can be challenging, especially on airplanes. Choosing the right toys can make the journey smoother.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Play Clue Board Game: Master Mystery & Win Every Time"
-description: "Are you ready to become the ultimate detective and solve the mystery? Knowing how to play Clue board game can turn any gathering into an exciting challenge full"
+title: 'How to Play Clue Board Game: Master Mystery & Win Every Time'
+description: Are you ready to become the ultimate detective and solve the mystery?
+  Knowing how to play Clue board game can turn any gathering into an exciting challenge
+  full
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-play-clue-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=how-to-play-clue-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to become the ultimate detective and solve the mystery? Knowing how to play Clue board game can turn any gathering into an exciting challenge full of suspense and strategy.**

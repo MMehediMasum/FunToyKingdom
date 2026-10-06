@@ -1,10 +1,14 @@
 ---
-title: "How to Use Capsule Toy Machine: Ultimate Guide for Beginners"
-description: "Have you ever stood in front of a capsule toy machine, curious about how it works but unsure where to start? You’re not alone. These colorful machines hold a si"
+title: 'How to Use Capsule Toy Machine: Ultimate Guide for Beginners'
+description: Have you ever stood in front of a capsule toy machine, curious about
+  how it works but unsure where to start? You’re not alone. These colorful machines
+  hold a si
 pubDate: 2025-10-06
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-use-capsule-toy-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Capsule Toy Vending
+heroImage: https://tse1.mm.bing.net/th?q=how-to-use-capsule-toy-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever stood in front of a capsule toy machine, curious about how it works but unsure where to start? You’re not alone.**

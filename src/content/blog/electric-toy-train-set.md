@@ -1,10 +1,14 @@
 ---
-title: "Electric Toy Train Set: Ultimate Railway Playset for Kids’ Imaginative Fun"
-description: "Electric toy train sets bring joy and learning to children aged 3 to 8 years. These battery-powered trains offer lights, sounds, and smooth rides on colorful tr"
+title: 'Electric Toy Train Set: Ultimate Railway Playset for Kids’ Imaginative Fun'
+description: Electric toy train sets bring joy and learning to children aged 3 to
+  8 years. These battery-powered trains offer lights, sounds, and smooth rides on
+  colorful tr
 pubDate: 2026-08-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electric-toy-train-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=electric-toy-train-set&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Electric toy train sets bring joy and learning to children aged 3 to 8 years. These battery-powered trains offer lights, sounds, and smooth rides on colorful tracks.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Small Miniature Dogs: Top Stylish Clothes and Accessories for Your Pup"
 description: "Small miniature dogs make perfect pets for those with limited space. Their tiny size and big personalities charm many dog lovers. These little dogs fit well in "
 pubDate: 2026-02-26

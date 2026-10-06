@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Raoul Caroule Toy Review: Ultimate Diecast Collectible for Fans"
-description: "Raoul Caroule toys from Cars 2 delight fans of all ages. These collectible cars capture the movie's racing spirit. The Raoul Caroule toy collection offers a ran"
+title: 'Cars 2 Raoul Caroule Toy Review: Ultimate Diecast Collectible for Fans'
+description: Raoul Caroule toys from Cars 2 delight fans of all ages. These collectible
+  cars capture the movie's racing spirit. The Raoul Caroule toy collection offers
+  a ran
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-raoul-caroule-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-raoul-caroule-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Raoul Caroule toys from Cars 2 delight fans of all ages. These collectible cars capture the movie's racing spirit.**

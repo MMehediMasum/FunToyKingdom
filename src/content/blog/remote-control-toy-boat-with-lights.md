@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Toy Boat With Lights: Ultimate Fun on Water!"
-description: "Imagine holding the perfect remote control toy boat that lights up the water as it glides by. You want a fun, exciting way to enjoy your time outdoors or even i"
+title: 'Remote Control Toy Boat With Lights: Ultimate Fun on Water!'
+description: Imagine holding the perfect remote control toy boat that lights up the
+  water as it glides by. You want a fun, exciting way to enjoy your time outdoors
+  or even i
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-toy-boat-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-toy-boat-with-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine holding the perfect remote control toy boat that lights up the water as it glides by. You want a fun, exciting way to enjoy your time outdoors or even indoors, and this toy boat delivers just that.**

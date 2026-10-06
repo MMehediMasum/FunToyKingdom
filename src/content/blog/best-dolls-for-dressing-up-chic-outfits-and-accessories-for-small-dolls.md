@@ -1,10 +1,13 @@
 ---
-title: "Best Dolls for Dressing Up: Chic Outfits and Accessories for Small Dolls"
-description: "Dolls for dressing up bring endless fun and creativity to children. Choosing the best outfits and accessories helps make playtime special and engaging. Dressing"
+title: 'Best Dolls for Dressing Up: Chic Outfits and Accessories for Small Dolls'
+description: Dolls for dressing up bring endless fun and creativity to children. Choosing
+  the best outfits and accessories helps make playtime special and engaging. Dressing
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-dressing-up-chic-outfits-and-accessories-for-small-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-dressing-up-chic-outfits-and-accessories-for-small-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dolls for dressing up bring endless fun and creativity to children. Choosing the best outfits and accessories helps make playtime special and engaging.**

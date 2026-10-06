@@ -1,10 +1,14 @@
 ---
-title: "Toy Drum Set Electronic: Ultimate Guide to Fun & Learning"
-description: "Are you looking for a fun and exciting way to introduce music to your child? A toy drum set electronic is the perfect choice to spark their creativity and keep "
+title: 'Toy Drum Set Electronic: Ultimate Guide to Fun & Learning'
+description: 'Are you looking for a fun and exciting way to introduce music to your
+  child? A toy drum set electronic is the perfect choice to spark their creativity
+  and keep '
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-drum-set-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Drum Set For Age
+heroImage: https://tse1.mm.bing.net/th?q=toy-drum-set-electronic&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to introduce music to your child? A toy drum set electronic is the perfect choice to spark their creativity and keep them entertained for hours.**

@@ -1,10 +1,14 @@
 ---
-title: "American Girl Doll Hospital Repairs: Expert Tips to Restore Your Doll"
-description: "Have you ever noticed your American Girl doll looking a bit worn or damaged after years of play? Maybe her hair is tangled, her clothes are torn, or she has a l"
+title: 'American Girl Doll Hospital Repairs: Expert Tips to Restore Your Doll'
+description: Have you ever noticed your American Girl doll looking a bit worn or damaged
+  after years of play? Maybe her hair is tangled, her clothes are torn, or she has
+  a l
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=american-girl-doll-hospital-repairs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=american-girl-doll-hospital-repairs&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever noticed your American Girl doll looking a bit worn or damaged after years of play? Maybe her hair is tangled, her clothes are torn, or she has a loose limb.**

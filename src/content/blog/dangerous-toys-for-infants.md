@@ -1,10 +1,14 @@
 ---
-title: "Dangerous Toys for Infants: How to Choose Safe Montessori Teething Options"
-description: "Dangerous toys can pose serious risks to infants, potentially leading to injuries or choking hazards. Parents must be cautious and informed. Choosing safe toys "
+title: 'Dangerous Toys for Infants: How to Choose Safe Montessori Teething Options'
+description: 'Dangerous toys can pose serious risks to infants, potentially leading
+  to injuries or choking hazards. Parents must be cautious and informed. Choosing
+  safe toys '
 pubDate: 2026-01-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=dangerous-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=dangerous-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Dangerous toys can pose serious risks to infants, potentially leading to injuries or choking hazards. Parents must be cautious and informed.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for Newborn Babies: Top Picks for Early Development"
-description: "Choosing the best toys for your newborn baby can feel overwhelming. You want something safe, engaging, and perfect for those tiny hands and curious eyes. But ho"
+title: 'Best Toys for Newborn Babies: Top Picks for Early Development'
+description: Choosing the best toys for your newborn baby can feel overwhelming. You
+  want something safe, engaging, and perfect for those tiny hands and curious eyes.
+  But ho
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-newborn-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-newborn-babies&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for your newborn baby can feel overwhelming. You want something safe, engaging, and perfect for those tiny hands and curious eyes.**

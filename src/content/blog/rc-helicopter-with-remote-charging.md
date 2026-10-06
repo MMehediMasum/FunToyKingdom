@@ -1,10 +1,13 @@
 ---
-title: "Rc Helicopter With Remote Charging: Ultimate Convenience Unleashed"
-description: "Are you tired of your RC helicopter dying just when the fun starts? Imagine flying your helicopter longer without constantly stopping to recharge. An RC helicop"
+title: 'Rc Helicopter With Remote Charging: Ultimate Convenience Unleashed'
+description: Are you tired of your RC helicopter dying just when the fun starts? Imagine
+  flying your helicopter longer without constantly stopping to recharge. An RC helicop
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-helicopter-with-remote-charging&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-helicopter-with-remote-charging&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of your RC helicopter dying just when the fun starts? Imagine flying your helicopter longer without constantly stopping to recharge.**

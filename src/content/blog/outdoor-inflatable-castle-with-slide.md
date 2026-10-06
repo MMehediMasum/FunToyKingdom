@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Inflatable Castle With Slide: Ultimate Fun for Kids Outdoors"
-description: "Imagine turning your backyard into the ultimate fun zone where laughter never ends. An outdoor inflatable castle with slide is more than just a toy—it’s a gatew"
+title: 'Outdoor Inflatable Castle With Slide: Ultimate Fun for Kids Outdoors'
+description: Imagine turning your backyard into the ultimate fun zone where laughter
+  never ends. An outdoor inflatable castle with slide is more than just a toy—it’s
+  a gatew
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-inflatable-castle-with-slide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-inflatable-castle-with-slide&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where laughter never ends. An outdoor inflatable castle with slide is more than just a toy—it’s a gateway to endless excitement for your kids and their friends.**

@@ -1,10 +1,14 @@
 ---
-title: "Plush Animal Toys for Infants: Safe, Soft, and Irresistible Choices"
-description: "Are you looking for the perfect toy that will comfort your little one and spark their imagination? Plush animal toys for infants are more than just cuddly compa"
+title: 'Plush Animal Toys for Infants: Safe, Soft, and Irresistible Choices'
+description: Are you looking for the perfect toy that will comfort your little one
+  and spark their imagination? Plush animal toys for infants are more than just cuddly
+  compa
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=plush-animal-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=plush-animal-toys-for-infants&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect toy that will comfort your little one and spark their imagination? Plush animal toys for infants are more than just cuddly companions—they can help your baby feel safe, explore textures, and develop early skills.**

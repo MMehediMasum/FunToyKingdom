@@ -1,10 +1,14 @@
 ---
-title: "Go Games And Toys: Top Portable Magnetic Go Board Sets Reviewed"
-description: "Go games and toys offer timeless fun and mental challenge for players of all ages. These sets combine strategy, portability, and quality for great play anytime."
+title: 'Go Games And Toys: Top Portable Magnetic Go Board Sets Reviewed'
+description: Go games and toys offer timeless fun and mental challenge for players
+  of all ages. These sets combine strategy, portability, and quality for great play
+  anytime.
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=go-games-and-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys And Games Online
+heroImage: https://tse1.mm.bing.net/th?q=go-games-and-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Go games and toys offer timeless fun and mental challenge for players of all ages. These sets combine strategy, portability, and quality for great play anytime.**

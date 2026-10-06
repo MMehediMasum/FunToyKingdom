@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Plane Propeller Making: Easy Steps for Perfect Craftsmanship"
-description: "Have you ever wanted to create something special with your own hands? Making a wooden toy plane propeller is a fun and satisfying project you can enjoy right no"
+title: 'Wooden Toy Plane Propeller Making: Easy Steps for Perfect Craftsmanship'
+description: Have you ever wanted to create something special with your own hands?
+  Making a wooden toy plane propeller is a fun and satisfying project you can enjoy
+  right no
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-plane-propeller-making&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-plane-propeller-making&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Making a wooden toy plane propeller is a fun and satisfying project you can enjoy right now.**

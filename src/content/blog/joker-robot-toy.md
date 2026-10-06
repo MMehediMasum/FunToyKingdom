@@ -1,10 +1,14 @@
 ---
-title: "Joker Robot Toy: Ultimate DC Super Friends Action Figures for Kids"
-description: "The Joker robot toy brings fun and excitement to superhero playtime. It features lights, sounds, and poseable figures for hours of pretend play. These toys incl"
+title: 'Joker Robot Toy: Ultimate DC Super Friends Action Figures for Kids'
+description: The Joker robot toy brings fun and excitement to superhero playtime.
+  It features lights, sounds, and poseable figures for hours of pretend play. These
+  toys incl
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=joker-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=joker-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Joker robot toy brings fun and excitement to superhero playtime. It features lights, sounds, and poseable figures for hours of pretend play.**

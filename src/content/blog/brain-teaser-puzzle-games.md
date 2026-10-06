@@ -1,10 +1,14 @@
 ---
-title: "Brain Teaser Puzzle Games: Boost Your Mind with Fun Challenges"
-description: "Are you ready to challenge your mind and boost your brainpower? Brain teaser puzzle games are the perfect way to keep your thinking sharp and have fun at the sa"
+title: 'Brain Teaser Puzzle Games: Boost Your Mind with Fun Challenges'
+description: Are you ready to challenge your mind and boost your brainpower? Brain
+  teaser puzzle games are the perfect way to keep your thinking sharp and have fun
+  at the sa
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=brain-teaser-puzzle-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=brain-teaser-puzzle-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind and boost your brainpower? Brain teaser puzzle games are the perfect way to keep your thinking sharp and have fun at the same time.**

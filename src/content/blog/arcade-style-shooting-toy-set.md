@@ -1,10 +1,14 @@
 ---
-title: "Arcade Style Shooting Toy Set: Ultimate Fun for All Ages"
-description: "Are you ready to bring endless fun and excitement right into your home? The Arcade Style Shooting Toy Set is exactly what you need to turn any ordinary day into"
+title: 'Arcade Style Shooting Toy Set: Ultimate Fun for All Ages'
+description: Are you ready to bring endless fun and excitement right into your home?
+  The Arcade Style Shooting Toy Set is exactly what you need to turn any ordinary
+  day into
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=arcade-style-shooting-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=arcade-style-shooting-toy-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to bring endless fun and excitement right into your home? The Arcade Style Shooting Toy Set is exactly what you need to turn any ordinary day into a thrilling game.**

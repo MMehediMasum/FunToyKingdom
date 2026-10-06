@@ -1,10 +1,14 @@
 ---
-title: "Best Bath Toys for 5 Year Olds: Top Fun & Safe Picks for Playtime"
-description: "Finding the best bath toys for a 5-year-old can make bath time fun and exciting. The right toys keep kids entertained while they learn and play safely in water."
+title: 'Best Bath Toys for 5 Year Olds: Top Fun & Safe Picks for Playtime'
+description: Finding the best bath toys for a 5-year-old can make bath time fun and
+  exciting. The right toys keep kids entertained while they learn and play safely
+  in water.
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bath-toys-for-5-year-olds-top-fun-safe-picks-for-playtime&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=best-bath-toys-for-5-year-olds-top-fun-safe-picks-for-playtime&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best bath toys for a 5-year-old can make bath time fun and exciting. The right toys keep kids entertained while they learn and play safely in water.**

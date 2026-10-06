@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Globe: Easy Steps to Craft a Stunning Decor Piece"
-description: "Imagine having a beautiful wooden toy globe that you made with your own hands. It’s not just a decoration—it’s a fun, hands-on project that brings learning and "
+title: 'Diy Wooden Toy Globe: Easy Steps to Craft a Stunning Decor Piece'
+description: 'Imagine having a beautiful wooden toy globe that you made with your
+  own hands. It’s not just a decoration—it’s a fun, hands-on project that brings learning
+  and '
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-globe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-globe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine having a beautiful wooden toy globe that you made with your own hands. It’s not just a decoration—it’s a fun, hands-on project that brings learning and creativity together.**

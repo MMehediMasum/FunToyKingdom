@@ -1,10 +1,14 @@
 ---
-title: "Rc Car Compatible With Android: Ultimate Guide to Top Models 2025"
-description: "Are you ready to take your RC car experience to the next level? Imagine controlling your remote-controlled car right from your Android phone, with smooth steeri"
+title: 'Rc Car Compatible With Android: Ultimate Guide to Top Models 2025'
+description: Are you ready to take your RC car experience to the next level? Imagine
+  controlling your remote-controlled car right from your Android phone, with smooth
+  steeri
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-compatible-with-android&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-compatible-with-android&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car experience to the next level? Imagine controlling your remote-controlled car right from your Android phone, with smooth steering, easy controls, and exciting features at your fingertips.**

@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Water Gun Feature: Ultimate Summer Fun for Kids"
-description: "Imagine your child’s face lighting up with pure joy as they zoom around on their ride-on toy, but with a fun twist—it shoots water like a real water gun! You’re"
+title: 'Ride on Toy With Water Gun Feature: Ultimate Summer Fun for Kids'
+description: Imagine your child’s face lighting up with pure joy as they zoom around
+  on their ride-on toy, but with a fun twist—it shoots water like a real water gun!
+  You’re
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-water-gun-feature&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-water-gun-feature&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with pure joy as they zoom around on their ride-on toy, but with a fun twist—it shoots water like a real water gun! You’re about to discover how a ride-on toy with a water gun feature can turn ordinary playtime into an exciting adventure.**

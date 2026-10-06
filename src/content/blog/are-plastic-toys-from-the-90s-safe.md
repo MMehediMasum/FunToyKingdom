@@ -1,10 +1,14 @@
 ---
-title: "Are Plastic Toys from the 90S Safe: Shocking Truth Revealed!"
-description: "Do you still have those colorful plastic toys from the 90s tucked away in your attic or basement? Maybe you’re thinking about letting your kids play with them, "
+title: 'Are Plastic Toys from the 90S Safe: Shocking Truth Revealed!'
+description: 'Do you still have those colorful plastic toys from the 90s tucked away
+  in your attic or basement? Maybe you’re thinking about letting your kids play with
+  them, '
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-plastic-toys-from-the-90s-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Toy Development
+heroImage: https://tse1.mm.bing.net/th?q=are-plastic-toys-from-the-90s-safe&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Do you still have those colorful plastic toys from the 90s tucked away in your attic or basement? Maybe you’re thinking about letting your kids play with them, or you’re curious if they’re safe to keep around.**

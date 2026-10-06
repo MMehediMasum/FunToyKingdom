@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Telescope: Build a Fun and Educational Craft!"
-description: "Have you ever wanted to explore the stars right from your own backyard? Building a DIY wooden toy telescope is a fun and creative way to bring the wonders of th"
+title: 'Diy Wooden Toy Telescope: Build a Fun and Educational Craft!'
+description: Have you ever wanted to explore the stars right from your own backyard?
+  Building a DIY wooden toy telescope is a fun and creative way to bring the wonders
+  of th
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-telescope&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-telescope&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to explore the stars right from your own backyard? Building a DIY wooden toy telescope is a fun and creative way to bring the wonders of the night sky closer to you.**

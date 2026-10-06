@@ -1,10 +1,14 @@
 ---
-title: "Disney Pixar Cars Diecast Toys: Top Collectible Mini Racers for Kids"
-description: "Disney Pixar Cars diecast toys bring the magic of the movies to life for collectors and kids alike. These miniature replicas capture the excitement and charm of"
+title: 'Disney Pixar Cars Diecast Toys: Top Collectible Mini Racers for Kids'
+description: Disney Pixar Cars diecast toys bring the magic of the movies to life
+  for collectors and kids alike. These miniature replicas capture the excitement and
+  charm of
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-pixar-cars-diecast-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-pixar-cars-diecast-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Pixar Cars diecast toys bring the magic of the movies to life for collectors and kids alike. These miniature replicas capture the excitement and charm of beloved characters in a tangible way.**

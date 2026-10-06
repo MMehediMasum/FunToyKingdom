@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Gymnastic Mat Kids: Safe, Durable, and Fun Play Essentials"
-description: "Are you looking for a safe and fun way to help your kids stay active outdoors? An outdoor gymnastic mat for kids might be exactly what you need. It’s more than "
+title: 'Outdoor Gymnastic Mat Kids: Safe, Durable, and Fun Play Essentials'
+description: 'Are you looking for a safe and fun way to help your kids stay active
+  outdoors? An outdoor gymnastic mat for kids might be exactly what you need. It’s
+  more than '
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-gymnastic-mat-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-gymnastic-mat-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a safe and fun way to help your kids stay active outdoors? An outdoor gymnastic mat for kids might be exactly what you need.**

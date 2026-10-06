@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bug Catcher Kit for Kids: Ultimate Fun & Learning Guide"
-description: "Are you looking for a fun and educational way to get your kids outside and exploring nature? An Outdoor Bug Catcher Kit for Kids is the perfect tool to spark th"
+title: 'Outdoor Bug Catcher Kit for Kids: Ultimate Fun & Learning Guide'
+description: Are you looking for a fun and educational way to get your kids outside
+  and exploring nature? An Outdoor Bug Catcher Kit for Kids is the perfect tool to
+  spark th
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bug-catcher-kit-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bug-catcher-kit-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and educational way to get your kids outside and exploring nature? An Outdoor Bug Catcher Kit for Kids is the perfect tool to spark their curiosity and keep them entertained for hours.**

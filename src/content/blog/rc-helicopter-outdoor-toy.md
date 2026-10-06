@@ -1,10 +1,14 @@
 ---
-title: "Rc Helicopter Outdoor Toy: Ultimate Fun for Adventure Seekers"
-description: "Imagine the thrill of controlling your very own helicopter soaring high above the trees. An RC helicopter outdoor toy lets you experience that excitement firsth"
+title: 'Rc Helicopter Outdoor Toy: Ultimate Fun for Adventure Seekers'
+description: Imagine the thrill of controlling your very own helicopter soaring high
+  above the trees. An RC helicopter outdoor toy lets you experience that excitement
+  firsth
 pubDate: 2026-05-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-helicopter-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-helicopter-outdoor-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine the thrill of controlling your very own helicopter soaring high above the trees. An RC helicopter outdoor toy lets you experience that excitement firsthand.**

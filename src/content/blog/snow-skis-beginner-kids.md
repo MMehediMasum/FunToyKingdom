@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Snow Skis Beginner Kids: Top Tips for Fun & Safe Skiing"
 description: "Are you ready to help your child discover the joy of skiing? Choosing the right snow skis for beginner kids can be tricky, but it’s the first step to making the"
 pubDate: 2026-04-26

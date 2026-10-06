@@ -1,10 +1,14 @@
 ---
-title: "Street Hockey Stick And Ball Set: Ultimate Gear for Backyard Fun"
-description: "Are you ready to take your street hockey game to the next level? A Street Hockey Stick and Ball Set is exactly what you need to boost your skills and enjoy hour"
+title: 'Street Hockey Stick And Ball Set: Ultimate Gear for Backyard Fun'
+description: Are you ready to take your street hockey game to the next level? A Street
+  Hockey Stick and Ball Set is exactly what you need to boost your skills and enjoy
+  hour
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=street-hockey-stick-and-ball-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=street-hockey-stick-and-ball-set&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to take your street hockey game to the next level? A Street Hockey Stick and Ball Set is exactly what you need to boost your skills and enjoy hours of fast-paced fun.**

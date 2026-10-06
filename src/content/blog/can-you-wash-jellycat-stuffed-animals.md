@@ -1,10 +1,14 @@
 ---
-title: "Can You Wash Jellycat Stuffed Animals: Easy Care Tips Revealed"
-description: "Do you love your Jellycat stuffed animals but worry about keeping them clean? You’re not alone. These soft, cuddly friends are perfect for hugs, but what happen"
+title: 'Can You Wash Jellycat Stuffed Animals: Easy Care Tips Revealed'
+description: Do you love your Jellycat stuffed animals but worry about keeping them
+  clean? You’re not alone. These soft, cuddly friends are perfect for hugs, but what
+  happen
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-wash-jellycat-stuffed-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=can-you-wash-jellycat-stuffed-animals&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Do you love your Jellycat stuffed animals but worry about keeping them clean? You’re not alone.**

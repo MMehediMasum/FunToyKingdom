@@ -1,10 +1,14 @@
 ---
-title: "Rare Retired American Girl Dolls: Collectors’ Ultimate Treasure Guide"
-description: "Have you ever wondered what makes certain American Girl dolls so special that collectors search high and low for them? Rare retired American Girl dolls hold a u"
+title: 'Rare Retired American Girl Dolls: Collectors’ Ultimate Treasure Guide'
+description: Have you ever wondered what makes certain American Girl dolls so special
+  that collectors search high and low for them? Rare retired American Girl dolls hold
+  a u
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-retired-american-girl-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=rare-retired-american-girl-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered what makes certain American Girl dolls so special that collectors search high and low for them? Rare retired American Girl dolls hold a unique charm and value that goes beyond just being toys.**

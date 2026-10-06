@@ -1,10 +1,13 @@
 ---
-title: "Fractions Learning Toy Blocks: Boost Math Skills Fast & Fun"
-description: "Are you looking for a fun and effective way to help your child understand fractions? Fractions Learning Toy Blocks could be the perfect solution. These colorful"
+title: 'Fractions Learning Toy Blocks: Boost Math Skills Fast & Fun'
+description: Are you looking for a fun and effective way to help your child understand
+  fractions? Fractions Learning Toy Blocks could be the perfect solution. These colorful
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=fractions-learning-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=fractions-learning-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and effective way to help your child understand fractions? Fractions Learning Toy Blocks could be the perfect solution.**

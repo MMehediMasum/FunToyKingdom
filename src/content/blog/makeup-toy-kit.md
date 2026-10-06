@@ -1,10 +1,14 @@
 ---
-title: "Makeup Toy Kit: Perfect Pretend Play Set for Little Girls’ Fun"
-description: "A makeup toy kit offers fun and creative play for young children. It helps develop imagination and fine motor skills through pretend beauty activities. These ki"
+title: 'Makeup Toy Kit: Perfect Pretend Play Set for Little Girls’ Fun'
+description: A makeup toy kit offers fun and creative play for young children. It
+  helps develop imagination and fine motor skills through pretend beauty activities.
+  These ki
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=makeup-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=makeup-toy-kit&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A makeup toy kit offers fun and creative play for young children. It helps develop imagination and fine motor skills through pretend beauty activities.**

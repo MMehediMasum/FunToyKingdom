@@ -1,10 +1,13 @@
 ---
-title: "Preschool Toy Deals Cyber Monday: Top Montessori & STEM Picks for Toddlers"
-description: "Cyber Monday brings great deals on preschool toys for toddlers and young children. Find discounts on educational, fun, and safe toys for ages 2 to 7. Preschool "
+title: 'Preschool Toy Deals Cyber Monday: Top Montessori & STEM Picks for Toddlers'
+description: 'Cyber Monday brings great deals on preschool toys for toddlers and young
+  children. Find discounts on educational, fun, and safe toys for ages 2 to 7. Preschool '
 pubDate: 2026-01-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=preschool-toy-deals-cyber-monday&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Preschool Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=preschool-toy-deals-cyber-monday&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Cyber Monday brings great deals on preschool toys for toddlers and young children. Find discounts on educational, fun, and safe toys for ages 2 to 7.**

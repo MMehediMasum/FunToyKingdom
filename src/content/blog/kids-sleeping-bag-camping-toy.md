@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Sleeping Bag Camping Toy: Ultimate Fun for Outdoor Adventures"
 description: "Are you looking for the perfect way to make your child’s camping experience unforgettable? A kids sleeping bag camping toy could be just what you need. It’s not"
 pubDate: 2026-04-07

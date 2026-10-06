@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for 10 Year Olds: Top Realistic and Playful Doll Sets"
-description: "Choosing the best dolls for 10 year olds can be fun yet tricky. Dolls should inspire creativity, suit interests, and be safe to play with. At age 10, children e"
+title: 'Best Dolls for 10 Year Olds: Top Realistic and Playful Doll Sets'
+description: Choosing the best dolls for 10 year olds can be fun yet tricky. Dolls
+  should inspire creativity, suit interests, and be safe to play with. At age 10,
+  children e
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-10-year-olds-top-realistic-and-playful-doll-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-10-year-olds-top-realistic-and-playful-doll-sets&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for 10 year olds can be fun yet tricky. Dolls should inspire creativity, suit interests, and be safe to play with.**

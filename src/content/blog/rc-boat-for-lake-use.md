@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat for Lake Use: Top Picks for Ultimate Water Fun"
-description: "Looking for the perfect RC boat to enjoy on your favorite lake? You want something easy to control, fast enough for fun, and durable enough to handle the water."
+title: 'Rc Boat for Lake Use: Top Picks for Ultimate Water Fun'
+description: Looking for the perfect RC boat to enjoy on your favorite lake? You want
+  something easy to control, fast enough for fun, and durable enough to handle the
+  water.
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-for-lake-use&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-for-lake-use&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the perfect RC boat to enjoy on your favorite lake? You want something easy to control, fast enough for fun, and durable enough to handle the water.**

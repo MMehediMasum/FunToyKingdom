@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Poodle Grooming Kit: Essential Tools for Perfect Pet Care"
 description: "A Toy Poodle grooming kit keeps your pet clean, neat, and comfortable. It includes tools for trimming, brushing, and ear cleaning. Caring for a Toy Poodle’s coa"
 pubDate: 2026-02-06

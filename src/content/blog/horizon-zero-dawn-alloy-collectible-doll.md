@@ -1,10 +1,14 @@
 ---
-title: "Horizon Zero Dawn Alloy Collectible Doll: Ultimate Fan Treasure"
-description: "If you’re a fan of Horizon Zero Dawn, you already know how captivating Alloy’s character is. Imagine having a collectible doll that brings her to life right on "
+title: 'Horizon Zero Dawn Alloy Collectible Doll: Ultimate Fan Treasure'
+description: 'If you’re a fan of Horizon Zero Dawn, you already know how captivating
+  Alloy’s character is. Imagine having a collectible doll that brings her to life
+  right on '
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=horizon-zero-dawn-alloy-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=horizon-zero-dawn-alloy-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Horizon Zero Dawn, you already know how captivating Alloy’s character is. Imagine having a collectible doll that brings her to life right on your shelf.**

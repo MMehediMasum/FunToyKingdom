@@ -1,10 +1,14 @@
 ---
-title: "Rc Truck for Competition Level: Ultimate Guide to Winning Races"
-description: "Are you ready to take your RC truck skills to the next level? Whether you're aiming to win races or dominate tough off-road challenges, having the right RC truc"
+title: 'Rc Truck for Competition Level: Ultimate Guide to Winning Races'
+description: Are you ready to take your RC truck skills to the next level? Whether
+  you're aiming to win races or dominate tough off-road challenges, having the right
+  RC truc
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-truck-for-competition-level&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-truck-for-competition-level&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC truck skills to the next level? Whether you're aiming to win races or dominate tough off-road challenges, having the right RC truck for competition level can make all the difference.**

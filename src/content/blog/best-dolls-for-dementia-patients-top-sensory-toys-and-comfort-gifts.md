@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for Dementia Patients: Top Sensory Toys and Comfort Gifts"
-description: "Finding the best dolls for dementia patients can bring comfort and joy to their daily lives. These specially designed dolls help reduce anxiety and improve emot"
+title: 'Best Dolls for Dementia Patients: Top Sensory Toys and Comfort Gifts'
+description: Finding the best dolls for dementia patients can bring comfort and joy
+  to their daily lives. These specially designed dolls help reduce anxiety and improve
+  emot
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-dementia-patients-top-sensory-toys-and-comfort-gifts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-dementia-patients-top-sensory-toys-and-comfort-gifts&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best dolls for dementia patients can bring comfort and joy to their daily lives. These specially designed dolls help reduce anxiety and improve emotional well-being.**

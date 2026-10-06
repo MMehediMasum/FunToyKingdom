@@ -1,10 +1,13 @@
 ---
-title: "Do It Yourself Toy Storage: Creative Ideas to Declutter Fast"
-description: "Are your toys scattered all over the floor, making your space feel cluttered and chaotic? Imagine having a simple, stylish storage solution that keeps everythin"
+title: 'Do It Yourself Toy Storage: Creative Ideas to Declutter Fast'
+description: Are your toys scattered all over the floor, making your space feel cluttered
+  and chaotic? Imagine having a simple, stylish storage solution that keeps everythin
 pubDate: 2025-09-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-it-yourself-toy-storage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=do-it-yourself-toy-storage&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are your toys scattered all over the floor, making your space feel cluttered and chaotic? Imagine having a simple, stylish storage solution that keeps everything neat and easy to find.**

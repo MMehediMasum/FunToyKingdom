@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Toy Princess Crown: Easy & Creative DIY Guide"
-description: "Have you ever wanted to create a magical toy princess crown that feels just right for your little one? Making your own crown is easier than you think, and it ad"
+title: 'How to Make a Toy Princess Crown: Easy & Creative DIY Guide'
+description: Have you ever wanted to create a magical toy princess crown that feels
+  just right for your little one? Making your own crown is easier than you think,
+  and it ad
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-princess-crown&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-princess-crown&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a magical toy princess crown that feels just right for your little one? Making your own crown is easier than you think, and it adds a special touch that store-bought crowns can’t match.**

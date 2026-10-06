@@ -1,10 +1,14 @@
 ---
-title: "Best Motion Activated Dog Toys for Engaging and Durable Playtime Fun"
-description: "Motion activated dog toys keep pets active and entertained without constant owner involvement. These toys react to your dog's movements, encouraging play and ex"
+title: Best Motion Activated Dog Toys for Engaging and Durable Playtime Fun
+description: Motion activated dog toys keep pets active and entertained without constant
+  owner involvement. These toys react to your dog's movements, encouraging play and
+  ex
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-motion-activated-dog-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy Ball Thrower
+heroImage: https://tse1.mm.bing.net/th?q=best-motion-activated-dog-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Motion activated dog toys keep pets active and entertained without constant owner involvement. These toys react to your dog's movements, encouraging play and exercise.**

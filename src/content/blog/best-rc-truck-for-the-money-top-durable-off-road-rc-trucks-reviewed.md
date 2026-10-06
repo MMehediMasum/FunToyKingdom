@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Truck for the Money: Top Durable Off-Road RC Trucks Reviewed"
-description: "Finding the best RC truck for the money means balancing quality, speed, and durability. This guide highlights top models that offer great features at a fair pri"
+title: 'Best Rc Truck for the Money: Top Durable Off-Road RC Trucks Reviewed'
+description: Finding the best RC truck for the money means balancing quality, speed,
+  and durability. This guide highlights top models that offer great features at a
+  fair pri
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-truck-for-the-money-top-durable-off-road-rc-trucks-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Bashing Top
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-truck-for-the-money-top-durable-off-road-rc-trucks-reviewed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best RC truck for the money means balancing quality, speed, and durability. This guide highlights top models that offer great features at a fair price.**

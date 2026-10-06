@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Poodle Miniature Figurines: Perfect Realistic Dog Toys for Kids"
 description: "Toy Poodle Miniature figurines and toys capture the charm of this small, lively dog breed. These realistic and cute models delight children and collectors alike"
 pubDate: 2025-10-16

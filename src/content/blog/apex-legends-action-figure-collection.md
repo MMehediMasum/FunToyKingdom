@@ -1,10 +1,14 @@
 ---
-title: "Apex Legends Action Figure Collection: Ultimate Must-Have Set"
-description: "Are you a fan of Apex Legends and love collecting cool action figures? Then you’re in the right place. Imagine holding your favorite legends right in your hands"
+title: 'Apex Legends Action Figure Collection: Ultimate Must-Have Set'
+description: Are you a fan of Apex Legends and love collecting cool action figures?
+  Then you’re in the right place. Imagine holding your favorite legends right in your
+  hands
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=apex-legends-action-figure-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=apex-legends-action-figure-collection&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Apex Legends and love collecting cool action figures? Then you’re in the right place.**

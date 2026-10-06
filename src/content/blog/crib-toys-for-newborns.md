@@ -1,10 +1,14 @@
 ---
-title: "Crib Toys for Newborns: Best Picks to Boost Baby’s Development"
-description: "When it comes to your newborn’s crib, choosing the right toys can make a big difference. You want something safe, engaging, and soothing that keeps your little "
+title: 'Crib Toys for Newborns: Best Picks to Boost Baby’s Development'
+description: 'When it comes to your newborn’s crib, choosing the right toys can make
+  a big difference. You want something safe, engaging, and soothing that keeps your
+  little '
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=crib-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=crib-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **When it comes to your newborn’s crib, choosing the right toys can make a big difference. You want something safe, engaging, and soothing that keeps your little one happy and helps their development.**

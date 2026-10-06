@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toys for Puppies: Durable, Interactive Chew Toys for Small Dogs"
-description: "Dog rope toys offer puppies a fun and safe way to chew, play, and stay active. These toys help ease teething pain and keep puppies entertained. Choosing the rig"
+title: 'Dog Rope Toys for Puppies: Durable, Interactive Chew Toys for Small Dogs'
+description: Dog rope toys offer puppies a fun and safe way to chew, play, and stay
+  active. These toys help ease teething pain and keep puppies entertained. Choosing
+  the rig
 pubDate: 2025-10-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toys-for-puppies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toys-for-puppies&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toys offer puppies a fun and safe way to chew, play, and stay active. These toys help ease teething pain and keep puppies entertained.**

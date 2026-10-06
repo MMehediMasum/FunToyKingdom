@@ -1,10 +1,14 @@
 ---
-title: "Remote Toy Car With Camera: Top High-Speed RC Cars for Kids"
-description: "Remote toy cars with cameras offer fun and excitement for kids and adults alike. They combine fast racing with real-time video for a unique experience. These re"
+title: 'Remote Toy Car With Camera: Top High-Speed RC Cars for Kids'
+description: Remote toy cars with cameras offer fun and excitement for kids and adults
+  alike. They combine fast racing with real-time video for a unique experience. These
+  re
 pubDate: 2026-01-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-toy-car-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=remote-toy-car-with-camera&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Remote toy cars with cameras offer fun and excitement for kids and adults alike. They combine fast racing with real-time video for a unique experience.**

@@ -1,10 +1,13 @@
 ---
-title: "Cinderella Disney Collectible Doll: Ultimate Guide for Magic Fans"
-description: "Are you a fan of timeless fairy tales and beautiful keepsakes? The Cinderella Disney Collectible Doll is more than just a toy—it’s a piece of magic you can hold"
+title: 'Cinderella Disney Collectible Doll: Ultimate Guide for Magic Fans'
+description: Are you a fan of timeless fairy tales and beautiful keepsakes? The Cinderella
+  Disney Collectible Doll is more than just a toy—it’s a piece of magic you can hold
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=cinderella-disney-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=cinderella-disney-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of timeless fairy tales and beautiful keepsakes? The Cinderella Disney Collectible Doll is more than just a toy—it’s a piece of magic you can hold in your hands.**

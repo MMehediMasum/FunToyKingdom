@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Surf Trainer Balance Board: Master Waves with Confidence"
 description: "Are you ready to take your surfing skills to the next level without even hitting the waves? The Outdoor Surf Trainer Balance Board is your secret weapon for bui"
 pubDate: 2026-04-05

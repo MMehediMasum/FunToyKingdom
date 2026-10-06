@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Bo Peep Doll Value: Discover Its Surprising Worth Today"
-description: "Are you curious about how much your Toy Story Bo Peep doll could be worth? Whether you found it in your attic or just bought one at a garage sale, knowing its v"
+title: 'Toy Story Bo Peep Doll Value: Discover Its Surprising Worth Today'
+description: Are you curious about how much your Toy Story Bo Peep doll could be worth?
+  Whether you found it in your attic or just bought one at a garage sale, knowing
+  its v
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-bo-peep-doll-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-bo-peep-doll-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about how much your Toy Story Bo Peep doll could be worth? Whether you found it in your attic or just bought one at a garage sale, knowing its value can be exciting—and maybe even surprising.**

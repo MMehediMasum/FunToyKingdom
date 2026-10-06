@@ -1,10 +1,14 @@
 ---
-title: "Robot Toys for 7 Year Old: Top Fun & Educational Picks 2025"
-description: "Are you looking for the perfect robot toy for your 7-year-old? Choosing the right one can be tricky with so many options out there. You want a toy that’s fun, s"
+title: 'Robot Toys for 7 Year Old: Top Fun & Educational Picks 2025'
+description: Are you looking for the perfect robot toy for your 7-year-old? Choosing
+  the right one can be tricky with so many options out there. You want a toy that’s
+  fun, s
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-toys-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=robot-toys-for-7-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect robot toy for your 7-year-old? Choosing the right one can be tricky with so many options out there.**

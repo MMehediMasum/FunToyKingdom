@@ -1,10 +1,14 @@
 ---
-title: "Toyota Celica Toy Car: Top Collectible Models for Enthusiasts and Kids"
-description: "The Toyota Celica toy car is a popular model among collectors and kids. It captures the style and spirit of the real Toyota Celica in a small, fun size. This to"
+title: 'Toyota Celica Toy Car: Top Collectible Models for Enthusiasts and Kids'
+description: The Toyota Celica toy car is a popular model among collectors and kids.
+  It captures the style and spirit of the real Toyota Celica in a small, fun size.
+  This to
 pubDate: 2026-02-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyota-celica-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toyota-celica-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **The Toyota Celica toy car is a popular model among collectors and kids. It captures the style and spirit of the real Toyota Celica in a small, fun size.**

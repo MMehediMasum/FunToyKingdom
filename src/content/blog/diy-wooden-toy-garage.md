@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Garage: Easy Steps for a Fun Kids’ Playset"
-description: "Are you looking for a fun and creative project that brings joy to your kids and adds charm to your home? Building a DIY wooden toy garage is the perfect way to "
+title: 'Diy Wooden Toy Garage: Easy Steps for a Fun Kids’ Playset'
+description: 'Are you looking for a fun and creative project that brings joy to your
+  kids and adds charm to your home? Building a DIY wooden toy garage is the perfect
+  way to '
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-garage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-garage&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to your kids and adds charm to your home? Building a DIY wooden toy garage is the perfect way to do just that.**

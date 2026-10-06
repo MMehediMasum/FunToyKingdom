@@ -1,10 +1,14 @@
 ---
-title: "Toy Gardening Set: Top Kid-Friendly Tools for Outdoor Fun and Learning"
-description: "A toy gardening set introduces children to nature and outdoor play. It offers safe, child-sized tools for hands-on learning and fun. These sets include tools li"
+title: 'Toy Gardening Set: Top Kid-Friendly Tools for Outdoor Fun and Learning'
+description: A toy gardening set introduces children to nature and outdoor play. It
+  offers safe, child-sized tools for hands-on learning and fun. These sets include
+  tools li
 pubDate: 2026-08-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-gardening-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-gardening-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **A toy gardening set introduces children to nature and outdoor play. It offers safe, child-sized tools for hands-on learning and fun.**

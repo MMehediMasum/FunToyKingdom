@@ -1,10 +1,14 @@
 ---
-title: "Rc Crawler Truck for Beginners: Ultimate Starter Guide 2025"
-description: "Are you ready to dive into the exciting world of RC crawler trucks but don’t know where to start? You’re in the right place. This guide is made just for you—whe"
+title: 'Rc Crawler Truck for Beginners: Ultimate Starter Guide 2025'
+description: Are you ready to dive into the exciting world of RC crawler trucks but
+  don’t know where to start? You’re in the right place. This guide is made just for
+  you—whe
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-crawler-truck-for-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Truck For Backyard Racing
+heroImage: https://tse1.mm.bing.net/th?q=rc-crawler-truck-for-beginners&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to dive into the exciting world of RC crawler trucks but don’t know where to start? You’re in the right place.**

@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Find Cheap Toys: Top Deals & Best Places Revealed"
-description: "Are you looking to find cheap toys without breaking the bank? You’re not alone. Toys can be pricey, but that doesn’t mean you have to settle for less or spend a"
+title: 'Where Can I Find Cheap Toys: Top Deals & Best Places Revealed'
+description: Are you looking to find cheap toys without breaking the bank? You’re
+  not alone. Toys can be pricey, but that doesn’t mean you have to settle for less
+  or spend a
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-find-cheap-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-find-cheap-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking to find cheap toys without breaking the bank? You’re not alone.**

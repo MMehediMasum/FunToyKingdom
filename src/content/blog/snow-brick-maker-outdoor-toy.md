@@ -1,10 +1,14 @@
 ---
-title: "Snow Brick Maker Outdoor Toy: Build Epic Snow Forts Fast!"
-description: "Imagine turning your snowy backyard into a fun building site where you and your kids can create amazing snow structures with ease. The Snow Brick Maker Outdoor "
+title: 'Snow Brick Maker Outdoor Toy: Build Epic Snow Forts Fast!'
+description: 'Imagine turning your snowy backyard into a fun building site where you
+  and your kids can create amazing snow structures with ease. The Snow Brick Maker
+  Outdoor '
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=snow-brick-maker-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=snow-brick-maker-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your snowy backyard into a fun building site where you and your kids can create amazing snow structures with ease. The Snow Brick Maker Outdoor Toy lets you do just that.**

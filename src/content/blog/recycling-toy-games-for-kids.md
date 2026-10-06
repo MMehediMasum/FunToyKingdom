@@ -1,10 +1,14 @@
 ---
-title: "Recycling Toy Games for Kids: Fun Eco-Friendly Activities"
-description: "Are you looking for fun ways to keep your kids entertained while teaching them something valuable? Recycling toy games for kids are a fantastic way to do just t"
+title: 'Recycling Toy Games for Kids: Fun Eco-Friendly Activities'
+description: Are you looking for fun ways to keep your kids entertained while teaching
+  them something valuable? Recycling toy games for kids are a fantastic way to do
+  just t
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=recycling-toy-games-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=recycling-toy-games-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for fun ways to keep your kids entertained while teaching them something valuable? Recycling toy games for kids are a fantastic way to do just that.**

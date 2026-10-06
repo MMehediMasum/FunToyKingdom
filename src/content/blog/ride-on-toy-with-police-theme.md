@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Police Theme: Exciting Fun for Kids!"
-description: "Imagine your child zooming around the house or yard, feeling like a real hero in their very own police car. A ride on toy with a police theme isn’t just a fun t"
+title: 'Ride on Toy With Police Theme: Exciting Fun for Kids!'
+description: Imagine your child zooming around the house or yard, feeling like a real
+  hero in their very own police car. A ride on toy with a police theme isn’t just
+  a fun t
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-police-theme&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy With Police
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-police-theme&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child zooming around the house or yard, feeling like a real hero in their very own police car. A ride on toy with a police theme isn’t just a fun toy—it sparks imagination, builds confidence, and encourages active play.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Repair Broken Doll Joints: Easy Steps for Perfect Fixes"
-description: "Have you ever picked up your favorite doll only to find its joints broken or loose? It’s frustrating to see something you care about damaged, but the good news "
+title: 'How to Repair Broken Doll Joints: Easy Steps for Perfect Fixes'
+description: 'Have you ever picked up your favorite doll only to find its joints broken
+  or loose? It’s frustrating to see something you care about damaged, but the good
+  news '
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repair-broken-doll-joints&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repair-broken-doll-joints&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever picked up your favorite doll only to find its joints broken or loose? It’s frustrating to see something you care about damaged, but the good news is—you don’t have to toss it away.**

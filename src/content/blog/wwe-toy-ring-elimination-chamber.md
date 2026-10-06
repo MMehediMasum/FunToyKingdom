@@ -1,10 +1,13 @@
 ---
-title: "Wwe Toy Ring Elimination Chamber: Ultimate Mini Wrestling Action Set"
-description: "The WWE Toy Ring Elimination Chamber brings exciting wrestling action to kids’ playtime. This set features miniature wrestlers, rings, and realistic accessories"
+title: 'Wwe Toy Ring Elimination Chamber: Ultimate Mini Wrestling Action Set'
+description: The WWE Toy Ring Elimination Chamber brings exciting wrestling action
+  to kids’ playtime. This set features miniature wrestlers, rings, and realistic accessories
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wwe-toy-ring-elimination-chamber&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=wwe-toy-ring-elimination-chamber&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The WWE Toy Ring Elimination Chamber brings exciting wrestling action to kids’ playtime. This set features miniature wrestlers, rings, and realistic accessories for endless fun.**

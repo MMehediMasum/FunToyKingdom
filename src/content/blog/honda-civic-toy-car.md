@@ -1,10 +1,14 @@
 ---
-title: "Honda Civic Toy Car: Realistic Diecast Models with Lights and Sound"
-description: "The Honda Civic toy car offers detailed designs and fun features for all ages. These miniature models capture the look and feel of real Honda Civic cars. Toy co"
+title: 'Honda Civic Toy Car: Realistic Diecast Models with Lights and Sound'
+description: The Honda Civic toy car offers detailed designs and fun features for
+  all ages. These miniature models capture the look and feel of real Honda Civic cars.
+  Toy co
 pubDate: 2026-01-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=honda-civic-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=honda-civic-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **The Honda Civic toy car offers detailed designs and fun features for all ages. These miniature models capture the look and feel of real Honda Civic cars.**

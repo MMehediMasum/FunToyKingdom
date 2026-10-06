@@ -1,10 +1,14 @@
 ---
-title: "Casa De Markitos Toys: Montessori Learning & Sorting Fun for Kids"
-description: "Casa De Markitos Toys offers fun and educational toys for young children. Their Learning Resources All About Me Sorting Houses set helps kids learn while playin"
+title: 'Casa De Markitos Toys: Montessori Learning & Sorting Fun for Kids'
+description: Casa De Markitos Toys offers fun and educational toys for young children.
+  Their Learning Resources All About Me Sorting Houses set helps kids learn while
+  playin
 pubDate: 2026-09-05
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=casa-de-markitos-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=casa-de-markitos-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Casa De Markitos Toys offers fun and educational toys for young children. Their Learning Resources All About Me Sorting Houses set helps kids learn while playing.**

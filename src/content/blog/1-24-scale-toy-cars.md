@@ -1,10 +1,14 @@
 ---
-title: "1 24 Scale Toy Cars: Top Diecast Models with Lights and Sounds"
-description: "1:24 scale toy cars offer a perfect blend of detail and size for collectors and kids. These models capture real cars in a smaller, easy-to-display form. The 1:2"
+title: '1 24 Scale Toy Cars: Top Diecast Models with Lights and Sounds'
+description: 1:24 scale toy cars offer a perfect blend of detail and size for collectors
+  and kids. These models capture real cars in a smaller, easy-to-display form. The
+  1:2
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1-24-scale-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=1-24-scale-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **1:24 scale toy cars offer a perfect blend of detail and size for collectors and kids. These models capture real cars in a smaller, easy-to-display form.**

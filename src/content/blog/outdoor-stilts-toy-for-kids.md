@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Stilts Toy for Kids: Exciting Fun and Skill-Building Play"
-description: "Have you ever seen kids walking tall on stilts and wondered how fun it must be to try? An outdoor stilts toy for kids is more than just a plaything—it’s a way t"
+title: 'Outdoor Stilts Toy for Kids: Exciting Fun and Skill-Building Play'
+description: Have you ever seen kids walking tall on stilts and wondered how fun it
+  must be to try? An outdoor stilts toy for kids is more than just a plaything—it’s
+  a way t
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-stilts-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-stilts-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever seen kids walking tall on stilts and wondered how fun it must be to try? An outdoor stilts toy for kids is more than just a plaything—it’s a way to boost balance, build confidence, and spark endless laughter.**

@@ -1,10 +1,14 @@
 ---
-title: "Plastic Toy Soldier History And Value: Uncover Timeless Collectible Secrets"
-description: "Have you ever wondered where those small plastic toy soldiers in your collection came from? These tiny figures are more than just playthings—they carry a rich h"
+title: 'Plastic Toy Soldier History And Value: Uncover Timeless Collectible Secrets'
+description: Have you ever wondered where those small plastic toy soldiers in your
+  collection came from? These tiny figures are more than just playthings—they carry
+  a rich h
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=plastic-toy-soldier-history-and-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=plastic-toy-soldier-history-and-value&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered where those small plastic toy soldiers in your collection came from? These tiny figures are more than just playthings—they carry a rich history and surprising value.**

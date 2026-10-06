@@ -1,10 +1,14 @@
 ---
-title: "How Do You Clean Battery Terminals on Toys: Easy Steps for Spark-Free Fixes"
-description: "Are your child’s favorite toys acting up or not turning on? The problem might be simpler than you think—dirty battery terminals. When corrosion or grime builds "
+title: 'How Do You Clean Battery Terminals on Toys: Easy Steps for Spark-Free Fixes'
+description: 'Are your child’s favorite toys acting up or not turning on? The problem
+  might be simpler than you think—dirty battery terminals. When corrosion or grime
+  builds '
 pubDate: 2025-09-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-clean-battery-terminals-on-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-clean-battery-terminals-on-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are your child’s favorite toys acting up or not turning on? The problem might be simpler than you think—dirty battery terminals.**

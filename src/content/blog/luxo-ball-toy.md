@@ -1,10 +1,14 @@
 ---
-title: "Luxo Ball Toy: Ultimate Disney Pixar Collectible and Desk Decor Guide"
-description: "The Luxo Ball Toy brings joy to Disney Pixar fans of all ages. It combines classic design with playful fun. This toy features the iconic Luxo Ball seen in many "
+title: 'Luxo Ball Toy: Ultimate Disney Pixar Collectible and Desk Decor Guide'
+description: 'The Luxo Ball Toy brings joy to Disney Pixar fans of all ages. It combines
+  classic design with playful fun. This toy features the iconic Luxo Ball seen in
+  many '
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=luxo-ball-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=luxo-ball-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **The Luxo Ball Toy brings joy to Disney Pixar fans of all ages. It combines classic design with playful fun.**

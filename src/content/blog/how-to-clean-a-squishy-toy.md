@@ -1,10 +1,14 @@
 ---
-title: "How to Clean a Squishy Toy: Easy Steps for a Fresh, Soft Toy"
-description: "Do you love your squishy toys but worry about how dirty they might get? Keeping your squishy clean is easier than you think, and it makes your favorite stress-r"
+title: 'How to Clean a Squishy Toy: Easy Steps for a Fresh, Soft Toy'
+description: Do you love your squishy toys but worry about how dirty they might get?
+  Keeping your squishy clean is easier than you think, and it makes your favorite
+  stress-r
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-a-squishy-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-a-squishy-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Do you love your squishy toys but worry about how dirty they might get? Keeping your squishy clean is easier than you think, and it makes your favorite stress-reliever last longer.**

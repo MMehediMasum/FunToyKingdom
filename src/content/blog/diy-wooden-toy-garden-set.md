@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Garden Set: Creative Fun for Kids Outdoors"
-description: "Imagine giving your child a toy that sparks creativity, encourages outdoor play, and lasts for years. A DIY Wooden Toy Garden Set does just that. It’s simple, s"
+title: 'Diy Wooden Toy Garden Set: Creative Fun for Kids Outdoors'
+description: Imagine giving your child a toy that sparks creativity, encourages outdoor
+  play, and lasts for years. A DIY Wooden Toy Garden Set does just that. It’s simple,
+  s
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-garden-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-garden-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages outdoor play, and lasts for years. A DIY Wooden Toy Garden Set does just that.**

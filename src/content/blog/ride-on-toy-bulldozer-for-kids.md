@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Bulldozer for Kids: Ultimate Fun and Safety Guide"
-description: "Looking for the perfect toy that combines fun and learning for your child? A ride on toy bulldozer might be just what you need. Imagine your little one feeling "
+title: 'Ride on Toy Bulldozer for Kids: Ultimate Fun and Safety Guide'
+description: 'Looking for the perfect toy that combines fun and learning for your
+  child? A ride on toy bulldozer might be just what you need. Imagine your little
+  one feeling '
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-bulldozer-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-bulldozer-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect toy that combines fun and learning for your child? A ride on toy bulldozer might be just what you need.**

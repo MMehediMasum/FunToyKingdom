@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 10 Year Olds: Top Fidget & Stress Relief Picks"
-description: "Sensory toys play a crucial role in the development of 10-year-olds. They stimulate creativity, focus, and emotional balance. These toys offer more than just fu"
+title: 'Sensory Toys for 10 Year Olds: Top Fidget & Stress Relief Picks'
+description: Sensory toys play a crucial role in the development of 10-year-olds.
+  They stimulate creativity, focus, and emotional balance. These toys offer more than
+  just fu
 pubDate: 2026-02-22
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-10-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-10-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys play a crucial role in the development of 10-year-olds. They stimulate creativity, focus, and emotional balance.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Ride on Car for 2 Year Old: Top Safe & Fun Picks 2025"
-description: "Looking for the best ride on car for your 2-year-old? You want something safe, fun, and easy for your little one to use. Choosing the right ride on car can make"
+title: 'Best Ride on Car for 2 Year Old: Top Safe & Fun Picks 2025'
+description: Looking for the best ride on car for your 2-year-old? You want something
+  safe, fun, and easy for your little one to use. Choosing the right ride on car can
+  make
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-car-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 3 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-car-for-2-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the best ride on car for your 2-year-old? You want something safe, fun, and easy for your little one to use.**

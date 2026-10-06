@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Swan Inflatable Kids Float: Ultimate Summer Fun Guide"
-description: "Imagine your child’s face lighting up as they float effortlessly on a giant, graceful swan in your backyard pool. The Outdoor Swan Inflatable Kids Float isn’t j"
+title: 'Outdoor Swan Inflatable Kids Float: Ultimate Summer Fun Guide'
+description: Imagine your child’s face lighting up as they float effortlessly on a
+  giant, graceful swan in your backyard pool. The Outdoor Swan Inflatable Kids Float
+  isn’t j
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-swan-inflatable-kids-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-swan-inflatable-kids-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they float effortlessly on a giant, graceful swan in your backyard pool. The Outdoor Swan Inflatable Kids Float isn’t just a fun accessory—it’s a ticket to endless summer joy and unforgettable memories.**

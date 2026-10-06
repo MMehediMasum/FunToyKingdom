@@ -1,10 +1,14 @@
 ---
-title: "Diy Foam Toy Blocks: Creative Ideas for Fun & Learning"
-description: "Are you looking for a fun, creative way to keep your kids entertained while boosting their imagination? DIY foam toy blocks are the perfect solution. Not only a"
+title: 'Diy Foam Toy Blocks: Creative Ideas for Fun & Learning'
+description: Are you looking for a fun, creative way to keep your kids entertained
+  while boosting their imagination? DIY foam toy blocks are the perfect solution.
+  Not only a
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-foam-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=diy-foam-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun, creative way to keep your kids entertained while boosting their imagination? DIY foam toy blocks are the perfect solution.**

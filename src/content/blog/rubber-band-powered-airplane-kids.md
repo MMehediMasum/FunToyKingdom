@@ -1,10 +1,14 @@
 ---
-title: "Rubber Band Powered Airplane Kids: Fun DIY Flight Projects"
-description: "Have you ever wanted to build something fun that actually flies? A rubber band powered airplane is a simple, exciting project you can make with your kids. It’s "
+title: 'Rubber Band Powered Airplane Kids: Fun DIY Flight Projects'
+description: 'Have you ever wanted to build something fun that actually flies? A rubber
+  band powered airplane is a simple, exciting project you can make with your kids.
+  It’s '
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rubber-band-powered-airplane-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=rubber-band-powered-airplane-kids&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to build something fun that actually flies? A rubber band powered airplane is a simple, exciting project you can make with your kids.**

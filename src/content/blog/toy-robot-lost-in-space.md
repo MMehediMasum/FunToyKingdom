@@ -1,10 +1,14 @@
 ---
-title: "Toy Robot Lost in Space: Ultimate Collectible B9 Robot Review"
-description: "Toy Robot Lost in Space captures the imagination with iconic characters and futuristic designs. Fans enjoy toys and collectibles inspired by the classic sci-fi "
+title: 'Toy Robot Lost in Space: Ultimate Collectible B9 Robot Review'
+description: 'Toy Robot Lost in Space captures the imagination with iconic characters
+  and futuristic designs. Fans enjoy toys and collectibles inspired by the classic
+  sci-fi '
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-robot-lost-in-space&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toy-robot-lost-in-space&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Toy Robot Lost in Space captures the imagination with iconic characters and futuristic designs. Fans enjoy toys and collectibles inspired by the classic sci-fi series.**

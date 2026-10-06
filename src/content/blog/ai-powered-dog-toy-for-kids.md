@@ -1,10 +1,14 @@
 ---
-title: "Ai Powered Dog Toy for Kids: Fun, Interactive, and Smart Playtime"
-description: "Looking for a fun and smart way to keep your kids entertained? Imagine a dog toy that’s not just playful but also powered by AI to interact, learn, and respond "
+title: 'Ai Powered Dog Toy for Kids: Fun, Interactive, and Smart Playtime'
+description: 'Looking for a fun and smart way to keep your kids entertained? Imagine
+  a dog toy that’s not just playful but also powered by AI to interact, learn, and
+  respond '
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ai-powered-dog-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=ai-powered-dog-toy-for-kids&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Looking for a fun and smart way to keep your kids entertained? Imagine a dog toy that’s not just playful but also powered by AI to interact, learn, and respond to your child’s every move.**

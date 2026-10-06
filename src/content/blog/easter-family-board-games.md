@@ -1,10 +1,14 @@
 ---
-title: "Easter Family Board Games: Fun-Filled Picks for All Ages"
-description: "Looking for a fun way to bring your family closer this Easter? Easter family board games are the perfect choice to spark laughter, friendly competition, and unf"
+title: 'Easter Family Board Games: Fun-Filled Picks for All Ages'
+description: Looking for a fun way to bring your family closer this Easter? Easter
+  family board games are the perfect choice to spark laughter, friendly competition,
+  and unf
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=easter-family-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=easter-family-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your family closer this Easter? Easter family board games are the perfect choice to spark laughter, friendly competition, and unforgettable memories.**

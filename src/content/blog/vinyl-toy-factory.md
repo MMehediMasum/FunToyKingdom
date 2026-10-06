@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Toy Factory: Top Collectible Figures for Fans and Collectors"
-description: "Vinyl Toy Factory offers unique collectible figures from popular shows, games, and movies. These vinyl toys bring favorite characters to life with great detail "
+title: 'Vinyl Toy Factory: Top Collectible Figures for Fans and Collectors'
+description: 'Vinyl Toy Factory offers unique collectible figures from popular shows,
+  games, and movies. These vinyl toys bring favorite characters to life with great
+  detail '
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-toy-factory&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-toy-factory&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vinyl Toy Factory offers unique collectible figures from popular shows, games, and movies. These vinyl toys bring favorite characters to life with great detail and quality.**

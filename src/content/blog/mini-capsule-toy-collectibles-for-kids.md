@@ -1,10 +1,13 @@
 ---
-title: "Mini Capsule Toy Collectibles for Kids: Ultimate Fun & Surprise!"
-description: "Are you looking for a fun and exciting way to spark your child’s imagination? Mini capsule toy collectibles for kids are the perfect choice. These tiny treasure"
+title: 'Mini Capsule Toy Collectibles for Kids: Ultimate Fun & Surprise!'
+description: Are you looking for a fun and exciting way to spark your child’s imagination?
+  Mini capsule toy collectibles for kids are the perfect choice. These tiny treasure
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-capsule-toy-collectibles-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=mini-capsule-toy-collectibles-for-kids&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s imagination? Mini capsule toy collectibles for kids are the perfect choice.**

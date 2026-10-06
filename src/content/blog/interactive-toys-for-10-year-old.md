@@ -1,10 +1,14 @@
 ---
-title: "Interactive Toys for 10 Year Old: Top Fun & Educational Picks"
-description: "Looking for the perfect interactive toy for your 10-year-old? You want something that sparks their imagination, keeps them engaged, and helps them learn—all whi"
+title: 'Interactive Toys for 10 Year Old: Top Fun & Educational Picks'
+description: Looking for the perfect interactive toy for your 10-year-old? You want
+  something that sparks their imagination, keeps them engaged, and helps them learn—all
+  whi
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-toys-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Interactive Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=interactive-toys-for-10-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for the perfect interactive toy for your 10-year-old? You want something that sparks their imagination, keeps them engaged, and helps them learn—all while having fun.**

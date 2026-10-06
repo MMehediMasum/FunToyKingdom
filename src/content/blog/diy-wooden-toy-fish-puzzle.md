@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Fish Puzzle: Fun, Creative, and Educational Craft Ideas"
-description: "Are you looking for a fun and creative project that you can make with your own hands? A DIY wooden toy fish puzzle is just what you need. It’s simple to build, "
+title: 'Diy Wooden Toy Fish Puzzle: Fun, Creative, and Educational Craft Ideas'
+description: 'Are you looking for a fun and creative project that you can make with
+  your own hands? A DIY wooden toy fish puzzle is just what you need. It’s simple
+  to build, '
 pubDate: 2026-06-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-fish-puzzle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-fish-puzzle&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun and creative project that you can make with your own hands? A DIY wooden toy fish puzzle is just what you need.**

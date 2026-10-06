@@ -1,10 +1,13 @@
 ---
-title: "How Do You Clean Battery Corrosion on Toys: Easy Steps to Restore"
-description: "Have you ever picked up your child’s favorite toy, only to find it covered in ugly, white powdery stuff around the battery compartment? That’s battery corrosion"
+title: 'How Do You Clean Battery Corrosion on Toys: Easy Steps to Restore'
+description: Have you ever picked up your child’s favorite toy, only to find it covered
+  in ugly, white powdery stuff around the battery compartment? That’s battery corrosion
 pubDate: 2025-09-03
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-clean-battery-corrosion-on-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-clean-battery-corrosion-on-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever picked up your child’s favorite toy, only to find it covered in ugly, white powdery stuff around the battery compartment? That’s battery corrosion, and it can stop your toy from working or even damage it permanently.**

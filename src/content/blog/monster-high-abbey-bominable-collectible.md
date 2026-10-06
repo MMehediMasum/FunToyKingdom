@@ -1,10 +1,14 @@
 ---
-title: "Monster High Abbey Bominable Collectible: Ultimate Fan Guide 2025"
-description: "Are you a fan of unique and spooky collectibles? Then the Monster High Abbey Bominable collectible is exactly what your collection needs. This doll isn’t just a"
+title: 'Monster High Abbey Bominable Collectible: Ultimate Fan Guide 2025'
+description: Are you a fan of unique and spooky collectibles? Then the Monster High
+  Abbey Bominable collectible is exactly what your collection needs. This doll isn’t
+  just a
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-abbey-bominable-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-abbey-bominable-collectible&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of unique and spooky collectibles? Then the Monster High Abbey Bominable collectible is exactly what your collection needs.**

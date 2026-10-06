@@ -1,10 +1,13 @@
 ---
-title: "Best Remote Control Boats for Lakes: Top Waterproof RC Boats Reviewed"
-description: "Remote control boats bring fun and excitement to any lake outing. Choosing the best model makes all the difference in your experience. These boats offer speed, "
+title: 'Best Remote Control Boats for Lakes: Top Waterproof RC Boats Reviewed'
+description: 'Remote control boats bring fun and excitement to any lake outing. Choosing
+  the best model makes all the difference in your experience. These boats offer speed, '
 pubDate: 2025-12-21
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-remote-control-boats-for-lakes-top-waterproof-rc-boats-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-remote-control-boats-for-lakes-top-waterproof-rc-boats-reviewed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Remote control boats bring fun and excitement to any lake outing. Choosing the best model makes all the difference in your experience.**

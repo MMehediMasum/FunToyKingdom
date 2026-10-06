@@ -1,10 +1,14 @@
 ---
-title: "Stacking Toys for 3 Year Olds: Top Picks for Fun and Learning"
-description: "Stacking toys for 3 year olds help develop motor skills and creativity. They offer fun ways to learn shapes, colors, and balance. Choosing the right stacking to"
+title: 'Stacking Toys for 3 Year Olds: Top Picks for Fun and Learning'
+description: Stacking toys for 3 year olds help develop motor skills and creativity.
+  They offer fun ways to learn shapes, colors, and balance. Choosing the right stacking
+  to
 pubDate: 2026-08-05
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-toys-for-3-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Stacking Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stacking-toys-for-3-year-olds&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Stacking toys for 3 year olds help develop motor skills and creativity. They offer fun ways to learn shapes, colors, and balance.**

@@ -1,10 +1,14 @@
 ---
-title: "Robot Toys for 9 Year Old: Top Fun & Educational Picks 2025"
-description: "Looking for the perfect robot toy for your 9-year-old? You want something that’s fun, sparks creativity, and maybe even teaches a bit of science along the way. "
+title: 'Robot Toys for 9 Year Old: Top Fun & Educational Picks 2025'
+description: 'Looking for the perfect robot toy for your 9-year-old? You want something
+  that’s fun, sparks creativity, and maybe even teaches a bit of science along the
+  way. '
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=robot-toys-for-9-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Looking for the perfect robot toy for your 9-year-old? You want something that’s fun, sparks creativity, and maybe even teaches a bit of science along the way.**

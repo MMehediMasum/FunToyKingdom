@@ -1,10 +1,14 @@
 ---
-title: "Collectible Toy Figurines Auction: Ultimate Guide to Top Bids"
-description: "Are you ready to discover hidden treasures that could turn your passion into profit? Collectible toy figurines auctions offer you a thrilling chance to find rar"
+title: 'Collectible Toy Figurines Auction: Ultimate Guide to Top Bids'
+description: Are you ready to discover hidden treasures that could turn your passion
+  into profit? Collectible toy figurines auctions offer you a thrilling chance to
+  find rar
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-toy-figurines-auction&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=collectible-toy-figurines-auction&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to discover hidden treasures that could turn your passion into profit? Collectible toy figurines auctions offer you a thrilling chance to find rare pieces that tell stories and hold real value.**

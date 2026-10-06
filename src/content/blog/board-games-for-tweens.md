@@ -1,10 +1,14 @@
 ---
-title: "Board Games for Tweens: Exciting Picks for Fun & Learning"
-description: "Looking for a fun way to bring your tweens together without screens? Board games are the perfect answer. They spark creativity, boost problem-solving skills, an"
+title: 'Board Games for Tweens: Exciting Picks for Fun & Learning'
+description: Looking for a fun way to bring your tweens together without screens?
+  Board games are the perfect answer. They spark creativity, boost problem-solving
+  skills, an
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-tweens&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your tweens together without screens? Board games are the perfect answer.**

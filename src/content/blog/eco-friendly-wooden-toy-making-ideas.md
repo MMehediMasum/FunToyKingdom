@@ -1,10 +1,14 @@
 ---
-title: "Eco Friendly Wooden Toy Making Ideas: Creative & Sustainable Fun"
-description: "Are you looking for creative ways to make toys that are safe for your child and kind to the planet? Making eco friendly wooden toys is a perfect choice for you."
+title: 'Eco Friendly Wooden Toy Making Ideas: Creative & Sustainable Fun'
+description: Are you looking for creative ways to make toys that are safe for your
+  child and kind to the planet? Making eco friendly wooden toys is a perfect choice
+  for you.
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=eco-friendly-wooden-toy-making-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=eco-friendly-wooden-toy-making-ideas&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for creative ways to make toys that are safe for your child and kind to the planet? Making eco friendly wooden toys is a perfect choice for you.**

@@ -1,10 +1,14 @@
 ---
-title: "Rare Hot Wheels Toy Cars Collectibles: Ultimate Guide to Hidden Gems"
-description: "Are you a Hot Wheels fan or a collector looking to find those rare toy cars that everyone talks about? Imagine holding a tiny car that’s not just a toy but a va"
+title: 'Rare Hot Wheels Toy Cars Collectibles: Ultimate Guide to Hidden Gems'
+description: Are you a Hot Wheels fan or a collector looking to find those rare toy
+  cars that everyone talks about? Imagine holding a tiny car that’s not just a toy
+  but a va
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-hot-wheels-toy-cars-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=rare-hot-wheels-toy-cars-collectibles&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you a Hot Wheels fan or a collector looking to find those rare toy cars that everyone talks about? Imagine holding a tiny car that’s not just a toy but a valuable treasure.**

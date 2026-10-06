@@ -1,10 +1,14 @@
 ---
-title: "Learning Toys for 8 Year Old: Top Picks to Boost Creativity"
-description: "Finding the right learning toys for your 8-year-old can feel overwhelming. You want something that sparks their curiosity, helps them grow, and keeps them excit"
+title: 'Learning Toys for 8 Year Old: Top Picks to Boost Creativity'
+description: Finding the right learning toys for your 8-year-old can feel overwhelming.
+  You want something that sparks their curiosity, helps them grow, and keeps them
+  excit
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=learning-toys-for-8-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=learning-toys-for-8-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Finding the right learning toys for your 8-year-old can feel overwhelming. You want something that sparks their curiosity, helps them grow, and keeps them excited to play.**

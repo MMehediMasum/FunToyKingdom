@@ -1,10 +1,14 @@
 ---
-title: "Best Push Walker Toy for Hardwood Floors: Top Safe & Smooth Picks"
-description: "Are you searching for the best push walker toy that won’t scratch or slip on your hardwood floors? Choosing the right one can make all the difference in helping"
+title: 'Best Push Walker Toy for Hardwood Floors: Top Safe & Smooth Picks'
+description: Are you searching for the best push walker toy that won’t scratch or
+  slip on your hardwood floors? Choosing the right one can make all the difference
+  in helping
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-push-walker-toy-for-hardwood-floors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-push-walker-toy-for-hardwood-floors&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you searching for the best push walker toy that won’t scratch or slip on your hardwood floors? Choosing the right one can make all the difference in helping your little one take confident first steps safely.**

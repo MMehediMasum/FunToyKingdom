@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Little Golden Book Collection: Magical Stories for Kids"
-description: "The Toy Story Little Golden Book series brings beloved Disney and Pixar characters to life in a simple, fun way. These books capture the magic of Toy Story movi"
+title: 'Toy Story Little Golden Book Collection: Magical Stories for Kids'
+description: The Toy Story Little Golden Book series brings beloved Disney and Pixar
+  characters to life in a simple, fun way. These books capture the magic of Toy Story
+  movi
 pubDate: 2026-08-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-little-golden-book&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-little-golden-book&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **The Toy Story Little Golden Book series brings beloved Disney and Pixar characters to life in a simple, fun way. These books capture the magic of Toy Story movies for young readers.**

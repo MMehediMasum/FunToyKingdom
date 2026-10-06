@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Ice Cream Cart Kids Play: Ultimate Fun & Learning Guide"
-description: "Imagine your kids enjoying hours of fun right in your backyard with an outdoor ice cream cart made just for them. It’s not just a toy—it’s a chance for your chi"
+title: 'Outdoor Ice Cream Cart Kids Play: Ultimate Fun & Learning Guide'
+description: Imagine your kids enjoying hours of fun right in your backyard with an
+  outdoor ice cream cart made just for them. It’s not just a toy—it’s a chance for
+  your chi
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ice-cream-cart-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ice-cream-cart-kids-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids enjoying hours of fun right in your backyard with an outdoor ice cream cart made just for them. It’s not just a toy—it’s a chance for your child to explore, create, and share sweet moments with friends and family.**

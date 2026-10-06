@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Toys for Kindergarteners: Top Fun Picks for Active Play"
-description: "Are you looking for the perfect outdoor toys that will keep your kindergartener happy, active, and learning? Choosing the right toys can make all the difference"
+title: 'Outdoor Toys for Kindergarteners: Top Fun Picks for Active Play'
+description: Are you looking for the perfect outdoor toys that will keep your kindergartener
+  happy, active, and learning? Choosing the right toys can make all the difference
 pubDate: 2026-04-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-kindergarteners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-kindergarteners&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect outdoor toys that will keep your kindergartener happy, active, and learning? Choosing the right toys can make all the difference in how much your child enjoys playtime outside.**

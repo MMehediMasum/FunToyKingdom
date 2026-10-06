@@ -1,10 +1,14 @@
 ---
-title: "Ring Toss Game Outdoor Set: Ultimate Fun for Family & Friends"
-description: "Looking for a fun way to bring your family and friends together outdoors? The Ring Toss Game Outdoor Set is exactly what you need to turn any backyard or picnic"
+title: 'Ring Toss Game Outdoor Set: Ultimate Fun for Family & Friends'
+description: Looking for a fun way to bring your family and friends together outdoors?
+  The Ring Toss Game Outdoor Set is exactly what you need to turn any backyard or
+  picnic
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ring-toss-game-outdoor-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=ring-toss-game-outdoor-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to bring your family and friends together outdoors? The Ring Toss Game Outdoor Set is exactly what you need to turn any backyard or picnic into an exciting game zone.**

@@ -1,10 +1,13 @@
 ---
-title: "Robotics Kits for Middle Schoolers: Ignite Creativity and Learning"
-description: "Are you looking for a fun and educational way to spark your middle schooler’s interest in science and technology? Robotics kits might be exactly what you need. "
+title: 'Robotics Kits for Middle Schoolers: Ignite Creativity and Learning'
+description: 'Are you looking for a fun and educational way to spark your middle schooler’s
+  interest in science and technology? Robotics kits might be exactly what you need. '
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robotics-kits-for-middle-schoolers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Kits
+heroImage: https://tse1.mm.bing.net/th?q=robotics-kits-for-middle-schoolers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and educational way to spark your middle schooler’s interest in science and technology? Robotics kits might be exactly what you need.**

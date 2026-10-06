@@ -1,10 +1,14 @@
 ---
-title: "Kids Water Balloon Fight Kit: Ultimate Summer Fun Essentials"
-description: "Looking for the perfect way to make your kids’ playtime unforgettable? A Kids Water Balloon Fight Kit is exactly what you need to turn any sunny day into a spla"
+title: 'Kids Water Balloon Fight Kit: Ultimate Summer Fun Essentials'
+description: Looking for the perfect way to make your kids’ playtime unforgettable?
+  A Kids Water Balloon Fight Kit is exactly what you need to turn any sunny day into
+  a spla
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-water-balloon-fight-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=kids-water-balloon-fight-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for the perfect way to make your kids’ playtime unforgettable? A Kids Water Balloon Fight Kit is exactly what you need to turn any sunny day into a splash-filled adventure.**

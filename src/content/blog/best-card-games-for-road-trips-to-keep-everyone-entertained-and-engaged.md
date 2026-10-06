@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for Road Trips to Keep Everyone Entertained and Engaged"
-description: "Road trips become more fun with the right card games for all ages. These games keep everyone entertained and connected during long drives. Traveling can be tiri"
+title: Best Card Games for Road Trips to Keep Everyone Entertained and Engaged
+description: Road trips become more fun with the right card games for all ages. These
+  games keep everyone entertained and connected during long drives. Traveling can
+  be tiri
 pubDate: 2026-01-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-road-trips-to-keep-everyone-entertained-and-engaged&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-road-trips-to-keep-everyone-entertained-and-engaged&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Road trips become more fun with the right card games for all ages. These games keep everyone entertained and connected during long drives.**

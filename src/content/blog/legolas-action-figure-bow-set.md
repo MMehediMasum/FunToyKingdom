@@ -1,10 +1,14 @@
 ---
-title: "Legolas Action Figure Bow Set: Ultimate Collector’s Dream Gear"
-description: "If you’re a fan of Middle-earth or simply love detailed collectibles, the Legolas Action Figure Bow Set is made for you. Imagine holding the same bow that the l"
+title: 'Legolas Action Figure Bow Set: Ultimate Collector’s Dream Gear'
+description: If you’re a fan of Middle-earth or simply love detailed collectibles,
+  the Legolas Action Figure Bow Set is made for you. Imagine holding the same bow
+  that the l
 pubDate: 2025-11-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=legolas-action-figure-bow-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Benefits Of Building Block Toys
+heroImage: https://tse1.mm.bing.net/th?q=legolas-action-figure-bow-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **If you’re a fan of Middle-earth or simply love detailed collectibles, the Legolas Action Figure Bow Set is made for you. Imagine holding the same bow that the legendary elf archer uses, crafted with precision and ready for display or play.**

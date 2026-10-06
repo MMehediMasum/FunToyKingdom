@@ -1,10 +1,14 @@
 ---
-title: "Toddler Christmas Toys: Top Festive Picks for Fun Holiday Playtime"
-description: "Choosing the right Christmas toys for toddlers can make the holiday extra special. Safe, fun, and educational toys keep little ones happy and engaged. Toddlers "
+title: 'Toddler Christmas Toys: Top Festive Picks for Fun Holiday Playtime'
+description: 'Choosing the right Christmas toys for toddlers can make the holiday
+  extra special. Safe, fun, and educational toys keep little ones happy and engaged.
+  Toddlers '
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toddler-christmas-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toddler-christmas-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right Christmas toys for toddlers can make the holiday extra special. Safe, fun, and educational toys keep little ones happy and engaged.**

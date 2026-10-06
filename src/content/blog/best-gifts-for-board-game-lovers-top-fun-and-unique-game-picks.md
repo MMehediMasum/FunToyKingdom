@@ -1,10 +1,14 @@
 ---
-title: "Best Gifts for Board Game Lovers: Top Fun and Unique Game Picks"
-description: "Finding the best gifts for board game lovers can be tricky. Choosing something fun and unique will make their game nights special. Board game fans enjoy a mix o"
+title: 'Best Gifts for Board Game Lovers: Top Fun and Unique Game Picks'
+description: Finding the best gifts for board game lovers can be tricky. Choosing
+  something fun and unique will make their game nights special. Board game fans enjoy
+  a mix o
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-gifts-for-board-game-lovers-top-fun-and-unique-game-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=best-gifts-for-board-game-lovers-top-fun-and-unique-game-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best gifts for board game lovers can be tricky. Choosing something fun and unique will make their game nights special.**

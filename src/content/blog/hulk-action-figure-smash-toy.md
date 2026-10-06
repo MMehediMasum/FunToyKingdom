@@ -1,10 +1,14 @@
 ---
-title: "Hulk Action Figure Smash Toy: Ultimate Collectible for Kids"
-description: "Are you ready to bring the unstoppable power of the Hulk right into your hands? The Hulk Action Figure Smash Toy is not just any toy—it’s your ticket to endless"
+title: 'Hulk Action Figure Smash Toy: Ultimate Collectible for Kids'
+description: Are you ready to bring the unstoppable power of the Hulk right into your
+  hands? The Hulk Action Figure Smash Toy is not just any toy—it’s your ticket to
+  endless
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=hulk-action-figure-smash-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=hulk-action-figure-smash-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring the unstoppable power of the Hulk right into your hands? The Hulk Action Figure Smash Toy is not just any toy—it’s your ticket to endless smashing fun and superhero adventure.**

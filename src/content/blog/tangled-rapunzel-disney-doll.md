@@ -1,10 +1,14 @@
 ---
-title: "Tangled Rapunzel Disney Doll: Must-Have Magical Collectible Toy"
-description: "Are you looking for the perfect Disney doll to add magic to your collection? The Tangled Rapunzel Disney Doll is more than just a toy—it’s a chance to bring you"
+title: 'Tangled Rapunzel Disney Doll: Must-Have Magical Collectible Toy'
+description: Are you looking for the perfect Disney doll to add magic to your collection?
+  The Tangled Rapunzel Disney Doll is more than just a toy—it’s a chance to bring
+  you
 pubDate: 2025-12-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=tangled-rapunzel-disney-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=tangled-rapunzel-disney-doll&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect Disney doll to add magic to your collection? The Tangled Rapunzel Disney Doll is more than just a toy—it’s a chance to bring your favorite fairy tale to life.**

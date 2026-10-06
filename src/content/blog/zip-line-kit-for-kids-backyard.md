@@ -1,10 +1,14 @@
 ---
-title: "Zip Line Kit for Kids Backyard: Ultimate Fun & Safety Guide"
-description: "Imagine turning your backyard into the ultimate playground where your kids can laugh, play, and feel the thrill of flying through the air. A zip line kit for ki"
+title: 'Zip Line Kit for Kids Backyard: Ultimate Fun & Safety Guide'
+description: Imagine turning your backyard into the ultimate playground where your
+  kids can laugh, play, and feel the thrill of flying through the air. A zip line
+  kit for ki
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=zip-line-kit-for-kids-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=zip-line-kit-for-kids-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate playground where your kids can laugh, play, and feel the thrill of flying through the air. A zip line kit for kids’ backyard is exactly what you need to bring that excitement home.**

@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Crafts for Preschool: Fun & Easy DIY Ideas"
-description: "Are you looking for fun and creative ways to engage your preschooler? Wooden toy crafts might be just what you need. These simple projects not only spark your c"
+title: 'Wooden Toy Crafts for Preschool: Fun & Easy DIY Ideas'
+description: Are you looking for fun and creative ways to engage your preschooler?
+  Wooden toy crafts might be just what you need. These simple projects not only spark
+  your c
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-crafts-for-preschool&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Preschool Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-crafts-for-preschool&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for fun and creative ways to engage your preschooler? Wooden toy crafts might be just what you need.**

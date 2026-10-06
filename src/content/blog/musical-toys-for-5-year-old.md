@@ -1,10 +1,13 @@
 ---
-title: "Musical Toys for 5 Year Old: Top Fun & Educational Picks"
-description: "Are you looking for the perfect musical toys for your 5-year-old? Choosing toys that spark creativity and joy can be tricky. But what if you could find somethin"
+title: 'Musical Toys for 5 Year Old: Top Fun & Educational Picks'
+description: Are you looking for the perfect musical toys for your 5-year-old? Choosing
+  toys that spark creativity and joy can be tricky. But what if you could find somethin
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=musical-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Musical Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=musical-toys-for-5-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect musical toys for your 5-year-old? Choosing toys that spark creativity and joy can be tricky.**

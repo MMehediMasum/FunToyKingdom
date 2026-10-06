@@ -1,10 +1,14 @@
 ---
-title: "Highest Scoring Words in Scrabble: Boost Your Game Instantly"
-description: "Have you ever wondered which words can skyrocket your score in Scrabble? Knowing the highest scoring words can give you a serious edge over your opponents and t"
+title: 'Highest Scoring Words in Scrabble: Boost Your Game Instantly'
+description: Have you ever wondered which words can skyrocket your score in Scrabble?
+  Knowing the highest scoring words can give you a serious edge over your opponents
+  and t
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=highest-scoring-words-in-scrabble&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=highest-scoring-words-in-scrabble&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered which words can skyrocket your score in Scrabble? Knowing the highest scoring words can give you a serious edge over your opponents and turn the game in your favor.**

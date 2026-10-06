@@ -1,10 +1,14 @@
 ---
-title: "Foam Hockey Sticks for Toddlers: Safe, Fun, and Durable Picks"
-description: "Are you looking for a safe and fun way to introduce your toddler to hockey? Foam hockey sticks might be exactly what you need. These sticks are lightweight, sof"
+title: 'Foam Hockey Sticks for Toddlers: Safe, Fun, and Durable Picks'
+description: Are you looking for a safe and fun way to introduce your toddler to hockey?
+  Foam hockey sticks might be exactly what you need. These sticks are lightweight,
+  sof
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=foam-hockey-sticks-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=foam-hockey-sticks-for-toddlers&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a safe and fun way to introduce your toddler to hockey? Foam hockey sticks might be exactly what you need.**

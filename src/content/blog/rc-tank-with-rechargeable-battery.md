@@ -1,10 +1,14 @@
 ---
-title: "Rc Tank With Rechargeable Battery: Ultimate Fun & Long-Lasting Play"
-description: "Are you ready to take your RC tank experience to the next level? Imagine controlling a powerful, realistic tank that runs longer and charges faster. An RC tank "
+title: 'Rc Tank With Rechargeable Battery: Ultimate Fun & Long-Lasting Play'
+description: 'Are you ready to take your RC tank experience to the next level? Imagine
+  controlling a powerful, realistic tank that runs longer and charges faster. An RC
+  tank '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-tank-with-rechargeable-battery&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-tank-with-rechargeable-battery&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC tank experience to the next level? Imagine controlling a powerful, realistic tank that runs longer and charges faster.**

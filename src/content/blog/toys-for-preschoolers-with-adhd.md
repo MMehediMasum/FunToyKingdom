@@ -1,10 +1,14 @@
 ---
-title: "Toys for Preschoolers With ADHD: Top Sensory & Calming Learning Picks"
-description: "Choosing the right toys can help preschoolers with ADHD focus and stay calm. Sensory and fine motor skill toys offer great support for their learning and develo"
+title: 'Toys for Preschoolers With ADHD: Top Sensory & Calming Learning Picks'
+description: Choosing the right toys can help preschoolers with ADHD focus and stay
+  calm. Sensory and fine motor skill toys offer great support for their learning and
+  develo
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-preschoolers-with-adhd&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Preschoolers
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-preschoolers-with-adhd&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toys can help preschoolers with ADHD focus and stay calm. Sensory and fine motor skill toys offer great support for their learning and development.**

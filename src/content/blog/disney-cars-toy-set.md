@@ -1,10 +1,14 @@
 ---
-title: "Disney Cars Toy Set: Ultimate Collection of Mini Racers and Playsets"
-description: "Disney Cars Toy Sets bring favorite movie characters to life with detailed mini racers and exciting playsets. These toys capture the fun and adventure from the "
+title: 'Disney Cars Toy Set: Ultimate Collection of Mini Racers and Playsets'
+description: 'Disney Cars Toy Sets bring favorite movie characters to life with detailed
+  mini racers and exciting playsets. These toys capture the fun and adventure from
+  the '
 pubDate: 2026-03-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-cars-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=disney-cars-toy-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Disney Cars Toy Sets bring favorite movie characters to life with detailed mini racers and exciting playsets. These toys capture the fun and adventure from the Cars movies in a small, collectible size.**

@@ -1,10 +1,14 @@
 ---
-title: "Aircraft Carrier Toy Set: Ultimate Military Battle Playset for Kids"
-description: "The Aircraft Carrier Toy Set offers an engaging play experience for kids. It's perfect for imaginative military adventures. Children love toys that spark creati"
+title: 'Aircraft Carrier Toy Set: Ultimate Military Battle Playset for Kids'
+description: The Aircraft Carrier Toy Set offers an engaging play experience for kids.
+  It's perfect for imaginative military adventures. Children love toys that spark
+  creati
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=aircraft-carrier-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=aircraft-carrier-toy-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Aircraft Carrier Toy Set offers an engaging play experience for kids. It's perfect for imaginative military adventures.**

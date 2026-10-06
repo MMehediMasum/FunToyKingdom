@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Snow Blower: Realistic Fun for Kids and Collectors"
-description: "Miniature toy snow blowers bring fun and functionality to playtime. These toys mimic real snow blowers in captivating detail. Toy snow blowers aren't just for p"
+title: 'Miniature Toy Snow Blower: Realistic Fun for Kids and Collectors'
+description: Miniature toy snow blowers bring fun and functionality to playtime. These
+  toys mimic real snow blowers in captivating detail. Toy snow blowers aren't just
+  for p
 pubDate: 2026-03-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-snow-blower&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-snow-blower&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature toy snow blowers bring fun and functionality to playtime. These toys mimic real snow blowers in captivating detail.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Laser Tag Obstacle Set: Ultimate Fun and Challenge Guide"
-description: "Imagine turning your backyard into the ultimate battleground where fun and excitement never end. With an Outdoor Laser Tag Obstacle Set, you can create thrillin"
+title: 'Outdoor Laser Tag Obstacle Set: Ultimate Fun and Challenge Guide'
+description: Imagine turning your backyard into the ultimate battleground where fun
+  and excitement never end. With an Outdoor Laser Tag Obstacle Set, you can create
+  thrillin
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-laser-tag-obstacle-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-laser-tag-obstacle-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate battleground where fun and excitement never end. With an Outdoor Laser Tag Obstacle Set, you can create thrilling challenges that keep you and your friends on your toes.**

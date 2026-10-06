@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Soldier Costume: Easy DIY Guide"
-description: "Are you ready to create a wooden toy soldier costume that will turn heads and spark smiles? Whether it’s for Halloween, a play, or just for fun, making your own"
+title: 'How to Make a Wooden Toy Soldier Costume: Easy DIY Guide'
+description: Are you ready to create a wooden toy soldier costume that will turn heads
+  and spark smiles? Whether it’s for Halloween, a play, or just for fun, making your
+  own
 pubDate: 2026-07-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-soldier-costume&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-soldier-costume&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to create a wooden toy soldier costume that will turn heads and spark smiles? Whether it’s for Halloween, a play, or just for fun, making your own costume can be easier than you think.**

@@ -1,10 +1,14 @@
 ---
-title: "Fun Toys for Infants: Top Sensory and Teething Toys for Early Development"
-description: "Choosing the right toys for infants can greatly enhance their development. Toys stimulate their senses and encourage growth. Infants explore the world through p"
+title: 'Fun Toys for Infants: Top Sensory and Teething Toys for Early Development'
+description: Choosing the right toys for infants can greatly enhance their development.
+  Toys stimulate their senses and encourage growth. Infants explore the world through
+  p
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=fun-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=fun-toys-for-infants&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the right toys for infants can greatly enhance their development. Toys stimulate their senses and encourage growth.**

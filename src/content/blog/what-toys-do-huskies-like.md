@@ -1,10 +1,14 @@
 ---
-title: "What Toys Do Huskies Like: Top Picks for Happy, Active Pups"
-description: "If you have a husky, you know how full of energy and curiosity they can be. Finding the right toys for your husky isn’t just about keeping them busy—it’s about "
+title: 'What Toys Do Huskies Like: Top Picks for Happy, Active Pups'
+description: 'If you have a husky, you know how full of energy and curiosity they
+  can be. Finding the right toys for your husky isn’t just about keeping them busy—it’s
+  about '
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-do-huskies-like&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-do-huskies-like&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you have a husky, you know how full of energy and curiosity they can be. Finding the right toys for your husky isn’t just about keeping them busy—it’s about keeping them happy and healthy.**

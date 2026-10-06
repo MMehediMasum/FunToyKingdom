@@ -1,10 +1,14 @@
 ---
-title: "Toy Army Sets: Ultimate Military Playsets for Kids’ Imaginative Battles"
-description: "Toy army sets offer hours of imaginative play for kids who love action and adventure. These sets include soldiers, vehicles, and accessories for exciting battle"
+title: 'Toy Army Sets: Ultimate Military Playsets for Kids’ Imaginative Battles'
+description: Toy army sets offer hours of imaginative play for kids who love action
+  and adventure. These sets include soldiers, vehicles, and accessories for exciting
+  battle
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-army-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=toy-army-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy army sets offer hours of imaginative play for kids who love action and adventure. These sets include soldiers, vehicles, and accessories for exciting battles.**

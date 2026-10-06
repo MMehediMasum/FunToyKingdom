@@ -1,10 +1,13 @@
 ---
-title: "Toy Story Ball: Perfect Summer Fun for Kids’ Beach and Pool Games"
-description: "The Toy Story Ball universe brings beloved animated characters to life. It's a playful adventure for fans of all ages. Dive into the world of Toy Story-inspired"
+title: 'Toy Story Ball: Perfect Summer Fun for Kids’ Beach and Pool Games'
+description: The Toy Story Ball universe brings beloved animated characters to life.
+  It's a playful adventure for fans of all ages. Dive into the world of Toy Story-inspired
 pubDate: 2026-03-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Ball
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-ball&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Ball universe brings beloved animated characters to life. It's a playful adventure for fans of all ages.**

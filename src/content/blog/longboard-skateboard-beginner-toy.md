@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Longboard Skateboard Beginner Toy: Ultimate Guide for Easy Riding"
 description: "Looking for a fun way to get moving and enjoy the outdoors? A longboard skateboard beginner toy might be just what you need. It’s easy to learn, exciting to rid"
 pubDate: 2026-05-24

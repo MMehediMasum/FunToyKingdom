@@ -1,10 +1,14 @@
 ---
-title: "Fantastic Beasts Collectible Figures: Must-Have Magical Treasures"
-description: "If you’re a fan of the magical world of Fantastic Beasts, then you know how thrilling it is to bring a piece of that magic into your own space. Fantastic Beasts"
+title: 'Fantastic Beasts Collectible Figures: Must-Have Magical Treasures'
+description: If you’re a fan of the magical world of Fantastic Beasts, then you know
+  how thrilling it is to bring a piece of that magic into your own space. Fantastic
+  Beasts
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=fantastic-beasts-collectible-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=fantastic-beasts-collectible-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of the magical world of Fantastic Beasts, then you know how thrilling it is to bring a piece of that magic into your own space. Fantastic Beasts collectible figures let you do just that.**

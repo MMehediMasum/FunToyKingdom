@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for Teenagers: Fun, Engaging, and Creative Picks"
-description: "Looking for the perfect indoor toys for teenagers can feel like a challenge. You want something that keeps your teen entertained, sparks their creativity, and m"
+title: 'Indoor Toys for Teenagers: Fun, Engaging, and Creative Picks'
+description: Looking for the perfect indoor toys for teenagers can feel like a challenge.
+  You want something that keeps your teen entertained, sparks their creativity, and
+  m
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-teenagers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-teenagers&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect indoor toys for teenagers can feel like a challenge. You want something that keeps your teen entertained, sparks their creativity, and maybe even brings the whole family together.**

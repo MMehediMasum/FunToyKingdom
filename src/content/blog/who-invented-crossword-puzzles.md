@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Who Invented Crossword Puzzles: Uncover the Surprising Origin"
 description: "Have you ever wondered who invented crossword puzzles, those captivating grids that challenge your mind and boost your vocabulary? If you’re like many who enjoy"
 pubDate: 2025-08-27

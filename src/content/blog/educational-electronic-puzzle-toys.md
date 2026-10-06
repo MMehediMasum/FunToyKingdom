@@ -1,10 +1,14 @@
 ---
-title: "Educational Electronic Puzzle Toys: Boost Brainpower & Fun"
-description: "Are you looking for a way to make learning fun and exciting for your child? Educational electronic puzzle toys might be just what you need. These toys challenge"
+title: 'Educational Electronic Puzzle Toys: Boost Brainpower & Fun'
+description: Are you looking for a way to make learning fun and exciting for your
+  child? Educational electronic puzzle toys might be just what you need. These toys
+  challenge
 pubDate: 2026-05-27
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-electronic-puzzle-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=educational-electronic-puzzle-toys&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a way to make learning fun and exciting for your child? Educational electronic puzzle toys might be just what you need.**

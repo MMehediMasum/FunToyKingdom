@@ -1,10 +1,14 @@
 ---
-title: "Crochet Stacking Toy Diy: Easy Steps for Adorable Handmade Fun"
-description: "Are you looking for a fun and creative project that you can make with your own hands? A crochet stacking toy DIY is the perfect way to bring joy and color into "
+title: 'Crochet Stacking Toy Diy: Easy Steps for Adorable Handmade Fun'
+description: 'Are you looking for a fun and creative project that you can make with
+  your own hands? A crochet stacking toy DIY is the perfect way to bring joy and color
+  into '
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=crochet-stacking-toy-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Stacking Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=crochet-stacking-toy-diy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with your own hands? A crochet stacking toy DIY is the perfect way to bring joy and color into your home while crafting something unique.**

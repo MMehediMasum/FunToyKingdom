@@ -1,10 +1,13 @@
 ---
-title: "How to Sanitize Toy Blocks: Easy Tips for a Germ-Free Playtime"
-description: "Your child’s toy blocks are more than just colorful pieces; they’re building blocks of creativity and fun. But have you ever thought about how clean those block"
+title: 'How to Sanitize Toy Blocks: Easy Tips for a Germ-Free Playtime'
+description: Your child’s toy blocks are more than just colorful pieces; they’re building
+  blocks of creativity and fun. But have you ever thought about how clean those block
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sanitize-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sanitize-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Your child’s toy blocks are more than just colorful pieces; they’re building blocks of creativity and fun. But have you ever thought about how clean those blocks really are?**

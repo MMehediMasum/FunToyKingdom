@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 4 Year Olds: Top Picks for Calm, Focus, and Fun"
-description: "Sensory toys help 4-year-olds explore and learn through touch and movement. They support focus, calmness, and fine motor skills development. Sensory toys come i"
+title: 'Sensory Toys for 4 Year Olds: Top Picks for Calm, Focus, and Fun'
+description: Sensory toys help 4-year-olds explore and learn through touch and movement.
+  They support focus, calmness, and fine motor skills development. Sensory toys come
+  i
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-4-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Chew Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-4-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 4-year-olds explore and learn through touch and movement. They support focus, calmness, and fine motor skills development.**

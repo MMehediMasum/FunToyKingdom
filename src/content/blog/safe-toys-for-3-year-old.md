@@ -1,10 +1,14 @@
 ---
-title: "Safe Toys for 3 Year Old: Top Picks for Fun & Safety"
-description: "Choosing safe toys for your 3-year-old is one of the most important decisions you’ll make as a parent. You want to keep your child happy and entertained, but ab"
+title: 'Safe Toys for 3 Year Old: Top Picks for Fun & Safety'
+description: Choosing safe toys for your 3-year-old is one of the most important decisions
+  you’ll make as a parent. You want to keep your child happy and entertained, but
+  ab
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=safe-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=safe-toys-for-3-year-old&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Choosing safe toys for your 3-year-old is one of the most important decisions you’ll make as a parent. You want to keep your child happy and entertained, but above all, you want to protect them from any hidden dangers.**

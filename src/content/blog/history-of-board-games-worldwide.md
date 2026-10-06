@@ -1,10 +1,13 @@
 ---
-title: "History of Board Games Worldwide: Unveiling Timeless Classics"
-description: "Have you ever wondered how board games became a favorite pastime around the world? From ancient times to modern days, these games have brought people together, "
+title: 'History of Board Games Worldwide: Unveiling Timeless Classics'
+description: 'Have you ever wondered how board games became a favorite pastime around
+  the world? From ancient times to modern days, these games have brought people together, '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=history-of-board-games-worldwide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=history-of-board-games-worldwide&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how board games became a favorite pastime around the world? From ancient times to modern days, these games have brought people together, sparked competition, and sparked creativity.**

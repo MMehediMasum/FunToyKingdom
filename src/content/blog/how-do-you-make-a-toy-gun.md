@@ -1,10 +1,13 @@
 ---
-title: "How Do You Make a Toy Gun: Easy Steps for Safe Fun Crafting"
-description: "Have you ever wanted to create something fun and exciting with your own hands? Making a toy gun can be a simple and rewarding project that sparks your creativit"
+title: 'How Do You Make a Toy Gun: Easy Steps for Safe Fun Crafting'
+description: Have you ever wanted to create something fun and exciting with your own
+  hands? Making a toy gun can be a simple and rewarding project that sparks your creativit
 pubDate: 2025-09-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy-gun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-make-a-toy-gun&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and exciting with your own hands? Making a toy gun can be a simple and rewarding project that sparks your creativity and keeps you entertained.**

@@ -1,10 +1,14 @@
 ---
-title: "How Do You Build a Dollhouse: Step-by-Step Guide for Beginners"
-description: "Have you ever dreamed of creating your very own miniature world? Building a dollhouse is a fun and rewarding project that lets you bring your imagination to lif"
+title: 'How Do You Build a Dollhouse: Step-by-Step Guide for Beginners'
+description: Have you ever dreamed of creating your very own miniature world? Building
+  a dollhouse is a fun and rewarding project that lets you bring your imagination
+  to lif
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-build-a-dollhouse&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-build-a-dollhouse&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever dreamed of creating your very own miniature world? Building a dollhouse is a fun and rewarding project that lets you bring your imagination to life.**

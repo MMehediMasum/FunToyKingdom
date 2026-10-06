@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Ring Making Project: Easy Steps for Creative Fun"
-description: "Have you ever wanted to create something fun and unique with your own hands? Making your own toy rings is a simple and exciting project that lets you do just th"
+title: 'Diy Toy Ring Making Project: Easy Steps for Creative Fun'
+description: Have you ever wanted to create something fun and unique with your own
+  hands? Making your own toy rings is a simple and exciting project that lets you
+  do just th
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-ring-making-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-ring-making-project&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to create something fun and unique with your own hands? Making your own toy rings is a simple and exciting project that lets you do just that.**

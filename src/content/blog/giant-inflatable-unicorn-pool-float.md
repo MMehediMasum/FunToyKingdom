@@ -1,10 +1,14 @@
 ---
-title: "Giant Inflatable Unicorn Pool Float: Ultimate Summer Fun Guide"
-description: "Imagine yourself floating on water, feeling the sun on your skin, and turning heads with the most eye-catching pool float ever. The Giant Inflatable Unicorn Poo"
+title: 'Giant Inflatable Unicorn Pool Float: Ultimate Summer Fun Guide'
+description: Imagine yourself floating on water, feeling the sun on your skin, and
+  turning heads with the most eye-catching pool float ever. The Giant Inflatable Unicorn
+  Poo
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=giant-inflatable-unicorn-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Giant Inflatable Unicorn Pool Float
+heroImage: https://tse1.mm.bing.net/th?q=giant-inflatable-unicorn-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself floating on water, feeling the sun on your skin, and turning heads with the most eye-catching pool float ever. The Giant Inflatable Unicorn Pool Float isn’t just a fun accessory—it’s your ticket to unforgettable summer moments.**

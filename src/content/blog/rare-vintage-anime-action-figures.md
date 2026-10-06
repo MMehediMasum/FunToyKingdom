@@ -1,10 +1,14 @@
 ---
-title: "Rare Vintage Anime Action Figures: Ultimate Collector’s Guide 2025"
-description: "Are you a fan of anime and love collecting unique treasures? Imagine owning rare vintage anime action figures that not only bring back memories but also grow in"
+title: 'Rare Vintage Anime Action Figures: Ultimate Collector’s Guide 2025'
+description: Are you a fan of anime and love collecting unique treasures? Imagine
+  owning rare vintage anime action figures that not only bring back memories but also
+  grow in
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-vintage-anime-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=rare-vintage-anime-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of anime and love collecting unique treasures? Imagine owning rare vintage anime action figures that not only bring back memories but also grow in value over time.**

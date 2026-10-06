@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Kitchen Set Vintage: Timeless Pretend Play for Creative Kids"
-description: "Wooden toy kitchen sets with vintage designs bring timeless charm to children’s playtime. These classic toys inspire creativity and role play in young kids. Vin"
+title: 'Wooden Toy Kitchen Set Vintage: Timeless Pretend Play for Creative Kids'
+description: Wooden toy kitchen sets with vintage designs bring timeless charm to
+  children’s playtime. These classic toys inspire creativity and role play in young
+  kids. Vin
 pubDate: 2026-08-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-kitchen-set-vintage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-kitchen-set-vintage&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Wooden toy kitchen sets with vintage designs bring timeless charm to children’s playtime. These classic toys inspire creativity and role play in young kids.**

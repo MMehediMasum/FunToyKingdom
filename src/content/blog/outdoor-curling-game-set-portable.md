@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Curling Game Set Portable: Ultimate Fun Anywhere!"
-description: "Imagine turning any outdoor space into your personal curling rink. With the Outdoor Curling Game Set Portable, you can enjoy the thrill of curling anytime, anyw"
+title: 'Outdoor Curling Game Set Portable: Ultimate Fun Anywhere!'
+description: Imagine turning any outdoor space into your personal curling rink. With
+  the Outdoor Curling Game Set Portable, you can enjoy the thrill of curling anytime,
+  anyw
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-curling-game-set-portable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-curling-game-set-portable&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine turning any outdoor space into your personal curling rink. With the Outdoor Curling Game Set Portable, you can enjoy the thrill of curling anytime, anywhere.**

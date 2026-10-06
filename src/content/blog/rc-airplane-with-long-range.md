@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane With Long Range: Ultimate Guide for Maximum Flight"
-description: "Are you ready to take your RC flying experience to new heights? Imagine controlling an RC airplane that can soar farther than you ever thought possible. With a "
+title: 'Rc Airplane With Long Range: Ultimate Guide for Maximum Flight'
+description: 'Are you ready to take your RC flying experience to new heights? Imagine
+  controlling an RC airplane that can soar farther than you ever thought possible.
+  With a '
 pubDate: 2025-10-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-with-long-range&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-with-long-range&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC flying experience to new heights? Imagine controlling an RC airplane that can soar farther than you ever thought possible.**

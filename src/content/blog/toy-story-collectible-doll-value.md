@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Collectible Doll Value: Ultimate Guide to Maximize Worth"
-description: "Are you curious about how much your Toy Story collectible doll could be worth? Whether you found it in a thrift store, inherited it, or kept it safe since child"
+title: 'Toy Story Collectible Doll Value: Ultimate Guide to Maximize Worth'
+description: Are you curious about how much your Toy Story collectible doll could
+  be worth? Whether you found it in a thrift store, inherited it, or kept it safe
+  since child
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-collectible-doll-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-collectible-doll-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about how much your Toy Story collectible doll could be worth? Whether you found it in a thrift store, inherited it, or kept it safe since childhood, understanding its value can be exciting and rewarding.**

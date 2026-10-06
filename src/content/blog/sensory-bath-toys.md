@@ -1,10 +1,14 @@
 ---
-title: "Sensory Bath Toys That Light Up and Spark Toddler Creativity"
-description: "Sensory bath toys make bath time fun and help children learn through play. These toys light up, spin, and connect to engage a child’s senses. Bath time becomes "
+title: Sensory Bath Toys That Light Up and Spark Toddler Creativity
+description: 'Sensory bath toys make bath time fun and help children learn through
+  play. These toys light up, spin, and connect to engage a child’s senses. Bath time
+  becomes '
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory bath toys make bath time fun and help children learn through play. These toys light up, spin, and connect to engage a child’s senses.**

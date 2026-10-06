@@ -1,10 +1,14 @@
 ---
-title: "Toy Figurines: Top Realistic Animal Sets for Kids’ Learning Fun"
-description: "Toy figurines captivate the imagination of children and collectors alike. They offer endless adventures and learning opportunities. From jungle animals to belov"
+title: 'Toy Figurines: Top Realistic Animal Sets for Kids’ Learning Fun'
+description: Toy figurines captivate the imagination of children and collectors alike.
+  They offer endless adventures and learning opportunities. From jungle animals to
+  belov
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy figurines captivate the imagination of children and collectors alike. They offer endless adventures and learning opportunities.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Parrot Sprinkler Kids Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to keep your kids cool and entertained during hot days? The Outdoor Parrot Sprinkler Kids Toy is just what you need. It turns your backyar"
+title: 'Outdoor Parrot Sprinkler Kids Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun way to keep your kids cool and entertained during hot
+  days? The Outdoor Parrot Sprinkler Kids Toy is just what you need. It turns your
+  backyar
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-parrot-sprinkler-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-parrot-sprinkler-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids cool and entertained during hot days? The Outdoor Parrot Sprinkler Kids Toy is just what you need.**

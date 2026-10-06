@@ -1,10 +1,14 @@
 ---
-title: "Antique Metal Toy Cars: Timeless Collectibles for Classic Car Enthusiasts"
-description: "Antique metal toy cars capture the charm of classic vehicles and offer a window into the past. These miniature models are perfect for collectors and car enthusi"
+title: 'Antique Metal Toy Cars: Timeless Collectibles for Classic Car Enthusiasts'
+description: Antique metal toy cars capture the charm of classic vehicles and offer
+  a window into the past. These miniature models are perfect for collectors and car
+  enthusi
 pubDate: 2026-02-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-metal-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=antique-metal-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Antique metal toy cars capture the charm of classic vehicles and offer a window into the past. These miniature models are perfect for collectors and car enthusiasts.**

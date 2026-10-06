@@ -1,10 +1,14 @@
 ---
-title: "Vintage Toy Coins for Collectors: Ultimate Guide to Rare Finds"
-description: "Are you fascinated by the charm of vintage toys? Imagine holding a piece of history right in your hands—tiny coins that once sparked joy in children’s games and"
+title: 'Vintage Toy Coins for Collectors: Ultimate Guide to Rare Finds'
+description: Are you fascinated by the charm of vintage toys? Imagine holding a piece
+  of history right in your hands—tiny coins that once sparked joy in children’s games
+  and
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-toy-coins-for-collectors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=vintage-toy-coins-for-collectors&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you fascinated by the charm of vintage toys? Imagine holding a piece of history right in your hands—tiny coins that once sparked joy in children’s games and now captivate collectors like you.**

@@ -1,10 +1,14 @@
 ---
-title: "Pixar Cars Movie Toys: Top Collectible Mini Racers and Playsets Reviewed"
-description: "Pixar Cars movie toys bring the magic of the film to life for kids and collectors. These toys feature favorite characters and fun playsets inspired by the origi"
+title: 'Pixar Cars Movie Toys: Top Collectible Mini Racers and Playsets Reviewed'
+description: Pixar Cars movie toys bring the magic of the film to life for kids and
+  collectors. These toys feature favorite characters and fun playsets inspired by
+  the origi
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=pixar-cars-movie-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Disney Cars 3 Toys
+heroImage: https://tse1.mm.bing.net/th?q=pixar-cars-movie-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Pixar Cars movie toys bring the magic of the film to life for kids and collectors. These toys feature favorite characters and fun playsets inspired by the original movie.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Person Toy Figurine: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something unique with your own hands? Making a wooden person toy figurine is a fun and rewarding project that anyone can try. Ima"
+title: 'How to Make Wooden Person Toy Figurine: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something unique with your own hands?
+  Making a wooden person toy figurine is a fun and rewarding project that anyone can
+  try. Ima
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-person-toy-figurine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Figurine
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-person-toy-figurine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something unique with your own hands? Making a wooden person toy figurine is a fun and rewarding project that anyone can try.**

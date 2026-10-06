@@ -1,10 +1,14 @@
 ---
-title: "Tokyo Toy Fair Action Figure Reveals: Exclusive Collectible Unveils"
-description: "Are you ready to see the coolest action figures hitting the market soon? The Tokyo Toy Fair just unveiled some incredible new toys that every collector and fan "
+title: 'Tokyo Toy Fair Action Figure Reveals: Exclusive Collectible Unveils'
+description: 'Are you ready to see the coolest action figures hitting the market soon?
+  The Tokyo Toy Fair just unveiled some incredible new toys that every collector and
+  fan '
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=tokyo-toy-fair-action-figure-reveals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=tokyo-toy-fair-action-figure-reveals&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to see the coolest action figures hitting the market soon? The Tokyo Toy Fair just unveiled some incredible new toys that every collector and fan will want to know about.**

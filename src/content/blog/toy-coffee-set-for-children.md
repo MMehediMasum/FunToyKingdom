@@ -1,10 +1,14 @@
 ---
-title: "Toy Coffee Set for Children: Perfect Pretend Play for Creative Kids"
-description: "A toy coffee set for children sparks creativity and fun in young minds. It offers a safe way to enjoy pretend play and learn daily skills. These wooden and inte"
+title: 'Toy Coffee Set for Children: Perfect Pretend Play for Creative Kids'
+description: A toy coffee set for children sparks creativity and fun in young minds.
+  It offers a safe way to enjoy pretend play and learn daily skills. These wooden
+  and inte
 pubDate: 2026-09-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-coffee-set-for-children&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=toy-coffee-set-for-children&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **A toy coffee set for children sparks creativity and fun in young minds. It offers a safe way to enjoy pretend play and learn daily skills.**

@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Clown Woodworking: Crafting Delightful Timeless Treasures"
-description: "Are you looking for a fun and creative woodworking project that brings joy to both you and those around you? Building a wooden toy clown is a perfect way to tur"
+title: 'Wooden Toy Clown Woodworking: Crafting Delightful Timeless Treasures'
+description: Are you looking for a fun and creative woodworking project that brings
+  joy to both you and those around you? Building a wooden toy clown is a perfect way
+  to tur
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-clown-woodworking&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-clown-woodworking&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative woodworking project that brings joy to both you and those around you? Building a wooden toy clown is a perfect way to turn simple wood into a charming, timeless piece.**

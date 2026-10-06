@@ -1,10 +1,14 @@
 ---
-title: "Learning Toys for 2 Year Old: Top Picks for Fun & Growth"
-description: "Are you looking for the perfect toys that help your 2-year-old learn and grow? Choosing the right learning toys can make a big difference in your child’s develo"
+title: 'Learning Toys for 2 Year Old: Top Picks for Fun & Growth'
+description: Are you looking for the perfect toys that help your 2-year-old learn
+  and grow? Choosing the right learning toys can make a big difference in your child’s
+  develo
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=learning-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=learning-toys-for-2-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect toys that help your 2-year-old learn and grow? Choosing the right learning toys can make a big difference in your child’s development.**

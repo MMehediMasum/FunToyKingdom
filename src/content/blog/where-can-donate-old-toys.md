@@ -1,10 +1,14 @@
 ---
-title: "Where Can Donate Old Toys: Top Places to Make a Difference Today"
-description: "Do you have old toys lying around that no longer bring joy to your home? Instead of letting them gather dust or throw them away, you can give those toys a new l"
+title: 'Where Can Donate Old Toys: Top Places to Make a Difference Today'
+description: Do you have old toys lying around that no longer bring joy to your home?
+  Instead of letting them gather dust or throw them away, you can give those toys
+  a new l
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-donate-old-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-donate-old-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have old toys lying around that no longer bring joy to your home? Instead of letting them gather dust or throw them away, you can give those toys a new life by donating them.**

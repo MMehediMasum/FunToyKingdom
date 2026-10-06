@@ -1,10 +1,14 @@
 ---
-title: "Voice Command Toy Robot Dog: Ultimate Interactive Pet for Kids"
-description: "Imagine having a playful companion that listens to your every word and responds instantly. A voice command toy robot dog is more than just a gadget—it’s your ne"
+title: 'Voice Command Toy Robot Dog: Ultimate Interactive Pet for Kids'
+description: Imagine having a playful companion that listens to your every word and
+  responds instantly. A voice command toy robot dog is more than just a gadget—it’s
+  your ne
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=voice-command-toy-robot-dog&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=voice-command-toy-robot-dog&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having a playful companion that listens to your every word and responds instantly. A voice command toy robot dog is more than just a gadget—it’s your new best friend that can follow your commands, entertain you, and even learn tricks.**

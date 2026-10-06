@@ -1,10 +1,14 @@
 ---
-title: "Rope Toys for Cats: Top Chewable Catnip Ropes for Healthy Teeth"
-description: "Rope toys for cats offer fun and healthy playtime for your furry friend. These toys help clean teeth and keep cats active indoors. Cats love to chew, chase, and"
+title: 'Rope Toys for Cats: Top Chewable Catnip Ropes for Healthy Teeth'
+description: Rope toys for cats offer fun and healthy playtime for your furry friend.
+  These toys help clean teeth and keep cats active indoors. Cats love to chew, chase,
+  and
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rope-toys-for-cats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rope Toys For Dogs Cheap
+heroImage: https://tse1.mm.bing.net/th?q=rope-toys-for-cats&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Rope toys for cats offer fun and healthy playtime for your furry friend. These toys help clean teeth and keep cats active indoors.**

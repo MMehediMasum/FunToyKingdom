@@ -1,10 +1,14 @@
 ---
-title: "Infant Toy Set: Top Sensory Rattles and Teethers for Baby Development"
-description: "Choosing the right toys for infants can greatly influence their development. Infant toy sets offer a variety of engaging options. These toys are designed to sup"
+title: 'Infant Toy Set: Top Sensory Rattles and Teethers for Baby Development'
+description: Choosing the right toys for infants can greatly influence their development.
+  Infant toy sets offer a variety of engaging options. These toys are designed to
+  sup
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=infant-toy-set&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for infants can greatly influence their development. Infant toy sets offer a variety of engaging options.**

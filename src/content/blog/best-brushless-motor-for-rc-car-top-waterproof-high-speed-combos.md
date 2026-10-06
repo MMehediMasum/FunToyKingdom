@@ -1,10 +1,14 @@
 ---
-title: "Best Brushless Motor for Rc Car: Top Waterproof High-Speed Combos"
-description: "Choosing the best brushless motor for your RC car improves speed, power, and control. This guide covers top options for 1/10 and smaller scale RC vehicles. Brus"
+title: 'Best Brushless Motor for Rc Car: Top Waterproof High-Speed Combos'
+description: Choosing the best brushless motor for your RC car improves speed, power,
+  and control. This guide covers top options for 1/10 and smaller scale RC vehicles.
+  Brus
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-brushless-motor-for-rc-car-top-waterproof-high-speed-combos&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Bashing Top
+heroImage: https://tse1.mm.bing.net/th?q=best-brushless-motor-for-rc-car-top-waterproof-high-speed-combos&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best brushless motor for your RC car improves speed, power, and control. This guide covers top options for 1/10 and smaller scale RC vehicles.**

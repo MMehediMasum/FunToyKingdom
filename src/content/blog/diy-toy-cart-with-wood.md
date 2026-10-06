@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Cart With Wood: Easy Step-by-Step Guide for Kids"
-description: "Are you looking for a fun and rewarding project that you can create with your own hands? Building a DIY toy cart with wood is the perfect way to bring your crea"
+title: 'Diy Toy Cart With Wood: Easy Step-by-Step Guide for Kids'
+description: Are you looking for a fun and rewarding project that you can create with
+  your own hands? Building a DIY toy cart with wood is the perfect way to bring your
+  crea
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-cart-with-wood&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-cart-with-wood&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and rewarding project that you can create with your own hands? Building a DIY toy cart with wood is the perfect way to bring your creativity to life while making something useful and charming.**

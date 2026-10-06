@@ -1,10 +1,14 @@
 ---
-title: "Electronic Gumball Machine Toy: Fun, Interactive Candy Dispenser Guide"
-description: "Imagine having a toy that brings fun and surprise every time you play with it. The Electronic Gumball Machine Toy does just that. It’s more than a simple toy—it"
+title: 'Electronic Gumball Machine Toy: Fun, Interactive Candy Dispenser Guide'
+description: Imagine having a toy that brings fun and surprise every time you play
+  with it. The Electronic Gumball Machine Toy does just that. It’s more than a simple
+  toy—it
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-gumball-machine-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=electronic-gumball-machine-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine having a toy that brings fun and surprise every time you play with it. The Electronic Gumball Machine Toy does just that.**

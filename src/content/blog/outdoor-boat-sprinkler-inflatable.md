@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Boat Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into the ultimate fun zone where you and your friends can cool off and laugh for hours. That’s exactly what an outdoor boat sprink"
+title: 'Outdoor Boat Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into the ultimate fun zone where you and
+  your friends can cool off and laugh for hours. That’s exactly what an outdoor boat
+  sprink
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-boat-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-boat-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where you and your friends can cool off and laugh for hours. That’s exactly what an outdoor boat sprinkler inflatable can do for you.**

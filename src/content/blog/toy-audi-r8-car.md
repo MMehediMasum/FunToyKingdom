@@ -1,10 +1,14 @@
 ---
-title: "Toy Audi R8 Car: Top Diecast and Remote Control Models for Kids"
-description: "The Toy Audi R8 Car is a popular choice for kids and collectors. It offers detailed design and fun features in a small package. This toy car captures the look o"
+title: 'Toy Audi R8 Car: Top Diecast and Remote Control Models for Kids'
+description: The Toy Audi R8 Car is a popular choice for kids and collectors. It offers
+  detailed design and fun features in a small package. This toy car captures the look
+  o
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-audi-r8-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-audi-r8-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **The Toy Audi R8 Car is a popular choice for kids and collectors. It offers detailed design and fun features in a small package.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "American Girl Doll Best Sellers Blog Post: Top Picks Revealed!"
 description: "Are you looking for the perfect American Girl Doll that your child will love? You’ve come to the right place. Choosing the best-selling dolls means you get qual"
 pubDate: 2025-11-02

@@ -1,10 +1,14 @@
 ---
-title: "Best RC Airplanes for Beginners: Easy-to-Fly Top Picks for All Ages"
-description: "Choosing the best RC airplanes for beginners can make flying fun and easy. Simple controls and stable flight help new pilots learn fast. Remote control airplane"
+title: 'Best RC Airplanes for Beginners: Easy-to-Fly Top Picks for All Ages'
+description: Choosing the best RC airplanes for beginners can make flying fun and
+  easy. Simple controls and stable flight help new pilots learn fast. Remote control
+  airplane
 pubDate: 2025-12-22
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-airplanes-for-beginners-easy-to-fly-top-picks-for-all-ages&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-airplanes-for-beginners-easy-to-fly-top-picks-for-all-ages&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best RC airplanes for beginners can make flying fun and easy. Simple controls and stable flight help new pilots learn fast.**

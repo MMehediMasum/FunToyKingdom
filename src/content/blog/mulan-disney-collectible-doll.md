@@ -1,10 +1,14 @@
 ---
-title: "Mulan Disney Collectible Doll: Stunning Details Every Fan Must See"
-description: "Are you a fan of Disney magic and timeless stories? Imagine holding a piece of that magic in your hands—a Mulan Disney Collectible Doll that brings courage, str"
+title: 'Mulan Disney Collectible Doll: Stunning Details Every Fan Must See'
+description: Are you a fan of Disney magic and timeless stories? Imagine holding a
+  piece of that magic in your hands—a Mulan Disney Collectible Doll that brings courage,
+  str
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=mulan-disney-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=mulan-disney-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Disney magic and timeless stories? Imagine holding a piece of that magic in your hands—a Mulan Disney Collectible Doll that brings courage, strength, and beauty right to your shelf.**

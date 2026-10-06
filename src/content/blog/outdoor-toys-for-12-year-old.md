@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toys for 12 Year Old: Top Fun Picks for Active Kids"
-description: "Looking for the perfect outdoor toys for your 12-year-old? You want something that keeps them active, sparks their creativity, and makes playtime exciting. But "
+title: 'Outdoor Toys for 12 Year Old: Top Fun Picks for Active Kids'
+description: 'Looking for the perfect outdoor toys for your 12-year-old? You want
+  something that keeps them active, sparks their creativity, and makes playtime exciting.
+  But '
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-12-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect outdoor toys for your 12-year-old? You want something that keeps them active, sparks their creativity, and makes playtime exciting.**

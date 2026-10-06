@@ -1,10 +1,14 @@
 ---
-title: "Do You Want to Build a Snowman Toy: Ultimate DIY Guide for Kids"
-description: "Do you want to build a snowman toy that brings joy and fun to your home? Imagine creating a little winter friend you can hold, decorate, and even play with anyt"
+title: 'Do You Want to Build a Snowman Toy: Ultimate DIY Guide for Kids'
+description: Do you want to build a snowman toy that brings joy and fun to your home?
+  Imagine creating a little winter friend you can hold, decorate, and even play with
+  anyt
 pubDate: 2025-09-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-want-to-build-a-snowman-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=do-you-want-to-build-a-snowman-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you want to build a snowman toy that brings joy and fun to your home? Imagine creating a little winter friend you can hold, decorate, and even play with anytime you want.**

@@ -1,10 +1,14 @@
 ---
-title: "Underwater Drone Kids Play: Ultimate Fun & Learning Guide"
-description: "Imagine your child exploring a whole new world right from your backyard or a nearby pool. Underwater drone kids play opens up exciting adventures beneath the su"
+title: 'Underwater Drone Kids Play: Ultimate Fun & Learning Guide'
+description: Imagine your child exploring a whole new world right from your backyard
+  or a nearby pool. Underwater drone kids play opens up exciting adventures beneath
+  the su
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=underwater-drone-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=underwater-drone-kids-play&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine your child exploring a whole new world right from your backyard or a nearby pool. Underwater drone kids play opens up exciting adventures beneath the surface, sparking curiosity and creativity like never before.**

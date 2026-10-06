@@ -1,10 +1,14 @@
 ---
-title: "How to Do Toy Rotation: Boost Playtime and Learning Fun"
-description: "Are your kids losing interest in their toys faster than you can keep up? You’re not alone. Toy rotation is a simple trick that can make playtime exciting again—"
+title: 'How to Do Toy Rotation: Boost Playtime and Learning Fun'
+description: Are your kids losing interest in their toys faster than you can keep
+  up? You’re not alone. Toy rotation is a simple trick that can make playtime exciting
+  again—
 pubDate: 2025-10-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-do-toy-rotation&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=how-to-do-toy-rotation&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are your kids losing interest in their toys faster than you can keep up? You’re not alone.**

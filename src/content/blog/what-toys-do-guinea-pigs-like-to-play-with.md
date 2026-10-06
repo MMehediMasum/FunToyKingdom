@@ -1,10 +1,14 @@
 ---
-title: "What Toys Do Guinea Pigs Like to Play With: Top Fun Picks"
-description: "If you have a guinea pig, you know how important it is to keep your little friend happy and active. But what toys do guinea pigs like to play with? Finding the "
+title: 'What Toys Do Guinea Pigs Like to Play With: Top Fun Picks'
+description: 'If you have a guinea pig, you know how important it is to keep your
+  little friend happy and active. But what toys do guinea pigs like to play with?
+  Finding the '
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-do-guinea-pigs-like-to-play-with&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-do-guinea-pigs-like-to-play-with&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you have a guinea pig, you know how important it is to keep your little friend happy and active. But what toys do guinea pigs like to play with?**

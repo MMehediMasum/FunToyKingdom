@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys With Lights And Sounds: Top Picks For Engaging Baby Playtime"
-description: "Infant toys with lights and sounds capture babies’ attention and encourage early learning. These toys support sensory development and motor skills in a fun way."
+title: 'Infant Toys With Lights And Sounds: Top Picks For Engaging Baby Playtime'
+description: Infant toys with lights and sounds capture babies’ attention and encourage
+  early learning. These toys support sensory development and motor skills in a fun
+  way.
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-with-lights-and-sounds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-with-lights-and-sounds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant toys with lights and sounds capture babies’ attention and encourage early learning. These toys support sensory development and motor skills in a fun way.**

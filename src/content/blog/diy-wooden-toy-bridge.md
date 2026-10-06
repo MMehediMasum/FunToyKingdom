@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Bridge: Easy Steps for a Stunning Build"
-description: "Are you looking for a fun and creative project that you can build with your own hands? A DIY wooden toy bridge is the perfect choice. Not only will you enjoy ma"
+title: 'Diy Wooden Toy Bridge: Easy Steps for a Stunning Build'
+description: Are you looking for a fun and creative project that you can build with
+  your own hands? A DIY wooden toy bridge is the perfect choice. Not only will you
+  enjoy ma
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-bridge&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-bridge&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can build with your own hands? A DIY wooden toy bridge is the perfect choice.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Toy Robot at Home: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something fun and unique with your own hands? Making a toy robot at home is easier than you think—and it’s a great way to bring y"
+title: 'How to Make a Toy Robot at Home: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something fun and unique with your own
+  hands? Making a toy robot at home is easier than you think—and it’s a great way
+  to bring y
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-robot-at-home&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-robot-at-home&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to create something fun and unique with your own hands? Making a toy robot at home is easier than you think—and it’s a great way to bring your imagination to life.**

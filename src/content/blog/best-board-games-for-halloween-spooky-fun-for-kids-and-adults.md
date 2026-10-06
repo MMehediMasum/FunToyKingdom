@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games for Halloween: Spooky Fun for Kids and Adults"
-description: "Halloween calls for spooky fun with the best board games that bring thrills and chills. These games create perfect moments for friends and family to enjoy toget"
+title: 'Best Board Games for Halloween: Spooky Fun for Kids and Adults'
+description: Halloween calls for spooky fun with the best board games that bring thrills
+  and chills. These games create perfect moments for friends and family to enjoy toget
 pubDate: 2025-12-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-halloween-spooky-fun-for-kids-and-adults&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-halloween-spooky-fun-for-kids-and-adults&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Halloween calls for spooky fun with the best board games that bring thrills and chills. These games create perfect moments for friends and family to enjoy together.**

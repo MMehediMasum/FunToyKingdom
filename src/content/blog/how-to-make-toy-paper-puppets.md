@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Paper Puppets: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and simple way to bring your creativity to life? Making toy paper puppets is an easy and exciting craft you can do right at home. With"
+title: 'How to Make Toy Paper Puppets: Easy Steps for Creative Fun'
+description: Are you looking for a fun and simple way to bring your creativity to
+  life? Making toy paper puppets is an easy and exciting craft you can do right at
+  home. With
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-paper-puppets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-paper-puppets&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple way to bring your creativity to life? Making toy paper puppets is an easy and exciting craft you can do right at home.**

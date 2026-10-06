@@ -1,10 +1,14 @@
 ---
-title: "Best Doll Houses for 2 Year Olds: Top Safe & Fun Playhouses"
-description: "Choosing the best doll house for 2 year olds helps boost their creativity and play skills. A good doll house fits their size and interests perfectly. Toddlers l"
+title: 'Best Doll Houses for 2 Year Olds: Top Safe & Fun Playhouses'
+description: Choosing the best doll house for 2 year olds helps boost their creativity
+  and play skills. A good doll house fits their size and interests perfectly. Toddlers
+  l
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-doll-houses-for-2-year-olds-top-safe-fun-playhouses&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-doll-houses-for-2-year-olds-top-safe-fun-playhouses&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best doll house for 2 year olds helps boost their creativity and play skills. A good doll house fits their size and interests perfectly.**

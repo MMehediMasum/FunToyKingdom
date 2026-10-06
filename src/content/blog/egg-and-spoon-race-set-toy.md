@@ -1,10 +1,14 @@
 ---
-title: "Egg And Spoon Race Set Toy: Ultimate Fun for Kids & Families"
-description: "Looking for a fun way to bring laughter and excitement to your next family gathering or party? The Egg And Spoon Race Set Toy is exactly what you need. It’s sim"
+title: 'Egg And Spoon Race Set Toy: Ultimate Fun for Kids & Families'
+description: Looking for a fun way to bring laughter and excitement to your next family
+  gathering or party? The Egg And Spoon Race Set Toy is exactly what you need. It’s
+  sim
 pubDate: 2025-09-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=egg-and-spoon-race-set-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=egg-and-spoon-race-set-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Looking for a fun way to bring laughter and excitement to your next family gathering or party? The Egg And Spoon Race Set Toy is exactly what you need.**

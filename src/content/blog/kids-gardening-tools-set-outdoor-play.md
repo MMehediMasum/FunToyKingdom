@@ -1,10 +1,14 @@
 ---
-title: "Kids Gardening Tools Set Outdoor Play: Ultimate Fun & Learning Guide"
-description: "Are you looking for a fun way to get your kids outside and excited about nature? A kids gardening tools set for outdoor play is just what you need. Imagine your"
+title: 'Kids Gardening Tools Set Outdoor Play: Ultimate Fun & Learning Guide'
+description: Are you looking for a fun way to get your kids outside and excited about
+  nature? A kids gardening tools set for outdoor play is just what you need. Imagine
+  your
 pubDate: 2026-04-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-gardening-tools-set-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=kids-gardening-tools-set-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your kids outside and excited about nature? A kids gardening tools set for outdoor play is just what you need.**

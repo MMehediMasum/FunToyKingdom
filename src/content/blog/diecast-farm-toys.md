@@ -1,10 +1,14 @@
 ---
-title: "Diecast Farm Toys: Top Realistic Tractor Sets for Kids’ Playtime Fun"
-description: "Diecast farm toys bring farming fun to kids and collectors alike. These miniature tractors and trucks offer realistic play and display options. Farm toys made f"
+title: 'Diecast Farm Toys: Top Realistic Tractor Sets for Kids’ Playtime Fun'
+description: Diecast farm toys bring farming fun to kids and collectors alike. These
+  miniature tractors and trucks offer realistic play and display options. Farm toys
+  made f
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-farm-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-farm-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast farm toys bring farming fun to kids and collectors alike. These miniature tractors and trucks offer realistic play and display options.**

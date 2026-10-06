@@ -1,10 +1,14 @@
 ---
-title: "Where Can You Donate Used Toys: Top Charities That Truly Matter"
-description: "Do you have a box of used toys sitting around, wondering how to give them a new life? Donating your gently used toys can bring joy to children who need them the"
+title: 'Where Can You Donate Used Toys: Top Charities That Truly Matter'
+description: Do you have a box of used toys sitting around, wondering how to give
+  them a new life? Donating your gently used toys can bring joy to children who need
+  them the
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-you-donate-used-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-you-donate-used-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have a box of used toys sitting around, wondering how to give them a new life? Donating your gently used toys can bring joy to children who need them the most.**

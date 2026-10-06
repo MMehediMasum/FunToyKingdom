@@ -1,10 +1,14 @@
 ---
-title: "Best Toy Doctor Kit for Toddlers: Top Picks for Fun Role Play"
-description: "Choosing the best toy doctor kit helps children learn about healthcare through fun role play. These kits encourage imagination and teach basic medical skills. T"
+title: 'Best Toy Doctor Kit for Toddlers: Top Picks for Fun Role Play'
+description: Choosing the best toy doctor kit helps children learn about healthcare
+  through fun role play. These kits encourage imagination and teach basic medical
+  skills. T
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toy-doctor-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-toy-doctor-kit&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Choosing the best toy doctor kit helps children learn about healthcare through fun role play. These kits encourage imagination and teach basic medical skills.**

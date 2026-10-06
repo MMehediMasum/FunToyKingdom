@@ -1,10 +1,14 @@
 ---
-title: "Foam Bowling Set for Toddlers: Safe, Fun, and Educational Playtime"
-description: "Looking for a fun and safe way to keep your little one active? A foam bowling set for toddlers might be just what you need. Imagine your child’s excitement as t"
+title: 'Foam Bowling Set for Toddlers: Safe, Fun, and Educational Playtime'
+description: Looking for a fun and safe way to keep your little one active? A foam
+  bowling set for toddlers might be just what you need. Imagine your child’s excitement
+  as t
 pubDate: 2026-04-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=foam-bowling-set-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=foam-bowling-set-for-toddlers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your little one active? A foam bowling set for toddlers might be just what you need.**

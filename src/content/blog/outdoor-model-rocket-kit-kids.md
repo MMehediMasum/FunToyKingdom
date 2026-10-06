@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Model Rocket Kit Kids: Exciting STEM Fun for Beginners"
-description: "Are you looking for a fun and exciting way to spark your child’s curiosity? An outdoor model rocket kit for kids is the perfect choice. It’s hands-on, education"
+title: 'Outdoor Model Rocket Kit Kids: Exciting STEM Fun for Beginners'
+description: Are you looking for a fun and exciting way to spark your child’s curiosity?
+  An outdoor model rocket kit for kids is the perfect choice. It’s hands-on, education
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-model-rocket-kit-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-model-rocket-kit-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s curiosity? An outdoor model rocket kit for kids is the perfect choice.**

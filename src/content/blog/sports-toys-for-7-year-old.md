@@ -1,10 +1,14 @@
 ---
-title: "Sports Toys for 7 Year Old: Top Fun Picks to Boost Active Play"
-description: "Are you looking for the perfect sports toys to keep your 7-year-old active and happy? Choosing the right toy can make a big difference in how much your child en"
+title: 'Sports Toys for 7 Year Old: Top Fun Picks to Boost Active Play'
+description: Are you looking for the perfect sports toys to keep your 7-year-old active
+  and happy? Choosing the right toy can make a big difference in how much your child
+  en
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sports-toys-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sports Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sports-toys-for-7-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect sports toys to keep your 7-year-old active and happy? Choosing the right toy can make a big difference in how much your child enjoys playtime and stays healthy.**

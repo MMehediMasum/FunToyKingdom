@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Baby Toys That Can'T Be Washed: Easy & Safe Tips"
-description: "Your baby’s toys are a constant source of joy—and germs. But what do you do when those toys can’t be washed in the usual way? You want to keep your little one s"
+title: 'How to Clean Baby Toys That Can''T Be Washed: Easy & Safe Tips'
+description: Your baby’s toys are a constant source of joy—and germs. But what do
+  you do when those toys can’t be washed in the usual way? You want to keep your little
+  one s
 pubDate: 2025-09-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-baby-toys-that-cant-be-washed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-baby-toys-that-cant-be-washed&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Your baby’s toys are a constant source of joy—and germs. But what do you do when those toys can’t be washed in the usual way?**

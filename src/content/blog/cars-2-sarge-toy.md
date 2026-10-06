@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Sarge Toy Review: Best Diecast Metal Racer for Kids"
-description: "The Cars 2 Sarge toy captures the essence of the beloved character from the Cars movies. This diecast vehicle is perfect for young fans and collectors. Sarge, a"
+title: 'Cars 2 Sarge Toy Review: Best Diecast Metal Racer for Kids'
+description: The Cars 2 Sarge toy captures the essence of the beloved character from
+  the Cars movies. This diecast vehicle is perfect for young fans and collectors.
+  Sarge, a
 pubDate: 2026-03-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-sarge-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-sarge-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 Sarge toy captures the essence of the beloved character from the Cars movies. This diecast vehicle is perfect for young fans and collectors.**

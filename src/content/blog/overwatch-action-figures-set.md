@@ -1,10 +1,14 @@
 ---
-title: "Overwatch Action Figures Set: Ultimate Collectors' Dream Unboxed"
-description: "Are you a fan of Overwatch and love collecting cool action figures? Imagine having your favorite heroes right on your shelf, ready to bring your gaming battles "
+title: 'Overwatch Action Figures Set: Ultimate Collectors'' Dream Unboxed'
+description: 'Are you a fan of Overwatch and love collecting cool action figures?
+  Imagine having your favorite heroes right on your shelf, ready to bring your gaming
+  battles '
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=overwatch-action-figures-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=overwatch-action-figures-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Overwatch and love collecting cool action figures? Imagine having your favorite heroes right on your shelf, ready to bring your gaming battles to life.**

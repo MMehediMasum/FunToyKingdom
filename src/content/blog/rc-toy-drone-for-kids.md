@@ -1,10 +1,14 @@
 ---
-title: "Rc Toy Drone for Kids: Ultimate Guide to Safe Fun and Learning"
-description: "Are you looking for a fun and exciting way to spark your child’s imagination? An RC toy drone for kids might be just what you need. These tiny flying gadgets ar"
+title: 'Rc Toy Drone for Kids: Ultimate Guide to Safe Fun and Learning'
+description: Are you looking for a fun and exciting way to spark your child’s imagination?
+  An RC toy drone for kids might be just what you need. These tiny flying gadgets
+  ar
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-toy-drone-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-toy-drone-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s imagination? An RC toy drone for kids might be just what you need.**

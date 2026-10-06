@@ -1,10 +1,14 @@
 ---
-title: "Porcelain Tea Set Toy: Perfect Kids’ Pretend Play for Tea Parties"
-description: "Porcelain tea set toys bring classic charm to children’s playtime. These delicate sets offer fun and creativity in one package. Children enjoy hosting tea parti"
+title: 'Porcelain Tea Set Toy: Perfect Kids’ Pretend Play for Tea Parties'
+description: Porcelain tea set toys bring classic charm to children’s playtime. These
+  delicate sets offer fun and creativity in one package. Children enjoy hosting tea
+  parti
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=porcelain-tea-set-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=porcelain-tea-set-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Porcelain tea set toys bring classic charm to children’s playtime. These delicate sets offer fun and creativity in one package.**

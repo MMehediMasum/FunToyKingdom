@@ -1,10 +1,14 @@
 ---
-title: "How to Repaint Action Figure Faces: Expert Tips for Flawless Results"
-description: "Have you ever looked at your favorite action figure and wished its face looked fresher, sharper, or just more like the character you love? Repainting action fig"
+title: 'How to Repaint Action Figure Faces: Expert Tips for Flawless Results'
+description: Have you ever looked at your favorite action figure and wished its face
+  looked fresher, sharper, or just more like the character you love? Repainting action
+  fig
 pubDate: 2025-08-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-repaint-action-figure-faces&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=how-to-repaint-action-figure-faces&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever looked at your favorite action figure and wished its face looked fresher, sharper, or just more like the character you love? Repainting action figure faces can bring new life to your collection, making each piece truly stand out.**

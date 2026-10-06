@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Buggy for Kids: Top Durable & Fun Models Reviewed"
-description: "Looking for the best RC buggy for kids? You want something fun, safe, and easy to use. But with so many options out there, how do you pick the right one? This g"
+title: 'Best Rc Buggy for Kids: Top Durable & Fun Models Reviewed'
+description: Looking for the best RC buggy for kids? You want something fun, safe,
+  and easy to use. But with so many options out there, how do you pick the right one?
+  This g
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-buggy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-buggy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the best RC buggy for kids? You want something fun, safe, and easy to use.**

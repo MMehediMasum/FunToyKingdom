@@ -1,10 +1,13 @@
 ---
-title: "Rc Rocket Launcher Toy Safe for Kids: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun and exciting toy that your kids can enjoy safely? An RC rocket launcher toy might be just what you need. But safety is the top priorit"
+title: 'Rc Rocket Launcher Toy Safe for Kids: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun and exciting toy that your kids can enjoy safely?
+  An RC rocket launcher toy might be just what you need. But safety is the top priorit
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-rocket-launcher-toy-safe-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-rocket-launcher-toy-safe-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and exciting toy that your kids can enjoy safely? An RC rocket launcher toy might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Introduction to Coding With Toy Robots: Fun, Easy, and Educational"
-description: "Have you ever wondered how coding can be fun and easy to learn? Imagine controlling a toy robot with your own commands and watching it come to life. Coding with"
+title: 'Introduction to Coding With Toy Robots: Fun, Easy, and Educational'
+description: Have you ever wondered how coding can be fun and easy to learn? Imagine
+  controlling a toy robot with your own commands and watching it come to life. Coding
+  with
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=introduction-to-coding-with-toy-robots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robots For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=introduction-to-coding-with-toy-robots&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered how coding can be fun and easy to learn? Imagine controlling a toy robot with your own commands and watching it come to life.**

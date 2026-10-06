@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Collectible Editions Value: Unlock Rare Treasure Worth"
-description: "Have you ever wondered if your old Monopoly collectible editions could be worth more than just memories? Whether you’ve kept them on a shelf or tucked them away"
+title: 'Monopoly Collectible Editions Value: Unlock Rare Treasure Worth'
+description: Have you ever wondered if your old Monopoly collectible editions could
+  be worth more than just memories? Whether you’ve kept them on a shelf or tucked
+  them away
 pubDate: 2025-09-27
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-collectible-editions-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Monopoly Toys
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-collectible-editions-value&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered if your old Monopoly collectible editions could be worth more than just memories? Whether you’ve kept them on a shelf or tucked them away in a box, these special versions might hold surprising value.**

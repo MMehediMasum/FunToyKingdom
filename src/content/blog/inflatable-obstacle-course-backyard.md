@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Obstacle Course Backyard: Ultimate Fun for Kids & Adults"
-description: "Imagine turning your backyard into the ultimate fun zone where laughter never stops and energy runs wild. An inflatable obstacle course backyard setup is just w"
+title: 'Inflatable Obstacle Course Backyard: Ultimate Fun for Kids & Adults'
+description: Imagine turning your backyard into the ultimate fun zone where laughter
+  never stops and energy runs wild. An inflatable obstacle course backyard setup is
+  just w
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-obstacle-course-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-obstacle-course-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where laughter never stops and energy runs wild. An inflatable obstacle course backyard setup is just what you need to create unforgettable moments for your family and friends.**

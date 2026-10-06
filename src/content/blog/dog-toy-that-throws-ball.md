@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy That Throws Ball: Top Automatic Launchers for Active Dogs"
-description: "A dog toy that throws balls can keep your pet active and entertained for hours. These automatic ball launchers help dogs exercise, even when owners are busy. Au"
+title: 'Dog Toy That Throws Ball: Top Automatic Launchers for Active Dogs'
+description: A dog toy that throws balls can keep your pet active and entertained
+  for hours. These automatic ball launchers help dogs exercise, even when owners are
+  busy. Au
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-that-throws-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-that-throws-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **A dog toy that throws balls can keep your pet active and entertained for hours. These automatic ball launchers help dogs exercise, even when owners are busy.**

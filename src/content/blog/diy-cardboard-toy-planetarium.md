@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Planetarium: Create an Amazing Space Adventure"
-description: "Have you ever wanted to bring the magic of the stars right into your own home? Imagine creating your very own planetarium using simple cardboard and a few easy "
+title: 'Diy Cardboard Toy Planetarium: Create an Amazing Space Adventure'
+description: 'Have you ever wanted to bring the magic of the stars right into your
+  own home? Imagine creating your very own planetarium using simple cardboard and
+  a few easy '
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-planetarium&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-planetarium&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wanted to bring the magic of the stars right into your own home? Imagine creating your very own planetarium using simple cardboard and a few easy materials.**

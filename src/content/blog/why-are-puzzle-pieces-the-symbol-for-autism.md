@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Why are Puzzle Pieces the Symbol for Autism: Unveiling the Meaning"
 description: "Have you ever wondered why puzzle pieces are used to represent autism? You might see them everywhere—from ribbons to logos—but what do they really mean? Underst"
 pubDate: 2025-09-17

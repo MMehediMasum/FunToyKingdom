@@ -1,10 +1,14 @@
 ---
-title: "Monster High Dollhouse Playset: Ultimate Guide for Fun & Creativity"
-description: "Imagine having a place where your favorite Monster High dolls come to life, filled with spooky style and endless fun. The Monster High Dollhouse Playset is just"
+title: 'Monster High Dollhouse Playset: Ultimate Guide for Fun & Creativity'
+description: Imagine having a place where your favorite Monster High dolls come to
+  life, filled with spooky style and endless fun. The Monster High Dollhouse Playset
+  is just
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-dollhouse-playset&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-dollhouse-playset&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine having a place where your favorite Monster High dolls come to life, filled with spooky style and endless fun. The Monster High Dollhouse Playset is just that—a perfect spot for your dolls to hang out, throw parties, and create exciting stories.**

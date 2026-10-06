@@ -1,10 +1,14 @@
 ---
-title: "Open Ended Toys for Infants: Top Montessori Picks for Early Learning"
-description: "Open-ended toys for infants encourage creativity and development. They offer endless possibilities for play and learning. Selecting the right toys for infants c"
+title: 'Open Ended Toys for Infants: Top Montessori Picks for Early Learning'
+description: Open-ended toys for infants encourage creativity and development. They
+  offer endless possibilities for play and learning. Selecting the right toys for
+  infants c
 pubDate: 2026-02-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=open-ended-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=open-ended-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Open-ended toys for infants encourage creativity and development. They offer endless possibilities for play and learning.**

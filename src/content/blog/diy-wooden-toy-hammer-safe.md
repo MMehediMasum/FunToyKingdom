@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Hammer Safe: Ultimate Guide for Kids’ Playtime Fun"
-description: "Are you looking for a fun and safe way to keep your little one entertained? A DIY wooden toy hammer could be just what you need. Not only is it easy to make, bu"
+title: 'Diy Wooden Toy Hammer Safe: Ultimate Guide for Kids’ Playtime Fun'
+description: Are you looking for a fun and safe way to keep your little one entertained?
+  A DIY wooden toy hammer could be just what you need. Not only is it easy to make,
+  bu
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-hammer-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-hammer-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and safe way to keep your little one entertained? A DIY wooden toy hammer could be just what you need.**

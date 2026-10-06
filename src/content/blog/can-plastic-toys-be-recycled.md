@@ -1,10 +1,14 @@
 ---
-title: "Can Plastic Toys Be Recycled: Essential Facts You Need to Know"
-description: "Have you ever wondered what happens to your old plastic toys once they’re no longer played with? You might want to toss them out, but have you stopped to think "
+title: 'Can Plastic Toys Be Recycled: Essential Facts You Need to Know'
+description: 'Have you ever wondered what happens to your old plastic toys once they’re
+  no longer played with? You might want to toss them out, but have you stopped to
+  think '
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-plastic-toys-be-recycled&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Toy Development
+heroImage: https://tse1.mm.bing.net/th?q=can-plastic-toys-be-recycled&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever wondered what happens to your old plastic toys once they’re no longer played with? You might want to toss them out, but have you stopped to think if they can be recycled instead?**

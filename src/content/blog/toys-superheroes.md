@@ -1,10 +1,14 @@
 ---
-title: "Toys Superheroes: Top Action Figures and Playsets for Endless Fun"
-description: "Toys superheroes captivate young imaginations with thrilling adventures and vibrant characters. They bring iconic heroes to life for endless fun. Superhero toys"
+title: 'Toys Superheroes: Top Action Figures and Playsets for Endless Fun'
+description: Toys superheroes captivate young imaginations with thrilling adventures
+  and vibrant characters. They bring iconic heroes to life for endless fun. Superhero
+  toys
 pubDate: 2026-08-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-superheroes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=toys-superheroes&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toys superheroes captivate young imaginations with thrilling adventures and vibrant characters. They bring iconic heroes to life for endless fun.**

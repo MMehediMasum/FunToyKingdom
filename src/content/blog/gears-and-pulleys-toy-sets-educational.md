@@ -1,10 +1,14 @@
 ---
-title: "Gears And Pulleys Toy Sets Educational: Unlock Creative STEM Learning"
-description: "Have you ever wondered how things move and work together? Gears and pulleys toy sets let you explore these ideas in a fun and hands-on way. These toys aren’t ju"
+title: 'Gears And Pulleys Toy Sets Educational: Unlock Creative STEM Learning'
+description: Have you ever wondered how things move and work together? Gears and pulleys
+  toy sets let you explore these ideas in a fun and hands-on way. These toys aren’t
+  ju
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=gears-and-pulleys-toy-sets-educational&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=gears-and-pulleys-toy-sets-educational&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered how things move and work together? Gears and pulleys toy sets let you explore these ideas in a fun and hands-on way.**

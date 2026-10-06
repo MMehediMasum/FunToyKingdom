@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Wagon Wheels Crafting: Ultimate DIY Guide for Beginners"
-description: "Are you ready to bring a timeless charm to your wooden toy wagon? Crafting your own wooden toy wagon wheels is not only fun but also a rewarding way to add pers"
+title: 'Wooden Toy Wagon Wheels Crafting: Ultimate DIY Guide for Beginners'
+description: Are you ready to bring a timeless charm to your wooden toy wagon? Crafting
+  your own wooden toy wagon wheels is not only fun but also a rewarding way to add
+  pers
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-wagon-wheels-crafting&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-wagon-wheels-crafting&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to bring a timeless charm to your wooden toy wagon? Crafting your own wooden toy wagon wheels is not only fun but also a rewarding way to add personality and durability to your creation.**

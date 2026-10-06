@@ -1,10 +1,13 @@
 ---
-title: "Lego Stem Toy Sets for Kids: Unlock Creativity and Learning Fun"
-description: "Are you looking for a fun way to boost your child’s creativity and problem-solving skills? Lego STEM toy sets for kids are the perfect choice. These sets combin"
+title: 'Lego Stem Toy Sets for Kids: Unlock Creativity and Learning Fun'
+description: Are you looking for a fun way to boost your child’s creativity and problem-solving
+  skills? Lego STEM toy sets for kids are the perfect choice. These sets combin
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-stem-toy-sets-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-stem-toy-sets-for-kids&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun way to boost your child’s creativity and problem-solving skills? Lego STEM toy sets for kids are the perfect choice.**

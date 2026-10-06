@@ -1,10 +1,14 @@
 ---
-title: "Tummy Time Water Mat Toys: Ultimate Fun and Development Guide"
-description: "If you’re a parent or caregiver, you know how important tummy time is for your baby’s growth. But keeping your little one interested and happy during tummy time"
+title: 'Tummy Time Water Mat Toys: Ultimate Fun and Development Guide'
+description: If you’re a parent or caregiver, you know how important tummy time is
+  for your baby’s growth. But keeping your little one interested and happy during
+  tummy time
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=tummy-time-water-mat-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=tummy-time-water-mat-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent or caregiver, you know how important tummy time is for your baby’s growth. But keeping your little one interested and happy during tummy time can be a challenge.**

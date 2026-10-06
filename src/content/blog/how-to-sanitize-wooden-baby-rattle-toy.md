@@ -1,10 +1,14 @@
 ---
-title: "How to Sanitize Wooden Baby Rattle Toy: Safe & Easy Methods"
-description: "You want to keep your baby’s wooden rattle toy clean and safe, but you might be unsure how to do it without damaging the wood. If you’re worried about germs and"
+title: 'How to Sanitize Wooden Baby Rattle Toy: Safe & Easy Methods'
+description: You want to keep your baby’s wooden rattle toy clean and safe, but you
+  might be unsure how to do it without damaging the wood. If you’re worried about
+  germs and
 pubDate: 2026-09-14
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sanitize-wooden-baby-rattle-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sanitize-wooden-baby-rattle-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **You want to keep your baby’s wooden rattle toy clean and safe, but you might be unsure how to do it without damaging the wood. If you’re worried about germs and want a simple, effective way to sanitize your baby’s favorite toy, you’re in the right place.**

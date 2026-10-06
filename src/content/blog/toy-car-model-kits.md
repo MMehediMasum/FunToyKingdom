@@ -1,10 +1,14 @@
 ---
-title: "Toy Car Model Kits: Top DIY Builds for Kids and Adults Enthusiasts"
-description: "Toy car model kits offer a fun way to build detailed miniature cars from scratch. These kits combine learning, creativity, and entertainment for all ages. Build"
+title: 'Toy Car Model Kits: Top DIY Builds for Kids and Adults Enthusiasts'
+description: Toy car model kits offer a fun way to build detailed miniature cars from
+  scratch. These kits combine learning, creativity, and entertainment for all ages.
+  Build
 pubDate: 2026-01-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-model-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-model-kits&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy car model kits offer a fun way to build detailed miniature cars from scratch. These kits combine learning, creativity, and entertainment for all ages.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Christmas Coloring Pages: Fun Holiday Activity Books for Kids"
 description: "Toy Story Christmas coloring pages bring holiday fun with your favorite Pixar characters. These pages offer hours of creative, festive entertainment for kids. K"
 pubDate: 2026-02-28

@@ -1,10 +1,13 @@
 ---
-title: "Cosmo Toy Robot Face Screen Guard Kit: Ultimate Protection and Style"
-description: "The Cosmo Toy Robot brings fun and learning together in one smart device. It offers interactive play that sparks curiosity in children. This small robot stands "
+title: 'Cosmo Toy Robot Face Screen Guard Kit: Ultimate Protection and Style'
+description: 'The Cosmo Toy Robot brings fun and learning together in one smart device.
+  It offers interactive play that sparks curiosity in children. This small robot stands '
 pubDate: 2026-03-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cosmo-toy-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cosmo-toy-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Cosmo Toy Robot brings fun and learning together in one smart device. It offers interactive play that sparks curiosity in children.**

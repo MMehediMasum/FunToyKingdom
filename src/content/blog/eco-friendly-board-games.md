@@ -1,10 +1,14 @@
 ---
-title: "Eco Friendly Board Games: Sustainable Fun for All Ages"
-description: "Imagine enjoying your favorite board games without worrying about harming the planet. What if your fun moments could also support a cleaner, greener Earth? Eco "
+title: 'Eco Friendly Board Games: Sustainable Fun for All Ages'
+description: 'Imagine enjoying your favorite board games without worrying about harming
+  the planet. What if your fun moments could also support a cleaner, greener Earth?
+  Eco '
 pubDate: 2025-10-03
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=eco-friendly-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=eco-friendly-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Imagine enjoying your favorite board games without worrying about harming the planet. What if your fun moments could also support a cleaner, greener Earth?**

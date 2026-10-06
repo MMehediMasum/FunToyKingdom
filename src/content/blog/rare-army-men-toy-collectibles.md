@@ -1,10 +1,14 @@
 ---
-title: "Rare Army Men Toy Collectibles: Ultimate Guide to Hidden Treasures"
-description: "Are you fascinated by army men toys and curious about which ones are the rarest to find? Whether you’re a seasoned collector or just starting out, discovering r"
+title: 'Rare Army Men Toy Collectibles: Ultimate Guide to Hidden Treasures'
+description: Are you fascinated by army men toys and curious about which ones are
+  the rarest to find? Whether you’re a seasoned collector or just starting out, discovering
+  r
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-army-men-toy-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=rare-army-men-toy-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you fascinated by army men toys and curious about which ones are the rarest to find? Whether you’re a seasoned collector or just starting out, discovering rare army men toy collectibles can be thrilling.**

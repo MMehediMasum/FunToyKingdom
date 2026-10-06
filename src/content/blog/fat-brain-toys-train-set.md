@@ -1,10 +1,14 @@
 ---
-title: "Fat Brain Toys Train Set: Ultimate Wooden Stacking Toy for Preschoolers"
-description: "Fat Brain Toys Train Set offers fun and learning in one wooden stacking block train. It helps preschoolers build skills through play. This train set combines co"
+title: 'Fat Brain Toys Train Set: Ultimate Wooden Stacking Toy for Preschoolers'
+description: Fat Brain Toys Train Set offers fun and learning in one wooden stacking
+  block train. It helps preschoolers build skills through play. This train set combines
+  co
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=fat-brain-toys-train-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=fat-brain-toys-train-set&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Fat Brain Toys Train Set offers fun and learning in one wooden stacking block train. It helps preschoolers build skills through play.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars Toon Radiator Springs 500 Toy: Ultimate Die-Cast Racing Collection Review"
-description: "The Cars Toon Radiator Springs 500 toy collection brings the magic of Disney Pixar’s Cars to life. Kids and fans can enjoy detailed die-cast cars and fun playse"
+title: 'Cars Toon Radiator Springs 500 Toy: Ultimate Die-Cast Racing Collection Review'
+description: The Cars Toon Radiator Springs 500 toy collection brings the magic of
+  Disney Pixar’s Cars to life. Kids and fans can enjoy detailed die-cast cars and
+  fun playse
 pubDate: 2026-02-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toon-radiator-springs-500-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-toon-radiator-springs-500-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars Toon Radiator Springs 500 toy collection brings the magic of Disney Pixar’s Cars to life. Kids and fans can enjoy detailed die-cast cars and fun playsets from Radiator Springs.**

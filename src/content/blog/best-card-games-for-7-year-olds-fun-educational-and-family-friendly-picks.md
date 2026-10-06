@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for 7 Year Olds: Fun, Educational, and Family-Friendly Picks"
-description: "Choosing the best card games for 7 year olds helps kids learn and have fun together. These games improve skills like memory, matching, and teamwork. Card games "
+title: 'Best Card Games for 7 Year Olds: Fun, Educational, and Family-Friendly Picks'
+description: 'Choosing the best card games for 7 year olds helps kids learn and have
+  fun together. These games improve skills like memory, matching, and teamwork. Card
+  games '
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-7-year-olds-fun-educational-and-family-friendly-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-7-year-olds-fun-educational-and-family-friendly-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best card games for 7 year olds helps kids learn and have fun together. These games improve skills like memory, matching, and teamwork.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Toucan Sprinkler Pool Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Toucan Sprinkler Pool Toy might be exactly what you need. Imagine your bac"
+title: 'Outdoor Toucan Sprinkler Pool Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun way to keep your kids cool and entertained this summer?
+  The Outdoor Toucan Sprinkler Pool Toy might be exactly what you need. Imagine your
+  bac
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toucan-sprinkler-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toucan-sprinkler-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids cool and entertained this summer? The Outdoor Toucan Sprinkler Pool Toy might be exactly what you need.**

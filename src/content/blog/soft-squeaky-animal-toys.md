@@ -1,10 +1,13 @@
 ---
-title: "Soft Squeaky Animal Toys: Irresistible Fun for Pets"
-description: "Are you looking for the perfect toy that keeps your pet happy and entertained? Soft squeaky animal toys might be exactly what you need. These toys are gentle on"
+title: 'Soft Squeaky Animal Toys: Irresistible Fun for Pets'
+description: Are you looking for the perfect toy that keeps your pet happy and entertained?
+  Soft squeaky animal toys might be exactly what you need. These toys are gentle on
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-squeaky-animal-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=soft-squeaky-animal-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for the perfect toy that keeps your pet happy and entertained? Soft squeaky animal toys might be exactly what you need.**

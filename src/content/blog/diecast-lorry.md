@@ -1,10 +1,14 @@
 ---
-title: "Diecast Lorry Collectibles: Top Models for Classic Truck Enthusiasts"
-description: "Diecast lorries offer detailed, small-scale models of classic and modern trucks. Collectors and kids enjoy their realistic design and durable build. These minia"
+title: 'Diecast Lorry Collectibles: Top Models for Classic Truck Enthusiasts'
+description: Diecast lorries offer detailed, small-scale models of classic and modern
+  trucks. Collectors and kids enjoy their realistic design and durable build. These
+  minia
 pubDate: 2025-11-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-lorry&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-lorry&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast lorries offer detailed, small-scale models of classic and modern trucks. Collectors and kids enjoy their realistic design and durable build.**

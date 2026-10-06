@@ -1,10 +1,14 @@
 ---
-title: "Best Playset for 12 Year Old: Top Durable & Fun Outdoor Sets"
-description: "Finding the best playset for a 12-year-old can be tricky. Kids at this age want fun, creativity, and challenge all in one. Playsets make outdoor and indoor play"
+title: 'Best Playset for 12 Year Old: Top Durable & Fun Outdoor Sets'
+description: Finding the best playset for a 12-year-old can be tricky. Kids at this
+  age want fun, creativity, and challenge all in one. Playsets make outdoor and indoor
+  play
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-playset-for-12-year-old-top-durable-fun-outdoor-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=best-playset-for-12-year-old-top-durable-fun-outdoor-sets&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Finding the best playset for a 12-year-old can be tricky. Kids at this age want fun, creativity, and challenge all in one.**

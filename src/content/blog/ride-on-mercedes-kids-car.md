@@ -1,10 +1,14 @@
 ---
-title: "Ride on Mercedes Kids Car: Ultimate Fun and Safety Guide"
-description: "Imagine your child’s face lighting up as they take control of their very own Mercedes kids car. You want to give them more than just a toy—you want to spark the"
+title: 'Ride on Mercedes Kids Car: Ultimate Fun and Safety Guide'
+description: Imagine your child’s face lighting up as they take control of their very
+  own Mercedes kids car. You want to give them more than just a toy—you want to spark
+  the
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-mercedes-kids-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-mercedes-kids-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they take control of their very own Mercedes kids car. You want to give them more than just a toy—you want to spark their imagination, boost their confidence, and create unforgettable moments.**

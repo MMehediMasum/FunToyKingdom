@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Scavenger Hunt Cards: Ultimate Fun for Kids & Families"
-description: "Looking for a fun and simple way to get outside and enjoy nature? Outdoor scavenger hunt cards are just what you need. They turn any park, backyard, or hiking t"
+title: 'Outdoor Scavenger Hunt Cards: Ultimate Fun for Kids & Families'
+description: Looking for a fun and simple way to get outside and enjoy nature? Outdoor
+  scavenger hunt cards are just what you need. They turn any park, backyard, or hiking
+  t
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-scavenger-hunt-cards&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-scavenger-hunt-cards&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and simple way to get outside and enjoy nature? Outdoor scavenger hunt cards are just what you need.**

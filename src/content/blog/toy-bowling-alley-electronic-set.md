@@ -1,10 +1,14 @@
 ---
-title: "Toy Bowling Alley Electronic Set: Ultimate Fun for Kids & Families"
-description: "Are you looking for a fun and exciting way to bring the thrill of bowling right into your home? The Toy Bowling Alley Electronic Set is just what you need to tu"
+title: 'Toy Bowling Alley Electronic Set: Ultimate Fun for Kids & Families'
+description: Are you looking for a fun and exciting way to bring the thrill of bowling
+  right into your home? The Toy Bowling Alley Electronic Set is just what you need
+  to tu
 pubDate: 2026-07-17
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-bowling-alley-electronic-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Bow
+heroImage: https://tse1.mm.bing.net/th?q=toy-bowling-alley-electronic-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and exciting way to bring the thrill of bowling right into your home? The Toy Bowling Alley Electronic Set is just what you need to turn any room into your own mini bowling alley.**

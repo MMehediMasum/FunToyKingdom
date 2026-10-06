@@ -1,10 +1,14 @@
 ---
-title: "Word Search Puzzle for Kids: Fun, Educational & Brain-Boosting Games"
-description: "Are you looking for a fun way to boost your child’s brainpower? Word search puzzles for kids are the perfect activity to keep their minds sharp and engaged. The"
+title: 'Word Search Puzzle for Kids: Fun, Educational & Brain-Boosting Games'
+description: Are you looking for a fun way to boost your child’s brainpower? Word
+  search puzzles for kids are the perfect activity to keep their minds sharp and engaged.
+  The
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=word-search-puzzle-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=word-search-puzzle-for-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to boost your child’s brainpower? Word search puzzles for kids are the perfect activity to keep their minds sharp and engaged.**

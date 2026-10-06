@@ -1,10 +1,14 @@
 ---
-title: "Barbie Doll Collector’S Price Guide: Ultimate Tips to Maximize Value"
-description: "Are you curious about how much your Barbie dolls are really worth? Whether you’ve just started collecting or have a treasured stash hidden away, knowing the val"
+title: 'Barbie Doll Collector’S Price Guide: Ultimate Tips to Maximize Value'
+description: Are you curious about how much your Barbie dolls are really worth? Whether
+  you’ve just started collecting or have a treasured stash hidden away, knowing the
+  val
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-doll-collectors-price-guide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-doll-collectors-price-guide&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you curious about how much your Barbie dolls are really worth? Whether you’ve just started collecting or have a treasured stash hidden away, knowing the value of each piece can be exciting and rewarding.**

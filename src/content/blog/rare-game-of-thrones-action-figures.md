@@ -1,10 +1,14 @@
 ---
-title: "Rare Game of Thrones Action Figures: Must-Have Collectibles Revealed"
-description: "Are you a fan of Game of Thrones and love collecting action figures? Imagine owning rare pieces that not only bring your favorite characters to life but also ma"
+title: 'Rare Game of Thrones Action Figures: Must-Have Collectibles Revealed'
+description: Are you a fan of Game of Thrones and love collecting action figures?
+  Imagine owning rare pieces that not only bring your favorite characters to life
+  but also ma
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-game-of-thrones-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=rare-game-of-thrones-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Game of Thrones and love collecting action figures? Imagine owning rare pieces that not only bring your favorite characters to life but also make your collection stand out from the rest.**

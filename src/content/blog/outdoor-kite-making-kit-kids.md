@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Kite Making Kit Kids: Ultimate Fun & Creativity Guide"
-description: "Are you looking for a fun and creative way to get your kids outside and active? An Outdoor Kite Making Kit for Kids is the perfect solution. It’s not just about"
+title: 'Outdoor Kite Making Kit Kids: Ultimate Fun & Creativity Guide'
+description: Are you looking for a fun and creative way to get your kids outside and
+  active? An Outdoor Kite Making Kit for Kids is the perfect solution. It’s not just
+  about
 pubDate: 2026-03-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-kite-making-kit-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-kite-making-kit-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and creative way to get your kids outside and active? An Outdoor Kite Making Kit for Kids is the perfect solution.**

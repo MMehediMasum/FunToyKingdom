@@ -1,10 +1,13 @@
 ---
-title: "Stacking Blocks for 18 Month Old: Easy Tips to Boost Skills Fast"
-description: "Are you looking for a fun and simple activity that can boost your 18-month-old’s development? Stacking blocks is more than just play—it helps your child build i"
+title: 'Stacking Blocks for 18 Month Old: Easy Tips to Boost Skills Fast'
+description: Are you looking for a fun and simple activity that can boost your 18-month-old’s
+  development? Stacking blocks is more than just play—it helps your child build i
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-blocks-for-18-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=stacking-blocks-for-18-month-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple activity that can boost your 18-month-old’s development? Stacking blocks is more than just play—it helps your child build important skills like hand-eye coordination, problem-solving, and creativity.**

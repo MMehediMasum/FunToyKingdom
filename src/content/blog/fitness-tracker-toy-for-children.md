@@ -1,10 +1,14 @@
 ---
-title: "Fitness Tracker Toy for Children: Boost Fun and Healthy Habits"
-description: "Are you looking for a fun way to keep your child active and healthy? A fitness tracker toy for children might be just what you need. It turns exercise into play"
+title: 'Fitness Tracker Toy for Children: Boost Fun and Healthy Habits'
+description: Are you looking for a fun way to keep your child active and healthy?
+  A fitness tracker toy for children might be just what you need. It turns exercise
+  into play
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=fitness-tracker-toy-for-children&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=fitness-tracker-toy-for-children&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun way to keep your child active and healthy? A fitness tracker toy for children might be just what you need.**

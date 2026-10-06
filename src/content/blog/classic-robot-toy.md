@@ -1,10 +1,14 @@
 ---
-title: "Classic Robot Toy: Top Retro Collectibles and Fun Gifts for All Ages"
-description: "The charm of classic robot toys never fades. These mechanical wonders captivate collectors and kids alike. Classic robot toys offer more than just nostalgia. Th"
+title: 'Classic Robot Toy: Top Retro Collectibles and Fun Gifts for All Ages'
+description: The charm of classic robot toys never fades. These mechanical wonders
+  captivate collectors and kids alike. Classic robot toys offer more than just nostalgia.
+  Th
 pubDate: 2026-03-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=classic-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=classic-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The charm of classic robot toys never fades. These mechanical wonders captivate collectors and kids alike.**

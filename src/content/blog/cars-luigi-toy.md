@@ -1,10 +1,14 @@
 ---
-title: "Cars Luigi Toy: Top Die-Cast Racing Cars for Kids’ Birthday Gifts"
-description: "The Cars Luigi toy brings the fun and charm of the beloved character to life. Kids enjoy racing and collecting these colorful, durable mini cars. This toy line "
+title: 'Cars Luigi Toy: Top Die-Cast Racing Cars for Kids’ Birthday Gifts'
+description: 'The Cars Luigi toy brings the fun and charm of the beloved character
+  to life. Kids enjoy racing and collecting these colorful, durable mini cars. This
+  toy line '
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-luigi-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cars-luigi-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Cars Luigi toy brings the fun and charm of the beloved character to life. Kids enjoy racing and collecting these colorful, durable mini cars.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Comic Books: Ultimate Guide to Collectibles and Storytelling Fun"
-description: "Toy Story comic books bring the magic of the beloved movies to life on paper. Fans can explore new stories and colorful adventures beyond the films. These comic"
+title: 'Toy Story Comic Books: Ultimate Guide to Collectibles and Storytelling Fun'
+description: Toy Story comic books bring the magic of the beloved movies to life on
+  paper. Fans can explore new stories and colorful adventures beyond the films. These
+  comic
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-comic-books&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-comic-books&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story comic books bring the magic of the beloved movies to life on paper. Fans can explore new stories and colorful adventures beyond the films.**

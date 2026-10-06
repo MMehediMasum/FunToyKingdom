@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Rainbow Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into a colorful water wonderland that brings endless fun for you and your kids. The Outdoor Rainbow Sprinkler Inflatable is exactl"
+title: 'Outdoor Rainbow Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into a colorful water wonderland that brings
+  endless fun for you and your kids. The Outdoor Rainbow Sprinkler Inflatable is exactl
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rainbow-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rainbow-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a colorful water wonderland that brings endless fun for you and your kids. The Outdoor Rainbow Sprinkler Inflatable is exactly what you need to make those sunny days unforgettable.**

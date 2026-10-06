@@ -1,10 +1,14 @@
 ---
-title: "Can You Wash Plush Toys: Ultimate Guide to Clean and Safe Care"
-description: "Have you ever wondered if you can wash your favorite plush toys without ruining them? Whether it’s a childhood keepsake or a cozy companion for your little one,"
+title: 'Can You Wash Plush Toys: Ultimate Guide to Clean and Safe Care'
+description: Have you ever wondered if you can wash your favorite plush toys without
+  ruining them? Whether it’s a childhood keepsake or a cozy companion for your little
+  one,
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-wash-plush-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=can-you-wash-plush-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered if you can wash your favorite plush toys without ruining them? Whether it’s a childhood keepsake or a cozy companion for your little one, keeping plush toys clean is important for both comfort and health.**

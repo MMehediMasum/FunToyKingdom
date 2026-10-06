@@ -1,10 +1,14 @@
 ---
-title: "Diy Barbie Doll Clothes Sewing Patterns: Easy, Stylish & Fun Ideas"
-description: "Are you tired of buying the same old outfits for your Barbie dolls? What if you could create unique, stylish clothes yourself without spending a fortune? With D"
+title: 'Diy Barbie Doll Clothes Sewing Patterns: Easy, Stylish & Fun Ideas'
+description: Are you tired of buying the same old outfits for your Barbie dolls? What
+  if you could create unique, stylish clothes yourself without spending a fortune?
+  With D
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-barbie-doll-clothes-sewing-patterns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=diy-barbie-doll-clothes-sewing-patterns&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you tired of buying the same old outfits for your Barbie dolls? What if you could create unique, stylish clothes yourself without spending a fortune?**

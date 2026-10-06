@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Birdhouse Painting Kit: Creative Fun for All Ages"
-description: "Are you looking for a fun and creative way to brighten up your garden? An Outdoor Birdhouse Painting Kit is just what you need. Imagine turning a plain birdhous"
+title: 'Outdoor Birdhouse Painting Kit: Creative Fun for All Ages'
+description: Are you looking for a fun and creative way to brighten up your garden?
+  An Outdoor Birdhouse Painting Kit is just what you need. Imagine turning a plain
+  birdhous
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-birdhouse-painting-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-birdhouse-painting-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and creative way to brighten up your garden? An Outdoor Birdhouse Painting Kit is just what you need.**

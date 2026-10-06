@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Soldiers: Top Sets for Creative Play and Collectibles"
-description: "Miniature toy soldiers spark creativity and imagination in children and collectors alike. These tiny figures offer endless play possibilities. Toy soldiers have"
+title: 'Miniature Toy Soldiers: Top Sets for Creative Play and Collectibles'
+description: Miniature toy soldiers spark creativity and imagination in children and
+  collectors alike. These tiny figures offer endless play possibilities. Toy soldiers
+  have
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-soldiers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-soldiers&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature toy soldiers spark creativity and imagination in children and collectors alike. These tiny figures offer endless play possibilities.**

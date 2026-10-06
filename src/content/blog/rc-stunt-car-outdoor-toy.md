@@ -1,10 +1,14 @@
 ---
-title: "Rc Stunt Car Outdoor Toy: Ultimate Thrills for Adventure Kids"
-description: "Are you ready to take your outdoor fun to the next level? An RC stunt car outdoor toy is exactly what you need to bring excitement and adventure right to your b"
+title: 'Rc Stunt Car Outdoor Toy: Ultimate Thrills for Adventure Kids'
+description: Are you ready to take your outdoor fun to the next level? An RC stunt
+  car outdoor toy is exactly what you need to bring excitement and adventure right
+  to your b
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-stunt-car-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-stunt-car-outdoor-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your outdoor fun to the next level? An RC stunt car outdoor toy is exactly what you need to bring excitement and adventure right to your backyard.**

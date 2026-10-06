@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Ice Skates for Kids Winter: Top Picks for Fun & Safety"
-description: "Winter is the perfect time to get your kids outside and active. Imagine the joy on their faces as they glide across a frozen pond or an outdoor rink, feeling th"
+title: 'Outdoor Ice Skates for Kids Winter: Top Picks for Fun & Safety'
+description: Winter is the perfect time to get your kids outside and active. Imagine
+  the joy on their faces as they glide across a frozen pond or an outdoor rink, feeling
+  th
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-ice-skates-for-kids-winter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-ice-skates-for-kids-winter&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Winter is the perfect time to get your kids outside and active. Imagine the joy on their faces as they glide across a frozen pond or an outdoor rink, feeling the crisp air and the thrill of ice skating.**

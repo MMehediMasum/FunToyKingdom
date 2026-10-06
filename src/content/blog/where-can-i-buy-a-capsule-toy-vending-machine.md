@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy a Capsule Toy Vending Machine: Top Trusted Sources"
-description: "Are you looking to add a fun and exciting twist to your business or personal space? A capsule toy vending machine could be just what you need. These machines at"
+title: 'Where Can I Buy a Capsule Toy Vending Machine: Top Trusted Sources'
+description: Are you looking to add a fun and exciting twist to your business or personal
+  space? A capsule toy vending machine could be just what you need. These machines
+  at
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-a-capsule-toy-vending-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Capsule Toy Vending
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-a-capsule-toy-vending-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking to add a fun and exciting twist to your business or personal space? A capsule toy vending machine could be just what you need.**

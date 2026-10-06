@@ -1,10 +1,14 @@
 ---
-title: "Toy Cars from the 90S: Top Die-Cast Collectibles for Kids and Adults"
-description: "Toy cars from the 90s hold a special place in many hearts. They're more than just toys; they're nostalgic treasures. These miniature marvels capture the excitem"
+title: 'Toy Cars from the 90S: Top Die-Cast Collectibles for Kids and Adults'
+description: Toy cars from the 90s hold a special place in many hearts. They're more
+  than just toys; they're nostalgic treasures. These miniature marvels capture the
+  excitem
 pubDate: 2026-03-10
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cars-from-the-90s&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=toy-cars-from-the-90s&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy cars from the 90s hold a special place in many hearts. They're more than just toys; they're nostalgic treasures.**

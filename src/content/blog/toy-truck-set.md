@@ -1,10 +1,14 @@
 ---
-title: "Toy Truck Set: Ultimate 25-Piece Construction Playset for Kids"
-description: "Toy truck sets bring hours of fun and learning to young children. These toys help develop motor skills and encourage imaginative play. A good toy truck set offe"
+title: 'Toy Truck Set: Ultimate 25-Piece Construction Playset for Kids'
+description: Toy truck sets bring hours of fun and learning to young children. These
+  toys help develop motor skills and encourage imaginative play. A good toy truck
+  set offe
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-truck-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=toy-truck-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy truck sets bring hours of fun and learning to young children. These toys help develop motor skills and encourage imaginative play.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games for 10-12 Year Olds That Spark Family Fun"
-description: "Choosing the best board games for 10-12 year olds can boost fun and learning. These games bring families and friends together with easy rules and exciting play."
+title: Best Board Games for 10-12 Year Olds That Spark Family Fun
+description: Choosing the best board games for 10-12 year olds can boost fun and learning.
+  These games bring families and friends together with easy rules and exciting play.
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-10-12-year-olds-that-spark-family-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-10-12-year-olds-that-spark-family-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best board games for 10-12 year olds can boost fun and learning. These games bring families and friends together with easy rules and exciting play.**

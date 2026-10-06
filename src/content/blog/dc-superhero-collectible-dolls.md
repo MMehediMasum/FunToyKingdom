@@ -1,10 +1,14 @@
 ---
-title: "Dc Superhero Collectible Dolls: Ultimate Guide to Must-Have Figures"
-description: "Are you a fan of DC superheroes? Imagine having your favorite heroes and villains right on your shelf, ready to inspire your day. DC Superhero Collectible Dolls"
+title: 'Dc Superhero Collectible Dolls: Ultimate Guide to Must-Have Figures'
+description: Are you a fan of DC superheroes? Imagine having your favorite heroes
+  and villains right on your shelf, ready to inspire your day. DC Superhero Collectible
+  Dolls
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=dc-superhero-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=dc-superhero-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of DC superheroes? Imagine having your favorite heroes and villains right on your shelf, ready to inspire your day.**

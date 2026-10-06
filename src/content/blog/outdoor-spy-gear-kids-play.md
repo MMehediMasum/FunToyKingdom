@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Spy Gear Kids Play: Ultimate Adventure Kits for Young Detectives"
-description: "Imagine giving your kids the ultimate adventure right in your backyard. Outdoor spy gear for kids play turns ordinary afternoons into thrilling missions filled "
+title: 'Outdoor Spy Gear Kids Play: Ultimate Adventure Kits for Young Detectives'
+description: 'Imagine giving your kids the ultimate adventure right in your backyard.
+  Outdoor spy gear for kids play turns ordinary afternoons into thrilling missions
+  filled '
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-spy-gear-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-spy-gear-kids-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids the ultimate adventure right in your backyard. Outdoor spy gear for kids play turns ordinary afternoons into thrilling missions filled with imagination and discovery.**

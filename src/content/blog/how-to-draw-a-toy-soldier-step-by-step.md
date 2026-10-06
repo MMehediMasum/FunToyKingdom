@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "How to Draw a Toy Soldier Step by Step: Easy & Fun Guide"
 description: "Have you ever wanted to create your own toy soldier drawing but didn’t know where to start? You’re in the right place. Drawing a toy soldier can be simple and f"
 pubDate: 2025-12-06

@@ -1,10 +1,14 @@
 ---
-title: "Puzzle Toys for 2 Year Old: Top Picks to Boost Brain Growth"
-description: "Are you looking for the perfect puzzle toys for your 2-year-old? Finding toys that are fun and help your little one grow can feel tricky. You want something saf"
+title: 'Puzzle Toys for 2 Year Old: Top Picks to Boost Brain Growth'
+description: Are you looking for the perfect puzzle toys for your 2-year-old? Finding
+  toys that are fun and help your little one grow can feel tricky. You want something
+  saf
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=puzzle-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=puzzle-toys-for-2-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for the perfect puzzle toys for your 2-year-old? Finding toys that are fun and help your little one grow can feel tricky.**

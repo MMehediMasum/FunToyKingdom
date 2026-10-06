@@ -1,10 +1,14 @@
 ---
-title: "Robby the Robot Toy: Ultimate Collectible and Interactive Robot Guide"
-description: "Robby the Robot toys captivate both children and collectors alike. These interactive toys bring imagination to life. Robby the Robot toys offer a unique blend o"
+title: 'Robby the Robot Toy: Ultimate Collectible and Interactive Robot Guide'
+description: Robby the Robot toys captivate both children and collectors alike. These
+  interactive toys bring imagination to life. Robby the Robot toys offer a unique
+  blend o
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robby-the-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=robby-the-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robby the Robot toys captivate both children and collectors alike. These interactive toys bring imagination to life.**

@@ -1,10 +1,13 @@
 ---
-title: "Wooden Toy Cannon Making Tutorial: Easy Step-by-Step Guide"
-description: "Are you ready to create a timeless wooden toy cannon that will impress everyone? This step-by-step tutorial makes it simple for you to build your own beautiful "
+title: 'Wooden Toy Cannon Making Tutorial: Easy Step-by-Step Guide'
+description: 'Are you ready to create a timeless wooden toy cannon that will impress
+  everyone? This step-by-step tutorial makes it simple for you to build your own beautiful '
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-cannon-making-tutorial&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-cannon-making-tutorial&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create a timeless wooden toy cannon that will impress everyone? This step-by-step tutorial makes it simple for you to build your own beautiful and sturdy cannon from wood.**

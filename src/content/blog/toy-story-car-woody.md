@@ -1,10 +1,13 @@
 ---
-title: "Toy Story Car Woody: Ultimate RC Vehicle and Collectible Guide"
-description: "Dive into the whimsical world of Toy Story with the iconic character, Woody. This beloved cowboy figure has captured hearts for decades. Woody, the charismatic "
+title: 'Toy Story Car Woody: Ultimate RC Vehicle and Collectible Guide'
+description: 'Dive into the whimsical world of Toy Story with the iconic character,
+  Woody. This beloved cowboy figure has captured hearts for decades. Woody, the charismatic '
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-car-woody&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-car-woody&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Dive into the whimsical world of Toy Story with the iconic character, Woody. This beloved cowboy figure has captured hearts for decades.**

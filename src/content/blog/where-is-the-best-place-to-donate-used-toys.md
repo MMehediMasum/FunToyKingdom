@@ -1,10 +1,14 @@
 ---
-title: "Where is the Best Place to Donate Used Toys: Top Charities Revealed"
-description: "Have you ever wondered where your used toys could bring the most joy? You have those toys sitting around, and instead of letting them gather dust, why not give "
+title: 'Where is the Best Place to Donate Used Toys: Top Charities Revealed'
+description: 'Have you ever wondered where your used toys could bring the most joy?
+  You have those toys sitting around, and instead of letting them gather dust, why
+  not give '
 pubDate: 2025-10-31
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-best-place-to-donate-used-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-best-place-to-donate-used-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered where your used toys could bring the most joy? You have those toys sitting around, and instead of letting them gather dust, why not give them a second life?**

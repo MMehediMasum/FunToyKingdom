@@ -1,10 +1,13 @@
 ---
-title: "Lego Speed Champions Mercedes-Amg 2 Toy Car Models Set 76909 Review"
-description: "The LEGO Speed Champions Mercedes-AMG 2 Toy Car Models Set 76909 features two detailed car builds. It includes the Mercedes-AMG Project One and the Mercedes-AMG"
+title: Lego Speed Champions Mercedes-Amg 2 Toy Car Models Set 76909 Review
+description: The LEGO Speed Champions Mercedes-AMG 2 Toy Car Models Set 76909 features
+  two detailed car builds. It includes the Mercedes-AMG Project One and the Mercedes-AMG
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-speed-champions-mercedes-amg-2-toy-car-models-set-76909&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=lego-speed-champions-mercedes-amg-2-toy-car-models-set-76909&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The LEGO Speed Champions Mercedes-AMG 2 Toy Car Models Set 76909 features two detailed car builds. It includes the Mercedes-AMG Project One and the Mercedes-AMG W12 E Performance.**

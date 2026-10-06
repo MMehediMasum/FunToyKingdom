@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Burger King Toys: Must-Have Collectibles for Fans"
-description: "Dragon Ball Z Burger King toys bring beloved characters to life in fun, collectible forms. Fans can enjoy a variety of figures inspired by the iconic anime seri"
+title: 'Dragon Ball Z Burger King Toys: Must-Have Collectibles for Fans'
+description: Dragon Ball Z Burger King toys bring beloved characters to life in fun,
+  collectible forms. Fans can enjoy a variety of figures inspired by the iconic anime
+  seri
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-burger-king-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-burger-king-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z Burger King toys bring beloved characters to life in fun, collectible forms. Fans can enjoy a variety of figures inspired by the iconic anime series.**

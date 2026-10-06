@@ -1,10 +1,14 @@
 ---
-title: "Barbie Holiday Princess Special Edition Doll: Ultimate Collector’s Dream"
-description: "Imagine holding a doll that captures the magic of the holidays in every detail. The Barbie Holiday Princess Special Edition Doll is more than just a toy—it’s a "
+title: 'Barbie Holiday Princess Special Edition Doll: Ultimate Collector’s Dream'
+description: 'Imagine holding a doll that captures the magic of the holidays in every
+  detail. The Barbie Holiday Princess Special Edition Doll is more than just a toy—it’s
+  a '
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-holiday-princess-special-edition-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-holiday-princess-special-edition-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine holding a doll that captures the magic of the holidays in every detail. The Barbie Holiday Princess Special Edition Doll is more than just a toy—it’s a sparkling celebration you can keep forever.**

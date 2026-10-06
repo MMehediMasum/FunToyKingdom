@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Castle Woodworking Plans: Easy Step-by-Step Guide"
-description: "Are you looking for a fun and rewarding woodworking project that brings joy to kids and adults alike? Building a wooden toy castle can be just what you need. Im"
+title: 'Wooden Toy Castle Woodworking Plans: Easy Step-by-Step Guide'
+description: Are you looking for a fun and rewarding woodworking project that brings
+  joy to kids and adults alike? Building a wooden toy castle can be just what you
+  need. Im
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-castle-woodworking-plans&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-castle-woodworking-plans&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and rewarding woodworking project that brings joy to kids and adults alike? Building a wooden toy castle can be just what you need.**

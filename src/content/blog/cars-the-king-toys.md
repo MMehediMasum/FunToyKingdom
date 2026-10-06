@@ -1,10 +1,13 @@
 ---
-title: "Cars the King Toys: Top Die-Cast Collectibles for Kids’ Playtime"
-description: "Cars the King Toys bring excitement from the Cars movies into real life. These die-cast cars capture the fun and speed kids love. The King, a popular character "
+title: 'Cars the King Toys: Top Die-Cast Collectibles for Kids’ Playtime'
+description: 'Cars the King Toys bring excitement from the Cars movies into real life.
+  These die-cast cars capture the fun and speed kids love. The King, a popular character '
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-the-king-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Burger King Toy Promotions
+heroImage: https://tse1.mm.bing.net/th?q=cars-the-king-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cars the King Toys bring excitement from the Cars movies into real life. These die-cast cars capture the fun and speed kids love.**

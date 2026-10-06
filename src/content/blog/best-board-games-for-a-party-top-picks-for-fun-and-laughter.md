@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for a Party: Top Picks for Fun and Laughter"
-description: "Choosing the best board games can make any party more fun and memorable. The right game brings people closer and sparks lots of laughter. Board games are perfec"
+title: 'Best Board Games for a Party: Top Picks for Fun and Laughter'
+description: Choosing the best board games can make any party more fun and memorable.
+  The right game brings people closer and sparks lots of laughter. Board games are
+  perfec
 pubDate: 2025-11-13
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-a-party-top-picks-for-fun-and-laughter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Party
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-a-party-top-picks-for-fun-and-laughter&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best board games can make any party more fun and memorable. The right game brings people closer and sparks lots of laughter.**

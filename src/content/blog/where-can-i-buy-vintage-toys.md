@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy Vintage Toys: Ultimate Guide to Rare Finds"
-description: "Are you on the hunt for vintage toys that bring back memories or make unique gifts? Finding those rare, classic pieces can feel like searching for a needle in a"
+title: 'Where Can I Buy Vintage Toys: Ultimate Guide to Rare Finds'
+description: Are you on the hunt for vintage toys that bring back memories or make
+  unique gifts? Finding those rare, classic pieces can feel like searching for a needle
+  in a
 pubDate: 2025-08-31
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-vintage-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-vintage-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you on the hunt for vintage toys that bring back memories or make unique gifts? Finding those rare, classic pieces can feel like searching for a needle in a haystack.**

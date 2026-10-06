@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rocket Sprinkler Inflatable: Ultimate Summer Fun Toy"
-description: "Imagine turning your backyard into an exciting splash zone that brings endless fun for kids and adults alike. With an Outdoor Rocket Sprinkler Inflatable, you c"
+title: 'Outdoor Rocket Sprinkler Inflatable: Ultimate Summer Fun Toy'
+description: Imagine turning your backyard into an exciting splash zone that brings
+  endless fun for kids and adults alike. With an Outdoor Rocket Sprinkler Inflatable,
+  you c
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rocket-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rocket-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into an exciting splash zone that brings endless fun for kids and adults alike. With an Outdoor Rocket Sprinkler Inflatable, you can do just that—create a vibrant, refreshing play area perfect for hot days.**

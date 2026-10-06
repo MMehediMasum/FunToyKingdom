@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Telescope: Easy, Fun, and Educational Craft Guide"
-description: "Have you ever wanted to explore the stars but thought a telescope was too expensive or complicated? What if you could build your own toy telescope using just ca"
+title: 'Diy Cardboard Toy Telescope: Easy, Fun, and Educational Craft Guide'
+description: Have you ever wanted to explore the stars but thought a telescope was
+  too expensive or complicated? What if you could build your own toy telescope using
+  just ca
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-telescope&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-telescope&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to explore the stars but thought a telescope was too expensive or complicated? What if you could build your own toy telescope using just cardboard and a few simple materials?**

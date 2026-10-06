@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Fishing Rods Safe: Fun, Easy, and Kid-Friendly!"
-description: "Looking for a fun and safe way to keep your kids entertained? You’ll love making DIY cardboard toy fishing rods. They’re simple to create, budget-friendly, and "
+title: 'Diy Cardboard Toy Fishing Rods Safe: Fun, Easy, and Kid-Friendly!'
+description: 'Looking for a fun and safe way to keep your kids entertained? You’ll
+  love making DIY cardboard toy fishing rods. They’re simple to create, budget-friendly,
+  and '
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-fishing-rods-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-fishing-rods-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained? You’ll love making DIY cardboard toy fishing rods.**

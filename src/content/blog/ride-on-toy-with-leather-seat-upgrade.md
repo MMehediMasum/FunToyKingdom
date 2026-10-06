@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy With Leather Seat Upgrade: Ultimate Comfort & Style"
-description: "Looking for a way to make your child’s ride-on toy feel extra special? Upgrading to a leather seat can transform an ordinary ride into a stylish and comfortable"
+title: 'Ride on Toy With Leather Seat Upgrade: Ultimate Comfort & Style'
+description: Looking for a way to make your child’s ride-on toy feel extra special?
+  Upgrading to a leather seat can transform an ordinary ride into a stylish and comfortable
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-leather-seat-upgrade&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 1 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-leather-seat-upgrade&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a way to make your child’s ride-on toy feel extra special? Upgrading to a leather seat can transform an ordinary ride into a stylish and comfortable adventure.**

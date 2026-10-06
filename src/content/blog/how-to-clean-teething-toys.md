@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Teething Toys: Easy Steps for Safe Baby Play"
-description: "If you’re a parent or caregiver, you know how important it is to keep your baby’s teething toys clean. These little items go straight into your baby’s mouth, an"
+title: 'How to Clean Teething Toys: Easy Steps for Safe Baby Play'
+description: If you’re a parent or caregiver, you know how important it is to keep
+  your baby’s teething toys clean. These little items go straight into your baby’s
+  mouth, an
 pubDate: 2025-08-31
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-teething-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-teething-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you’re a parent or caregiver, you know how important it is to keep your baby’s teething toys clean. These little items go straight into your baby’s mouth, and germs can build up quickly.**

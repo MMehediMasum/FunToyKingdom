@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Stick With Rope: Ultimate Interactive Flirt Pole for Active Dogs"
-description: "Dog toy sticks with rope offer fun and exercise for dogs of all sizes. These toys combine chasing, tugging, and chewing in one. Designed for interactive play, d"
+title: 'Dog Toy Stick With Rope: Ultimate Interactive Flirt Pole for Active Dogs'
+description: Dog toy sticks with rope offer fun and exercise for dogs of all sizes.
+  These toys combine chasing, tugging, and chewing in one. Designed for interactive
+  play, d
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-stick-with-rope&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rope Toys For Dogs Cheap
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-stick-with-rope&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy sticks with rope offer fun and exercise for dogs of all sizes. These toys combine chasing, tugging, and chewing in one.**

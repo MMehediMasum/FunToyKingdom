@@ -1,10 +1,14 @@
 ---
-title: "Best Toy Rc Helicopter for Kids with Long Flight and LED Lights"
-description: "Exploring the world of toy RC helicopters can be thrilling for both kids and adults. These flying wonders offer endless fun and excitement. Choosing the best to"
+title: Best Toy Rc Helicopter for Kids with Long Flight and LED Lights
+description: Exploring the world of toy RC helicopters can be thrilling for both kids
+  and adults. These flying wonders offer endless fun and excitement. Choosing the
+  best to
 pubDate: 2026-03-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toy-rc-helicopter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-toy-rc-helicopter&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Exploring the world of toy RC helicopters can be thrilling for both kids and adults. These flying wonders offer endless fun and excitement.**

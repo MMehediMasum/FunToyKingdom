@@ -1,10 +1,14 @@
 ---
-title: "Toy Video Camera With Effects: Capture Fun Moments Creatively"
-description: "Are you ready to capture your most fun and creative moments in a way that’s truly unique? A toy video camera with effects lets you do just that. It’s not just a"
+title: 'Toy Video Camera With Effects: Capture Fun Moments Creatively'
+description: Are you ready to capture your most fun and creative moments in a way
+  that’s truly unique? A toy video camera with effects lets you do just that. It’s
+  not just a
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-video-camera-with-effects&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=toy-video-camera-with-effects&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to capture your most fun and creative moments in a way that’s truly unique? A toy video camera with effects lets you do just that.**

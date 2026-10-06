@@ -1,10 +1,14 @@
 ---
-title: "Assassin’S Creed Collectible Action Figures: Ultimate Fan Must-Haves!"
-description: "Are you a fan of Assassin’s Creed and love collecting cool memorabilia? Then you’re going to be excited about Assassin’s Creed collectible action figures. These"
+title: 'Assassin’S Creed Collectible Action Figures: Ultimate Fan Must-Haves!'
+description: Are you a fan of Assassin’s Creed and love collecting cool memorabilia?
+  Then you’re going to be excited about Assassin’s Creed collectible action figures.
+  These
 pubDate: 2025-09-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=assassins-creed-collectible-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=assassins-creed-collectible-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Assassin’s Creed and love collecting cool memorabilia? Then you’re going to be excited about Assassin’s Creed collectible action figures.**

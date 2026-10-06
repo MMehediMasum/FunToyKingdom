@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Storage Trunk: Fun, Space-Saving Play Solution"
-description: "Imagine giving your child a toy that’s not only fun to ride but also helps keep their room tidy. A ride on toy with a storage trunk does just that. It combines "
+title: 'Ride on Toy With Storage Trunk: Fun, Space-Saving Play Solution'
+description: 'Imagine giving your child a toy that’s not only fun to ride but also
+  helps keep their room tidy. A ride on toy with a storage trunk does just that. It
+  combines '
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-storage-trunk&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-storage-trunk&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that’s not only fun to ride but also helps keep their room tidy. A ride on toy with a storage trunk does just that.**

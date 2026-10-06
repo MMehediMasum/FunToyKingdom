@@ -1,10 +1,14 @@
 ---
-title: "Cars 3 Toys Miss Fritter: Ultimate Guide to the Best Diecast Vehicles"
-description: "Cars 3 toys featuring Miss Fritter bring exciting fun to young fans of the Disney Pixar movie. These toys capture the thrilling racing action and unique charact"
+title: 'Cars 3 Toys Miss Fritter: Ultimate Guide to the Best Diecast Vehicles'
+description: Cars 3 toys featuring Miss Fritter bring exciting fun to young fans of
+  the Disney Pixar movie. These toys capture the thrilling racing action and unique
+  charact
 pubDate: 2026-08-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-3-toys-miss-fritter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars 2 World Grand Prix
+heroImage: https://tse1.mm.bing.net/th?q=cars-3-toys-miss-fritter&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 3 toys featuring Miss Fritter bring exciting fun to young fans of the Disney Pixar movie. These toys capture the thrilling racing action and unique characters perfectly.**

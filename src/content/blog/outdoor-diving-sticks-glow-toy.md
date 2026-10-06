@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Diving Sticks Glow Toy: Ultimate Fun for Night Swims"
-description: "Imagine adding a splash of excitement to your outdoor water games that lights up the fun even as the sun goes down. The Outdoor Diving Sticks Glow Toy is exactl"
+title: 'Outdoor Diving Sticks Glow Toy: Ultimate Fun for Night Swims'
+description: Imagine adding a splash of excitement to your outdoor water games that
+  lights up the fun even as the sun goes down. The Outdoor Diving Sticks Glow Toy
+  is exactl
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-diving-sticks-glow-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-diving-sticks-glow-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine adding a splash of excitement to your outdoor water games that lights up the fun even as the sun goes down. The Outdoor Diving Sticks Glow Toy is exactly what you need to turn ordinary pool time into an unforgettable adventure.**

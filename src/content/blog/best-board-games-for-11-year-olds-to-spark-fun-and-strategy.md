@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games for 11 Year Olds to Spark Fun and Strategy"
-description: "Finding the best board games for 11 year olds can make family time fun and educational. These games boost thinking, strategy, and social skills in an enjoyable "
+title: Best Board Games for 11 Year Olds to Spark Fun and Strategy
+description: 'Finding the best board games for 11 year olds can make family time fun
+  and educational. These games boost thinking, strategy, and social skills in an enjoyable '
 pubDate: 2025-10-30
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-11-year-olds-to-spark-fun-and-strategy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-11-year-olds-to-spark-fun-and-strategy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for 11 year olds can make family time fun and educational. These games boost thinking, strategy, and social skills in an enjoyable way.**

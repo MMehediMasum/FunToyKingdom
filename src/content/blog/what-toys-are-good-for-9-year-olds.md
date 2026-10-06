@@ -1,10 +1,14 @@
 ---
-title: "What Toys are Good for 9 Year Olds: Top Fun & Educational Picks"
-description: "Are you searching for the perfect toys that will truly excite and engage your 9-year-old? Finding toys that match their growing curiosity and energy can be tric"
+title: 'What Toys are Good for 9 Year Olds: Top Fun & Educational Picks'
+description: Are you searching for the perfect toys that will truly excite and engage
+  your 9-year-old? Finding toys that match their growing curiosity and energy can
+  be tric
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-are-good-for-9-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age Appropriate Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-are-good-for-9-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you searching for the perfect toys that will truly excite and engage your 9-year-old? Finding toys that match their growing curiosity and energy can be tricky.**

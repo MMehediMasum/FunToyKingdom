@@ -1,10 +1,14 @@
 ---
-title: "Night King Collectible Action Figure: Ultimate Must-Have for Fans"
-description: "If you’re a fan of epic battles and chilling stories, the Night King Collectible Action Figure is made just for you. Imagine holding a piece of your favorite fa"
+title: 'Night King Collectible Action Figure: Ultimate Must-Have for Fans'
+description: If you’re a fan of epic battles and chilling stories, the Night King
+  Collectible Action Figure is made just for you. Imagine holding a piece of your
+  favorite fa
 pubDate: 2025-09-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=night-king-collectible-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=night-king-collectible-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of epic battles and chilling stories, the Night King Collectible Action Figure is made just for you. Imagine holding a piece of your favorite fantasy world right in your hands—a figure so detailed, it brings the Night King’s icy power to life.**

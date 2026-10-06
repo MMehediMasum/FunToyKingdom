@@ -1,10 +1,13 @@
 ---
-title: "Learning Toys for 11 Year Old: Top Picks to Boost Creativity"
-description: "Are you looking for the perfect learning toys for your 11-year-old? Finding toys that are both fun and educational can be tricky. You want something that sparks"
+title: 'Learning Toys for 11 Year Old: Top Picks to Boost Creativity'
+description: Are you looking for the perfect learning toys for your 11-year-old? Finding
+  toys that are both fun and educational can be tricky. You want something that sparks
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=learning-toys-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=learning-toys-for-11-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect learning toys for your 11-year-old? Finding toys that are both fun and educational can be tricky.**

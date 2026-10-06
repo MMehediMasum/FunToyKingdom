@@ -1,10 +1,14 @@
 ---
-title: "Lego Speed Champions Mercedes Toy Car: Ultimate Race Car Building Experience"
-description: "The LEGO Speed Champions Mercedes toy car series brings thrilling race cars to life with detailed building sets. These kits offer fun for kids and F1 fans alike"
+title: 'Lego Speed Champions Mercedes Toy Car: Ultimate Race Car Building Experience'
+description: The LEGO Speed Champions Mercedes toy car series brings thrilling race
+  cars to life with detailed building sets. These kits offer fun for kids and F1 fans
+  alike
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-speed-champions-mercedes-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=lego-speed-champions-mercedes-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The LEGO Speed Champions Mercedes toy car series brings thrilling race cars to life with detailed building sets. These kits offer fun for kids and F1 fans alike.**

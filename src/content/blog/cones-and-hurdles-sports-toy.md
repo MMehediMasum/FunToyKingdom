@@ -1,10 +1,13 @@
 ---
-title: "Cones And Hurdles Sports Toy: Ultimate Fun for Active Kids"
-description: "Are you looking for a fun and effective way to boost your child’s coordination and agility? Cones and hurdles sports toys are the perfect tools to keep your kid"
+title: 'Cones And Hurdles Sports Toy: Ultimate Fun for Active Kids'
+description: Are you looking for a fun and effective way to boost your child’s coordination
+  and agility? Cones and hurdles sports toys are the perfect tools to keep your kid
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cones-and-hurdles-sports-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sports Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=cones-and-hurdles-sports-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and effective way to boost your child’s coordination and agility? Cones and hurdles sports toys are the perfect tools to keep your kids active while sharpening their motor skills.**

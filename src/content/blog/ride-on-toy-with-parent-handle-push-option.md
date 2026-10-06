@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Parent Handle Push Option: Ultimate Fun & Safety"
-description: "Looking for a fun and safe way to keep your little one entertained while staying in control? A ride on toy with a parent handle push option might be exactly wha"
+title: 'Ride on Toy With Parent Handle Push Option: Ultimate Fun & Safety'
+description: Looking for a fun and safe way to keep your little one entertained while
+  staying in control? A ride on toy with a parent handle push option might be exactly
+  wha
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-parent-handle-push-option&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Motorcycle For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-parent-handle-push-option&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your little one entertained while staying in control? A ride on toy with a parent handle push option might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 5 Year Old: Fun, Easy, and Creative Ideas"
-description: "Are you looking for fun and creative ways to keep your 5-year-old busy and learning? Arts and crafts are the perfect solution! They not only spark your child’s "
+title: 'Arts And Crafts for 5 Year Old: Fun, Easy, and Creative Ideas'
+description: 'Are you looking for fun and creative ways to keep your 5-year-old busy
+  and learning? Arts and crafts are the perfect solution! They not only spark your
+  child’s '
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-5-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and creative ways to keep your 5-year-old busy and learning? Arts and crafts are the perfect solution!**

@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Treat Ball: Top Interactive Puzzle Toys for Smart Dogs"
-description: "Dog toy treat balls offer fun and enrichment for your furry friends. They combine playtime with a rewarding treat experience. These toys engage dogs mentally an"
+title: 'Dog Toy Treat Ball: Top Interactive Puzzle Toys for Smart Dogs'
+description: Dog toy treat balls offer fun and enrichment for your furry friends.
+  They combine playtime with a rewarding treat experience. These toys engage dogs
+  mentally an
 pubDate: 2026-02-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-treat-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-treat-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog toy treat balls offer fun and enrichment for your furry friends. They combine playtime with a rewarding treat experience.**

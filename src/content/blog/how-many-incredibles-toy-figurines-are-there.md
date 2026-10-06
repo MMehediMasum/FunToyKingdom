@@ -1,10 +1,14 @@
 ---
-title: "How Many Incredibles Toy Figurines are There: Ultimate Guide 2025"
-description: "Are you a fan of The Incredibles and love collecting toy figurines? You might be wondering just how many Incredibles toy figurines are out there to add to your "
+title: 'How Many Incredibles Toy Figurines are There: Ultimate Guide 2025'
+description: 'Are you a fan of The Incredibles and love collecting toy figurines?
+  You might be wondering just how many Incredibles toy figurines are out there to
+  add to your '
 pubDate: 2025-10-01
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-incredibles-toy-figurines-are-there&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=how-many-incredibles-toy-figurines-are-there&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of The Incredibles and love collecting toy figurines? You might be wondering just how many Incredibles toy figurines are out there to add to your collection.**

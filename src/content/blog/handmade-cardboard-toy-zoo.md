@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Zoo: Creative Fun for Kids and Adults"
-description: "Imagine creating a fun and exciting zoo right in your own home—using just cardboard and your creativity. A handmade cardboard toy zoo is more than just a craft "
+title: 'Handmade Cardboard Toy Zoo: Creative Fun for Kids and Adults'
+description: 'Imagine creating a fun and exciting zoo right in your own home—using
+  just cardboard and your creativity. A handmade cardboard toy zoo is more than just
+  a craft '
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-zoo&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-zoo&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a fun and exciting zoo right in your own home—using just cardboard and your creativity. A handmade cardboard toy zoo is more than just a craft project; it’s a way to bring your imagination to life while learning and playing.**

@@ -1,10 +1,14 @@
 ---
-title: "Toys for Blind Infants: Top Sensory Picks for Early Development"
-description: "Choosing the right toys for blind infants helps support their early growth and sensory skills. Toys designed for touch, sound, and texture encourage learning an"
+title: 'Toys for Blind Infants: Top Sensory Picks for Early Development'
+description: Choosing the right toys for blind infants helps support their early growth
+  and sensory skills. Toys designed for touch, sound, and texture encourage learning
+  an
 pubDate: 2026-03-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-blind-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-blind-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for blind infants helps support their early growth and sensory skills. Toys designed for touch, sound, and texture encourage learning and curiosity.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars And Trucks for 5 Year Old: Top Fun & Safe Picks 2025"
-description: "Are you looking for the perfect cars and trucks for your 5-year-old? Choosing toys that spark imagination and keep your child engaged can be tricky. You want so"
+title: 'Cars And Trucks for 5 Year Old: Top Fun & Safe Picks 2025'
+description: Are you looking for the perfect cars and trucks for your 5-year-old?
+  Choosing toys that spark imagination and keep your child engaged can be tricky.
+  You want so
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-and-trucks-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-and-trucks-for-5-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect cars and trucks for your 5-year-old? Choosing toys that spark imagination and keep your child engaged can be tricky.**

@@ -1,10 +1,14 @@
 ---
-title: "Toy Pedal Cars: Top Fun Ride-On Toys for Kids' Active Playtime"
-description: "Toy pedal cars captivate young imaginations, offering endless hours of fun and learning. These miniature vehicles combine play with early education. Toy pedal c"
+title: 'Toy Pedal Cars: Top Fun Ride-On Toys for Kids'' Active Playtime'
+description: Toy pedal cars captivate young imaginations, offering endless hours of
+  fun and learning. These miniature vehicles combine play with early education. Toy
+  pedal c
 pubDate: 2026-02-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-pedal-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=toy-pedal-cars&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy pedal cars captivate young imaginations, offering endless hours of fun and learning. These miniature vehicles combine play with early education.**

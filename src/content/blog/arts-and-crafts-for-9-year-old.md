@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for 9 Year Old: Fun, Easy and Creative Ideas"
-description: "Are you looking for fun and creative ways to keep your 9-year-old engaged? Arts and crafts are the perfect solution to spark their imagination and build new ski"
+title: 'Arts And Crafts for 9 Year Old: Fun, Easy and Creative Ideas'
+description: Are you looking for fun and creative ways to keep your 9-year-old engaged?
+  Arts and crafts are the perfect solution to spark their imagination and build new
+  ski
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-9-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and creative ways to keep your 9-year-old engaged? Arts and crafts are the perfect solution to spark their imagination and build new skills.**

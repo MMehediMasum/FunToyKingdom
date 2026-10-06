@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Families With Teenagers to Spark Fun and Laughter"
-description: "Finding the best board games for families with teenagers can bring hours of fun and connection. These games blend challenge, laughter, and teamwork for all ages"
+title: Best Board Games for Families With Teenagers to Spark Fun and Laughter
+description: Finding the best board games for families with teenagers can bring hours
+  of fun and connection. These games blend challenge, laughter, and teamwork for all
+  ages
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-families-with-teenagers-to-spark-fun-and-laughter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Party
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-families-with-teenagers-to-spark-fun-and-laughter&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for families with teenagers can bring hours of fun and connection. These games blend challenge, laughter, and teamwork for all ages.**

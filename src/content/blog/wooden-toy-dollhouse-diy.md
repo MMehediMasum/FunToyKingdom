@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Dollhouse Diy: Create Charming Miniature Homes Easily"
-description: "Are you looking for a fun and creative project that brings joy to your home? Building a wooden toy dollhouse yourself can be just that. Imagine crafting a charm"
+title: 'Wooden Toy Dollhouse Diy: Create Charming Miniature Homes Easily'
+description: Are you looking for a fun and creative project that brings joy to your
+  home? Building a wooden toy dollhouse yourself can be just that. Imagine crafting
+  a charm
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-dollhouse-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-dollhouse-diy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for a fun and creative project that brings joy to your home? Building a wooden toy dollhouse yourself can be just that.**

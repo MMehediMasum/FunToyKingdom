@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Toys Amazon: Top Sensory and Teething Picks for Babies"
-description: "Choosing the best toys for infants can be challenging. Amazon offers a wide range of options for every need. Selecting toys for your baby is an important decisi"
+title: 'Best Infant Toys Amazon: Top Sensory and Teething Picks for Babies'
+description: Choosing the best toys for infants can be challenging. Amazon offers
+  a wide range of options for every need. Selecting toys for your baby is an important
+  decisi
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-toys-amazon&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-toys-amazon&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for infants can be challenging. Amazon offers a wide range of options for every need.**

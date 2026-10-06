@@ -1,10 +1,14 @@
 ---
-title: "Black Widow Collectible Doll: Ultimate Guide for Fans & Collectors"
-description: "Are you a fan of Black Widow and love collecting unique items? Imagine adding a Black Widow collectible doll to your collection—an item that captures her streng"
+title: 'Black Widow Collectible Doll: Ultimate Guide for Fans & Collectors'
+description: Are you a fan of Black Widow and love collecting unique items? Imagine
+  adding a Black Widow collectible doll to your collection—an item that captures her
+  streng
 pubDate: 2025-12-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-widow-collectible-doll&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mulan Disney Collectible Doll
+heroImage: https://tse1.mm.bing.net/th?q=black-widow-collectible-doll&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Black Widow and love collecting unique items? Imagine adding a Black Widow collectible doll to your collection—an item that captures her strength, style, and mystery perfectly.**

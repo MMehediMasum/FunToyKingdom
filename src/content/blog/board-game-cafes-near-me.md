@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Board Game Cafes near Me: Ultimate Spots for Fun & Friends"
 description: "Looking for a fun way to spend time with friends or meet new people? Board game cafes near you could be exactly what you need. Imagine a cozy spot where you can"
 pubDate: 2025-08-30

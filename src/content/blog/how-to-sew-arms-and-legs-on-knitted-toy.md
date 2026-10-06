@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Arms And Legs on Knitted Toy: Easy Step-by-Step Guide"
-description: "Are you ready to bring your knitted toy to life? Sewing arms and legs onto your creation can seem tricky, but with the right steps, you’ll make your toy look ch"
+title: 'How to Sew Arms And Legs on Knitted Toy: Easy Step-by-Step Guide'
+description: Are you ready to bring your knitted toy to life? Sewing arms and legs
+  onto your creation can seem tricky, but with the right steps, you’ll make your toy
+  look ch
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-arms-and-legs-on-knitted-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Germ Safety
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-arms-and-legs-on-knitted-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to bring your knitted toy to life? Sewing arms and legs onto your creation can seem tricky, but with the right steps, you’ll make your toy look charming and sturdy.**

@@ -1,10 +1,13 @@
 ---
-title: "Toys for Infant Cognitive Development: Top Montessori Picks for Early Learning"
-description: "Choosing the right toys can boost infant cognitive development from early months. Toys that engage senses help babies learn about the world around them. Infants"
+title: 'Toys for Infant Cognitive Development: Top Montessori Picks for Early Learning'
+description: Choosing the right toys can boost infant cognitive development from early
+  months. Toys that engage senses help babies learn about the world around them. Infants
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-infant-cognitive-development&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-infant-cognitive-development&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys can boost infant cognitive development from early months. Toys that engage senses help babies learn about the world around them.**

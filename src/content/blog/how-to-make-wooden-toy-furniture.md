@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Furniture: Easy Steps for Creative Fun"
-description: "Are you looking for a fun and creative project that lets you build something special with your own hands? Making wooden toy furniture is a perfect way to do jus"
+title: 'How to Make Wooden Toy Furniture: Easy Steps for Creative Fun'
+description: Are you looking for a fun and creative project that lets you build something
+  special with your own hands? Making wooden toy furniture is a perfect way to do
+  jus
 pubDate: 2026-07-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-furniture&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-furniture&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that lets you build something special with your own hands? Making wooden toy furniture is a perfect way to do just that.**

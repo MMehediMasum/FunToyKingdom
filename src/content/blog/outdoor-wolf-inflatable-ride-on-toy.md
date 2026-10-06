@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Wolf Inflatable Ride on Toy: Ultimate Fun for Kids Outdoors"
-description: "Looking for a fun way to keep your kids active and entertained outside? The Outdoor Wolf Inflatable Ride on Toy might be just what you need. Imagine your child "
+title: 'Outdoor Wolf Inflatable Ride on Toy: Ultimate Fun for Kids Outdoors'
+description: 'Looking for a fun way to keep your kids active and entertained outside?
+  The Outdoor Wolf Inflatable Ride on Toy might be just what you need. Imagine your
+  child '
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-wolf-inflatable-ride-on-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-wolf-inflatable-ride-on-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids active and entertained outside? The Outdoor Wolf Inflatable Ride on Toy might be just what you need.**

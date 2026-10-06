@@ -1,10 +1,14 @@
 ---
-title: "Toy Camera With Instant Print: Capture Magic Instantly!"
-description: "Imagine capturing your favorite moments with a simple click and holding the photo in your hand seconds later. A toy camera with instant print lets you do just t"
+title: 'Toy Camera With Instant Print: Capture Magic Instantly!'
+description: Imagine capturing your favorite moments with a simple click and holding
+  the photo in your hand seconds later. A toy camera with instant print lets you do
+  just t
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-camera-with-instant-print&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=toy-camera-with-instant-print&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine capturing your favorite moments with a simple click and holding the photo in your hand seconds later. A toy camera with instant print lets you do just that.**

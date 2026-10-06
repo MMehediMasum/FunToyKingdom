@@ -1,10 +1,14 @@
 ---
-title: "Car Seat Toys for Infants: Best Soft Hanging Sensory Toys for Babies"
-description: "Car seat toys keep infants entertained and calm during trips. They help develop babies’ senses and motor skills while on the go. Choosing the right car seat toy"
+title: 'Car Seat Toys for Infants: Best Soft Hanging Sensory Toys for Babies'
+description: Car seat toys keep infants entertained and calm during trips. They help
+  develop babies’ senses and motor skills while on the go. Choosing the right car
+  seat toy
 pubDate: 2026-01-29
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=car-seat-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Seat Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=car-seat-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Car seat toys keep infants entertained and calm during trips. They help develop babies’ senses and motor skills while on the go.**

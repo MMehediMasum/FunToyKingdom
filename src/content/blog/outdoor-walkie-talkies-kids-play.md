@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Walkie Talkies Kids Play: Ultimate Fun & Adventure Gear"
-description: "Imagine your kids running freely outside, their laughter echoing as they chat with each other through walkie talkies. Outdoor walkie talkies for kids turn ordin"
+title: 'Outdoor Walkie Talkies Kids Play: Ultimate Fun & Adventure Gear'
+description: Imagine your kids running freely outside, their laughter echoing as they
+  chat with each other through walkie talkies. Outdoor walkie talkies for kids turn
+  ordin
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-walkie-talkies-kids-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-walkie-talkies-kids-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids running freely outside, their laughter echoing as they chat with each other through walkie talkies. Outdoor walkie talkies for kids turn ordinary playtime into an exciting adventure full of imagination and teamwork.**

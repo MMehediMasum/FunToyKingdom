@@ -1,10 +1,14 @@
 ---
-title: "Best Puzzle Games for Families: Top Fun & Brain-Boosting Picks"
-description: "Looking for a fun way to bring your family closer? Puzzle games are the perfect choice. They challenge your mind, spark teamwork, and create moments full of lau"
+title: 'Best Puzzle Games for Families: Top Fun & Brain-Boosting Picks'
+description: Looking for a fun way to bring your family closer? Puzzle games are the
+  perfect choice. They challenge your mind, spark teamwork, and create moments full
+  of lau
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-puzzle-games-for-families&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-puzzle-games-for-families&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your family closer? Puzzle games are the perfect choice.**

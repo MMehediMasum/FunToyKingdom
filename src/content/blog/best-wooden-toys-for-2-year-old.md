@@ -1,10 +1,14 @@
 ---
-title: "Best Wooden Toys for 2 Year Old: Top Safe & Fun Picks 2025"
-description: "Choosing the best wooden toys for your 2-year-old can feel overwhelming. You want something safe, fun, and that helps your little one learn and grow. Imagine gi"
+title: 'Best Wooden Toys for 2 Year Old: Top Safe & Fun Picks 2025'
+description: Choosing the best wooden toys for your 2-year-old can feel overwhelming.
+  You want something safe, fun, and that helps your little one learn and grow. Imagine
+  gi
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wooden-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-wooden-toys-for-2-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Choosing the best wooden toys for your 2-year-old can feel overwhelming. You want something safe, fun, and that helps your little one learn and grow.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Buggy for Dirt Tracks: Ultimate Guide to Speed & Control"
-description: "Are you ready to take your RC racing to the next level? If you love the thrill of speed and the challenge of rough terrain, an RC buggy for dirt tracks could be"
+title: 'Rc Buggy for Dirt Tracks: Ultimate Guide to Speed & Control'
+description: Are you ready to take your RC racing to the next level? If you love the
+  thrill of speed and the challenge of rough terrain, an RC buggy for dirt tracks
+  could be
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-buggy-for-dirt-tracks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-buggy-for-dirt-tracks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC racing to the next level? If you love the thrill of speed and the challenge of rough terrain, an RC buggy for dirt tracks could be exactly what you need.**

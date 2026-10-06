@@ -1,10 +1,14 @@
 ---
-title: "Handmade Crochet Plush Toy: Irresistible Cuteness You’ll Love"
-description: "Imagine holding a soft, charming toy that feels like it was made just for you. Handmade crochet plush toys bring warmth, personality, and a unique touch that st"
+title: 'Handmade Crochet Plush Toy: Irresistible Cuteness You’ll Love'
+description: Imagine holding a soft, charming toy that feels like it was made just
+  for you. Handmade crochet plush toys bring warmth, personality, and a unique touch
+  that st
 pubDate: 2026-09-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-crochet-plush-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=handmade-crochet-plush-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine holding a soft, charming toy that feels like it was made just for you. Handmade crochet plush toys bring warmth, personality, and a unique touch that store-bought toys simply can’t match.**

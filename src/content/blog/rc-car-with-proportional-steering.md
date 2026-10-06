@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Proportional Steering: Ultimate Control and Precision"
-description: "Are you tired of RC cars that feel jerky and hard to control? Imagine having a remote control car that responds smoothly and precisely to every move you make. T"
+title: 'Rc Car With Proportional Steering: Ultimate Control and Precision'
+description: Are you tired of RC cars that feel jerky and hard to control? Imagine
+  having a remote control car that responds smoothly and precisely to every move you
+  make. T
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-proportional-steering&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-proportional-steering&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you tired of RC cars that feel jerky and hard to control? Imagine having a remote control car that responds smoothly and precisely to every move you make.**

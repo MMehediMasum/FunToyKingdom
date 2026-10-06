@@ -1,10 +1,14 @@
 ---
-title: "Kids Paddle Board Inflatable: Ultimate Fun & Safety Guide 2025"
-description: "Looking for a fun way to get your kids outside and active? A kids paddle board inflatable might be just what you need. These boards are lightweight, safe, and e"
+title: 'Kids Paddle Board Inflatable: Ultimate Fun & Safety Guide 2025'
+description: Looking for a fun way to get your kids outside and active? A kids paddle
+  board inflatable might be just what you need. These boards are lightweight, safe,
+  and e
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-paddle-board-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=kids-paddle-board-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids outside and active? A kids paddle board inflatable might be just what you need.**

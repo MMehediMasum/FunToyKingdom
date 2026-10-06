@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Gold Coins: Easy DIY Craft Ideas for Kids"
-description: "Have you ever wished you could create your very own shiny gold coins for playtime or decoration? Making toy gold coins is easier than you think, and it’s a fun "
+title: 'How to Make Toy Gold Coins: Easy DIY Craft Ideas for Kids'
+description: 'Have you ever wished you could create your very own shiny gold coins
+  for playtime or decoration? Making toy gold coins is easier than you think, and
+  it’s a fun '
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-gold-coins&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-gold-coins&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wished you could create your very own shiny gold coins for playtime or decoration? Making toy gold coins is easier than you think, and it’s a fun way to add a special touch to your games, parties, or crafts.**

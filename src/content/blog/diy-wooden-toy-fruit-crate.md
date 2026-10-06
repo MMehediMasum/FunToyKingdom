@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Fruit Crate: Easy Step-by-Step Guide for Kids"
-description: "Are you looking for a fun, simple project that brings joy and creativity into your home? A DIY wooden toy fruit crate is just what you need. It’s easy to make, "
+title: 'Diy Wooden Toy Fruit Crate: Easy Step-by-Step Guide for Kids'
+description: 'Are you looking for a fun, simple project that brings joy and creativity
+  into your home? A DIY wooden toy fruit crate is just what you need. It’s easy to
+  make, '
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-fruit-crate&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-fruit-crate&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun, simple project that brings joy and creativity into your home? A DIY wooden toy fruit crate is just what you need.**

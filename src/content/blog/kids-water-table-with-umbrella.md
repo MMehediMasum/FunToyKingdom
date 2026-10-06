@@ -1,10 +1,14 @@
 ---
-title: "Kids Water Table With Umbrella: Ultimate Summer Fun for Kids"
-description: "Looking for a fun and safe way to keep your kids entertained outdoors? A kids water table with umbrella might be just what you need. Imagine your little ones sp"
+title: 'Kids Water Table With Umbrella: Ultimate Summer Fun for Kids'
+description: Looking for a fun and safe way to keep your kids entertained outdoors?
+  A kids water table with umbrella might be just what you need. Imagine your little
+  ones sp
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-water-table-with-umbrella&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=kids-water-table-with-umbrella&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained outdoors? A kids water table with umbrella might be just what you need.**

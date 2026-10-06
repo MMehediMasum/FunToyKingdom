@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 10Th Anniversary Edition DVD: Ultimate Collector’s Must-Have Review"
 description: "Celebrating a decade of magic, the Toy Story 10th Anniversary Edition DVD is a must-have for fans. This special edition brings Woody, Buzz, and the gang back to"
 pubDate: 2026-03-10

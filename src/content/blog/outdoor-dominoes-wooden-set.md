@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dominoes Wooden Set: Ultimate Fun for Family & Friends"
-description: "Imagine gathering your friends and family for a fun game that brings everyone closer, all while enjoying the fresh air. Your Outdoor Dominoes Wooden Set is more"
+title: 'Outdoor Dominoes Wooden Set: Ultimate Fun for Family & Friends'
+description: Imagine gathering your friends and family for a fun game that brings
+  everyone closer, all while enjoying the fresh air. Your Outdoor Dominoes Wooden
+  Set is more
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dominoes-wooden-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dominoes-wooden-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine gathering your friends and family for a fun game that brings everyone closer, all while enjoying the fresh air. Your Outdoor Dominoes Wooden Set is more than just a game—it’s a chance to create lasting memories.**

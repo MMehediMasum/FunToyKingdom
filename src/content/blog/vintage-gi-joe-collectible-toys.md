@@ -1,10 +1,14 @@
 ---
-title: "Vintage Gi Joe Collectible Toys: Ultimate Guide to Rare Finds"
-description: "Are you a fan of classic toys that bring back memories and hold real value? Vintage GI Joe collectible toys might be exactly what you’re looking for. These time"
+title: 'Vintage Gi Joe Collectible Toys: Ultimate Guide to Rare Finds'
+description: Are you a fan of classic toys that bring back memories and hold real
+  value? Vintage GI Joe collectible toys might be exactly what you’re looking for.
+  These time
 pubDate: 2025-10-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-gi-joe-collectible-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=vintage-gi-joe-collectible-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of classic toys that bring back memories and hold real value? Vintage GI Joe collectible toys might be exactly what you’re looking for.**

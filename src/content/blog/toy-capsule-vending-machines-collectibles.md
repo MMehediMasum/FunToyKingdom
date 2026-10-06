@@ -1,10 +1,14 @@
 ---
-title: "Toy Capsule Vending Machines Collectibles: Ultimate Guide to Rare Finds"
-description: "Have you ever felt the thrill of turning a knob on a toy capsule vending machine, wondering which surprise toy will pop out? These small machines hold more than"
+title: 'Toy Capsule Vending Machines Collectibles: Ultimate Guide to Rare Finds'
+description: Have you ever felt the thrill of turning a knob on a toy capsule vending
+  machine, wondering which surprise toy will pop out? These small machines hold more
+  than
 pubDate: 2026-07-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-capsule-vending-machines-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-capsule-vending-machines-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever felt the thrill of turning a knob on a toy capsule vending machine, wondering which surprise toy will pop out? These small machines hold more than just fun—they hide a world of collectibles that can spark joy, nostalgia, and even become valuable treasures.**

@@ -1,10 +1,13 @@
 ---
-title: "Best Ride on Toys for Two Year Olds: Top 3 in 1 Tricycles and More"
-description: "Choosing the best ride on toys for two year olds helps boost their motor skills and fun. These toys offer safe, exciting ways for toddlers to explore movement. "
+title: 'Best Ride on Toys for Two Year Olds: Top 3 in 1 Tricycles and More'
+description: 'Choosing the best ride on toys for two year olds helps boost their motor
+  skills and fun. These toys offer safe, exciting ways for toddlers to explore movement. '
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-two-year-olds-top-3-in-1-tricycles-and-more&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-ride-on-toys-for-two-year-olds-top-3-in-1-tricycles-and-more&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Choosing the best ride on toys for two year olds helps boost their motor skills and fun. These toys offer safe, exciting ways for toddlers to explore movement.**

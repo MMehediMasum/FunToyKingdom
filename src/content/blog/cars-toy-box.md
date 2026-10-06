@@ -1,10 +1,14 @@
 ---
-title: "Cars Toy Box: Ultimate Storage and Play Solution for Toy Car Collectors"
-description: "Cars Toy Box introduces a world of fun and organization for toy car enthusiasts. With a range of storage solutions, it's perfect for little racers. Parents and "
+title: 'Cars Toy Box: Ultimate Storage and Play Solution for Toy Car Collectors'
+description: 'Cars Toy Box introduces a world of fun and organization for toy car
+  enthusiasts. With a range of storage solutions, it''s perfect for little racers.
+  Parents and '
 pubDate: 2026-01-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-toy-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-toy-box&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Toy Box introduces a world of fun and organization for toy car enthusiasts. With a range of storage solutions, it's perfect for little racers.**

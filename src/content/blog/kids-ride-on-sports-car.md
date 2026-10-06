@@ -1,10 +1,14 @@
 ---
-title: "Kids Ride on Sports Car: Ultimate Fun and Safety Guide"
-description: "Imagine your child’s face lighting up with pure joy as they zoom around in their very own sports car. Kids ride on sports cars aren’t just toys—they’re a ticket"
+title: 'Kids Ride on Sports Car: Ultimate Fun and Safety Guide'
+description: Imagine your child’s face lighting up with pure joy as they zoom around
+  in their very own sports car. Kids ride on sports cars aren’t just toys—they’re
+  a ticket
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-ride-on-sports-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=kids-ride-on-sports-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with pure joy as they zoom around in their very own sports car. Kids ride on sports cars aren’t just toys—they’re a ticket to endless fun, excitement, and even learning.**

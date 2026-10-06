@@ -1,10 +1,14 @@
 ---
-title: "When Can Kids Sleep With Stuffed Animals: Safe & Comfort Tips"
-description: "Are you wondering when it’s safe for your child to sleep with stuffed animals? You’re not alone. Many parents ask this question because they want to keep their "
+title: 'When Can Kids Sleep With Stuffed Animals: Safe & Comfort Tips'
+description: 'Are you wondering when it’s safe for your child to sleep with stuffed
+  animals? You’re not alone. Many parents ask this question because they want to keep
+  their '
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-can-kids-sleep-with-stuffed-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=when-can-kids-sleep-with-stuffed-animals&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you wondering when it’s safe for your child to sleep with stuffed animals? You’re not alone.**

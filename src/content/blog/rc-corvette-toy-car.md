@@ -1,10 +1,14 @@
 ---
-title: "Rc Corvette Toy Car: Ultimate Guide to Speed and Fun"
-description: "Are you ready to bring the thrill of a classic car right into your hands? The RC Corvette toy car lets you experience the excitement of speed and control withou"
+title: 'Rc Corvette Toy Car: Ultimate Guide to Speed and Fun'
+description: Are you ready to bring the thrill of a classic car right into your hands?
+  The RC Corvette toy car lets you experience the excitement of speed and control
+  withou
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-corvette-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-corvette-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to bring the thrill of a classic car right into your hands? The RC Corvette toy car lets you experience the excitement of speed and control without leaving your room.**

@@ -1,10 +1,14 @@
 ---
-title: "Soft Foam Flying Disc for Toddlers: Safe, Fun Outdoor Play Guide"
-description: "Looking for a fun and safe way to keep your toddler active? A soft foam flying disc might be just what you need. It’s gentle on little hands and perfect for dev"
+title: 'Soft Foam Flying Disc for Toddlers: Safe, Fun Outdoor Play Guide'
+description: Looking for a fun and safe way to keep your toddler active? A soft foam
+  flying disc might be just what you need. It’s gentle on little hands and perfect
+  for dev
 pubDate: 2026-05-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-foam-flying-disc-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=soft-foam-flying-disc-for-toddlers&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a fun and safe way to keep your toddler active? A soft foam flying disc might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Professor Z Toy: Ultimate Die-Cast Collectible for Kids"
-description: "The Cars 2 Professor Z toy brings the excitement of the movie to life for young fans. This die-cast vehicle is perfect for kids who love action-packed adventure"
+title: 'Cars 2 Professor Z Toy: Ultimate Die-Cast Collectible for Kids'
+description: The Cars 2 Professor Z toy brings the excitement of the movie to life
+  for young fans. This die-cast vehicle is perfect for kids who love action-packed
+  adventure
 pubDate: 2026-03-08
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-professor-z-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-professor-z-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 Professor Z toy brings the excitement of the movie to life for young fans. This die-cast vehicle is perfect for kids who love action-packed adventures.**

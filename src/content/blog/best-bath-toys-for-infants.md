@@ -1,10 +1,13 @@
 ---
-title: "Best Bath Toys for Infants: Top Picks for Fun and Safe Playtime"
-description: "Bath time can be a fun and engaging experience for infants with the right toys. Discover the best bath toys for infants that are safe, entertaining, and educati"
+title: 'Best Bath Toys for Infants: Top Picks for Fun and Safe Playtime'
+description: Bath time can be a fun and engaging experience for infants with the right
+  toys. Discover the best bath toys for infants that are safe, entertaining, and educati
 pubDate: 2026-02-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-bath-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-bath-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Bath time can be a fun and engaging experience for infants with the right toys. Discover the best bath toys for infants that are safe, entertaining, and educational.**

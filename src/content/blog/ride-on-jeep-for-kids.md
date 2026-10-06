@@ -1,10 +1,14 @@
 ---
-title: "Ride on Jeep for Kids: Ultimate Fun & Safety Guide 2025"
-description: "Imagine your child’s face lighting up as they zoom around in their very own ride on jeep. You want to give your kid a fun, safe way to explore and play outdoors"
+title: 'Ride on Jeep for Kids: Ultimate Fun & Safety Guide 2025'
+description: Imagine your child’s face lighting up as they zoom around in their very
+  own ride on jeep. You want to give your kid a fun, safe way to explore and play
+  outdoors
 pubDate: 2026-05-03
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-jeep-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-jeep-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up as they zoom around in their very own ride on jeep. You want to give your kid a fun, safe way to explore and play outdoors.**

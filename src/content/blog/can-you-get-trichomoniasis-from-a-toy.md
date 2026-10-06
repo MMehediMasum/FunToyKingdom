@@ -1,10 +1,14 @@
 ---
-title: "Can You Get Trichomoniasis from a Toy: Risks and Prevention Tips"
-description: "Have you ever wondered if you can catch trichomoniasis from a toy? It’s a question many people don’t think about but should. Understanding how infections like t"
+title: 'Can You Get Trichomoniasis from a Toy: Risks and Prevention Tips'
+description: Have you ever wondered if you can catch trichomoniasis from a toy? It’s
+  a question many people don’t think about but should. Understanding how infections
+  like t
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-get-trichomoniasis-from-a-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-get-trichomoniasis-from-a-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered if you can catch trichomoniasis from a toy? It’s a question many people don’t think about but should.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 3 the Book: Magical Reads for Every Pixar Fan"
 description: "Toy Story 3 the Book brings the magic of the movie to life on every page. It lets readers enjoy Woody, Buzz, and friends in a new way. This book collection incl"
 pubDate: 2026-08-24

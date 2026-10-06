@@ -1,10 +1,14 @@
 ---
-title: "Dog Toy Ball Launcher: Ultimate Fetch Fun for Energetic Pups"
-description: "Dog ball launchers offer an engaging way to keep your furry friend active and entertained. These toys cater to dogs of all sizes and energy levels. Dog owners k"
+title: 'Dog Toy Ball Launcher: Ultimate Fetch Fun for Energetic Pups'
+description: Dog ball launchers offer an engaging way to keep your furry friend active
+  and entertained. These toys cater to dogs of all sizes and energy levels. Dog owners
+  k
 pubDate: 2026-02-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-toy-ball-launcher&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=dog-toy-ball-launcher&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog ball launchers offer an engaging way to keep your furry friend active and entertained. These toys cater to dogs of all sizes and energy levels.**

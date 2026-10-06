@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Eagle Inflatable Ride on Toy: Ultimate Fun for Kids"
-description: "Imagine your child’s face lighting up with pure joy as they ride their very own eagle, soaring through the backyard on an inflatable adventure. The Outdoor Eagl"
+title: 'Outdoor Eagle Inflatable Ride on Toy: Ultimate Fun for Kids'
+description: Imagine your child’s face lighting up with pure joy as they ride their
+  very own eagle, soaring through the backyard on an inflatable adventure. The Outdoor
+  Eagl
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-eagle-inflatable-ride-on-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-eagle-inflatable-ride-on-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with pure joy as they ride their very own eagle, soaring through the backyard on an inflatable adventure. The Outdoor Eagle Inflatable Ride on Toy isn’t just a toy—it’s a ticket to endless fun, laughter, and active play.**

@@ -1,10 +1,15 @@
 ---
-title: "Super Robot Monkey Team Hyperforce Go Toys: Ultimate Collectible Action Figures Guide"
-description: "Super Robot Monkey Team Hyperforce Go toys bring action and fun to fans of the animated series. These toys capture the excitement of the show with detailed char"
+title: 'Super Robot Monkey Team Hyperforce Go Toys: Ultimate Collectible Action Figures
+  Guide'
+description: Super Robot Monkey Team Hyperforce Go toys bring action and fun to fans
+  of the animated series. These toys capture the excitement of the show with detailed
+  char
 pubDate: 2026-03-13
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=super-robot-monkey-team-hyperforce-go-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=super-robot-monkey-team-hyperforce-go-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Super Robot Monkey Team Hyperforce Go toys bring action and fun to fans of the animated series. These toys capture the excitement of the show with detailed characters and cool features.**

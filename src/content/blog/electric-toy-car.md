@@ -1,10 +1,14 @@
 ---
-title: "Electric Toy Car: Top Ride-On Models with Remote Control & LED Lights"
-description: "Electric toy cars offer endless fun and excitement for children. These modern toys boast advanced features and realistic designs. Parents and kids alike are dra"
+title: 'Electric Toy Car: Top Ride-On Models with Remote Control & LED Lights'
+description: Electric toy cars offer endless fun and excitement for children. These
+  modern toys boast advanced features and realistic designs. Parents and kids alike
+  are dra
 pubDate: 2026-02-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electric-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Race Tracks For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=electric-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Electric toy cars offer endless fun and excitement for children. These modern toys boast advanced features and realistic designs.**

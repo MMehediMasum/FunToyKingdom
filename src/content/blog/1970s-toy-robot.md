@@ -1,10 +1,13 @@
 ---
-title: "1970S Toy Robot Collectibles: Retro Wind-Up Tin Robots for Gifts"
-description: "Toy robots from the 1970s evoke nostalgia and charm. These vintage collectibles captivate both children and adults alike. The appeal of 1970s toy robots lies in"
+title: '1970S Toy Robot Collectibles: Retro Wind-Up Tin Robots for Gifts'
+description: Toy robots from the 1970s evoke nostalgia and charm. These vintage collectibles
+  captivate both children and adults alike. The appeal of 1970s toy robots lies in
 pubDate: 2026-09-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=1970s-toy-robot&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=1970s-toy-robot&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Toy robots from the 1970s evoke nostalgia and charm. These vintage collectibles captivate both children and adults alike.**

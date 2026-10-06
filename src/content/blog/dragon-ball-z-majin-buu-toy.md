@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Majin Buu Toy: Top Collectible Figures for Fans"
-description: "Majin Buu is a beloved character in the Dragon Ball Z universe. Fans of all ages adore his unique design. Dragon Ball Z Majin Buu toys capture the playful and m"
+title: 'Dragon Ball Z Majin Buu Toy: Top Collectible Figures for Fans'
+description: Majin Buu is a beloved character in the Dragon Ball Z universe. Fans
+  of all ages adore his unique design. Dragon Ball Z Majin Buu toys capture the playful
+  and m
 pubDate: 2026-08-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-majin-buu-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-majin-buu-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Majin Buu is a beloved character in the Dragon Ball Z universe. Fans of all ages adore his unique design.**

@@ -1,10 +1,14 @@
 ---
-title: "Are Kong Toys Safe for Puppies: Essential Safety Tips Revealed"
-description: "If you’re a puppy parent, you want the best for your furry friend—especially when it comes to their toys. Kong toys are everywhere, promising hours of fun and m"
+title: 'Are Kong Toys Safe for Puppies: Essential Safety Tips Revealed'
+description: If you’re a puppy parent, you want the best for your furry friend—especially
+  when it comes to their toys. Kong toys are everywhere, promising hours of fun and
+  m
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-kong-toys-safe-for-puppies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=are-kong-toys-safe-for-puppies&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you’re a puppy parent, you want the best for your furry friend—especially when it comes to their toys. Kong toys are everywhere, promising hours of fun and mental stimulation.**

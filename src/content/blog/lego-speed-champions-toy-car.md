@@ -1,10 +1,14 @@
 ---
-title: "Lego Speed Champions Toy Car: Ultimate Buildable Racing Set for Kids"
-description: "LEGO Speed Champions toy cars bring famous sports cars to life with fun building and play. These sets let kids build and race detailed model cars inspired by re"
+title: 'Lego Speed Champions Toy Car: Ultimate Buildable Racing Set for Kids'
+description: LEGO Speed Champions toy cars bring famous sports cars to life with fun
+  building and play. These sets let kids build and race detailed model cars inspired
+  by re
 pubDate: 2026-01-14
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-speed-champions-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=lego-speed-champions-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **LEGO Speed Champions toy cars bring famous sports cars to life with fun building and play. These sets let kids build and race detailed model cars inspired by real vehicles.**

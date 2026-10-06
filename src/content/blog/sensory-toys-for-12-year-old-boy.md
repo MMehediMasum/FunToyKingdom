@@ -1,10 +1,13 @@
 ---
-title: "Sensory Toys for 12 Year Old Boy: Top STEM and Montessori Picks"
-description: "Sensory toys help 12-year-old boys develop focus, motor skills, and creativity. They offer fun ways to learn and relax. Finding the right sensory toy for a 12-y"
+title: 'Sensory Toys for 12 Year Old Boy: Top STEM and Montessori Picks'
+description: Sensory toys help 12-year-old boys develop focus, motor skills, and creativity.
+  They offer fun ways to learn and relax. Finding the right sensory toy for a 12-y
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-12-year-old-boy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-12-year-old-boy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 12-year-old boys develop focus, motor skills, and creativity. They offer fun ways to learn and relax.**

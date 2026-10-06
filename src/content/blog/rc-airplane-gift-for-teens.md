@@ -1,10 +1,14 @@
 ---
-title: "Rc Airplane Gift for Teens: Ultimate Fun and Learning Guide"
-description: "Looking for the perfect gift that will light up any teen’s face? An RC airplane might be exactly what you need. Imagine your teen’s excitement as they take cont"
+title: 'Rc Airplane Gift for Teens: Ultimate Fun and Learning Guide'
+description: Looking for the perfect gift that will light up any teen’s face? An RC
+  airplane might be exactly what you need. Imagine your teen’s excitement as they
+  take cont
 pubDate: 2026-05-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-airplane-gift-for-teens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Airplane For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-airplane-gift-for-teens&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the perfect gift that will light up any teen’s face? An RC airplane might be exactly what you need.**

@@ -1,10 +1,13 @@
 ---
-title: "Indoor Toys for 9 Year Old: Top Fun & Educational Picks"
-description: "Looking for the perfect indoor toys for your 9-year-old? You want something that keeps them busy, sparks their imagination, and maybe even teaches them a little"
+title: 'Indoor Toys for 9 Year Old: Top Fun & Educational Picks'
+description: Looking for the perfect indoor toys for your 9-year-old? You want something
+  that keeps them busy, sparks their imagination, and maybe even teaches them a little
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-9-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect indoor toys for your 9-year-old? You want something that keeps them busy, sparks their imagination, and maybe even teaches them a little along the way.**

@@ -1,10 +1,13 @@
 ---
-title: "Mini Toy Drone With Camera: Ultimate Fun and Easy Flying Guide"
-description: "Are you ready to capture amazing moments from the sky without carrying heavy gear? A mini toy drone with a camera lets you do just that—offering fun, adventure,"
+title: 'Mini Toy Drone With Camera: Ultimate Fun and Easy Flying Guide'
+description: Are you ready to capture amazing moments from the sky without carrying
+  heavy gear? A mini toy drone with a camera lets you do just that—offering fun, adventure,
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-toy-drone-with-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mini Toy Drone With Camera
+heroImage: https://tse1.mm.bing.net/th?q=mini-toy-drone-with-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to capture amazing moments from the sky without carrying heavy gear? A mini toy drone with a camera lets you do just that—offering fun, adventure, and stunning photos all in one tiny package.**

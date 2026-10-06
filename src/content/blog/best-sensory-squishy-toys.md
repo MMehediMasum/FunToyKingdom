@@ -1,10 +1,14 @@
 ---
-title: "Best Sensory Squishy Toys for Stress Relief and Fun Playtime"
-description: "Sensory squishy toys offer a fun way to reduce stress and improve focus for all ages. These soft, squeezable toys come in many shapes and textures to engage the"
+title: Best Sensory Squishy Toys for Stress Relief and Fun Playtime
+description: Sensory squishy toys offer a fun way to reduce stress and improve focus
+  for all ages. These soft, squeezable toys come in many shapes and textures to engage
+  the
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sensory-squishy-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-sensory-squishy-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory squishy toys offer a fun way to reduce stress and improve focus for all ages. These soft, squeezable toys come in many shapes and textures to engage the senses.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Sewing Machine Kit: Ultimate Fun for Creative Kids"
-description: "Are you ready to create something fun and unique with your own hands? The DIY Toy Sewing Machine Kit is the perfect way to bring your creativity to life. Whethe"
+title: 'Diy Toy Sewing Machine Kit: Ultimate Fun for Creative Kids'
+description: Are you ready to create something fun and unique with your own hands?
+  The DIY Toy Sewing Machine Kit is the perfect way to bring your creativity to life.
+  Whethe
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-sewing-machine-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-sewing-machine-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something fun and unique with your own hands? The DIY Toy Sewing Machine Kit is the perfect way to bring your creativity to life.**

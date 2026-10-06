@@ -1,10 +1,14 @@
 ---
-title: "Is a Disney Bambi Plastic Toy Figurine Worth Anything? Uncover Value!"
-description: "Have you ever come across a Disney Bambi plastic toy figurine and wondered if it could be worth more than just a childhood keepsake? You’re not alone. Many peop"
+title: Is a Disney Bambi Plastic Toy Figurine Worth Anything? Uncover Value!
+description: Have you ever come across a Disney Bambi plastic toy figurine and wondered
+  if it could be worth more than just a childhood keepsake? You’re not alone. Many
+  peop
 pubDate: 2025-08-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-disney-bambi-plastic-toy-figurine-worth-anything&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Figurine
+heroImage: https://tse1.mm.bing.net/th?q=is-a-disney-bambi-plastic-toy-figurine-worth-anything&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever come across a Disney Bambi plastic toy figurine and wondered if it could be worth more than just a childhood keepsake? You’re not alone.**

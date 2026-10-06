@@ -1,10 +1,14 @@
 ---
-title: "Trampoline Anchor Kit Outdoor Safety: Ultimate Protection Tips"
-description: "If you own a trampoline, you know how much fun it brings to your outdoor space. But have you ever thought about how secure it really is? A strong trampoline anc"
+title: 'Trampoline Anchor Kit Outdoor Safety: Ultimate Protection Tips'
+description: If you own a trampoline, you know how much fun it brings to your outdoor
+  space. But have you ever thought about how secure it really is? A strong trampoline
+  anc
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=trampoline-anchor-kit-outdoor-safety&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=trampoline-anchor-kit-outdoor-safety&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **If you own a trampoline, you know how much fun it brings to your outdoor space. But have you ever thought about how secure it really is?**

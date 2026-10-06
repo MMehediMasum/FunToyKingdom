@@ -1,10 +1,14 @@
 ---
-title: "Electronic Broom Toy for Toddlers: Fun, Safe, and Educational Play"
-description: "Are you looking for a fun and safe toy that keeps your toddler active and entertained? The electronic broom toy for toddlers might be exactly what you need. It’"
+title: 'Electronic Broom Toy for Toddlers: Fun, Safe, and Educational Play'
+description: Are you looking for a fun and safe toy that keeps your toddler active
+  and entertained? The electronic broom toy for toddlers might be exactly what you
+  need. It’
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-broom-toy-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=electronic-broom-toy-for-toddlers&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe toy that keeps your toddler active and entertained? The electronic broom toy for toddlers might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Mack Truck from Cars Toys: Ultimate Playset for Kids’ Imaginative Fun"
-description: "The Mack Truck from Cars Toys captivates young minds and fuels endless adventures. This iconic character from Disney and Pixar’s Cars series transforms playtime"
+title: 'Mack Truck from Cars Toys: Ultimate Playset for Kids’ Imaginative Fun'
+description: The Mack Truck from Cars Toys captivates young minds and fuels endless
+  adventures. This iconic character from Disney and Pixar’s Cars series transforms
+  playtime
 pubDate: 2026-08-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mack-truck-from-cars-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=mack-truck-from-cars-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Mack Truck from Cars Toys captivates young minds and fuels endless adventures. This iconic character from Disney and Pixar’s Cars series transforms playtime into a thrilling journey.**

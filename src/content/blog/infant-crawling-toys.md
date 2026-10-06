@@ -1,10 +1,14 @@
 ---
-title: "Infant Crawling Toys That Boost Development and Keep Babies Engaged"
-description: "Infant crawling toys play a crucial role in your baby's development. These toys encourage movement and sensory exploration. Crawling is a significant milestone "
+title: Infant Crawling Toys That Boost Development and Keep Babies Engaged
+description: 'Infant crawling toys play a crucial role in your baby''s development.
+  These toys encourage movement and sensory exploration. Crawling is a significant
+  milestone '
 pubDate: 2026-01-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-crawling-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=infant-crawling-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant crawling toys play a crucial role in your baby's development. These toys encourage movement and sensory exploration.**

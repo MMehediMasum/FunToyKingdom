@@ -1,10 +1,14 @@
 ---
-title: "Barbie Doll Ken Collectible: Ultimate Guide to Rare Treasures"
-description: "If you’re a fan of Barbie dolls or a collector looking to add something special, the Barbie Doll Ken Collectible is made just for you. This isn’t just any doll—"
+title: 'Barbie Doll Ken Collectible: Ultimate Guide to Rare Treasures'
+description: If you’re a fan of Barbie dolls or a collector looking to add something
+  special, the Barbie Doll Ken Collectible is made just for you. This isn’t just any
+  doll—
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-doll-ken-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-doll-ken-collectible&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of Barbie dolls or a collector looking to add something special, the Barbie Doll Ken Collectible is made just for you. This isn’t just any doll—Ken collectibles hold a unique charm that can make your collection stand out.**

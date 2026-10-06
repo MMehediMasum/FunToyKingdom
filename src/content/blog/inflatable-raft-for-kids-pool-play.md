@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Raft for Kids Pool Play: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun and safe way to make your kids’ pool time even better? An inflatable raft for kids pool play might be just what you need. Imagine your"
+title: 'Inflatable Raft for Kids Pool Play: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun and safe way to make your kids’ pool time even
+  better? An inflatable raft for kids pool play might be just what you need. Imagine
+  your
 pubDate: 2026-06-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-raft-for-kids-pool-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-raft-for-kids-pool-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to make your kids’ pool time even better? An inflatable raft for kids pool play might be just what you need.**

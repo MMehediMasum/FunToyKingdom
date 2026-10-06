@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Bikes for Kids 20 Inch: Top Durable and Fun Ride Options"
 description: "Finding the best 20-inch bike for kids helps make riding safe and fun. These bikes suit children aged 6 to 12 with different skill levels. Choosing the right bi"
 pubDate: 2025-10-22

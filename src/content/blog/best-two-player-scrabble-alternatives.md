@@ -1,10 +1,14 @@
 ---
-title: "Best Two Player Scrabble Alternatives: Top Fun & Challenging Games"
-description: "Are you looking for a fresh twist on your favorite two-player word game? If you love Scrabble but want to try something new with a friend, you’re in the right p"
+title: 'Best Two Player Scrabble Alternatives: Top Fun & Challenging Games'
+description: Are you looking for a fresh twist on your favorite two-player word game?
+  If you love Scrabble but want to try something new with a friend, you’re in the
+  right p
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-two-player-scrabble-alternatives&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=best-two-player-scrabble-alternatives&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fresh twist on your favorite two-player word game? If you love Scrabble but want to try something new with a friend, you’re in the right place.**

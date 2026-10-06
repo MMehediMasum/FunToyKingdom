@@ -1,10 +1,14 @@
 ---
-title: "Rare Pokemon Toy Figurines: Ultimate Guide to Collectors’ Treasures"
-description: "Are you a fan of Pokémon and love collecting toys? Then rare Pokémon toy figurines are something you don’t want to miss. These special collectibles can bring ex"
+title: 'Rare Pokemon Toy Figurines: Ultimate Guide to Collectors’ Treasures'
+description: Are you a fan of Pokémon and love collecting toys? Then rare Pokémon
+  toy figurines are something you don’t want to miss. These special collectibles can
+  bring ex
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-pokemon-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=rare-pokemon-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Pokémon and love collecting toys? Then rare Pokémon toy figurines are something you don’t want to miss.**

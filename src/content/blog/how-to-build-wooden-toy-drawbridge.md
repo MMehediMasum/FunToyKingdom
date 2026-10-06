@@ -1,10 +1,14 @@
 ---
-title: "How to Build Wooden Toy Drawbridge: Step-by-Step DIY Guide"
-description: "Imagine creating a wooden toy drawbridge that not only looks amazing but also moves just like the real thing. You can build this fun and rewarding project step-"
+title: 'How to Build Wooden Toy Drawbridge: Step-by-Step DIY Guide'
+description: Imagine creating a wooden toy drawbridge that not only looks amazing
+  but also moves just like the real thing. You can build this fun and rewarding project
+  step-
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-drawbridge&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-wooden-toy-drawbridge&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a wooden toy drawbridge that not only looks amazing but also moves just like the real thing. You can build this fun and rewarding project step-by-step, even if you’ve never worked with wood before.**

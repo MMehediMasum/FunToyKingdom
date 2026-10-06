@@ -1,10 +1,14 @@
 ---
-title: "Family Trivia Board Games: Ultimate Fun for Every Generation"
-description: "Looking for a fun way to bring your family closer and spark laughter around the table? Family trivia board games are the perfect choice. They turn your living r"
+title: 'Family Trivia Board Games: Ultimate Fun for Every Generation'
+description: Looking for a fun way to bring your family closer and spark laughter
+  around the table? Family trivia board games are the perfect choice. They turn your
+  living r
 pubDate: 2026-06-17
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=family-trivia-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=family-trivia-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your family closer and spark laughter around the table? Family trivia board games are the perfect choice.**

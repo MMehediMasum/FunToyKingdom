@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Slackline Balance Trainer Kids: Fun, Safe & Active Play"
-description: "Are you looking for a fun and exciting way to help your kids build balance, focus, and confidence? An outdoor slackline balance trainer for kids might be exactl"
+title: 'Outdoor Slackline Balance Trainer Kids: Fun, Safe & Active Play'
+description: Are you looking for a fun and exciting way to help your kids build balance,
+  focus, and confidence? An outdoor slackline balance trainer for kids might be exactl
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-slackline-balance-trainer-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-slackline-balance-trainer-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to help your kids build balance, focus, and confidence? An outdoor slackline balance trainer for kids might be exactly what you need.**

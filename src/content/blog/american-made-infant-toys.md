@@ -1,10 +1,14 @@
 ---
-title: "American Made Infant Toys That Boost Sensory and Motor Skills"
-description: "American made infant toys offer safety, quality, and fun for babies. Parents trust these toys for healthy growth and play. Choosing toys made in the USA ensures"
+title: American Made Infant Toys That Boost Sensory and Motor Skills
+description: American made infant toys offer safety, quality, and fun for babies.
+  Parents trust these toys for healthy growth and play. Choosing toys made in the
+  USA ensures
 pubDate: 2026-08-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=american-made-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=american-made-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **American made infant toys offer safety, quality, and fun for babies. Parents trust these toys for healthy growth and play.**

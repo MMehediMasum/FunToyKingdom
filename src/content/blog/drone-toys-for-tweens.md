@@ -1,10 +1,14 @@
 ---
-title: "Drone Toys for Tweens: Exciting Picks for Endless Fun"
-description: "Looking for the perfect gift that will thrill your tween and keep them engaged for hours? Drone toys are more than just fun gadgets—they spark creativity, impro"
+title: 'Drone Toys for Tweens: Exciting Picks for Endless Fun'
+description: Looking for the perfect gift that will thrill your tween and keep them
+  engaged for hours? Drone toys are more than just fun gadgets—they spark creativity,
+  impro
 pubDate: 2026-06-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=drone-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=drone-toys-for-tweens&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the perfect gift that will thrill your tween and keep them engaged for hours? Drone toys are more than just fun gadgets—they spark creativity, improve hand-eye coordination, and bring a new level of excitement to playtime.**

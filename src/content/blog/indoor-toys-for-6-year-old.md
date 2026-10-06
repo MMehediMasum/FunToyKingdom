@@ -1,10 +1,14 @@
 ---
-title: "Indoor Toys for 6 Year Old: Fun, Educational, and Engaging Picks"
-description: "Looking for the perfect indoor toys for your 6-year-old? You want something that keeps your child happy, active, and learning—all while staying safe inside. Cho"
+title: 'Indoor Toys for 6 Year Old: Fun, Educational, and Engaging Picks'
+description: Looking for the perfect indoor toys for your 6-year-old? You want something
+  that keeps your child happy, active, and learning—all while staying safe inside.
+  Cho
 pubDate: 2026-04-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-6-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect indoor toys for your 6-year-old? You want something that keeps your child happy, active, and learning—all while staying safe inside.**

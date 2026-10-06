@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With 4K Camera: Ultimate Guide to Stunning Aerial Shots"
-description: "Are you ready to take your aerial photography to the next level? Imagine capturing every moment with crystal-clear detail and stunning clarity right from the sk"
+title: 'Rc Drone With 4K Camera: Ultimate Guide to Stunning Aerial Shots'
+description: Are you ready to take your aerial photography to the next level? Imagine
+  capturing every moment with crystal-clear detail and stunning clarity right from
+  the sk
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-4k-camera&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-4k-camera&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your aerial photography to the next level? Imagine capturing every moment with crystal-clear detail and stunning clarity right from the sky.**

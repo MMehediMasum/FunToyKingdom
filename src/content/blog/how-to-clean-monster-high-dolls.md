@@ -1,10 +1,14 @@
 ---
-title: "How to Clean Monster High Dolls: Easy Tips for Sparkling Results"
-description: "Do your Monster High dolls look a little dusty or messy? Cleaning them might seem tricky, but it doesn’t have to be. You want your dolls to stay bright, fresh, "
+title: 'How to Clean Monster High Dolls: Easy Tips for Sparkling Results'
+description: 'Do your Monster High dolls look a little dusty or messy? Cleaning them
+  might seem tricky, but it doesn’t have to be. You want your dolls to stay bright,
+  fresh, '
 pubDate: 2025-12-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-clean-monster-high-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-to-clean-monster-high-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Do your Monster High dolls look a little dusty or messy? Cleaning them might seem tricky, but it doesn’t have to be.**

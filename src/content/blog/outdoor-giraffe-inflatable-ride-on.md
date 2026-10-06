@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Giraffe Inflatable Ride On: Ultimate Fun for Kids Outdoors"
-description: "Imagine your next outdoor adventure becoming instantly more fun and unforgettable. With the Outdoor Giraffe Inflatable Ride On, you can bring a playful twist to"
+title: 'Outdoor Giraffe Inflatable Ride On: Ultimate Fun for Kids Outdoors'
+description: Imagine your next outdoor adventure becoming instantly more fun and unforgettable.
+  With the Outdoor Giraffe Inflatable Ride On, you can bring a playful twist to
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-giraffe-inflatable-ride-on&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Wolf Inflatable Ride
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-giraffe-inflatable-ride-on&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your next outdoor adventure becoming instantly more fun and unforgettable. With the Outdoor Giraffe Inflatable Ride On, you can bring a playful twist to any park, backyard, or beach day.**

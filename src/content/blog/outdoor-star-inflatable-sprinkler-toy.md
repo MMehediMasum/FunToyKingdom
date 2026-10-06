@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Star Inflatable Sprinkler Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun and refreshing way to keep your kids entertained this summer? The Outdoor Star Inflatable Sprinkler Toy is exactly what you need. Imagine your"
+title: 'Outdoor Star Inflatable Sprinkler Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun and refreshing way to keep your kids entertained this
+  summer? The Outdoor Star Inflatable Sprinkler Toy is exactly what you need. Imagine
+  your
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-star-inflatable-sprinkler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-star-inflatable-sprinkler-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and refreshing way to keep your kids entertained this summer? The Outdoor Star Inflatable Sprinkler Toy is exactly what you need.**

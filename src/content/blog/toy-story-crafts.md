@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Crafts: Fun DIY Kits and Party Ideas for Kids"
-description: "Unleash creativity with Toy Story crafts that captivate kids and inspire fun-filled activities. Explore engaging kits and projects for all ages. Toy Story craft"
+title: 'Toy Story Crafts: Fun DIY Kits and Party Ideas for Kids'
+description: Unleash creativity with Toy Story crafts that captivate kids and inspire
+  fun-filled activities. Explore engaging kits and projects for all ages. Toy Story
+  craft
 pubDate: 2026-09-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-crafts&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-crafts&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Unleash creativity with Toy Story crafts that captivate kids and inspire fun-filled activities. Explore engaging kits and projects for all ages.**

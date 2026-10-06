@@ -1,10 +1,14 @@
 ---
-title: "Sports Toys for Teenagers: Ultimate Fun and Fitness Gear"
-description: "Are you looking for the perfect sports toys that can keep teenagers active, entertained, and healthy? Finding something that matches their energy and interests "
+title: 'Sports Toys for Teenagers: Ultimate Fun and Fitness Gear'
+description: 'Are you looking for the perfect sports toys that can keep teenagers
+  active, entertained, and healthy? Finding something that matches their energy and
+  interests '
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=sports-toys-for-teenagers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sports Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=sports-toys-for-teenagers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect sports toys that can keep teenagers active, entertained, and healthy? Finding something that matches their energy and interests can be tricky.**

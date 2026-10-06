@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wooden Toy Submarine: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something unique with your own hands? Building a wooden toy submarine is a fun and rewarding project that anyone can try. Imagine"
+title: 'How to Build a Wooden Toy Submarine: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something unique with your own hands?
+  Building a wooden toy submarine is a fun and rewarding project that anyone can try.
+  Imagine
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-submarine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-submarine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something unique with your own hands? Building a wooden toy submarine is a fun and rewarding project that anyone can try.**

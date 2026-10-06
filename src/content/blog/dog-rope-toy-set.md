@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toy Set: Durable Chew Toys for Aggressive and Playful Dogs"
-description: "Dog rope toy sets offer durable, fun options for dogs to chew and play with. These toys help keep dogs busy and support dental health. A good dog rope toy set i"
+title: 'Dog Rope Toy Set: Durable Chew Toys for Aggressive and Playful Dogs'
+description: Dog rope toy sets offer durable, fun options for dogs to chew and play
+  with. These toys help keep dogs busy and support dental health. A good dog rope
+  toy set i
 pubDate: 2026-09-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toy-set&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toy sets offer durable, fun options for dogs to chew and play with. These toys help keep dogs busy and support dental health.**

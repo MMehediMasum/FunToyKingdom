@@ -1,10 +1,13 @@
 ---
-title: "Figurine Tokyo: Top Collectible Anime Figures and Unique Decorations"
-description: "Figurine Tokyo offers a unique collection of anime and pop culture statues. These figures bring favorite characters to life with detailed designs. Fans of Tokyo"
+title: 'Figurine Tokyo: Top Collectible Anime Figures and Unique Decorations'
+description: Figurine Tokyo offers a unique collection of anime and pop culture statues.
+  These figures bring favorite characters to life with detailed designs. Fans of Tokyo
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=figurine-tokyo&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Figurine
+heroImage: https://tse1.mm.bing.net/th?q=figurine-tokyo&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Figurine Tokyo offers a unique collection of anime and pop culture statues. These figures bring favorite characters to life with detailed designs.**

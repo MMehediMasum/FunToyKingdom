@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Boats: Top Picks for Kids’ Imaginative Water Adventures"
-description: "Diecast toy boats captivate enthusiasts of all ages. These miniature marvels offer endless hours of imaginative play and learning. Diecast toy boats come in var"
+title: 'Diecast Toy Boats: Top Picks for Kids’ Imaginative Water Adventures'
+description: Diecast toy boats captivate enthusiasts of all ages. These miniature
+  marvels offer endless hours of imaginative play and learning. Diecast toy boats
+  come in var
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-boats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-boats&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy boats captivate enthusiasts of all ages. These miniature marvels offer endless hours of imaginative play and learning.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Tackle Box Toy for Kids: Ultimate Fun and Learning Guide"
-description: "Are you looking for a fun and safe way to keep your kids entertained outdoors? An outdoor tackle box toy for kids might be just what you need. It’s not only a g"
+title: 'Outdoor Tackle Box Toy for Kids: Ultimate Fun and Learning Guide'
+description: Are you looking for a fun and safe way to keep your kids entertained
+  outdoors? An outdoor tackle box toy for kids might be just what you need. It’s not
+  only a g
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-tackle-box-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-tackle-box-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to keep your kids entertained outdoors? An outdoor tackle box toy for kids might be just what you need.**

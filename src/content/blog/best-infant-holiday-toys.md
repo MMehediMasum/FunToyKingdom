@@ -1,10 +1,13 @@
 ---
-title: "Best Infant Holiday Toys for Development and Festive Fun"
-description: "Finding the perfect holiday toy for infants can be delightful yet challenging. Parents want safe, engaging, and developmentally appropriate toys. The festive se"
+title: Best Infant Holiday Toys for Development and Festive Fun
+description: Finding the perfect holiday toy for infants can be delightful yet challenging.
+  Parents want safe, engaging, and developmentally appropriate toys. The festive se
 pubDate: 2026-03-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-holiday-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-holiday-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the perfect holiday toy for infants can be delightful yet challenging. Parents want safe, engaging, and developmentally appropriate toys.**

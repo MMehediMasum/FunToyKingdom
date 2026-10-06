@@ -1,10 +1,14 @@
 ---
-title: "Kids Swim Fins Beginner Set: Essential Gear for Confident Swimmers"
-description: "Are you looking for the perfect way to help your child feel confident and excited in the water? Kids swim fins beginner set can be just what you need. These fin"
+title: 'Kids Swim Fins Beginner Set: Essential Gear for Confident Swimmers'
+description: Are you looking for the perfect way to help your child feel confident
+  and excited in the water? Kids swim fins beginner set can be just what you need.
+  These fin
 pubDate: 2026-05-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-swim-fins-beginner-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Ping Pong Sets
+heroImage: https://tse1.mm.bing.net/th?q=kids-swim-fins-beginner-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect way to help your child feel confident and excited in the water? Kids swim fins beginner set can be just what you need.**

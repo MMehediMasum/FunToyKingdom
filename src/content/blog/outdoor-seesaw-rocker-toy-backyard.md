@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Seesaw Rocker Toy Backyard: Ultimate Fun for Kids!"
-description: "Imagine your backyard filled with laughter and joyful play. An outdoor seesaw rocker toy is just what you need to turn your space into a fun and exciting playgr"
+title: 'Outdoor Seesaw Rocker Toy Backyard: Ultimate Fun for Kids!'
+description: Imagine your backyard filled with laughter and joyful play. An outdoor
+  seesaw rocker toy is just what you need to turn your space into a fun and exciting
+  playgr
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-seesaw-rocker-toy-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-seesaw-rocker-toy-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your backyard filled with laughter and joyful play. An outdoor seesaw rocker toy is just what you need to turn your space into a fun and exciting playground for your kids.**

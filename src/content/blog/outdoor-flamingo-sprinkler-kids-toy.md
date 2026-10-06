@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Flamingo Sprinkler Kids Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun and refreshing way to keep your kids entertained outside? The Outdoor Flamingo Sprinkler Kids Toy might be exactly what you need. Imagine your"
+title: 'Outdoor Flamingo Sprinkler Kids Toy: Ultimate Summer Fun Guide'
+description: Looking for a fun and refreshing way to keep your kids entertained outside?
+  The Outdoor Flamingo Sprinkler Kids Toy might be exactly what you need. Imagine
+  your
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-flamingo-sprinkler-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-flamingo-sprinkler-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and refreshing way to keep your kids entertained outside? The Outdoor Flamingo Sprinkler Kids Toy might be exactly what you need.**

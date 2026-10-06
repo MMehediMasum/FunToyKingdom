@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Tire Slime for ATV: Top Picks to Prevent and Repair Flats"
 description: "Choosing the best tire slime for your ATV protects you from unexpected flats. It helps seal punctures quickly and keeps your ride smooth. Tire slime is a liquid"
 pubDate: 2025-12-28

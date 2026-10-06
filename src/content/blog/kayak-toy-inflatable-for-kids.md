@@ -1,10 +1,14 @@
 ---
-title: "Kayak Toy Inflatable for Kids: Ultimate Fun and Safety Guide"
-description: "Looking for a fun and safe way to keep your kids entertained in the water? A kayak toy inflatable for kids might be exactly what you need. Imagine your child pa"
+title: 'Kayak Toy Inflatable for Kids: Ultimate Fun and Safety Guide'
+description: Looking for a fun and safe way to keep your kids entertained in the water?
+  A kayak toy inflatable for kids might be exactly what you need. Imagine your child
+  pa
 pubDate: 2026-04-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kayak-toy-inflatable-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=kayak-toy-inflatable-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained in the water? A kayak toy inflatable for kids might be exactly what you need.**

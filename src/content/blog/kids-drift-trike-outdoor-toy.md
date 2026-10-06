@@ -1,10 +1,13 @@
 ---
-title: "Kids Drift Trike Outdoor Toy: Ultimate Fun for Active Playtime"
-description: "Looking for a fun and exciting outdoor toy that will keep your kids active and entertained for hours? A kids drift trike might be exactly what you need. Imagine"
+title: 'Kids Drift Trike Outdoor Toy: Ultimate Fun for Active Playtime'
+description: Looking for a fun and exciting outdoor toy that will keep your kids active
+  and entertained for hours? A kids drift trike might be exactly what you need. Imagine
 pubDate: 2025-10-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-drift-trike-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=kids-drift-trike-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting outdoor toy that will keep your kids active and entertained for hours? A kids drift trike might be exactly what you need.**

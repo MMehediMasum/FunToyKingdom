@@ -1,10 +1,14 @@
 ---
-title: "Can I Put a Stuffed Animal in the Dryer: Safe Tips & Tricks"
-description: "Have you ever wondered if you can put a stuffed animal in the dryer without ruining it? You want your child’s favorite toy to be clean and fresh, but you’re wor"
+title: 'Can I Put a Stuffed Animal in the Dryer: Safe Tips & Tricks'
+description: Have you ever wondered if you can put a stuffed animal in the dryer without
+  ruining it? You want your child’s favorite toy to be clean and fresh, but you’re
+  wor
 pubDate: 2025-12-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-i-put-a-stuffed-animal-in-the-dryer&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=can-i-put-a-stuffed-animal-in-the-dryer&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered if you can put a stuffed animal in the dryer without ruining it? You want your child’s favorite toy to be clean and fresh, but you’re worried about damage or shrinking.**

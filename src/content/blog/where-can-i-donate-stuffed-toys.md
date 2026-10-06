@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate Stuffed Toys: Top Charities to Help Kids Today"
-description: "Do you have a collection of stuffed toys that you no longer need? Instead of letting them gather dust, you can bring joy to someone else’s life by donating them"
+title: 'Where Can I Donate Stuffed Toys: Top Charities to Help Kids Today'
+description: Do you have a collection of stuffed toys that you no longer need? Instead
+  of letting them gather dust, you can bring joy to someone else’s life by donating
+  them
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-stuffed-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-stuffed-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Do you have a collection of stuffed toys that you no longer need? Instead of letting them gather dust, you can bring joy to someone else’s life by donating them.**

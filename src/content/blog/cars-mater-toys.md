@@ -1,10 +1,14 @@
 ---
-title: "Cars Mater Toys: Top Picks for Fun and Collectible Die-Cast Cars"
-description: "Cars Mater toys bring the fun of the hit Disney Pixar movies to life. These toys feature popular characters like Mater, Lightning McQueen, and The King. Kids lo"
+title: 'Cars Mater Toys: Top Picks for Fun and Collectible Die-Cast Cars'
+description: Cars Mater toys bring the fun of the hit Disney Pixar movies to life.
+  These toys feature popular characters like Mater, Lightning McQueen, and The King.
+  Kids lo
 pubDate: 2026-02-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mater-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-mater-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars Mater toys bring the fun of the hit Disney Pixar movies to life. These toys feature popular characters like Mater, Lightning McQueen, and The King.**

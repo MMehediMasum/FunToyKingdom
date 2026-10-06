@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Stage Set: Creative, Fun, and Budget-Friendly Ideas"
-description: "Are you looking for a fun and creative project that brings joy to your kids while saving money? A DIY cardboard toy stage set is the perfect way to spark your c"
+title: 'Diy Cardboard Toy Stage Set: Creative, Fun, and Budget-Friendly Ideas'
+description: Are you looking for a fun and creative project that brings joy to your
+  kids while saving money? A DIY cardboard toy stage set is the perfect way to spark
+  your c
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-stage-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-stage-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to your kids while saving money? A DIY cardboard toy stage set is the perfect way to spark your child’s imagination and keep them entertained for hours.**

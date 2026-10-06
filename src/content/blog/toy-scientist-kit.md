@@ -1,10 +1,14 @@
 ---
-title: "Toy Scientist Kit: Unlock 100+ Fun STEM Experiments for Kids"
-description: "A Toy Scientist Kit sparks curiosity and hands-on learning for kids. It offers fun science experiments that teach basic STEM concepts. These kits include exciti"
+title: 'Toy Scientist Kit: Unlock 100+ Fun STEM Experiments for Kids'
+description: A Toy Scientist Kit sparks curiosity and hands-on learning for kids.
+  It offers fun science experiments that teach basic STEM concepts. These kits include
+  exciti
 pubDate: 2026-03-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-scientist-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=toy-scientist-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **A Toy Scientist Kit sparks curiosity and hands-on learning for kids. It offers fun science experiments that teach basic STEM concepts.**

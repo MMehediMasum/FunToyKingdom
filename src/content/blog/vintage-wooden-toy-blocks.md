@@ -1,10 +1,14 @@
 ---
-title: "Vintage Wooden Toy Blocks: Timeless Educational Fun for Toddlers and Kids"
-description: "Vintage wooden toy blocks offer timeless charm and educational value. These classic toys ignite imagination and develop essential skills. Parents and educators "
+title: 'Vintage Wooden Toy Blocks: Timeless Educational Fun for Toddlers and Kids'
+description: 'Vintage wooden toy blocks offer timeless charm and educational value.
+  These classic toys ignite imagination and develop essential skills. Parents and
+  educators '
 pubDate: 2026-08-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-wooden-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=vintage-wooden-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Vintage wooden toy blocks offer timeless charm and educational value. These classic toys ignite imagination and develop essential skills.**

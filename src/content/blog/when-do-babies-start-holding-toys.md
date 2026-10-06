@@ -1,10 +1,14 @@
 ---
-title: "When Do Babies Start Holding Toys: Key Milestones Uncovered"
-description: "Are you wondering when your little one will start holding toys all by themselves? Watching your baby grow and reach new milestones is exciting, and holding toys"
+title: 'When Do Babies Start Holding Toys: Key Milestones Uncovered'
+description: Are you wondering when your little one will start holding toys all by
+  themselves? Watching your baby grow and reach new milestones is exciting, and holding
+  toys
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-do-babies-start-holding-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Toy Development
+heroImage: https://tse1.mm.bing.net/th?q=when-do-babies-start-holding-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you wondering when your little one will start holding toys all by themselves? Watching your baby grow and reach new milestones is exciting, and holding toys is one of those special moments.**

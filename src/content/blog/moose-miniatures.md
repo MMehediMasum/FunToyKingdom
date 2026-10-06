@@ -1,10 +1,14 @@
 ---
-title: "Moose Miniatures: Top Realistic and Educational Animal Figurines Guide"
-description: "Moose miniatures captivate collectors and nature enthusiasts alike. These detailed figures bring the majestic moose to life in small form. From realistic Safari"
+title: 'Moose Miniatures: Top Realistic and Educational Animal Figurines Guide'
+description: Moose miniatures captivate collectors and nature enthusiasts alike. These
+  detailed figures bring the majestic moose to life in small form. From realistic
+  Safari
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=moose-miniatures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=moose-miniatures&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Moose miniatures captivate collectors and nature enthusiasts alike. These detailed figures bring the majestic moose to life in small form.**

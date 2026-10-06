@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Boomerang Toy for Beginners: Easy Tips to Master Throwing"
-description: "Are you ready to add some fun and excitement to your outdoor time? An outdoor boomerang toy is perfect for beginners like you who want to try something new and "
+title: 'Outdoor Boomerang Toy for Beginners: Easy Tips to Master Throwing'
+description: 'Are you ready to add some fun and excitement to your outdoor time? An
+  outdoor boomerang toy is perfect for beginners like you who want to try something
+  new and '
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-boomerang-toy-for-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-boomerang-toy-for-beginners&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to add some fun and excitement to your outdoor time? An outdoor boomerang toy is perfect for beginners like you who want to try something new and active.**

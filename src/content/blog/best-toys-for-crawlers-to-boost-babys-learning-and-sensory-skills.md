@@ -1,10 +1,13 @@
 ---
-title: "Best Toys for Crawlers to Boost Baby’s Learning and Sensory Skills"
-description: "Choosing the best toys for crawlers helps babies develop key skills while having fun. These toys encourage movement, sound recognition, and hand-eye coordinatio"
+title: Best Toys for Crawlers to Boost Baby’s Learning and Sensory Skills
+description: Choosing the best toys for crawlers helps babies develop key skills while
+  having fun. These toys encourage movement, sound recognition, and hand-eye coordinatio
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-crawlers-to-boost-babys-learning-and-sensory-skills&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-crawlers-to-boost-babys-learning-and-sensory-skills&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for crawlers helps babies develop key skills while having fun. These toys encourage movement, sound recognition, and hand-eye coordination.**

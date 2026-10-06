@@ -1,10 +1,14 @@
 ---
-title: "Interactive Cat Toy Bird: Engage Your Cat with Realistic Flapping and Sounds"
-description: "Interactive cat toy birds bring fun and exercise to your cat’s daily routine. These toys mimic real birds with sounds, feathers, and movement. Cats love to chas"
+title: 'Interactive Cat Toy Bird: Engage Your Cat with Realistic Flapping and Sounds'
+description: Interactive cat toy birds bring fun and exercise to your cat’s daily
+  routine. These toys mimic real birds with sounds, feathers, and movement. Cats love
+  to chas
 pubDate: 2026-02-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-cat-toy-bird&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=interactive-cat-toy-bird&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Interactive cat toy birds bring fun and exercise to your cat’s daily routine. These toys mimic real birds with sounds, feathers, and movement.**

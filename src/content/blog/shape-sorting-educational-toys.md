@@ -1,10 +1,14 @@
 ---
-title: "Shape Sorting Educational Toys: Boost Learning & Fun Instantly"
-description: "Are you looking for a fun and effective way to boost your child’s learning? Shape sorting educational toys could be exactly what you need. These toys do more th"
+title: 'Shape Sorting Educational Toys: Boost Learning & Fun Instantly'
+description: Are you looking for a fun and effective way to boost your child’s learning?
+  Shape sorting educational toys could be exactly what you need. These toys do more
+  th
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=shape-sorting-educational-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=shape-sorting-educational-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and effective way to boost your child’s learning? Shape sorting educational toys could be exactly what you need.**

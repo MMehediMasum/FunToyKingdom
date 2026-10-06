@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Funko Pop Craze Blog Article: Ultimate Guide to Collecting Funko Pops"
 description: "Are you ready to dive into a world where your favorite characters come to life in a fun, collectible form? The Funko Pop craze has taken over shelves and hearts"
 pubDate: 2025-12-05

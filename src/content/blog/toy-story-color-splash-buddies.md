@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Color Splash Buddies: Ultimate Plush Toy Collection for Kids"
-description: "Toy Story Color Splash Buddies bring your favorite characters to life with soft, colorful plush toys. These cuddly friends offer fun for kids and collectors ali"
+title: 'Toy Story Color Splash Buddies: Ultimate Plush Toy Collection for Kids'
+description: Toy Story Color Splash Buddies bring your favorite characters to life
+  with soft, colorful plush toys. These cuddly friends offer fun for kids and collectors
+  ali
 pubDate: 2026-02-07
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-color-splash-buddies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-color-splash-buddies&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story Color Splash Buddies bring your favorite characters to life with soft, colorful plush toys. These cuddly friends offer fun for kids and collectors alike.**

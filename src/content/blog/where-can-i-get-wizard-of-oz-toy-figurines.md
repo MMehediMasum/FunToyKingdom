@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Get Wizard of Oz Toy Figurines: Top Spots Revealed"
-description: "Are you a fan of the magical world of The Wizard of Oz? Imagine holding your favorite characters right in your hands—Dorothy, the Scarecrow, the Tin Man, and th"
+title: 'Where Can I Get Wizard of Oz Toy Figurines: Top Spots Revealed'
+description: Are you a fan of the magical world of The Wizard of Oz? Imagine holding
+  your favorite characters right in your hands—Dorothy, the Scarecrow, the Tin Man,
+  and th
 pubDate: 2025-11-11
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-get-wizard-of-oz-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-get-wizard-of-oz-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of the magical world of The Wizard of Oz? Imagine holding your favorite characters right in your hands—Dorothy, the Scarecrow, the Tin Man, and the Cowardly Lion—brought to life as detailed toy figurines.**

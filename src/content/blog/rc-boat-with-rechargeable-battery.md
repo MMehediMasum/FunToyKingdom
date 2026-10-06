@@ -1,10 +1,14 @@
 ---
-title: "Rc Boat With Rechargeable Battery: Ultimate Guide for Endless Fun"
-description: "Are you ready to take your RC boat experience to the next level? Imagine the freedom of racing across the water without worrying about constantly replacing batt"
+title: 'Rc Boat With Rechargeable Battery: Ultimate Guide for Endless Fun'
+description: Are you ready to take your RC boat experience to the next level? Imagine
+  the freedom of racing across the water without worrying about constantly replacing
+  batt
 pubDate: 2026-06-18
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-with-rechargeable-battery&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-with-rechargeable-battery&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC boat experience to the next level? Imagine the freedom of racing across the water without worrying about constantly replacing batteries.**

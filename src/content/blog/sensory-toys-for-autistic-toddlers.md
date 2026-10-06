@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for Autistic Toddlers: Top Picks for Calm and Engagement"
-description: "Sensory toys help autistic toddlers explore and learn through touch, sound, and movement. These toys support focus, calmness, and skill development in young chi"
+title: 'Sensory Toys for Autistic Toddlers: Top Picks for Calm and Engagement'
+description: Sensory toys help autistic toddlers explore and learn through touch,
+  sound, and movement. These toys support focus, calmness, and skill development in
+  young chi
 pubDate: 2025-11-18
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-autistic-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-autistic-toddlers&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help autistic toddlers explore and learn through touch, sound, and movement. These toys support focus, calmness, and skill development in young children.**

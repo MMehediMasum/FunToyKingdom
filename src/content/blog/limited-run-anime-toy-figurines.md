@@ -1,10 +1,14 @@
 ---
-title: "Limited Run Anime Toy Figurines: Must-Have Collectibles for Fans"
-description: "Are you a fan of anime and love collecting unique items? Limited Run Anime Toy Figurines might be exactly what your collection is missing. These rare toys aren’"
+title: 'Limited Run Anime Toy Figurines: Must-Have Collectibles for Fans'
+description: Are you a fan of anime and love collecting unique items? Limited Run
+  Anime Toy Figurines might be exactly what your collection is missing. These rare
+  toys aren’
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=limited-run-anime-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=limited-run-anime-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of anime and love collecting unique items? Limited Run Anime Toy Figurines might be exactly what your collection is missing.**

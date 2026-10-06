@@ -1,10 +1,14 @@
 ---
-title: "Weighted Hula Hoop for Kids: Fun Fitness & Active Play Guide"
-description: "Are you looking for a fun and healthy way to keep your kids active? A weighted hula hoop might be just what you need. It’s not only a great toy but also helps i"
+title: 'Weighted Hula Hoop for Kids: Fun Fitness & Active Play Guide'
+description: Are you looking for a fun and healthy way to keep your kids active? A
+  weighted hula hoop might be just what you need. It’s not only a great toy but also
+  helps i
 pubDate: 2026-03-24
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=weighted-hula-hoop-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=weighted-hula-hoop-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and healthy way to keep your kids active? A weighted hula hoop might be just what you need.**

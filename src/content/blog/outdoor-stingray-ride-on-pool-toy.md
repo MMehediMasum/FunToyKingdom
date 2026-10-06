@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Stingray Ride on Pool Toy: Ultimate Summer Fun Guide"
-description: "Imagine turning your pool into a splash-filled adventure with an Outdoor Stingray Ride on Pool Toy. You’re not just floating—you’re gliding on a fun, colorful s"
+title: 'Outdoor Stingray Ride on Pool Toy: Ultimate Summer Fun Guide'
+description: Imagine turning your pool into a splash-filled adventure with an Outdoor
+  Stingray Ride on Pool Toy. You’re not just floating—you’re gliding on a fun, colorful
+  s
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-stingray-ride-on-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-stingray-ride-on-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your pool into a splash-filled adventure with an Outdoor Stingray Ride on Pool Toy. You’re not just floating—you’re gliding on a fun, colorful stingray that brings excitement to every swim.**

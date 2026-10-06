@@ -1,10 +1,14 @@
 ---
-title: "Chemistry Experiment Toy Electronic: Exciting STEM Learning Kit"
-description: "Are you looking for a fun and exciting way to explore science right at home? A chemistry experiment toy electronic kit could be exactly what you need. Imagine m"
+title: 'Chemistry Experiment Toy Electronic: Exciting STEM Learning Kit'
+description: Are you looking for a fun and exciting way to explore science right at
+  home? A chemistry experiment toy electronic kit could be exactly what you need.
+  Imagine m
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=chemistry-experiment-toy-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Bug Toy Set
+heroImage: https://tse1.mm.bing.net/th?q=chemistry-experiment-toy-electronic&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to explore science right at home? A chemistry experiment toy electronic kit could be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Airplane Toys for 18 Month Old Toddlers: Top Travel Picks"
-description: "Choosing the best airplane toys for an 18-month-old can be fun and rewarding. These toys help develop skills while keeping toddlers entertained. Toddlers love t"
+title: 'Best Airplane Toys for 18 Month Old Toddlers: Top Travel Picks'
+description: Choosing the best airplane toys for an 18-month-old can be fun and rewarding.
+  These toys help develop skills while keeping toddlers entertained. Toddlers love
+  t
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-airplane-toys-for-18-month-old-toddlers-top-travel-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-airplane-toys-for-18-month-old-toddlers-top-travel-picks&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best airplane toys for an 18-month-old can be fun and rewarding. These toys help develop skills while keeping toddlers entertained.**

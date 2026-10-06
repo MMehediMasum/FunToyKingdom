@@ -1,10 +1,14 @@
 ---
-title: "Toy Blocks Clipart Ideas to Inspire Creative Building and Learning Play"
-description: "Toy blocks clipart offers vibrant visuals for educational and creative projects. It's an ideal resource for teachers and parents. This blog post will explore va"
+title: Toy Blocks Clipart Ideas to Inspire Creative Building and Learning Play
+description: Toy blocks clipart offers vibrant visuals for educational and creative
+  projects. It's an ideal resource for teachers and parents. This blog post will explore
+  va
 pubDate: 2026-02-08
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-blocks-clipart&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-blocks-clipart&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy blocks clipart offers vibrant visuals for educational and creative projects. It's an ideal resource for teachers and parents.**

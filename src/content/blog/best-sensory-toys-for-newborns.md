@@ -1,10 +1,14 @@
 ---
-title: "Best Sensory Toys for Newborns to Boost Early Development"
-description: "Newborns explore the world through their senses. Sensory toys play a crucial role in their early development. These toys are not just fun; they are essential to"
+title: Best Sensory Toys for Newborns to Boost Early Development
+description: Newborns explore the world through their senses. Sensory toys play a
+  crucial role in their early development. These toys are not just fun; they are essential
+  to
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-sensory-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=best-sensory-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Newborns explore the world through their senses. Sensory toys play a crucial role in their early development.**

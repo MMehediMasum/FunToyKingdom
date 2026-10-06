@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Cosplay Inspired Action Figure Blog: Ultimate Collector’s Guide"
 description: "Are you a fan of cosplay and action figures? Imagine combining your love for both into one amazing collection. This blog is all about cosplay inspired action fi"
 pubDate: 2025-12-13

@@ -1,10 +1,14 @@
 ---
-title: "Toy Horse Riding Simulator: Ultimate Fun for Kids & Beginners"
-description: "Imagine giving your child endless fun while helping them develop balance and coordination—all from a toy that feels just like riding a real horse. The Toy Horse"
+title: 'Toy Horse Riding Simulator: Ultimate Fun for Kids & Beginners'
+description: Imagine giving your child endless fun while helping them develop balance
+  and coordination—all from a toy that feels just like riding a real horse. The Toy
+  Horse
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-horse-riding-simulator&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=toy-horse-riding-simulator&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child endless fun while helping them develop balance and coordination—all from a toy that feels just like riding a real horse. The Toy Horse Riding Simulator is designed to bring joy, excitement, and learning right into your home.**

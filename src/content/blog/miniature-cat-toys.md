@@ -1,10 +1,14 @@
 ---
-title: "Miniature Cat Toys: Top Realistic Figurines for Kids’ Playtime Fun"
-description: "Miniature cat toys bring joy to both children and cat lovers. These small, detailed figures offer fun and creativity for play and decoration. Miniature cat toys"
+title: 'Miniature Cat Toys: Top Realistic Figurines for Kids’ Playtime Fun'
+description: Miniature cat toys bring joy to both children and cat lovers. These small,
+  detailed figures offer fun and creativity for play and decoration. Miniature cat
+  toys
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-cat-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=miniature-cat-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature cat toys bring joy to both children and cat lovers. These small, detailed figures offer fun and creativity for play and decoration.**

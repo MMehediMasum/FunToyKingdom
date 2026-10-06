@@ -1,10 +1,14 @@
 ---
-title: "Tball Set for Toddlers Backyard Play: Ultimate Fun & Learning Guide"
-description: "Are you looking for a fun way to get your toddler moving and playing outside? A Tball set for toddlers is the perfect addition to your backyard. It’s simple, sa"
+title: 'Tball Set for Toddlers Backyard Play: Ultimate Fun & Learning Guide'
+description: Are you looking for a fun way to get your toddler moving and playing
+  outside? A Tball set for toddlers is the perfect addition to your backyard. It’s
+  simple, sa
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tball-set-for-toddlers-backyard-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy For Backyard
+heroImage: https://tse1.mm.bing.net/th?q=tball-set-for-toddlers-backyard-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to get your toddler moving and playing outside? A Tball set for toddlers is the perfect addition to your backyard.**

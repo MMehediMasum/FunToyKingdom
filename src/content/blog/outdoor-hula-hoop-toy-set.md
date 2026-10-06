@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Hula Hoop Toy Set: Ultimate Fun for Active Kids Outdoors"
-description: "Looking for a fun way to get moving outside? The Outdoor Hula Hoop Toy Set is just what you need to bring excitement and activity to your playtime. Whether you’"
+title: 'Outdoor Hula Hoop Toy Set: Ultimate Fun for Active Kids Outdoors'
+description: Looking for a fun way to get moving outside? The Outdoor Hula Hoop Toy
+  Set is just what you need to bring excitement and activity to your playtime. Whether
+  you’
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-hula-hoop-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-hula-hoop-toy-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get moving outside? The Outdoor Hula Hoop Toy Set is just what you need to bring excitement and activity to your playtime.**

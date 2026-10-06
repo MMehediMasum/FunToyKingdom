@@ -1,10 +1,14 @@
 ---
-title: "Solar Powered Robot Toy Kit: Build Fun, Learn & Save Energy!"
-description: "Are you ready to bring fun and learning together in a way that sparks your creativity? The Solar Powered Robot Toy Kit is exactly what you need. Imagine buildin"
+title: 'Solar Powered Robot Toy Kit: Build Fun, Learn & Save Energy!'
+description: Are you ready to bring fun and learning together in a way that sparks
+  your creativity? The Solar Powered Robot Toy Kit is exactly what you need. Imagine
+  buildin
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=solar-powered-robot-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=solar-powered-robot-toy-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to bring fun and learning together in a way that sparks your creativity? The Solar Powered Robot Toy Kit is exactly what you need.**

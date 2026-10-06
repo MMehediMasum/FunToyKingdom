@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Camping Chair Outdoor Toy: Ultimate Comfort for Adventure Fun"
 description: "Looking for the perfect way to make your child’s outdoor adventures even more fun? A kids camping chair outdoor toy is exactly what you need. It’s not just a se"
 pubDate: 2026-06-10

@@ -1,10 +1,14 @@
 ---
-title: "Stack Toy Guide: Top Educational and Sensory Stacking Toys for Kids"
-description: "Stack toys offer endless fun and educational benefits for children. They help develop motor skills, coordination, and creativity. From colorful rings to nesting"
+title: 'Stack Toy Guide: Top Educational and Sensory Stacking Toys for Kids'
+description: Stack toys offer endless fun and educational benefits for children. They
+  help develop motor skills, coordination, and creativity. From colorful rings to
+  nesting
 pubDate: 2026-08-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stack-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ring Stack Toy Age Guide
+heroImage: https://tse1.mm.bing.net/th?q=stack-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Stack toys offer endless fun and educational benefits for children. They help develop motor skills, coordination, and creativity.**

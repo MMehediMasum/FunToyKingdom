@@ -1,10 +1,14 @@
 ---
-title: "Rc Helicopter With Rechargeable Battery: Ultimate Flight Experience"
-description: "Are you ready to take your RC flying experience to the next level? An RC helicopter with a rechargeable battery gives you more flight time, less hassle, and bet"
+title: 'Rc Helicopter With Rechargeable Battery: Ultimate Flight Experience'
+description: Are you ready to take your RC flying experience to the next level? An
+  RC helicopter with a rechargeable battery gives you more flight time, less hassle,
+  and bet
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-helicopter-with-rechargeable-battery&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-helicopter-with-rechargeable-battery&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC flying experience to the next level? An RC helicopter with a rechargeable battery gives you more flight time, less hassle, and better value for your money.**

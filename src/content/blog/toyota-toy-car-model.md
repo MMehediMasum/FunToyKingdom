@@ -1,10 +1,14 @@
 ---
-title: "Toyota Toy Car Model: Top Diecast Collectibles with Lights and Sounds"
-description: "Toyota toy car models offer detailed miniatures of popular Toyota vehicles. They combine fun play with collectible value for all ages. These models come in vari"
+title: 'Toyota Toy Car Model: Top Diecast Collectibles with Lights and Sounds'
+description: Toyota toy car models offer detailed miniatures of popular Toyota vehicles.
+  They combine fun play with collectible value for all ages. These models come in
+  vari
 pubDate: 2026-02-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyota-toy-car-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=toyota-toy-car-model&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toyota toy car models offer detailed miniatures of popular Toyota vehicles. They combine fun play with collectible value for all ages.**

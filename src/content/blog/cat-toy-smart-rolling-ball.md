@@ -1,10 +1,13 @@
 ---
-title: "Cat Toy Smart Rolling Ball: Ultimate Interactive Fun for Indoor Cats"
-description: "Cats need stimulation to stay active and healthy. The Cat Toy Smart Rolling Ball offers just that. This innovative toy is designed to keep indoor cats entertain"
+title: 'Cat Toy Smart Rolling Ball: Ultimate Interactive Fun for Indoor Cats'
+description: Cats need stimulation to stay active and healthy. The Cat Toy Smart Rolling
+  Ball offers just that. This innovative toy is designed to keep indoor cats entertain
 pubDate: 2026-07-31
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-smart-rolling-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-smart-rolling-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cats need stimulation to stay active and healthy. The Cat Toy Smart Rolling Ball offers just that.**

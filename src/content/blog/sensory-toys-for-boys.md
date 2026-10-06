@@ -1,10 +1,13 @@
 ---
-title: "Sensory Toys for Boys: Top Picks to Boost Focus and Fun"
-description: "Sensory toys help boys develop important skills through play and exploration. These toys improve focus, coordination, and calmness in children of different ages"
+title: 'Sensory Toys for Boys: Top Picks to Boost Focus and Fun'
+description: Sensory toys help boys develop important skills through play and exploration.
+  These toys improve focus, coordination, and calmness in children of different ages
 pubDate: 2026-09-07
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-boys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-boys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help boys develop important skills through play and exploration. These toys improve focus, coordination, and calmness in children of different ages.**

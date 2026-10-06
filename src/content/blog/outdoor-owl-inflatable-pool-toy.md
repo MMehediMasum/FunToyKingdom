@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Owl Inflatable Pool Toy: Ultimate Summer Fun Essential"
-description: "Looking for a fun and eye-catching way to enjoy your pool time? The Outdoor Owl Inflatable Pool Toy is just what you need to take your summer days to the next l"
+title: 'Outdoor Owl Inflatable Pool Toy: Ultimate Summer Fun Essential'
+description: Looking for a fun and eye-catching way to enjoy your pool time? The Outdoor
+  Owl Inflatable Pool Toy is just what you need to take your summer days to the next
+  l
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-owl-inflatable-pool-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-owl-inflatable-pool-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and eye-catching way to enjoy your pool time? The Outdoor Owl Inflatable Pool Toy is just what you need to take your summer days to the next level.**

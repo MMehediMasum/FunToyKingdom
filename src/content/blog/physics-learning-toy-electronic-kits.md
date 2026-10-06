@@ -1,10 +1,14 @@
 ---
-title: "Physics Learning Toy Electronic Kits: Boost STEM Skills Fast"
-description: "Are you curious about how electricity and physics work in real life? Imagine building your own cool gadgets while learning important science concepts at the sam"
+title: 'Physics Learning Toy Electronic Kits: Boost STEM Skills Fast'
+description: Are you curious about how electricity and physics work in real life?
+  Imagine building your own cool gadgets while learning important science concepts
+  at the sam
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=physics-learning-toy-electronic-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Montessori Toys For 3 4
+heroImage: https://tse1.mm.bing.net/th?q=physics-learning-toy-electronic-kits&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you curious about how electricity and physics work in real life? Imagine building your own cool gadgets while learning important science concepts at the same time.**

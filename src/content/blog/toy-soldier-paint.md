@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Paint: Best Acrylic Sets for Miniature and Model Detailing"
-description: "Toy soldier paint helps bring miniature figures to life with vibrant colors and fine details. Choosing the right paint set makes painting easier and more enjoya"
+title: 'Toy Soldier Paint: Best Acrylic Sets for Miniature and Model Detailing'
+description: Toy soldier paint helps bring miniature figures to life with vibrant
+  colors and fine details. Choosing the right paint set makes painting easier and
+  more enjoya
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-paint&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-paint&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy soldier paint helps bring miniature figures to life with vibrant colors and fine details. Choosing the right paint set makes painting easier and more enjoyable.**

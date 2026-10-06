@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Toy Horse Stable Out of Wood: Easy Step-by-Step Guide"
-description: "Are you looking to create a charming toy horse stable that feels both sturdy and special? Making one out of wood is easier than you might think, and it gives yo"
+title: 'How to Make a Toy Horse Stable Out of Wood: Easy Step-by-Step Guide'
+description: Are you looking to create a charming toy horse stable that feels both
+  sturdy and special? Making one out of wood is easier than you might think, and it
+  gives yo
 pubDate: 2026-07-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-horse-stable-out-of-wood&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-horse-stable-out-of-wood&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking to create a charming toy horse stable that feels both sturdy and special? Making one out of wood is easier than you might think, and it gives you full control over the design and details.**

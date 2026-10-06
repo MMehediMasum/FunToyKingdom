@@ -1,10 +1,14 @@
 ---
-title: "Arts And Crafts for Tweens: Fun, Creative Projects to Try Today"
-description: "Are you looking for fun and creative ways to keep your tween entertained and inspired? Arts and crafts for tweens are the perfect solution to spark their imagin"
+title: 'Arts And Crafts for Tweens: Fun, Creative Projects to Try Today'
+description: Are you looking for fun and creative ways to keep your tween entertained
+  and inspired? Arts and crafts for tweens are the perfect solution to spark their
+  imagin
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=arts-and-crafts-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=arts-and-crafts-for-tweens&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun and creative ways to keep your tween entertained and inspired? Arts and crafts for tweens are the perfect solution to spark their imagination and help them express themselves.**

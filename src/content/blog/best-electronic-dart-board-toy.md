@@ -1,10 +1,13 @@
 ---
-title: "Best Electronic Dart Board Toy: Top Picks for Fun & Accuracy"
-description: "Looking for the perfect way to add fun and excitement to your game nights? The best electronic dart board toy can turn any room into a lively game zone. Whether"
+title: 'Best Electronic Dart Board Toy: Top Picks for Fun & Accuracy'
+description: Looking for the perfect way to add fun and excitement to your game nights?
+  The best electronic dart board toy can turn any room into a lively game zone. Whether
 pubDate: 2026-05-26
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-electronic-dart-board-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=best-electronic-dart-board-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Looking for the perfect way to add fun and excitement to your game nights? The best electronic dart board toy can turn any room into a lively game zone.**

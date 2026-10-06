@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Toy Rabbit Plush: Easy Steps for Adorable Results"
-description: "Are you ready to create a soft, cuddly friend that’s made by your own hands? Sewing a toy rabbit plush is easier than you might think, and the joy of holding so"
+title: 'How to Sew Toy Rabbit Plush: Easy Steps for Adorable Results'
+description: Are you ready to create a soft, cuddly friend that’s made by your own
+  hands? Sewing a toy rabbit plush is easier than you might think, and the joy of
+  holding so
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-toy-rabbit-plush&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-toy-rabbit-plush&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to create a soft, cuddly friend that’s made by your own hands? Sewing a toy rabbit plush is easier than you might think, and the joy of holding something you crafted yourself is truly special.**

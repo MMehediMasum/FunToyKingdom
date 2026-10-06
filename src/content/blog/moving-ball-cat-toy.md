@@ -1,10 +1,14 @@
 ---
-title: "Moving Ball Cat Toy: Top Interactive Toys to Keep Your Cat Active"
-description: "Cats love to play, and interactive toys can keep them entertained for hours. A moving ball cat toy offers endless fun and stimulation for indoor cats. Interacti"
+title: 'Moving Ball Cat Toy: Top Interactive Toys to Keep Your Cat Active'
+description: Cats love to play, and interactive toys can keep them entertained for
+  hours. A moving ball cat toy offers endless fun and stimulation for indoor cats.
+  Interacti
 pubDate: 2026-08-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=moving-ball-cat-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=moving-ball-cat-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cats love to play, and interactive toys can keep them entertained for hours. A moving ball cat toy offers endless fun and stimulation for indoor cats.**

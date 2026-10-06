@@ -1,10 +1,15 @@
 ---
-title: "Incredibles Robot Toy: Ultimate Super Family Action Figures and LED Fidget Tubes"
-description: "Incredible robot toys bring the magic of animated characters into the hands of young fans. These toys offer engaging playtime experiences with iconic characters"
+title: 'Incredibles Robot Toy: Ultimate Super Family Action Figures and LED Fidget
+  Tubes'
+description: Incredible robot toys bring the magic of animated characters into the
+  hands of young fans. These toys offer engaging playtime experiences with iconic
+  characters
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=incredibles-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=incredibles-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Incredible robot toys bring the magic of animated characters into the hands of young fans. These toys offer engaging playtime experiences with iconic characters from The Incredibles.**

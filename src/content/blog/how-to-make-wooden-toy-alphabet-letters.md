@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Alphabet Letters: Easy DIY Guide"
-description: "Are you looking for a fun and creative way to make learning exciting for your child? Making wooden toy alphabet letters is a perfect project that combines craft"
+title: 'How to Make Wooden Toy Alphabet Letters: Easy DIY Guide'
+description: Are you looking for a fun and creative way to make learning exciting
+  for your child? Making wooden toy alphabet letters is a perfect project that combines
+  craft
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-alphabet-letters&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-alphabet-letters&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to make learning exciting for your child? Making wooden toy alphabet letters is a perfect project that combines craft and education.**

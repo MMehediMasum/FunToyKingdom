@@ -1,10 +1,14 @@
 ---
-title: "Are Plastic Toys Bad for Babies: Shocking Truths Revealed!"
-description: "Are plastic toys safe for your baby? If you’ve ever wondered whether those bright, colorful toys could harm your little one, you’re not alone. As a parent or ca"
+title: 'Are Plastic Toys Bad for Babies: Shocking Truths Revealed!'
+description: Are plastic toys safe for your baby? If you’ve ever wondered whether
+  those bright, colorful toys could harm your little one, you’re not alone. As a parent
+  or ca
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-plastic-toys-bad-for-babies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Toy Development
+heroImage: https://tse1.mm.bing.net/th?q=are-plastic-toys-bad-for-babies&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are plastic toys safe for your baby? If you’ve ever wondered whether those bright, colorful toys could harm your little one, you’re not alone.**

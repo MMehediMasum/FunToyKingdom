@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toy Durable and Indestructible for Aggressive Chewers"
-description: "Durable dog rope toys offer long-lasting fun for dogs who love to chew and play tug-of-war. These toys help keep your dog entertained while cleaning their teeth"
+title: Dog Rope Toy Durable and Indestructible for Aggressive Chewers
+description: Durable dog rope toys offer long-lasting fun for dogs who love to chew
+  and play tug-of-war. These toys help keep your dog entertained while cleaning their
+  teeth
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toy-durable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toy-durable&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Durable dog rope toys offer long-lasting fun for dogs who love to chew and play tug-of-war. These toys help keep your dog entertained while cleaning their teeth naturally.**

@@ -1,10 +1,14 @@
 ---
-title: "Winter Indoor Puzzle Activities: Fun & Brain-Boosting Ideas"
-description: "When winter keeps you indoors, finding fun and engaging activities can feel like a challenge. You want something that not only passes the time but also sharpens"
+title: 'Winter Indoor Puzzle Activities: Fun & Brain-Boosting Ideas'
+description: When winter keeps you indoors, finding fun and engaging activities can
+  feel like a challenge. You want something that not only passes the time but also
+  sharpens
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=winter-indoor-puzzle-activities&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Puzzle For Framing
+heroImage: https://tse1.mm.bing.net/th?q=winter-indoor-puzzle-activities&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **When winter keeps you indoors, finding fun and engaging activities can feel like a challenge. You want something that not only passes the time but also sharpens your mind and brings a sense of accomplishment.**

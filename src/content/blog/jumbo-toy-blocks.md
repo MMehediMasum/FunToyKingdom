@@ -1,10 +1,14 @@
 ---
-title: "Jumbo Toy Blocks: Top Building Sets for Creative Toddler Playtime Fun"
-description: "Jumbo toy blocks offer large, colorful pieces that encourage creative play for toddlers and young children. These blocks help kids build skills while having fun"
+title: 'Jumbo Toy Blocks: Top Building Sets for Creative Toddler Playtime Fun'
+description: Jumbo toy blocks offer large, colorful pieces that encourage creative
+  play for toddlers and young children. These blocks help kids build skills while
+  having fun
 pubDate: 2026-02-11
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jumbo-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Are Old Toy Blocks Safe
+heroImage: https://tse1.mm.bing.net/th?q=jumbo-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Jumbo toy blocks offer large, colorful pieces that encourage creative play for toddlers and young children. These blocks help kids build skills while having fun.**

@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Fire Trucks: Top Collectible Rescue Vehicles for Kids"
-description: "Diecast toy fire trucks bring excitement and imagination to children and collectors alike. These detailed miniature vehicles offer hours of fun and learning. Di"
+title: 'Diecast Toy Fire Trucks: Top Collectible Rescue Vehicles for Kids'
+description: Diecast toy fire trucks bring excitement and imagination to children
+  and collectors alike. These detailed miniature vehicles offer hours of fun and learning.
+  Di
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-fire-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-fire-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy fire trucks bring excitement and imagination to children and collectors alike. These detailed miniature vehicles offer hours of fun and learning.**

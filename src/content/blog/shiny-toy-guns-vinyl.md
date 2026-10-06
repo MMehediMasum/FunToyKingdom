@@ -1,10 +1,14 @@
 ---
-title: "Shiny Toy Guns Vinyl: Ultimate Deluxe Editions and Exclusive Iridescent Swirls"
-description: "Shiny Toy Guns vinyl records offer a unique listening experience for fans of the band. Their albums come in special editions with eye-catching designs and great"
+title: 'Shiny Toy Guns Vinyl: Ultimate Deluxe Editions and Exclusive Iridescent Swirls'
+description: Shiny Toy Guns vinyl records offer a unique listening experience for
+  fans of the band. Their albums come in special editions with eye-catching designs
+  and great
 pubDate: 2026-02-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=shiny-toy-guns-vinyl&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Gun Safe
+heroImage: https://tse1.mm.bing.net/th?q=shiny-toy-guns-vinyl&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Shiny Toy Guns vinyl records offer a unique listening experience for fans of the band. Their albums come in special editions with eye-catching designs and great sound quality.**

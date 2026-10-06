@@ -1,10 +1,14 @@
 ---
-title: "Which Toy Block Sets are Eco Friendly: Top Sustainable Picks 2025"
-description: "Are you looking for toy blocks that are fun for your kids and kind to the planet? Choosing the right toy blocks can make a big difference—not just for playtime,"
+title: 'Which Toy Block Sets are Eco Friendly: Top Sustainable Picks 2025'
+description: Are you looking for toy blocks that are fun for your kids and kind to
+  the planet? Choosing the right toy blocks can make a big difference—not just for
+  playtime,
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=which-toy-block-sets-are-eco-friendly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Benefits Of Building Block Toys
+heroImage: https://tse1.mm.bing.net/th?q=which-toy-block-sets-are-eco-friendly&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for toy blocks that are fun for your kids and kind to the planet? Choosing the right toy blocks can make a big difference—not just for playtime, but for the environment too.**

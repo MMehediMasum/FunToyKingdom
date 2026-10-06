@@ -1,10 +1,13 @@
 ---
-title: "How to Make Wooden Toy Cupcakes: Easy DIY Guide for Beginners"
-description: "Are you ready to create something fun, beautiful, and lasting? Making wooden toy cupcakes is a simple and rewarding project that lets you bring your creativity "
+title: 'How to Make Wooden Toy Cupcakes: Easy DIY Guide for Beginners'
+description: 'Are you ready to create something fun, beautiful, and lasting? Making
+  wooden toy cupcakes is a simple and rewarding project that lets you bring your creativity '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-cupcakes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-cupcakes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something fun, beautiful, and lasting? Making wooden toy cupcakes is a simple and rewarding project that lets you bring your creativity to life.**

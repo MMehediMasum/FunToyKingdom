@@ -1,10 +1,14 @@
 ---
-title: "Can You Sell Toys on Poshmark: Ultimate Guide to Profit Fast"
-description: "Are you wondering if you can sell toys on Poshmark? If you’ve got a stash of toys gathering dust, turning them into cash might be easier than you think. But is "
+title: 'Can You Sell Toys on Poshmark: Ultimate Guide to Profit Fast'
+description: 'Are you wondering if you can sell toys on Poshmark? If you’ve got a
+  stash of toys gathering dust, turning them into cash might be easier than you think.
+  But is '
 pubDate: 2025-09-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-sell-toys-on-poshmark&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=can-you-sell-toys-on-poshmark&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering if you can sell toys on Poshmark? If you’ve got a stash of toys gathering dust, turning them into cash might be easier than you think.**

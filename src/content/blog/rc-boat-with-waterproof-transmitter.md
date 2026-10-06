@@ -1,10 +1,13 @@
 ---
-title: "Rc Boat With Waterproof Transmitter: Ultimate Guide for Top Performance"
-description: "Are you ready to take your RC boating experience to the next level? Imagine controlling your boat with a transmitter that won’t quit, no matter how wet it gets."
+title: 'Rc Boat With Waterproof Transmitter: Ultimate Guide for Top Performance'
+description: Are you ready to take your RC boating experience to the next level? Imagine
+  controlling your boat with a transmitter that won’t quit, no matter how wet it gets.
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-with-waterproof-transmitter&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-with-waterproof-transmitter&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC boating experience to the next level? Imagine controlling your boat with a transmitter that won’t quit, no matter how wet it gets.**

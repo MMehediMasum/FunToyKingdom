@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Parade Costume Ideas: Creative & Festive Inspirations"
-description: "Are you ready to stand out at your next parade or costume party? A toy soldier parade costume is a timeless choice that brings charm and fun to any event. Imagi"
+title: 'Toy Soldier Parade Costume Ideas: Creative & Festive Inspirations'
+description: Are you ready to stand out at your next parade or costume party? A toy
+  soldier parade costume is a timeless choice that brings charm and fun to any event.
+  Imagi
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-parade-costume-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-parade-costume-ideas&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to stand out at your next parade or costume party? A toy soldier parade costume is a timeless choice that brings charm and fun to any event.**

@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Toys: Ultimate Collectible Action Figures for Fans"
-description: "Dragon Ball Z toys bring the epic battles and characters to life. These collectibles capture the essence of your favorite heroes. Fans across the globe treasure"
+title: 'Dragon Ball Z Toys: Ultimate Collectible Action Figures for Fans'
+description: Dragon Ball Z toys bring the epic battles and characters to life. These
+  collectibles capture the essence of your favorite heroes. Fans across the globe
+  treasure
 pubDate: 2026-09-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z toys bring the epic battles and characters to life. These collectibles capture the essence of your favorite heroes.**

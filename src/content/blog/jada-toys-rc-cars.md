@@ -1,10 +1,14 @@
 ---
-title: "Jada Toys Rc Cars: Top Remote Control Vehicles for Kids and Adults"
-description: "Jada Toys RC Cars offer a fun and exciting experience for both kids and adults. These remote control cars feature popular designs from movies and comics, making"
+title: 'Jada Toys Rc Cars: Top Remote Control Vehicles for Kids and Adults'
+description: Jada Toys RC Cars offer a fun and exciting experience for both kids and
+  adults. These remote control cars feature popular designs from movies and comics,
+  making
 pubDate: 2026-08-24
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-rc-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-rc-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jada Toys RC Cars offer a fun and exciting experience for both kids and adults. These remote control cars feature popular designs from movies and comics, making playtime more enjoyable.**

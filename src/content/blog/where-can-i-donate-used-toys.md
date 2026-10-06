@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Donate Used Toys: Top Trusted Places to Give Joy"
-description: "Have you ever wondered what to do with the toys your kids have outgrown? Instead of letting them collect dust or throwing them away, you can give those toys a s"
+title: 'Where Can I Donate Used Toys: Top Trusted Places to Give Joy'
+description: Have you ever wondered what to do with the toys your kids have outgrown?
+  Instead of letting them collect dust or throwing them away, you can give those toys
+  a s
 pubDate: 2025-10-25
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-donate-used-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-donate-used-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered what to do with the toys your kids have outgrown? Instead of letting them collect dust or throwing them away, you can give those toys a second chance to bring joy to other children.**

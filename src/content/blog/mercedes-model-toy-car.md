@@ -1,10 +1,14 @@
 ---
-title: "Mercedes Model Toy Car: Top Diecast Collectibles with Sound and Light Features"
-description: "Mercedes model toy cars capture the charm of luxury vehicles in small, detailed designs. They offer fun for kids and collectors alike. These toy cars come in ma"
+title: 'Mercedes Model Toy Car: Top Diecast Collectibles with Sound and Light Features'
+description: Mercedes model toy cars capture the charm of luxury vehicles in small,
+  detailed designs. They offer fun for kids and collectors alike. These toy cars come
+  in ma
 pubDate: 2025-10-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mercedes-model-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=mercedes-model-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Mercedes model toy cars capture the charm of luxury vehicles in small, detailed designs. They offer fun for kids and collectors alike.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Wooden Toy Balancing Clown: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create a toy that’s not only fun but also a great challenge to balance? Making a wooden toy balancing clown is a perfect project for you"
+title: 'How to Make a Wooden Toy Balancing Clown: Easy Step-by-Step Guide'
+description: Have you ever wanted to create a toy that’s not only fun but also a great
+  challenge to balance? Making a wooden toy balancing clown is a perfect project for
+  you
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-balancing-clown&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-wooden-toy-balancing-clown&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a toy that’s not only fun but also a great challenge to balance? Making a wooden toy balancing clown is a perfect project for you.**

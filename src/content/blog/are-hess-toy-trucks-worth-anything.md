@@ -1,10 +1,13 @@
 ---
-title: "Are Hess Toy Trucks Worth Anything? Discover Their True Value!"
-description: "Have you ever wondered if your old Hess toy trucks could be more than just childhood memories? Maybe you’ve found a box in the attic or inherited a collection, "
+title: Are Hess Toy Trucks Worth Anything? Discover Their True Value!
+description: 'Have you ever wondered if your old Hess toy trucks could be more than
+  just childhood memories? Maybe you’ve found a box in the attic or inherited a collection, '
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=are-hess-toy-trucks-worth-anything&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=are-hess-toy-trucks-worth-anything&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered if your old Hess toy trucks could be more than just childhood memories? Maybe you’ve found a box in the attic or inherited a collection, and the question pops up: Are Hess toy trucks worth anything?**

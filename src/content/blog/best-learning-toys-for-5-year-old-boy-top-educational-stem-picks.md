@@ -1,10 +1,14 @@
 ---
-title: "Best Learning Toys for 5 Year Old Boy: Top Educational STEM Picks"
-description: "Choosing the best learning toys for a 5-year-old boy helps boost his skills and keeps him curious. Toys that teach language, science, and creativity support his"
+title: 'Best Learning Toys for 5 Year Old Boy: Top Educational STEM Picks'
+description: Choosing the best learning toys for a 5-year-old boy helps boost his
+  skills and keeps him curious. Toys that teach language, science, and creativity
+  support his
 pubDate: 2025-11-12
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-learning-toys-for-5-year-old-boy-top-educational-stem-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-learning-toys-for-5-year-old-boy-top-educational-stem-picks&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the best learning toys for a 5-year-old boy helps boost his skills and keeps him curious. Toys that teach language, science, and creativity support his growth in fun ways.**

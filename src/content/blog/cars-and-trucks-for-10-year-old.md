@@ -1,10 +1,13 @@
 ---
-title: "Cars And Trucks for 10 Year Old: Top Fun & Safe Picks"
-description: "Are you looking for the perfect car or truck for your 10-year-old? Choosing the right ride-on toy can be exciting but also a bit overwhelming. You want somethin"
+title: 'Cars And Trucks for 10 Year Old: Top Fun & Safe Picks'
+description: Are you looking for the perfect car or truck for your 10-year-old? Choosing
+  the right ride-on toy can be exciting but also a bit overwhelming. You want somethin
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-and-trucks-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-and-trucks-for-10-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect car or truck for your 10-year-old? Choosing the right ride-on toy can be exciting but also a bit overwhelming.**

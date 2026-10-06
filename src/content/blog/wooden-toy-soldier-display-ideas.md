@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Soldier Display Ideas: Creative & Stunning Arrangements"
-description: "Are you looking for creative ways to showcase your wooden toy soldier collection? Displaying these charming figures isn’t just about storage—it’s about turning "
+title: 'Wooden Toy Soldier Display Ideas: Creative & Stunning Arrangements'
+description: 'Are you looking for creative ways to showcase your wooden toy soldier
+  collection? Displaying these charming figures isn’t just about storage—it’s about
+  turning '
 pubDate: 2025-12-04
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-soldier-display-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-soldier-display-ideas&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for creative ways to showcase your wooden toy soldier collection? Displaying these charming figures isn’t just about storage—it’s about turning your space into a captivating story.**

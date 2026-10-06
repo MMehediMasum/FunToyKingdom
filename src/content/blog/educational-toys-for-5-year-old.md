@@ -1,10 +1,13 @@
 ---
-title: "Educational Toys for 5 Year Old: Top Picks to Boost Learning Fun"
-description: "Choosing the right toys for your 5-year-old can be tricky. You want something fun, but also something that helps your child learn and grow. Educational toys are"
+title: 'Educational Toys for 5 Year Old: Top Picks to Boost Learning Fun'
+description: Choosing the right toys for your 5-year-old can be tricky. You want something
+  fun, but also something that helps your child learn and grow. Educational toys are
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=educational-toys-for-5-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right toys for your 5-year-old can be tricky. You want something fun, but also something that helps your child learn and grow.**

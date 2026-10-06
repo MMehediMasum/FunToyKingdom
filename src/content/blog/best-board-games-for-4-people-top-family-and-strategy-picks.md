@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for 4 People: Top Family and Strategy Picks"
-description: "Finding the best board games for 4 people can turn any gathering into hours of fun. These games balance strategy, luck, and social interaction perfectly. Playin"
+title: 'Best Board Games for 4 People: Top Family and Strategy Picks'
+description: Finding the best board games for 4 people can turn any gathering into
+  hours of fun. These games balance strategy, luck, and social interaction perfectly.
+  Playin
 pubDate: 2025-12-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-4-people-top-family-and-strategy-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-4-people-top-family-and-strategy-picks&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best board games for 4 people can turn any gathering into hours of fun. These games balance strategy, luck, and social interaction perfectly.**

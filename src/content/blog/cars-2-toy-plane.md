@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Toy Plane: Top Push and Go Airplane Toys for Toddlers"
-description: "The Cars 2 Toy Plane brings fun and excitement to young children’s playtime. It combines the thrill of cars with the adventure of flying. This toy plane fits pe"
+title: 'Cars 2 Toy Plane: Top Push and Go Airplane Toys for Toddlers'
+description: The Cars 2 Toy Plane brings fun and excitement to young children’s playtime.
+  It combines the thrill of cars with the adventure of flying. This toy plane fits
+  pe
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-toy-plane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-toy-plane&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars 2 Toy Plane brings fun and excitement to young children’s playtime. It combines the thrill of cars with the adventure of flying.**

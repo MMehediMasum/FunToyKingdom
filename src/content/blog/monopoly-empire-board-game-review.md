@@ -1,10 +1,14 @@
 ---
-title: "Monopoly Empire Board Game Review: Ultimate Fun & Strategy Guide"
-description: "Are you ready to take your game nights to the next level? Monopoly Empire offers a fresh twist on the classic board game you love. Imagine owning top brands ins"
+title: 'Monopoly Empire Board Game Review: Ultimate Fun & Strategy Guide'
+description: Are you ready to take your game nights to the next level? Monopoly Empire
+  offers a fresh twist on the classic board game you love. Imagine owning top brands
+  ins
 pubDate: 2026-06-28
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=monopoly-empire-board-game-review&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=monopoly-empire-board-game-review&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to take your game nights to the next level? Monopoly Empire offers a fresh twist on the classic board game you love.**

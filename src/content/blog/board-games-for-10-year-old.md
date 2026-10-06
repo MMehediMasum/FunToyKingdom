@@ -1,10 +1,14 @@
 ---
-title: "Board Games for 10 Year Old: Top Fun & Educational Picks 2025"
-description: "Are you looking for the perfect board games for your 10-year-old? Finding games that are fun, challenging, and help your child learn can be tricky. You want som"
+title: 'Board Games for 10 Year Old: Top Fun & Educational Picks 2025'
+description: Are you looking for the perfect board games for your 10-year-old? Finding
+  games that are fun, challenging, and help your child learn can be tricky. You want
+  som
 pubDate: 2026-05-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-10-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-10-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for the perfect board games for your 10-year-old? Finding games that are fun, challenging, and help your child learn can be tricky.**

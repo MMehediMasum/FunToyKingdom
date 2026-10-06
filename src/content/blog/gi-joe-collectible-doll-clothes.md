@@ -1,10 +1,14 @@
 ---
-title: "Gi Joe Collectible Doll Clothes: Ultimate Guide to Authentic Styles"
-description: "Are you ready to take your G.I. Joe collection to the next level? The right collectible doll clothes can make all the difference in bringing your action figures"
+title: 'Gi Joe Collectible Doll Clothes: Ultimate Guide to Authentic Styles'
+description: Are you ready to take your G.I. Joe collection to the next level? The
+  right collectible doll clothes can make all the difference in bringing your action
+  figures
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=gi-joe-collectible-doll-clothes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=gi-joe-collectible-doll-clothes&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to take your G.I. Joe collection to the next level?**

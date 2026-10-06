@@ -1,10 +1,14 @@
 ---
-title: "Jada Toys Inc Cars: Ultimate Die-Cast Collectibles for Fast & Furious Fans"
-description: "Jada Toys Inc Cars offer detailed die-cast models from popular movies and classic muscle cars. These 1:24 and 1:32 scale cars appeal to collectors and fans of a"
+title: 'Jada Toys Inc Cars: Ultimate Die-Cast Collectibles for Fast & Furious Fans'
+description: Jada Toys Inc Cars offer detailed die-cast models from popular movies
+  and classic muscle cars. These 1:24 and 1:32 scale cars appeal to collectors and
+  fans of a
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-inc-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-inc-cars&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Jada Toys Inc Cars offer detailed die-cast models from popular movies and classic muscle cars. These 1:24 and 1:32 scale cars appeal to collectors and fans of all ages.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Action Figure Battle Scenes: Ultimate Tips for Epic Displays"
-description: "Are you ready to bring your favorite action figures to life like never before? Creating DIY action figure battle scenes lets you turn simple toys into epic stor"
+title: 'Diy Action Figure Battle Scenes: Ultimate Tips for Epic Displays'
+description: Are you ready to bring your favorite action figures to life like never
+  before? Creating DIY action figure battle scenes lets you turn simple toys into
+  epic stor
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-action-figure-battle-scenes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Action Figure Dioramas
+heroImage: https://tse1.mm.bing.net/th?q=diy-action-figure-battle-scenes&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to bring your favorite action figures to life like never before? Creating DIY action figure battle scenes lets you turn simple toys into epic stories full of excitement and drama.**

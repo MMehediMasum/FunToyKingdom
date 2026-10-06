@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Mech Suit: Build an Epic DIY Robot Armor!"
-description: "Imagine stepping into a powerful mech suit you built yourself—using just cardboard and your creativity. Sounds fun, right? This DIY cardboard toy mech suit is n"
+title: 'Diy Cardboard Toy Mech Suit: Build an Epic DIY Robot Armor!'
+description: Imagine stepping into a powerful mech suit you built yourself—using just
+  cardboard and your creativity. Sounds fun, right? This DIY cardboard toy mech suit
+  is n
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-mech-suit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-mech-suit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine stepping into a powerful mech suit you built yourself—using just cardboard and your creativity. Sounds fun, right?**

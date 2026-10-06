@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toy Shop Playsets: Ultimate DIY Dollhouse Fun for All Ages"
-description: "Miniature toy shops bring tiny worlds to life with detailed playsets and accessories. These small-scale stores offer fun and creativity for all ages. Miniature "
+title: 'Miniature Toy Shop Playsets: Ultimate DIY Dollhouse Fun for All Ages'
+description: 'Miniature toy shops bring tiny worlds to life with detailed playsets
+  and accessories. These small-scale stores offer fun and creativity for all ages.
+  Miniature '
 pubDate: 2026-08-22
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toy-shop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toy-shop&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature toy shops bring tiny worlds to life with detailed playsets and accessories. These small-scale stores offer fun and creativity for all ages.**

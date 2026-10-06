@@ -1,10 +1,14 @@
 ---
-title: "Must Have Infant Toys for Sensory Development and Teething Relief"
-description: "Choosing the right toys for infants helps support their growth and keeps them entertained. Must-have infant toys promote sensory skills and early learning from "
+title: Must Have Infant Toys for Sensory Development and Teething Relief
+description: 'Choosing the right toys for infants helps support their growth and keeps
+  them entertained. Must-have infant toys promote sensory skills and early learning
+  from '
 pubDate: 2026-01-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=must-have-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=must-have-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for infants helps support their growth and keeps them entertained. Must-have infant toys promote sensory skills and early learning from birth to toddler age.**

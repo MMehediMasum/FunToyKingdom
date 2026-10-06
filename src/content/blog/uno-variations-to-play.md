@@ -1,10 +1,14 @@
 ---
-title: "Uno Variations to Play: Exciting Twists for Endless Fun"
-description: "Are you tired of playing the same old Uno game over and over? If you want to add a fresh twist and make every round more exciting, you’re in the right place. Im"
+title: 'Uno Variations to Play: Exciting Twists for Endless Fun'
+description: Are you tired of playing the same old Uno game over and over? If you
+  want to add a fresh twist and make every round more exciting, you’re in the right
+  place. Im
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=uno-variations-to-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=uno-variations-to-play&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you tired of playing the same old Uno game over and over? If you want to add a fresh twist and make every round more exciting, you’re in the right place.**

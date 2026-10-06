@@ -1,10 +1,14 @@
 ---
-title: "Paw Patrol Toy Set: Ultimate Collectible Figures and Vehicles for Kids"
-description: "Paw Patrol toy sets bring fun and adventure to young fans everywhere. These toys feature popular characters and exciting play options. Paw Patrol toy sets offer"
+title: 'Paw Patrol Toy Set: Ultimate Collectible Figures and Vehicles for Kids'
+description: Paw Patrol toy sets bring fun and adventure to young fans everywhere.
+  These toys feature popular characters and exciting play options. Paw Patrol toy
+  sets offer
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=paw-patrol-toy-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=paw-patrol-toy-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Paw Patrol toy sets bring fun and adventure to young fans everywhere. These toys feature popular characters and exciting play options.**

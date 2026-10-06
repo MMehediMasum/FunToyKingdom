@@ -1,10 +1,13 @@
 ---
-title: "Board Games for 4 Year Old: Fun and Educational Picks to Try"
-description: "Looking for the perfect board games for your 4-year-old? You want something fun, simple, and engaging that keeps your little one excited and learning. Choosing "
+title: 'Board Games for 4 Year Old: Fun and Educational Picks to Try'
+description: 'Looking for the perfect board games for your 4-year-old? You want something
+  fun, simple, and engaging that keeps your little one excited and learning. Choosing '
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-4-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for the perfect board games for your 4-year-old? You want something fun, simple, and engaging that keeps your little one excited and learning.**

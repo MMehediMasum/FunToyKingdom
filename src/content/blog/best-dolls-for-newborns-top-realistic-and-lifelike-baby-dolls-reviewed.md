@@ -1,10 +1,14 @@
 ---
-title: "Best Dolls for Newborns: Top Realistic and Lifelike Baby Dolls Reviewed"
-description: "Choosing the best dolls for newborns helps encourage gentle play and early learning. Soft, lifelike dolls offer comfort and foster nurturing skills. Newborn dol"
+title: 'Best Dolls for Newborns: Top Realistic and Lifelike Baby Dolls Reviewed'
+description: Choosing the best dolls for newborns helps encourage gentle play and
+  early learning. Soft, lifelike dolls offer comfort and foster nurturing skills.
+  Newborn dol
 pubDate: 2025-11-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dolls-for-newborns-top-realistic-and-lifelike-baby-dolls-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-dolls-for-newborns-top-realistic-and-lifelike-baby-dolls-reviewed&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dolls for newborns helps encourage gentle play and early learning. Soft, lifelike dolls offer comfort and foster nurturing skills.**

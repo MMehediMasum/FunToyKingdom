@@ -1,10 +1,14 @@
 ---
-title: "Infant Crib Hanging Toys: Stimulate Senses and Develop Motor Skills"
-description: "Infant crib hanging toys offer engaging and gentle entertainment for babies in their cribs. These toys help stimulate senses and encourage early development. Ch"
+title: 'Infant Crib Hanging Toys: Stimulate Senses and Develop Motor Skills'
+description: Infant crib hanging toys offer engaging and gentle entertainment for
+  babies in their cribs. These toys help stimulate senses and encourage early development.
+  Ch
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-crib-hanging-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Age 11 Months
+heroImage: https://tse1.mm.bing.net/th?q=infant-crib-hanging-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant crib hanging toys offer engaging and gentle entertainment for babies in their cribs. These toys help stimulate senses and encourage early development.**

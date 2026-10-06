@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Full Grown Toy Poodle Vs Miniature Poodle: Key Differences Explained"
 description: "Full grown Toy Poodles and Miniature Poodles differ mainly in size and personality. Both are popular choices for families and pet lovers. Toy Poodles stay small"
 pubDate: 2026-08-27

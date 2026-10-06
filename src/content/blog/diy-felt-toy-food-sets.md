@@ -1,10 +1,14 @@
 ---
-title: "Diy Felt Toy Food Sets: Creative Ideas for Fun, Safe Playtime"
-description: "Are you looking for a fun, creative project that you can enjoy making yourself or with your kids? DIY felt toy food sets are the perfect way to bring playtime t"
+title: 'Diy Felt Toy Food Sets: Creative Ideas for Fun, Safe Playtime'
+description: Are you looking for a fun, creative project that you can enjoy making
+  yourself or with your kids? DIY felt toy food sets are the perfect way to bring
+  playtime t
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-felt-toy-food-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-felt-toy-food-sets&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun, creative project that you can enjoy making yourself or with your kids? DIY felt toy food sets are the perfect way to bring playtime to life while adding a personal touch.**

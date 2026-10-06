@@ -1,10 +1,14 @@
 ---
-title: "Infant Mobile Toys: Top Soothers and Sensory Crib Accessories for Babies"
-description: "Infant mobile toys capture babies’ attention with colors, sounds, and movement. They help develop senses and keep little ones calm. These toys hang over cribs, "
+title: 'Infant Mobile Toys: Top Soothers and Sensory Crib Accessories for Babies'
+description: 'Infant mobile toys capture babies’ attention with colors, sounds, and
+  movement. They help develop senses and keep little ones calm. These toys hang over
+  cribs, '
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-mobile-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=infant-mobile-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Infant mobile toys capture babies’ attention with colors, sounds, and movement. They help develop senses and keep little ones calm.**

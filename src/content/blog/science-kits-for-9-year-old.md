@@ -1,10 +1,14 @@
 ---
-title: "Science Kits for 9 Year Old: Exciting Hands-On Learning Fun"
-description: "Are you looking for a fun and exciting way to spark your 9-year-old’s curiosity? Science kits for 9 year old kids are the perfect choice to turn learning into a"
+title: 'Science Kits for 9 Year Old: Exciting Hands-On Learning Fun'
+description: Are you looking for a fun and exciting way to spark your 9-year-old’s
+  curiosity? Science kits for 9 year old kids are the perfect choice to turn learning
+  into a
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kits-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kits-for-9-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your 9-year-old’s curiosity? Science kits for 9 year old kids are the perfect choice to turn learning into an adventure.**

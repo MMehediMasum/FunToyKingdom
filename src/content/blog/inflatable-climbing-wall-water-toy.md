@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Climbing Wall Water Toy: Ultimate Summer Fun Guide"
-description: "Are you ready to turn your backyard into the ultimate fun zone? The Inflatable Climbing Wall Water Toy is exactly what you need to bring excitement, challenge, "
+title: 'Inflatable Climbing Wall Water Toy: Ultimate Summer Fun Guide'
+description: 'Are you ready to turn your backyard into the ultimate fun zone? The
+  Inflatable Climbing Wall Water Toy is exactly what you need to bring excitement,
+  challenge, '
 pubDate: 2025-09-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-climbing-wall-water-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-climbing-wall-water-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to turn your backyard into the ultimate fun zone? The Inflatable Climbing Wall Water Toy is exactly what you need to bring excitement, challenge, and cool refreshment all in one.**

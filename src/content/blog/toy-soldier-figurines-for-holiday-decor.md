@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Figurines for Holiday Decor: Timeless Festive Charm"
-description: "Looking to add a touch of charm and nostalgia to your holiday decor? Toy soldier figurines might be exactly what your home needs this season. These little figur"
+title: 'Toy Soldier Figurines for Holiday Decor: Timeless Festive Charm'
+description: Looking to add a touch of charm and nostalgia to your holiday decor?
+  Toy soldier figurines might be exactly what your home needs this season. These little
+  figur
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-figurines-for-holiday-decor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-figurines-for-holiday-decor&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Looking to add a touch of charm and nostalgia to your holiday decor? Toy soldier figurines might be exactly what your home needs this season.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars And Trucks Toys for 3 Year Old: Top Fun Picks for Kids"
-description: "Are you looking for the perfect cars and trucks toys for your 3-year-old? Choosing the right toys can make a big difference in your child’s playtime, helping th"
+title: 'Cars And Trucks Toys for 3 Year Old: Top Fun Picks for Kids'
+description: Are you looking for the perfect cars and trucks toys for your 3-year-old?
+  Choosing the right toys can make a big difference in your child’s playtime, helping
+  th
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-and-trucks-toys-for-3-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars And Trucks Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-and-trucks-toys-for-3-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect cars and trucks toys for your 3-year-old? Choosing the right toys can make a big difference in your child’s playtime, helping them learn and have fun at the same time.**

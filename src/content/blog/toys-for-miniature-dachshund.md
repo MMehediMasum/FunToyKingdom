@@ -1,10 +1,14 @@
 ---
-title: "Toys for Miniature Dachshund: Top Chew, Squeaky, and Plush Picks"
-description: "Miniature Dachshunds need toys that match their size and energy. Choosing the right toys keeps them happy and healthy. Toys for Miniature Dachshunds must be sma"
+title: 'Toys for Miniature Dachshund: Top Chew, Squeaky, and Plush Picks'
+description: Miniature Dachshunds need toys that match their size and energy. Choosing
+  the right toys keeps them happy and healthy. Toys for Miniature Dachshunds must
+  be sma
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-miniature-dachshund&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dachshund Toys
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-miniature-dachshund&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Miniature Dachshunds need toys that match their size and energy. Choosing the right toys keeps them happy and healthy.**

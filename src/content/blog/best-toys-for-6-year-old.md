@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 6 Year Old: Ultimate Fun & Learning Picks 2025"
-description: "Finding the best toys for your 6-year-old can feel overwhelming. You want something that sparks their imagination, keeps them engaged, and helps them learn—all "
+title: 'Best Toys for 6 Year Old: Ultimate Fun & Learning Picks 2025'
+description: 'Finding the best toys for your 6-year-old can feel overwhelming. You
+  want something that sparks their imagination, keeps them engaged, and helps them
+  learn—all '
 pubDate: 2026-06-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-6-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best toys for your 6-year-old can feel overwhelming. You want something that sparks their imagination, keeps them engaged, and helps them learn—all while making sure they have tons of fun.**

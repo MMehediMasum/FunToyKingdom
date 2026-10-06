@@ -1,10 +1,14 @@
 ---
-title: "Buzz Lightyear Talking Electronic Toy: Ultimate Fun for Kids"
-description: "Are you looking for a toy that brings your favorite space ranger to life? The Buzz Lightyear Talking Electronic Toy does just that. Imagine hearing Buzz’s iconi"
+title: 'Buzz Lightyear Talking Electronic Toy: Ultimate Fun for Kids'
+description: Are you looking for a toy that brings your favorite space ranger to life?
+  The Buzz Lightyear Talking Electronic Toy does just that. Imagine hearing Buzz’s
+  iconi
 pubDate: 2026-07-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=buzz-lightyear-talking-electronic-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=buzz-lightyear-talking-electronic-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a toy that brings your favorite space ranger to life? The Buzz Lightyear Talking Electronic Toy does just that.**

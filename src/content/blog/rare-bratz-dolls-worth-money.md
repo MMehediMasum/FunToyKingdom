@@ -1,10 +1,14 @@
 ---
-title: "Rare Bratz Dolls Worth Money: Top Valuable Collectibles to Find"
-description: "Are you sitting on a hidden treasure without even knowing it? Rare Bratz dolls can be worth a surprising amount of money, and you might have one tucked away in "
+title: 'Rare Bratz Dolls Worth Money: Top Valuable Collectibles to Find'
+description: 'Are you sitting on a hidden treasure without even knowing it? Rare Bratz
+  dolls can be worth a surprising amount of money, and you might have one tucked away
+  in '
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-bratz-dolls-worth-money&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=rare-bratz-dolls-worth-money&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you sitting on a hidden treasure without even knowing it? Rare Bratz dolls can be worth a surprising amount of money, and you might have one tucked away in your collection or attic.**

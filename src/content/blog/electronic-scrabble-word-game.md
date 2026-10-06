@@ -1,10 +1,14 @@
 ---
-title: "Electronic Scrabble Word Game: Ultimate Fun for Word Lovers"
-description: "Are you ready to take your word game skills to the next level? The Electronic Scrabble Word Game offers a fresh, exciting way to challenge your mind and have fu"
+title: 'Electronic Scrabble Word Game: Ultimate Fun for Word Lovers'
+description: Are you ready to take your word game skills to the next level? The Electronic
+  Scrabble Word Game offers a fresh, exciting way to challenge your mind and have
+  fu
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-scrabble-word-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=electronic-scrabble-word-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to take your word game skills to the next level? The Electronic Scrabble Word Game offers a fresh, exciting way to challenge your mind and have fun at the same time.**

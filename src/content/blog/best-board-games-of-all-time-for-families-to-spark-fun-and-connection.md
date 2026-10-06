@@ -1,10 +1,13 @@
 ---
-title: "Best Board Games of All Time for Families to Spark Fun and Connection"
-description: "Family board games bring people closer and create lasting memories. Choosing the right game makes game night fun for everyone. Playing board games helps familie"
+title: Best Board Games of All Time for Families to Spark Fun and Connection
+description: Family board games bring people closer and create lasting memories. Choosing
+  the right game makes game night fun for everyone. Playing board games helps familie
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-of-all-time-for-families-to-spark-fun-and-connection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-of-all-time-for-families-to-spark-fun-and-connection&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Family board games bring people closer and create lasting memories. Choosing the right game makes game night fun for everyone.**

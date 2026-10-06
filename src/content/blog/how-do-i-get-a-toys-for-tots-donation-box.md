@@ -1,10 +1,14 @@
 ---
-title: "How Do I Get a Toys for Tots Donation Box: Easy Steps Revealed"
-description: "Are you looking to make a real difference this holiday season? Getting a Toys for Tots donation box is a simple way you can help bring joy to children in need. "
+title: 'How Do I Get a Toys for Tots Donation Box: Easy Steps Revealed'
+description: 'Are you looking to make a real difference this holiday season? Getting
+  a Toys for Tots donation box is a simple way you can help bring joy to children
+  in need. '
 pubDate: 2026-01-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-i-get-a-toys-for-tots-donation-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-do-i-get-a-toys-for-tots-donation-box&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking to make a real difference this holiday season? Getting a Toys for Tots donation box is a simple way you can help bring joy to children in need.**

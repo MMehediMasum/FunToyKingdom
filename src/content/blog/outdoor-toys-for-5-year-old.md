@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Toys for 5 Year Old: Top Fun Picks to Boost Playtime"
-description: "Looking for the perfect outdoor toys for your 5-year-old? You want something that keeps your child active, sparks their imagination, and fits their growing ener"
+title: 'Outdoor Toys for 5 Year Old: Top Fun Picks to Boost Playtime'
+description: Looking for the perfect outdoor toys for your 5-year-old? You want something
+  that keeps your child active, sparks their imagination, and fits their growing ener
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-toys-for-5-year-old&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect outdoor toys for your 5-year-old? You want something that keeps your child active, sparks their imagination, and fits their growing energy.**

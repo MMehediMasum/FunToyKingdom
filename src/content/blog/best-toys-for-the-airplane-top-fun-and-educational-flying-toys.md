@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for the Airplane: Top Fun and Educational Flying Toys"
-description: "Finding the best toys for airplane play can make travel and playtime much more fun. Kids enjoy toys that are easy to use and spark their imagination. Airplane t"
+title: 'Best Toys for the Airplane: Top Fun and Educational Flying Toys'
+description: Finding the best toys for airplane play can make travel and playtime
+  much more fun. Kids enjoy toys that are easy to use and spark their imagination.
+  Airplane t
 pubDate: 2025-12-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-the-airplane-top-fun-and-educational-flying-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-the-airplane-top-fun-and-educational-flying-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Finding the best toys for airplane play can make travel and playtime much more fun. Kids enjoy toys that are easy to use and spark their imagination.**

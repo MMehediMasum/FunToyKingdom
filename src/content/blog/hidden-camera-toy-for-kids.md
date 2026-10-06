@@ -1,10 +1,14 @@
 ---
-title: "Hidden Camera Toy for Kids: Fun, Safe, and Spy-Ready Gadgets"
-description: "Imagine giving your child a toy that’s not just fun but also sparks their curiosity and creativity. A hidden camera toy for kids does exactly that—it lets your "
+title: 'Hidden Camera Toy for Kids: Fun, Safe, and Spy-Ready Gadgets'
+description: 'Imagine giving your child a toy that’s not just fun but also sparks
+  their curiosity and creativity. A hidden camera toy for kids does exactly that—it
+  lets your '
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hidden-camera-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=hidden-camera-toy-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine giving your child a toy that’s not just fun but also sparks their curiosity and creativity. A hidden camera toy for kids does exactly that—it lets your little one explore the world around them in a whole new way.**

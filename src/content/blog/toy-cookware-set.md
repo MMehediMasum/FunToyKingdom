@@ -1,10 +1,14 @@
 ---
-title: "Toy Cookware Set: Top Kids’ Pretend Play Kitchen Essentials Reviewed"
-description: "Toy cookware sets bring fun and learning together for young children. They encourage creativity and role-playing in a safe way. Playing with toy pots, pans, and"
+title: 'Toy Cookware Set: Top Kids’ Pretend Play Kitchen Essentials Reviewed'
+description: Toy cookware sets bring fun and learning together for young children.
+  They encourage creativity and role-playing in a safe way. Playing with toy pots,
+  pans, and
 pubDate: 2026-08-04
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-cookware-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-cookware-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Toy cookware sets bring fun and learning together for young children. They encourage creativity and role-playing in a safe way.**

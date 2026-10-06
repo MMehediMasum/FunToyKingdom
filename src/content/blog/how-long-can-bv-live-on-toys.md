@@ -1,10 +1,14 @@
 ---
-title: "How Long Can Bv Live on Toys: Shocking Facts Revealed"
-description: "Have you ever wondered how long BV (bacterial vaginosis) can survive on your toys? It’s a question that matters more than you might think, especially when it co"
+title: 'How Long Can Bv Live on Toys: Shocking Facts Revealed'
+description: Have you ever wondered how long BV (bacterial vaginosis) can survive
+  on your toys? It’s a question that matters more than you might think, especially
+  when it co
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-long-can-bv-live-on-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Germ Safety
+heroImage: https://tse1.mm.bing.net/th?q=how-long-can-bv-live-on-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered how long BV (bacterial vaginosis) can survive on your toys? It’s a question that matters more than you might think, especially when it comes to your health and safety.**

@@ -1,10 +1,14 @@
 ---
-title: "How Do You Get the Toys from Toys for Tots: Simple Steps to Receive Gifts"
-description: "Are you wondering how you can get toys from Toys for Tots? If you want to bring a smile to a child’s face but don’t know where to start, you’re in the right pla"
+title: 'How Do You Get the Toys from Toys for Tots: Simple Steps to Receive Gifts'
+description: Are you wondering how you can get toys from Toys for Tots? If you want
+  to bring a smile to a child’s face but don’t know where to start, you’re in the
+  right pla
 pubDate: 2025-10-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-get-the-toys-from-toys-for-tots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-get-the-toys-from-toys-for-tots&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering how you can get toys from Toys for Tots? If you want to bring a smile to a child’s face but don’t know where to start, you’re in the right place.**

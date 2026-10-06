@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Go Kart Style: Ultimate Fun for Kids Outdoors"
-description: "Looking for a fun and exciting way to keep your child active and entertained? A ride on toy go kart style might be just what you need. Imagine your little one z"
+title: 'Ride on Toy Go Kart Style: Ultimate Fun for Kids Outdoors'
+description: Looking for a fun and exciting way to keep your child active and entertained?
+  A ride on toy go kart style might be just what you need. Imagine your little one
+  z
 pubDate: 2025-11-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-go-kart-style&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-go-kart-style&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your child active and entertained? A ride on toy go kart style might be just what you need.**

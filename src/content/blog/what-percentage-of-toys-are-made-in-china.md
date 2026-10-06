@@ -1,10 +1,14 @@
 ---
-title: "What Percentage of Toys are Made in China: Surprising Global Stats Revealed"
-description: "Have you ever wondered where most of the toys you buy come from? If you’re curious about the origins of your child’s favorite playthings, you’re not alone. Know"
+title: 'What Percentage of Toys are Made in China: Surprising Global Stats Revealed'
+description: Have you ever wondered where most of the toys you buy come from? If you’re
+  curious about the origins of your child’s favorite playthings, you’re not alone.
+  Know
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-percentage-of-toys-are-made-in-china&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=what-percentage-of-toys-are-made-in-china&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered where most of the toys you buy come from? If you’re curious about the origins of your child’s favorite playthings, you’re not alone.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Paddle Tennis for Families: Fun, Fitness & Bonding Tips"
 description: "Looking for a fun way to bring your family closer while staying active? Outdoor paddle tennis might be just what you need. It’s easy to learn, exciting to play,"
 pubDate: 2026-05-03

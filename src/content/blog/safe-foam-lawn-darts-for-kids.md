@@ -1,10 +1,14 @@
 ---
-title: "Safe Foam Lawn Darts for Kids: Fun and Injury-Free Play Tips"
-description: "Are you looking for a fun and safe outdoor game that your kids can enjoy without worry? Safe foam lawn darts are the perfect solution. They bring all the excite"
+title: 'Safe Foam Lawn Darts for Kids: Fun and Injury-Free Play Tips'
+description: Are you looking for a fun and safe outdoor game that your kids can enjoy
+  without worry? Safe foam lawn darts are the perfect solution. They bring all the
+  excite
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=safe-foam-lawn-darts-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Bowling Set For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=safe-foam-lawn-darts-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe outdoor game that your kids can enjoy without worry? Safe foam lawn darts are the perfect solution.**

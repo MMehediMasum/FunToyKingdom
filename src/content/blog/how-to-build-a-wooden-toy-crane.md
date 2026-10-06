@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wooden Toy Crane: Easy Step-by-Step Guide"
-description: "Have you ever wanted to create something fun and useful with your own hands? Building a wooden toy crane is a perfect project for you. It’s simple, rewarding, a"
+title: 'How to Build a Wooden Toy Crane: Easy Step-by-Step Guide'
+description: Have you ever wanted to create something fun and useful with your own
+  hands? Building a wooden toy crane is a perfect project for you. It’s simple, rewarding,
+  a
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-crane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-crane&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something fun and useful with your own hands? Building a wooden toy crane is a perfect project for you.**

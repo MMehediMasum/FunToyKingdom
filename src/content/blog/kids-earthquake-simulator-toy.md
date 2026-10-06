@@ -1,10 +1,14 @@
 ---
-title: "Kids Earthquake Simulator Toy: Fun Learning for Safety Skills"
-description: "Imagine giving your child a chance to feel what an earthquake is like—right at home, safely and in a way they can understand. The Kids Earthquake Simulator Toy "
+title: 'Kids Earthquake Simulator Toy: Fun Learning for Safety Skills'
+description: 'Imagine giving your child a chance to feel what an earthquake is like—right
+  at home, safely and in a way they can understand. The Kids Earthquake Simulator
+  Toy '
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-earthquake-simulator-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=kids-earthquake-simulator-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine giving your child a chance to feel what an earthquake is like—right at home, safely and in a way they can understand. The Kids Earthquake Simulator Toy does just that.**

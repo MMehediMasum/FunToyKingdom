@@ -1,10 +1,14 @@
 ---
-title: "Who Invented Chess Game: Unveiling the Origins and Legends"
-description: "Have you ever wondered who invented the chess game you enjoy today? Chess is more than just a board with pieces; it’s a battle of minds that has fascinated mill"
+title: 'Who Invented Chess Game: Unveiling the Origins and Legends'
+description: Have you ever wondered who invented the chess game you enjoy today? Chess
+  is more than just a board with pieces; it’s a battle of minds that has fascinated
+  mill
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-invented-chess-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=who-invented-chess-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered who invented the chess game you enjoy today? Chess is more than just a board with pieces; it’s a battle of minds that has fascinated millions for centuries.**

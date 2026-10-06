@@ -1,10 +1,14 @@
 ---
-title: "Rc Buggy Outdoor Toy: Ultimate Fun for Adventure Kids"
-description: "Are you ready to take your outdoor fun to the next level? An RC buggy outdoor toy is exactly what you need to bring excitement, speed, and adventure right to yo"
+title: 'Rc Buggy Outdoor Toy: Ultimate Fun for Adventure Kids'
+description: Are you ready to take your outdoor fun to the next level? An RC buggy
+  outdoor toy is exactly what you need to bring excitement, speed, and adventure right
+  to yo
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-buggy-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Racing Top
+heroImage: https://tse1.mm.bing.net/th?q=rc-buggy-outdoor-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your outdoor fun to the next level? An RC buggy outdoor toy is exactly what you need to bring excitement, speed, and adventure right to your backyard or park.**

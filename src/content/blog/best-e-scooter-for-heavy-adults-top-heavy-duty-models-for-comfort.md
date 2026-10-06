@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best E Scooter for Heavy Adults: Top Heavy Duty Models for Comfort"
 description: "Finding the best e scooter for heavy adults means choosing models that support higher weight safely. These scooters offer strong motors, durable frames, and lon"
 pubDate: 2025-09-14

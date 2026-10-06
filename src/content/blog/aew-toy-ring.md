@@ -1,10 +1,14 @@
 ---
-title: "Aew Toy Ring Review: Best Wrestling Action Figure Accessories Set"
-description: "AEW toy rings bring wrestling action to life for fans and collectors. These rings offer detailed design and fun play features. AEW toy rings include various mod"
+title: 'Aew Toy Ring Review: Best Wrestling Action Figure Accessories Set'
+description: AEW toy rings bring wrestling action to life for fans and collectors.
+  These rings offer detailed design and fun play features. AEW toy rings include various
+  mod
 pubDate: 2026-08-23
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=aew-toy-ring&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=aew-toy-ring&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **AEW toy rings bring wrestling action to life for fans and collectors. These rings offer detailed design and fun play features.**

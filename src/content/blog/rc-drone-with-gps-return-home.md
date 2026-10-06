@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With Gps Return Home: Ultimate Safety & Control Guide"
-description: "Imagine flying your RC drone without worrying about losing it. With an RC drone equipped with GPS Return Home, you get peace of mind every time you take off. Th"
+title: 'Rc Drone With Gps Return Home: Ultimate Safety & Control Guide'
+description: Imagine flying your RC drone without worrying about losing it. With an
+  RC drone equipped with GPS Return Home, you get peace of mind every time you take
+  off. Th
 pubDate: 2026-06-05
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-gps-return-home&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-gps-return-home&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine flying your RC drone without worrying about losing it. With an RC drone equipped with GPS Return Home, you get peace of mind every time you take off.**

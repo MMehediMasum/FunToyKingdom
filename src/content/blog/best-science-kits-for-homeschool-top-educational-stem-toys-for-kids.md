@@ -1,10 +1,14 @@
 ---
-title: "Best Science Kits for Homeschool: Top Educational STEM Toys for Kids"
-description: "Choosing the best science kits for homeschool helps children explore and learn science hands-on. These kits make science fun and easy to understand. Science kit"
+title: 'Best Science Kits for Homeschool: Top Educational STEM Toys for Kids'
+description: Choosing the best science kits for homeschool helps children explore
+  and learn science hands-on. These kits make science fun and easy to understand.
+  Science kit
 pubDate: 2025-12-30
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-science-kits-for-homeschool-top-educational-stem-toys-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=best-science-kits-for-homeschool-top-educational-stem-toys-for-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the best science kits for homeschool helps children explore and learn science hands-on. These kits make science fun and easy to understand.**

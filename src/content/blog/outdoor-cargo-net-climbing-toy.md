@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Cargo Net Climbing Toy: Ultimate Fun & Fitness Gear"
-description: "Are you looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Cargo Net Climbing Toy might be just what you need. It’s more than a t"
+title: 'Outdoor Cargo Net Climbing Toy: Ultimate Fun & Fitness Gear'
+description: Are you looking for a fun and exciting way to keep your kids active outdoors?
+  The Outdoor Cargo Net Climbing Toy might be just what you need. It’s more than a
+  t
 pubDate: 2025-09-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-cargo-net-climbing-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-cargo-net-climbing-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Cargo Net Climbing Toy might be just what you need.**

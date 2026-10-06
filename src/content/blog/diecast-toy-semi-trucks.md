@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Semi Trucks: Top Collectible Models for Kids and Adults"
-description: "Diecast toy semi trucks bring realistic, detailed models to collectors and kids alike. These miniature trucks capture the look and feel of real semi trucks in v"
+title: 'Diecast Toy Semi Trucks: Top Collectible Models for Kids and Adults'
+description: Diecast toy semi trucks bring realistic, detailed models to collectors
+  and kids alike. These miniature trucks capture the look and feel of real semi trucks
+  in v
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-semi-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-semi-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy semi trucks bring realistic, detailed models to collectors and kids alike. These miniature trucks capture the look and feel of real semi trucks in various sizes and styles.**

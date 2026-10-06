@@ -1,10 +1,14 @@
 ---
-title: "Board Games And Toys: Top Family Favorites for Fun and Learning"
-description: "Board games and toys bring families and friends together for fun and learning. They help develop skills and create lasting memories. These games suit all ages, "
+title: 'Board Games And Toys: Top Family Favorites for Fun and Learning'
+description: 'Board games and toys bring families and friends together for fun and
+  learning. They help develop skills and create lasting memories. These games suit
+  all ages, '
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-and-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 4 5
+heroImage: https://tse1.mm.bing.net/th?q=board-games-and-toys&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Board games and toys bring families and friends together for fun and learning. They help develop skills and create lasting memories.**

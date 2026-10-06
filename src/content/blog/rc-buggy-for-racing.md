@@ -1,10 +1,14 @@
 ---
-title: "Rc Buggy for Racing: Ultimate Speed and Control Guide"
-description: "Are you ready to experience the thrill of speed and control like never before? An RC buggy for racing is your ticket to fast-paced fun that you can enjoy right "
+title: 'Rc Buggy for Racing: Ultimate Speed and Control Guide'
+description: 'Are you ready to experience the thrill of speed and control like never
+  before? An RC buggy for racing is your ticket to fast-paced fun that you can enjoy
+  right '
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-buggy-for-racing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-buggy-for-racing&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to experience the thrill of speed and control like never before? An RC buggy for racing is your ticket to fast-paced fun that you can enjoy right in your backyard or at the track.**

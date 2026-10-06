@@ -1,10 +1,14 @@
 ---
-title: "Rc Car With Two Speed Transmission: Ultimate Control & Speed Boost"
-description: "Have you ever wished your RC car could handle both smooth cruising and fast bursts of speed without missing a beat? Imagine having full control over your ride, "
+title: 'Rc Car With Two Speed Transmission: Ultimate Control & Speed Boost'
+description: 'Have you ever wished your RC car could handle both smooth cruising and
+  fast bursts of speed without missing a beat? Imagine having full control over your
+  ride, '
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-car-with-two-speed-transmission&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-car-with-two-speed-transmission&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wished your RC car could handle both smooth cruising and fast bursts of speed without missing a beat? Imagine having full control over your ride, switching gears effortlessly to match the terrain or your racing style.**

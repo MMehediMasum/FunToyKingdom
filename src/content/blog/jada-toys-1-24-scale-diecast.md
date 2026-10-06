@@ -1,10 +1,14 @@
 ---
-title: "Jada Toys 1 24 Scale Diecast: Ultimate Collectible Model Cars Guide"
-description: "Jada Toys 1:24 scale diecast models offer detailed and realistic collectible cars. These models appeal to both kids and adult collectors. Diecast cars in 1:24 s"
+title: 'Jada Toys 1 24 Scale Diecast: Ultimate Collectible Model Cars Guide'
+description: Jada Toys 1:24 scale diecast models offer detailed and realistic collectible
+  cars. These models appeal to both kids and adult collectors. Diecast cars in 1:24
+  s
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-1-24-scale-diecast&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 1 24 Scale Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-1-24-scale-diecast&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jada Toys 1:24 scale diecast models offer detailed and realistic collectible cars. These models appeal to both kids and adult collectors.**

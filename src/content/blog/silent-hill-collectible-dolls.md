@@ -1,10 +1,14 @@
 ---
-title: "Silent Hill Collectible Dolls: Ultimate Guide to Rare Horror Figures"
-description: "Are you a fan of the eerie and mysterious world of Silent Hill? Imagine bringing a piece of that chilling atmosphere right into your own space. Silent Hill coll"
+title: 'Silent Hill Collectible Dolls: Ultimate Guide to Rare Horror Figures'
+description: Are you a fan of the eerie and mysterious world of Silent Hill? Imagine
+  bringing a piece of that chilling atmosphere right into your own space. Silent Hill
+  coll
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=silent-hill-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=silent-hill-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of the eerie and mysterious world of Silent Hill? Imagine bringing a piece of that chilling atmosphere right into your own space.**

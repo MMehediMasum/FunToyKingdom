@@ -1,10 +1,14 @@
 ---
-title: "Jada Toys Remote Control Cars: Ultimate Fun for Kids and Adults"
-description: "Jada Toys offers a captivating range of remote control cars for all ages. These RC vehicles combine fun with detailed design. Jada Toys' remote control cars cat"
+title: 'Jada Toys Remote Control Cars: Ultimate Fun for Kids and Adults'
+description: Jada Toys offers a captivating range of remote control cars for all ages.
+  These RC vehicles combine fun with detailed design. Jada Toys' remote control cars
+  cat
 pubDate: 2026-01-19
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-remote-control-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-remote-control-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jada Toys offers a captivating range of remote control cars for all ages. These RC vehicles combine fun with detailed design.**

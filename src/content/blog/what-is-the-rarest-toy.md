@@ -1,10 +1,14 @@
 ---
-title: "What is the Rarest Toy: Discover the Most Valuable Collectibles"
-description: "Have you ever wondered what makes a toy truly rare? Maybe you’ve held a toy that felt special, but what if there’s one toy out there so unique, it’s almost impo"
+title: 'What is the Rarest Toy: Discover the Most Valuable Collectibles'
+description: Have you ever wondered what makes a toy truly rare? Maybe you’ve held
+  a toy that felt special, but what if there’s one toy out there so unique, it’s almost
+  impo
 pubDate: 2025-09-05
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-rarest-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-rarest-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered what makes a toy truly rare? Maybe you’ve held a toy that felt special, but what if there’s one toy out there so unique, it’s almost impossible to find?**

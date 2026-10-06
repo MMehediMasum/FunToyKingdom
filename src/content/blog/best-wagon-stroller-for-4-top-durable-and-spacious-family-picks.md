@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Wagon Stroller for 4: Top Durable and Spacious Family Picks"
 description: "Choosing the best wagon stroller for 4 children helps families stay organized and comfortable on outings. A good wagon stroller offers safety, storage, and easy"
 pubDate: 2025-12-29

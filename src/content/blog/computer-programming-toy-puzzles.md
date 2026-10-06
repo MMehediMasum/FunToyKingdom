@@ -1,10 +1,14 @@
 ---
-title: "Computer Programming Toy Puzzles: Boost Kids' Coding Skills Fast"
-description: "Have you ever wished learning computer programming could be fun and hands-on? Imagine unlocking your problem-solving skills while playing with toys designed to "
+title: 'Computer Programming Toy Puzzles: Boost Kids'' Coding Skills Fast'
+description: 'Have you ever wished learning computer programming could be fun and
+  hands-on? Imagine unlocking your problem-solving skills while playing with toys
+  designed to '
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=computer-programming-toy-puzzles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Choosing Puzzles By Age
+heroImage: https://tse1.mm.bing.net/th?q=computer-programming-toy-puzzles&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wished learning computer programming could be fun and hands-on? Imagine unlocking your problem-solving skills while playing with toys designed to teach you coding concepts.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Soldier Holiday Decorating Blog Post: Festive Ideas to Inspire"
 description: "Are you looking for a fresh and charming way to decorate your home this holiday season? Toy soldiers bring a timeless, festive touch that can transform any spac"
 pubDate: 2025-12-07

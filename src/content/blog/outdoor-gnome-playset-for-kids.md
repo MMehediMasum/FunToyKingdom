@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Gnome Playset for Kids: Magical Fun & Adventure Awaits"
-description: "Imagine your kids stepping into a magical world right in your backyard. An Outdoor Gnome Playset for Kids is more than just a toy—it’s a gateway to endless fun "
+title: 'Outdoor Gnome Playset for Kids: Magical Fun & Adventure Awaits'
+description: 'Imagine your kids stepping into a magical world right in your backyard.
+  An Outdoor Gnome Playset for Kids is more than just a toy—it’s a gateway to endless
+  fun '
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-gnome-playset-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-gnome-playset-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids stepping into a magical world right in your backyard. An Outdoor Gnome Playset for Kids is more than just a toy—it’s a gateway to endless fun and creativity.**

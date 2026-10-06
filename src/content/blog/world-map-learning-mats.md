@@ -1,10 +1,13 @@
 ---
-title: "World Map Learning Mats: Explore, Discover, and Learn Globally"
-description: "Are you looking for a fun and effective way to boost your knowledge about the world? World Map Learning Mats are exactly what you need. These colorful, hands-on"
+title: 'World Map Learning Mats: Explore, Discover, and Learn Globally'
+description: Are you looking for a fun and effective way to boost your knowledge about
+  the world? World Map Learning Mats are exactly what you need. These colorful, hands-on
 pubDate: 2026-07-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=world-map-learning-mats&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy World Records
+heroImage: https://tse1.mm.bing.net/th?q=world-map-learning-mats&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a fun and effective way to boost your knowledge about the world? World Map Learning Mats are exactly what you need.**

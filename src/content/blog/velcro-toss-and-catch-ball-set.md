@@ -1,10 +1,14 @@
 ---
-title: "Velcro Toss And Catch Ball Set: Ultimate Fun for All Ages!"
-description: "Looking for a fun way to boost your hand-eye coordination and enjoy quality time with family or friends? The Velcro Toss and Catch Ball Set might be just what y"
+title: 'Velcro Toss And Catch Ball Set: Ultimate Fun for All Ages!'
+description: Looking for a fun way to boost your hand-eye coordination and enjoy quality
+  time with family or friends? The Velcro Toss and Catch Ball Set might be just what
+  y
 pubDate: 2026-06-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=velcro-toss-and-catch-ball-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Ball Shooter Toy
+heroImage: https://tse1.mm.bing.net/th?q=velcro-toss-and-catch-ball-set&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Looking for a fun way to boost your hand-eye coordination and enjoy quality time with family or friends? The Velcro Toss and Catch Ball Set might be just what you need.**

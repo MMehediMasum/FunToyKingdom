@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Water Obstacle Course: Ultimate Summer Fun Guide"
-description: "Looking for a way to turn your next party or event into an unforgettable splash of fun? An inflatable water obstacle course might be exactly what you need. Imag"
+title: 'Inflatable Water Obstacle Course: Ultimate Summer Fun Guide'
+description: Looking for a way to turn your next party or event into an unforgettable
+  splash of fun? An inflatable water obstacle course might be exactly what you need.
+  Imag
 pubDate: 2025-09-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-water-obstacle-course&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-water-obstacle-course&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a way to turn your next party or event into an unforgettable splash of fun? An inflatable water obstacle course might be exactly what you need.**

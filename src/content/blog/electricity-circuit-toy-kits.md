@@ -1,10 +1,14 @@
 ---
-title: "Electricity Circuit Toy Kits: Ignite Creativity with Fun Learning"
-description: "Have you ever wondered how electricity works or wanted to build your own gadgets? Electricity Circuit Toy Kits are the perfect way to bring your curiosity to li"
+title: 'Electricity Circuit Toy Kits: Ignite Creativity with Fun Learning'
+description: Have you ever wondered how electricity works or wanted to build your
+  own gadgets? Electricity Circuit Toy Kits are the perfect way to bring your curiosity
+  to li
 pubDate: 2025-10-13
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electricity-circuit-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=electricity-circuit-toy-kits&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wondered how electricity works or wanted to build your own gadgets? Electricity Circuit Toy Kits are the perfect way to bring your curiosity to life.**

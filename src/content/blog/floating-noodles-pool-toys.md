@@ -1,10 +1,14 @@
 ---
-title: "Floating Noodles Pool Toys: Ultimate Summer Fun Essentials"
-description: "Imagine turning your pool into a fun, colorful paradise where you and your friends can relax, play, and make unforgettable memories. Floating noodles pool toys "
+title: 'Floating Noodles Pool Toys: Ultimate Summer Fun Essentials'
+description: 'Imagine turning your pool into a fun, colorful paradise where you and
+  your friends can relax, play, and make unforgettable memories. Floating noodles
+  pool toys '
 pubDate: 2026-06-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=floating-noodles-pool-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=floating-noodles-pool-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Imagine turning your pool into a fun, colorful paradise where you and your friends can relax, play, and make unforgettable memories. Floating noodles pool toys are the perfect way to do just that.**

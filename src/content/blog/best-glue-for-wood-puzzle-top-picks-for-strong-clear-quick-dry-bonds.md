@@ -1,10 +1,14 @@
 ---
-title: "Best Glue for Wood Puzzle: Top Picks for Strong, Clear, Quick-Dry Bonds"
-description: "Choosing the best glue for wood puzzles ensures your artwork stays intact and looks great for years. The right adhesive offers a strong, clear bond without dama"
+title: 'Best Glue for Wood Puzzle: Top Picks for Strong, Clear, Quick-Dry Bonds'
+description: Choosing the best glue for wood puzzles ensures your artwork stays intact
+  and looks great for years. The right adhesive offers a strong, clear bond without
+  dama
 pubDate: 2025-12-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-glue-for-wood-puzzle-top-picks-for-strong-clear-quick-dry-bonds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-glue-for-wood-puzzle-top-picks-for-strong-clear-quick-dry-bonds&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best glue for wood puzzles ensures your artwork stays intact and looks great for years. The right adhesive offers a strong, clear bond without damaging puzzle pieces.**

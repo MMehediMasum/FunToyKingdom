@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bus Sprinkler Inflatable Kids: Ultimate Summer Fun Guide"
-description: "Looking for a fun and exciting way to keep your kids cool this summer? An outdoor bus sprinkler inflatable is exactly what you need! Imagine your children runni"
+title: 'Outdoor Bus Sprinkler Inflatable Kids: Ultimate Summer Fun Guide'
+description: Looking for a fun and exciting way to keep your kids cool this summer?
+  An outdoor bus sprinkler inflatable is exactly what you need! Imagine your children
+  runni
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bus-sprinkler-inflatable-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bus-sprinkler-inflatable-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids cool this summer? An outdoor bus sprinkler inflatable is exactly what you need!**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Raft Inflatable Toy for Kids: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to keep your kids entertained outdoors? An outdoor raft inflatable toy could be just what you need. Imagine your child’s excitement as the"
+title: 'Outdoor Raft Inflatable Toy for Kids: Ultimate Summer Fun Guide'
+description: Looking for a fun way to keep your kids entertained outdoors? An outdoor
+  raft inflatable toy could be just what you need. Imagine your child’s excitement
+  as the
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-raft-inflatable-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-raft-inflatable-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids entertained outdoors? An outdoor raft inflatable toy could be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Pretend Play Toys for 2 Year Old: Top Picks to Spark Imagination"
-description: "Are you looking for the perfect toys that can spark your 2-year-old’s imagination and help them learn? Pretend play toys are more than just fun—they’re powerful"
+title: 'Pretend Play Toys for 2 Year Old: Top Picks to Spark Imagination'
+description: Are you looking for the perfect toys that can spark your 2-year-old’s
+  imagination and help them learn? Pretend play toys are more than just fun—they’re
+  powerful
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=pretend-play-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=pretend-play-toys-for-2-year-old&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect toys that can spark your 2-year-old’s imagination and help them learn? Pretend play toys are more than just fun—they’re powerful tools that boost creativity, language skills, and social development.**

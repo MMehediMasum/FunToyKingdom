@@ -1,10 +1,14 @@
 ---
-title: "Best Lipo Charger for Rc Cars: Top Compact and Fast Balance Chargers"
-description: "Choosing the best LiPo charger for RC cars ensures safe and efficient battery charging. A reliable charger keeps your batteries balanced and extends their life."
+title: 'Best Lipo Charger for Rc Cars: Top Compact and Fast Balance Chargers'
+description: Choosing the best LiPo charger for RC cars ensures safe and efficient
+  battery charging. A reliable charger keeps your batteries balanced and extends their
+  life.
 pubDate: 2025-10-05
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-lipo-charger-for-rc-cars-top-compact-and-fast-balance-chargers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Submarine Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-lipo-charger-for-rc-cars-top-compact-and-fast-balance-chargers&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best LiPo charger for RC cars ensures safe and efficient battery charging. A reliable charger keeps your batteries balanced and extends their life.**

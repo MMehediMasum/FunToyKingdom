@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Butterfly Net Kids: Ultimate Guide to Fun & Exploration"
-description: "Are you looking for a fun and simple way to get your kids outside and exploring nature? An outdoor butterfly net for kids is just what you need. It’s more than "
+title: 'Outdoor Butterfly Net Kids: Ultimate Guide to Fun & Exploration'
+description: 'Are you looking for a fun and simple way to get your kids outside and
+  exploring nature? An outdoor butterfly net for kids is just what you need. It’s
+  more than '
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-butterfly-net-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-butterfly-net-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and simple way to get your kids outside and exploring nature? An outdoor butterfly net for kids is just what you need.**

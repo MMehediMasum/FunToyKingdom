@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids Electric Skateboard Outdoor Toy: Ultimate Fun and Safety Guide"
 description: "Looking for a fun and exciting way to get your kids outside and active? A kids electric skateboard outdoor toy might be just what you need. Imagine your child z"
 pubDate: 2026-04-17

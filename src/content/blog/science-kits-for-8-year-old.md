@@ -1,10 +1,14 @@
 ---
-title: "Science Kits for 8 Year Old: Exciting STEM Fun and Learning"
-description: "Are you looking for a fun and educational way to spark your 8-year-old’s curiosity? Science kits for 8 year olds are the perfect choice. They make learning exci"
+title: 'Science Kits for 8 Year Old: Exciting STEM Fun and Learning'
+description: Are you looking for a fun and educational way to spark your 8-year-old’s
+  curiosity? Science kits for 8 year olds are the perfect choice. They make learning
+  exci
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=science-kits-for-8-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Science Kits For Age 7
+heroImage: https://tse1.mm.bing.net/th?q=science-kits-for-8-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and educational way to spark your 8-year-old’s curiosity? Science kits for 8 year olds are the perfect choice.**

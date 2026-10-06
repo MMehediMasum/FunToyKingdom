@@ -1,10 +1,14 @@
 ---
-title: "Rubber Band Powered Flying Toy Plane: Ultimate Fun and DIY Guide"
-description: "Imagine holding a simple toy that can soar through the air, powered just by a twist of a rubber band. Sounds fun, right? A rubber band powered flying toy plane "
+title: 'Rubber Band Powered Flying Toy Plane: Ultimate Fun and DIY Guide'
+description: 'Imagine holding a simple toy that can soar through the air, powered
+  just by a twist of a rubber band. Sounds fun, right? A rubber band powered flying
+  toy plane '
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rubber-band-powered-flying-toy-plane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=rubber-band-powered-flying-toy-plane&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine holding a simple toy that can soar through the air, powered just by a twist of a rubber band. Sounds fun, right?**

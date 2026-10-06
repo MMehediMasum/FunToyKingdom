@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Trash Can Coin Box: Easy DIY Savings Fun"
-description: "Are you looking for a fun and creative way to save your coins? Imagine turning a simple trash can toy into a cool coin box that you can use every day. It’s easy"
+title: 'How to Make Toy Trash Can Coin Box: Easy DIY Savings Fun'
+description: Are you looking for a fun and creative way to save your coins? Imagine
+  turning a simple trash can toy into a cool coin box that you can use every day.
+  It’s easy
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-trash-can-coin-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Puppet Box Craft
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-trash-can-coin-box&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to save your coins? Imagine turning a simple trash can toy into a cool coin box that you can use every day.**

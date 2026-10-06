@@ -1,10 +1,14 @@
 ---
-title: "Best Infant Toys 9 Months for Sensory, Development, and Fun Play"
-description: "Choosing the best toys for a 9-month-old helps support their growth and keeps them happy. Toys at this age encourage movement, senses, and early learning skills"
+title: Best Infant Toys 9 Months for Sensory, Development, and Fun Play
+description: Choosing the best toys for a 9-month-old helps support their growth and
+  keeps them happy. Toys at this age encourage movement, senses, and early learning
+  skills
 pubDate: 2026-08-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-infant-toys-9-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toy For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-infant-toys-9-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for a 9-month-old helps support their growth and keeps them happy. Toys at this age encourage movement, senses, and early learning skills.**

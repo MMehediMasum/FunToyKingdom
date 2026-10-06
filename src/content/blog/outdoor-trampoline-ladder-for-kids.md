@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Trampoline Ladder for Kids: Safe, Sturdy, and Fun Steps"
-description: "Are you looking for a safe and fun way to help your kids climb onto their outdoor trampoline? An outdoor trampoline ladder for kids might be exactly what you ne"
+title: 'Outdoor Trampoline Ladder for Kids: Safe, Sturdy, and Fun Steps'
+description: Are you looking for a safe and fun way to help your kids climb onto their
+  outdoor trampoline? An outdoor trampoline ladder for kids might be exactly what
+  you ne
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-trampoline-ladder-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-trampoline-ladder-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a safe and fun way to help your kids climb onto their outdoor trampoline? An outdoor trampoline ladder for kids might be exactly what you need.**

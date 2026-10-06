@@ -1,10 +1,14 @@
 ---
-title: "Family Electronic Party Games: Ultimate Fun for All Ages"
-description: "Looking for a fun way to bring your family closer and fill your gatherings with laughter? Family electronic party games are the perfect solution. They mix excit"
+title: 'Family Electronic Party Games: Ultimate Fun for All Ages'
+description: Looking for a fun way to bring your family closer and fill your gatherings
+  with laughter? Family electronic party games are the perfect solution. They mix
+  excit
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=family-electronic-party-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Party
+heroImage: https://tse1.mm.bing.net/th?q=family-electronic-party-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a fun way to bring your family closer and fill your gatherings with laughter? Family electronic party games are the perfect solution.**

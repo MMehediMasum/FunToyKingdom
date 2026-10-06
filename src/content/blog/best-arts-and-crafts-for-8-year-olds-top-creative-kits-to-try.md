@@ -1,10 +1,14 @@
 ---
-title: "Best Arts And Crafts for 8 Year Olds: Top Creative Kits to Try"
-description: "Creative arts and crafts help 8 year olds develop skills and express themselves. Choosing the right projects keeps them engaged and excited. Craft activities bu"
+title: 'Best Arts And Crafts for 8 Year Olds: Top Creative Kits to Try'
+description: Creative arts and crafts help 8 year olds develop skills and express
+  themselves. Choosing the right projects keeps them engaged and excited. Craft activities
+  bu
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-8-year-olds-top-creative-kits-to-try&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Arts And Crafts Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-arts-and-crafts-for-8-year-olds-top-creative-kits-to-try&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Creative arts and crafts help 8 year olds develop skills and express themselves. Choosing the right projects keeps them engaged and excited.**

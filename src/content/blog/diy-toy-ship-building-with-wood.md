@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Ship Building With Wood: Easy Steps for Stunning Models"
-description: "Are you looking for a fun and rewarding way to spend your time? Building a toy ship with wood might be just the project for you. Imagine holding a beautiful, ha"
+title: 'Diy Toy Ship Building With Wood: Easy Steps for Stunning Models'
+description: Are you looking for a fun and rewarding way to spend your time? Building
+  a toy ship with wood might be just the project for you. Imagine holding a beautiful,
+  ha
 pubDate: 2026-07-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-ship-building-with-wood&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-ship-building-with-wood&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and rewarding way to spend your time? Building a toy ship with wood might be just the project for you.**

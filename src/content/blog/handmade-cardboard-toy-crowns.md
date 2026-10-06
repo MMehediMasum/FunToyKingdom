@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Crowns: Creative Fun for Kids"
-description: "Imagine your child’s eyes lighting up as they wear a crown made just for them—a crown that’s not only fun but also safe and eco-friendly. Handmade cardboard toy"
+title: 'Handmade Cardboard Toy Crowns: Creative Fun for Kids'
+description: Imagine your child’s eyes lighting up as they wear a crown made just
+  for them—a crown that’s not only fun but also safe and eco-friendly. Handmade cardboard
+  toy
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-crowns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-crowns&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine your child’s eyes lighting up as they wear a crown made just for them—a crown that’s not only fun but also safe and eco-friendly. Handmade cardboard toy crowns offer a unique way to spark creativity and endless playtime adventures.**

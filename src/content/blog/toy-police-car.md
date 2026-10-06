@@ -1,10 +1,14 @@
 ---
-title: "Toy Police Car: Top Picks with Lights, Sounds, and Realistic Features"
-description: "Toy police cars bring excitement and fun to children’s playtime. These small vehicles mimic real police cars with lights and sounds. Toy police cars help kids i"
+title: 'Toy Police Car: Top Picks with Lights, Sounds, and Realistic Features'
+description: Toy police cars bring excitement and fun to children’s playtime. These
+  small vehicles mimic real police cars with lights and sounds. Toy police cars help
+  kids i
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-police-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Ride Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-police-car&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Toy police cars bring excitement and fun to children’s playtime. These small vehicles mimic real police cars with lights and sounds.**

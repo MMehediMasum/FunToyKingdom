@@ -1,10 +1,13 @@
 ---
-title: "Cars 2 Toys Airplane: Exciting Press and Go Airplane Toys for Toddlers"
-description: "Cars 2 Toys Airplane captures the fun of flying with colorful, easy-to-use designs. These toys suit toddlers and young kids perfectly. This collection includes "
+title: 'Cars 2 Toys Airplane: Exciting Press and Go Airplane Toys for Toddlers'
+description: 'Cars 2 Toys Airplane captures the fun of flying with colorful, easy-to-use
+  designs. These toys suit toddlers and young kids perfectly. This collection includes '
 pubDate: 2026-01-16
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-toys-airplane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-toys-airplane&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Cars 2 Toys Airplane captures the fun of flying with colorful, easy-to-use designs. These toys suit toddlers and young kids perfectly.**

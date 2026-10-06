@@ -1,10 +1,14 @@
 ---
-title: "How High Can a Toy Drone Fly: Surprising Altitude Limits Revealed"
-description: "Have you ever wondered just how high your toy drone can fly? Whether you’re a beginner or already love flying drones, knowing the limits of your device can make"
+title: 'How High Can a Toy Drone Fly: Surprising Altitude Limits Revealed'
+description: Have you ever wondered just how high your toy drone can fly? Whether
+  you’re a beginner or already love flying drones, knowing the limits of your device
+  can make
 pubDate: 2026-07-19
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-high-can-a-toy-drone-fly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=how-high-can-a-toy-drone-fly&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Have you ever wondered just how high your toy drone can fly? Whether you’re a beginner or already love flying drones, knowing the limits of your device can make your experience even more exciting.**

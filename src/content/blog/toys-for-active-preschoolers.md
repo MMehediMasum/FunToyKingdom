@@ -1,10 +1,14 @@
 ---
-title: "Toys for Active Preschoolers: Top Gross Motor and Sensory Play Picks"
-description: "Active preschoolers need toys that match their energy and curiosity. Engaging playtime can enhance their development. Finding the right toys for active preschoo"
+title: 'Toys for Active Preschoolers: Top Gross Motor and Sensory Play Picks'
+description: Active preschoolers need toys that match their energy and curiosity.
+  Engaging playtime can enhance their development. Finding the right toys for active
+  preschoo
 pubDate: 2026-01-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-for-active-preschoolers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Preschoolers
+heroImage: https://tse1.mm.bing.net/th?q=toys-for-active-preschoolers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Active preschoolers need toys that match their energy and curiosity. Engaging playtime can enhance their development.**

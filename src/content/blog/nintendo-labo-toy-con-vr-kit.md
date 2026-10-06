@@ -1,10 +1,14 @@
 ---
-title: "Nintendo Labo Toy Con Vr Kit: Ultimate Guide to Immersive Play"
-description: "Imagine turning simple cardboard into a full-on virtual reality adventure right in your living room. With the Nintendo Labo Toy Con VR Kit, you don’t just play "
+title: 'Nintendo Labo Toy Con Vr Kit: Ultimate Guide to Immersive Play'
+description: 'Imagine turning simple cardboard into a full-on virtual reality adventure
+  right in your living room. With the Nintendo Labo Toy Con VR Kit, you don’t just
+  play '
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=nintendo-labo-toy-con-vr-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=nintendo-labo-toy-con-vr-kit&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine turning simple cardboard into a full-on virtual reality adventure right in your living room. With the Nintendo Labo Toy Con VR Kit, you don’t just play games—you build them, explore new worlds, and experience VR like never before.**

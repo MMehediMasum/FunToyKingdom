@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Luxo Ball: Perfect Soft Bouncing Toy for Toddlers Fun"
-description: "The Toy Story Luxo Ball is a colorful and fun toy loved by kids and fans alike. It stands out with its bright design and playful charm. This iconic ball first a"
+title: 'Toy Story Luxo Ball: Perfect Soft Bouncing Toy for Toddlers Fun'
+description: The Toy Story Luxo Ball is a colorful and fun toy loved by kids and fans
+  alike. It stands out with its bright design and playful charm. This iconic ball
+  first a
 pubDate: 2026-08-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-luxo-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Ball
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-luxo-ball&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy Story Luxo Ball is a colorful and fun toy loved by kids and fans alike. It stands out with its bright design and playful charm.**

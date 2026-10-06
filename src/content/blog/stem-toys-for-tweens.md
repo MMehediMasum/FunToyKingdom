@@ -1,10 +1,14 @@
 ---
-title: "Stem Toys for Tweens: Ignite Creativity and Learning Fun"
-description: "Are you looking for the perfect way to spark your tween’s curiosity and creativity? Stem toys for tweens are more than just fun—they’re tools that help your chi"
+title: 'Stem Toys for Tweens: Ignite Creativity and Learning Fun'
+description: Are you looking for the perfect way to spark your tween’s curiosity and
+  creativity? Stem toys for tweens are more than just fun—they’re tools that help
+  your chi
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=stem-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- STEM Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stem-toys-for-tweens&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect way to spark your tween’s curiosity and creativity? Stem toys for tweens are more than just fun—they’re tools that help your child build important skills for the future.**

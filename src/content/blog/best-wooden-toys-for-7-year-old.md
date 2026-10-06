@@ -1,10 +1,14 @@
 ---
-title: "Best Wooden Toys for 7 Year Old: Top Durable & Educational Picks"
-description: "Looking for the best wooden toys for your 7-year-old? You want something that’s not just fun but also safe and built to last. Wooden toys have a timeless charm "
+title: 'Best Wooden Toys for 7 Year Old: Top Durable & Educational Picks'
+description: 'Looking for the best wooden toys for your 7-year-old? You want something
+  that’s not just fun but also safe and built to last. Wooden toys have a timeless
+  charm '
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wooden-toys-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-wooden-toys-for-7-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for the best wooden toys for your 7-year-old? You want something that’s not just fun but also safe and built to last.**

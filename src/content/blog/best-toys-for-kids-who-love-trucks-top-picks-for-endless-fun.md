@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for Kids Who Love Trucks: Top Picks for Endless Fun"
-description: "Kids who love trucks need toys that fuel their imagination and keep them engaged. These truck toys combine fun, learning, and hands-on play for hours of excitem"
+title: 'Best Toys for Kids Who Love Trucks: Top Picks for Endless Fun'
+description: Kids who love trucks need toys that fuel their imagination and keep them
+  engaged. These truck toys combine fun, learning, and hands-on play for hours of
+  excitem
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-kids-who-love-trucks-top-picks-for-endless-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-kids-who-love-trucks-top-picks-for-endless-fun&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Kids who love trucks need toys that fuel their imagination and keep them engaged. These truck toys combine fun, learning, and hands-on play for hours of excitement.**

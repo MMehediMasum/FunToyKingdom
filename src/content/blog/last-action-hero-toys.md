@@ -1,10 +1,14 @@
 ---
-title: "Last Action Hero Toys: Top Collectible Figures for Ultimate Superhero Fans"
-description: "Last Action Hero toys bring excitement from the big screen to your hands. These action figures capture the thrill of heroic adventures and popular characters. C"
+title: 'Last Action Hero Toys: Top Collectible Figures for Ultimate Superhero Fans'
+description: Last Action Hero toys bring excitement from the big screen to your hands.
+  These action figures capture the thrill of heroic adventures and popular characters.
+  C
 pubDate: 2026-08-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=last-action-hero-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=last-action-hero-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Last Action Hero toys bring excitement from the big screen to your hands. These action figures capture the thrill of heroic adventures and popular characters.**

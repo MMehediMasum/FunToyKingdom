@@ -1,10 +1,14 @@
 ---
-title: "Colorful Toys for Newborns: Brighten Playtime with Safe Fun"
-description: "Choosing the perfect toys for your newborn can feel overwhelming. You want something safe, engaging, and helpful for your baby’s early development. That’s where"
+title: 'Colorful Toys for Newborns: Brighten Playtime with Safe Fun'
+description: Choosing the perfect toys for your newborn can feel overwhelming. You
+  want something safe, engaging, and helpful for your baby’s early development. That’s
+  where
 pubDate: 2026-04-18
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=colorful-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=colorful-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the perfect toys for your newborn can feel overwhelming. You want something safe, engaging, and helpful for your baby’s early development.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Pogo Stick for Kids: Ultimate Fun and Fitness Guide"
-description: "Looking for a fun and active way to keep your kids entertained outside? An outdoor pogo stick could be just what you need. It’s more than a toy—it’s a tool that"
+title: 'Outdoor Pogo Stick for Kids: Ultimate Fun and Fitness Guide'
+description: Looking for a fun and active way to keep your kids entertained outside?
+  An outdoor pogo stick could be just what you need. It’s more than a toy—it’s a tool
+  that
 pubDate: 2026-04-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-pogo-stick-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-pogo-stick-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and active way to keep your kids entertained outside? An outdoor pogo stick could be just what you need.**

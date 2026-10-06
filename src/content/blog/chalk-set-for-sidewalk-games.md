@@ -1,10 +1,14 @@
 ---
-title: "Chalk Set for Sidewalk Games: Ultimate Fun for Kids Outdoors"
-description: "Looking for a fun and easy way to bring your outdoor time to life? A chalk set for sidewalk games is just what you need. Imagine turning your driveway or sidewa"
+title: 'Chalk Set for Sidewalk Games: Ultimate Fun for Kids Outdoors'
+description: Looking for a fun and easy way to bring your outdoor time to life? A
+  chalk set for sidewalk games is just what you need. Imagine turning your driveway
+  or sidewa
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=chalk-set-for-sidewalk-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=chalk-set-for-sidewalk-games&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a fun and easy way to bring your outdoor time to life? A chalk set for sidewalk games is just what you need.**

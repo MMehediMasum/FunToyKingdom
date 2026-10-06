@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Guitar Project: Easy Steps for Fun Crafting"
-description: "Have you ever wanted to create something special with your own hands? Imagine building a wooden toy guitar that’s not just fun to play with but also a proud dis"
+title: 'Diy Wooden Toy Guitar Project: Easy Steps for Fun Crafting'
+description: Have you ever wanted to create something special with your own hands?
+  Imagine building a wooden toy guitar that’s not just fun to play with but also a
+  proud dis
 pubDate: 2026-07-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-guitar-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Drum Set For Age
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-guitar-project&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Imagine building a wooden toy guitar that’s not just fun to play with but also a proud display of your craftsmanship.**

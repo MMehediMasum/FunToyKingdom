@@ -1,10 +1,14 @@
 ---
-title: "Honda Toy Car: Best Die-Cast Models with Lights and Sounds for Kids"
-description: "Honda toy cars bring the thrill of real vehicles to kids and collectors alike. These detailed models mimic Honda’s popular cars with lights, sounds, and pull-ba"
+title: 'Honda Toy Car: Best Die-Cast Models with Lights and Sounds for Kids'
+description: Honda toy cars bring the thrill of real vehicles to kids and collectors
+  alike. These detailed models mimic Honda’s popular cars with lights, sounds, and
+  pull-ba
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=honda-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=honda-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Honda toy cars bring the thrill of real vehicles to kids and collectors alike. These detailed models mimic Honda’s popular cars with lights, sounds, and pull-back action.**

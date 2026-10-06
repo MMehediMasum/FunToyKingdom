@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Ladder Craft Idea: Easy DIY Fun for Kids & Adults"
-description: "Are you looking for a fun and creative project that you can make with your own hands? A wooden toy ladder craft is the perfect idea to spark your creativity and"
+title: 'Wooden Toy Ladder Craft Idea: Easy DIY Fun for Kids & Adults'
+description: Are you looking for a fun and creative project that you can make with
+  your own hands? A wooden toy ladder craft is the perfect idea to spark your creativity
+  and
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-ladder-craft-idea&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-ladder-craft-idea&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can make with your own hands? A wooden toy ladder craft is the perfect idea to spark your creativity and add a charming piece to your home or playroom.**

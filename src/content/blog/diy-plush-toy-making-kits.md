@@ -1,10 +1,13 @@
 ---
-title: "Diy Plush Toy Making Kits: Ultimate Fun for Creative Kids"
-description: "Are you looking for a fun and creative way to make your own cuddly friends? DIY plush toy making kits are the perfect choice for you. These kits give you everyt"
+title: 'Diy Plush Toy Making Kits: Ultimate Fun for Creative Kids'
+description: Are you looking for a fun and creative way to make your own cuddly friends?
+  DIY plush toy making kits are the perfect choice for you. These kits give you everyt
 pubDate: 2026-06-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-plush-toy-making-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=diy-plush-toy-making-kits&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and creative way to make your own cuddly friends? DIY plush toy making kits are the perfect choice for you.**

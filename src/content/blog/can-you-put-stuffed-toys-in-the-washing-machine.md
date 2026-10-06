@@ -1,10 +1,14 @@
 ---
-title: "Can You Put Stuffed Toys in the Washing Machine? Expert Tips"
-description: "Are your stuffed toys looking a little tired or feeling less fluffy than before? You might be wondering, can you put stuffed toys in the washing machine without"
+title: Can You Put Stuffed Toys in the Washing Machine? Expert Tips
+description: Are your stuffed toys looking a little tired or feeling less fluffy than
+  before? You might be wondering, can you put stuffed toys in the washing machine
+  without
 pubDate: 2025-09-22
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-put-stuffed-toys-in-the-washing-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=can-you-put-stuffed-toys-in-the-washing-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are your stuffed toys looking a little tired or feeling less fluffy than before? You might be wondering, can you put stuffed toys in the washing machine without ruining them?**

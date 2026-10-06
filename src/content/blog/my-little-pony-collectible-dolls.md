@@ -1,10 +1,14 @@
 ---
-title: "My Little Pony Collectible Dolls: Ultimate Guide to Rare Finds"
-description: "Are you a fan of colorful, charming toys that bring joy and nostalgia? My Little Pony collectible dolls might be exactly what you’re looking for. These dolls ar"
+title: 'My Little Pony Collectible Dolls: Ultimate Guide to Rare Finds'
+description: Are you a fan of colorful, charming toys that bring joy and nostalgia?
+  My Little Pony collectible dolls might be exactly what you’re looking for. These
+  dolls ar
 pubDate: 2025-12-08
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=my-little-pony-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=my-little-pony-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of colorful, charming toys that bring joy and nostalgia? My Little Pony collectible dolls might be exactly what you’re looking for.**

@@ -1,10 +1,14 @@
 ---
-title: "Mr Robot Toy Collectibles: Must-Have Action Figures for Fans"
-description: "Mr Robot toys bring your favorite TV characters to life with detailed action figures. These collectibles capture the essence of the show’s heroes and villains. "
+title: 'Mr Robot Toy Collectibles: Must-Have Action Figures for Fans'
+description: 'Mr Robot toys bring your favorite TV characters to life with detailed
+  action figures. These collectibles capture the essence of the show’s heroes and
+  villains. '
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mr-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=mr-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Mr Robot toys bring your favorite TV characters to life with detailed action figures. These collectibles capture the essence of the show’s heroes and villains.**

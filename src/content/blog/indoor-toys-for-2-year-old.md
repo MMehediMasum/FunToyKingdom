@@ -1,10 +1,13 @@
 ---
-title: "Indoor Toys for 2 Year Old: Fun and Educational Picks"
-description: "Looking for the perfect indoor toys for your 2-year-old? You want something that keeps your little one happy, safe, and learning—all at the same time. Choosing "
+title: 'Indoor Toys for 2 Year Old: Fun and Educational Picks'
+description: 'Looking for the perfect indoor toys for your 2-year-old? You want something
+  that keeps your little one happy, safe, and learning—all at the same time. Choosing '
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=indoor-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Indoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=indoor-toys-for-2-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect indoor toys for your 2-year-old? You want something that keeps your little one happy, safe, and learning—all at the same time.**

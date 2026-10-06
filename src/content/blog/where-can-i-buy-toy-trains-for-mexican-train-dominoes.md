@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy Toy Trains for Mexican Train Dominoes: Top Picks"
-description: "Are you looking for the perfect toy trains to play Mexican Train Dominoes with your family and friends? Finding the right set can make your game nights more fun"
+title: 'Where Can I Buy Toy Trains for Mexican Train Dominoes: Top Picks'
+description: Are you looking for the perfect toy trains to play Mexican Train Dominoes
+  with your family and friends? Finding the right set can make your game nights more
+  fun
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-toy-trains-for-mexican-train-dominoes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Train Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-toy-trains-for-mexican-train-dominoes&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for the perfect toy trains to play Mexican Train Dominoes with your family and friends? Finding the right set can make your game nights more fun and exciting.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Wagon for Beach And Toddler: Top Foldable Strollers for Easy Travel"
-description: "Choosing the best wagon for beach trips with your toddler makes outings easier and more fun. A good wagon carries kids and gear safely on sand and rough paths. "
+title: 'Best Wagon for Beach And Toddler: Top Foldable Strollers for Easy Travel'
+description: 'Choosing the best wagon for beach trips with your toddler makes outings
+  easier and more fun. A good wagon carries kids and gear safely on sand and rough
+  paths. '
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wagon-for-beach-and-toddler-top-foldable-strollers-for-easy-travel&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Teething Toys For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=best-wagon-for-beach-and-toddler-top-foldable-strollers-for-easy-travel&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best wagon for beach trips with your toddler makes outings easier and more fun. A good wagon carries kids and gear safely on sand and rough paths.**

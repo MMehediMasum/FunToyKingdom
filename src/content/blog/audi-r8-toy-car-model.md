@@ -1,10 +1,14 @@
 ---
-title: "Audi R8 Toy Car Model: Ultimate Guide to Best Diecast & RC Cars"
-description: "The Audi R8 toy car model captures the sleek design of the real sports car in a small package. These detailed replicas offer fun and learning for kids and colle"
+title: 'Audi R8 Toy Car Model: Ultimate Guide to Best Diecast & RC Cars'
+description: The Audi R8 toy car model captures the sleek design of the real sports
+  car in a small package. These detailed replicas offer fun and learning for kids
+  and colle
 pubDate: 2026-02-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=audi-r8-toy-car-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=audi-r8-toy-car-model&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Audi R8 toy car model captures the sleek design of the real sports car in a small package. These detailed replicas offer fun and learning for kids and collectors alike.**

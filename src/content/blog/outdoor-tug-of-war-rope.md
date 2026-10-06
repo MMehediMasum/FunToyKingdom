@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Tug of War Rope: Ultimate Guide for Strength & Fun"
-description: "Are you ready to bring excitement and teamwork to your next outdoor gathering? An outdoor tug of war rope is exactly what you need to turn any event into a thri"
+title: 'Outdoor Tug of War Rope: Ultimate Guide for Strength & Fun'
+description: Are you ready to bring excitement and teamwork to your next outdoor gathering?
+  An outdoor tug of war rope is exactly what you need to turn any event into a thri
 pubDate: 2026-04-05
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-tug-of-war-rope&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-tug-of-war-rope&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to bring excitement and teamwork to your next outdoor gathering? An outdoor tug of war rope is exactly what you need to turn any event into a thrilling challenge.**

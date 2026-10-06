@@ -1,10 +1,14 @@
 ---
-title: "Rare Marvel Legends Action Figures: Ultimate Collectors’ Must-Haves"
-description: "If you're a Marvel fan or a collector, rare Marvel Legends action figures are more than just toys—they’re prized treasures. Imagine holding a figure that few ot"
+title: 'Rare Marvel Legends Action Figures: Ultimate Collectors’ Must-Haves'
+description: If you're a Marvel fan or a collector, rare Marvel Legends action figures
+  are more than just toys—they’re prized treasures. Imagine holding a figure that
+  few ot
 pubDate: 2025-09-06
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-marvel-legends-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=rare-marvel-legends-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you're a Marvel fan or a collector, rare Marvel Legends action figures are more than just toys—they’re prized treasures. Imagine holding a figure that few others own, one that can boost your collection’s value and make you the envy of every fan.**

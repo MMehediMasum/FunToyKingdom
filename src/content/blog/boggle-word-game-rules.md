@@ -1,10 +1,14 @@
 ---
-title: "Boggle Word Game Rules: Ultimate Guide to Master the Game"
-description: "Are you ready to challenge your mind and have fun at the same time? Knowing the Boggle word game rules is the first step to playing this exciting word search ga"
+title: 'Boggle Word Game Rules: Ultimate Guide to Master the Game'
+description: Are you ready to challenge your mind and have fun at the same time? Knowing
+  the Boggle word game rules is the first step to playing this exciting word search
+  ga
 pubDate: 2026-06-03
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=boggle-word-game-rules&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=boggle-word-game-rules&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to challenge your mind and have fun at the same time? Knowing the Boggle word game rules is the first step to playing this exciting word search game like a pro.**

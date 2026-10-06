@@ -1,10 +1,13 @@
 ---
-title: "Best Baby Dolls for 1 Year Old: Top Realistic and Safe Picks"
-description: "Choosing the best baby doll for a 1-year-old can be both fun and challenging. These dolls offer comfort, learning, and hours of imaginative play. Baby dolls hel"
+title: 'Best Baby Dolls for 1 Year Old: Top Realistic and Safe Picks'
+description: Choosing the best baby doll for a 1-year-old can be both fun and challenging.
+  These dolls offer comfort, learning, and hours of imaginative play. Baby dolls hel
 pubDate: 2025-11-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-baby-dolls-for-1-year-old-top-realistic-and-safe-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-baby-dolls-for-1-year-old-top-realistic-and-safe-picks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best baby doll for a 1-year-old can be both fun and challenging. These dolls offer comfort, learning, and hours of imaginative play.**

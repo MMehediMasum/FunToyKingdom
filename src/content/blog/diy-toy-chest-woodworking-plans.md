@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Chest Woodworking Plans: Easy, Stylish, and Budget-Friendly Ideas"
-description: "Are you looking for a fun and practical project that adds charm to your home and keeps your child's toys organized? Building your own toy chest is easier than y"
+title: 'Diy Toy Chest Woodworking Plans: Easy, Stylish, and Budget-Friendly Ideas'
+description: Are you looking for a fun and practical project that adds charm to your
+  home and keeps your child's toys organized? Building your own toy chest is easier
+  than y
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-chest-woodworking-plans&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-chest-woodworking-plans&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and practical project that adds charm to your home and keeps your child's toys organized? Building your own toy chest is easier than you think, especially with the right woodworking plans.**

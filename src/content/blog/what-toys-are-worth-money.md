@@ -1,10 +1,14 @@
 ---
-title: "What Toys are Worth Money: Ultimate Guide to Valuable Collectibles"
-description: "Have you ever wondered which toys in your collection could be hidden treasures? You might be sitting on a small fortune without even realizing it. Knowing what "
+title: 'What Toys are Worth Money: Ultimate Guide to Valuable Collectibles'
+description: 'Have you ever wondered which toys in your collection could be hidden
+  treasures? You might be sitting on a small fortune without even realizing it. Knowing
+  what '
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-are-worth-money&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-are-worth-money&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever wondered which toys in your collection could be hidden treasures? You might be sitting on a small fortune without even realizing it.**

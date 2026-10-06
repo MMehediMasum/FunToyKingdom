@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Pirate Ship Craft: Ultimate DIY Guide for Kids Fun"
-description: "Imagine creating a wooden toy pirate ship craft that brings adventure right into your home. This isn’t just any craft—it's a chance for you to build something u"
+title: 'Wooden Toy Pirate Ship Craft: Ultimate DIY Guide for Kids Fun'
+description: Imagine creating a wooden toy pirate ship craft that brings adventure
+  right into your home. This isn’t just any craft—it's a chance for you to build something
+  u
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-pirate-ship-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-pirate-ship-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a wooden toy pirate ship craft that brings adventure right into your home. This isn’t just any craft—it's a chance for you to build something unique, fun, and full of character.**

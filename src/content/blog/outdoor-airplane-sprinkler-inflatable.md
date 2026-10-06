@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Airplane Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Imagine turning your backyard into a fun, refreshing oasis that kids and adults will love all summer long. With an outdoor airplane sprinkler inflatable, you ge"
+title: 'Outdoor Airplane Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Imagine turning your backyard into a fun, refreshing oasis that kids
+  and adults will love all summer long. With an outdoor airplane sprinkler inflatable,
+  you ge
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-airplane-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Jeep Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-airplane-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a fun, refreshing oasis that kids and adults will love all summer long. With an outdoor airplane sprinkler inflatable, you get more than just a simple sprinkler—you get a playful centerpiece that brings excitement and cool water fun right to your doorstep.**

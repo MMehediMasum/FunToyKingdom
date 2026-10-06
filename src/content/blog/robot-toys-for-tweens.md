@@ -1,10 +1,14 @@
 ---
-title: "Robot Toys for Tweens: Top Picks for Fun & Learning in 2025"
-description: "Are you looking for the perfect gift that sparks your tween’s curiosity and creativity? Robot toys for tweens are more than just fun playthings—they’re a gatewa"
+title: 'Robot Toys for Tweens: Top Picks for Fun & Learning in 2025'
+description: Are you looking for the perfect gift that sparks your tween’s curiosity
+  and creativity? Robot toys for tweens are more than just fun playthings—they’re
+  a gatewa
 pubDate: 2026-03-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-toys-for-tweens&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=robot-toys-for-tweens&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for the perfect gift that sparks your tween’s curiosity and creativity? Robot toys for tweens are more than just fun playthings—they’re a gateway to learning and imagination.**

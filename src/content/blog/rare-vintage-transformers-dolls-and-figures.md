@@ -1,10 +1,14 @@
 ---
-title: "Rare Vintage Transformers Dolls And Figures: Ultimate Collector’s Guide"
-description: "Are you a fan of Transformers or a collector searching for something truly special? Rare vintage Transformers dolls and figures hold a unique charm that goes be"
+title: 'Rare Vintage Transformers Dolls And Figures: Ultimate Collector’s Guide'
+description: Are you a fan of Transformers or a collector searching for something
+  truly special? Rare vintage Transformers dolls and figures hold a unique charm that
+  goes be
 pubDate: 2025-12-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-vintage-transformers-dolls-and-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=rare-vintage-transformers-dolls-and-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Transformers or a collector searching for something truly special? Rare vintage Transformers dolls and figures hold a unique charm that goes beyond just toys.**

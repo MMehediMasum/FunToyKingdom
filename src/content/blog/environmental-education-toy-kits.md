@@ -1,10 +1,14 @@
 ---
-title: "Environmental Education Toy Kits: Inspire Young Eco Heroes Today"
-description: "Are you looking for a fun and meaningful way to teach your kids about the environment? Environmental education toy kits could be exactly what you need. These ki"
+title: 'Environmental Education Toy Kits: Inspire Young Eco Heroes Today'
+description: Are you looking for a fun and meaningful way to teach your kids about
+  the environment? Environmental education toy kits could be exactly what you need.
+  These ki
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=environmental-education-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=environmental-education-toy-kits&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and meaningful way to teach your kids about the environment? Environmental education toy kits could be exactly what you need.**

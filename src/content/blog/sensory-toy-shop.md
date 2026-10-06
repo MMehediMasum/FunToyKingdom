@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toy Shop: Top Fidget Toys for Stress Relief and Autism"
-description: "Sensory Toy Shop offers a diverse range of toys designed to stimulate and soothe. Perfect for children and adults alike. In today's fast-paced world, everyone s"
+title: 'Sensory Toy Shop: Top Fidget Toys for Stress Relief and Autism'
+description: Sensory Toy Shop offers a diverse range of toys designed to stimulate
+  and soothe. Perfect for children and adults alike. In today's fast-paced world,
+  everyone s
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toy-shop&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toy-shop&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory Toy Shop offers a diverse range of toys designed to stimulate and soothe. Perfect for children and adults alike.**

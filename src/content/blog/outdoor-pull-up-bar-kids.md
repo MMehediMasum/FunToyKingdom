@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Pull Up Bar Kids: Ultimate Fun & Fitness Guide"
-description: "Looking for a fun and healthy way to keep your kids active outdoors? An outdoor pull up bar for kids could be just what you need. It’s more than just a piece of"
+title: 'Outdoor Pull Up Bar Kids: Ultimate Fun & Fitness Guide'
+description: Looking for a fun and healthy way to keep your kids active outdoors?
+  An outdoor pull up bar for kids could be just what you need. It’s more than just
+  a piece of
 pubDate: 2025-11-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-pull-up-bar-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-pull-up-bar-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and healthy way to keep your kids active outdoors? An outdoor pull up bar for kids could be just what you need.**

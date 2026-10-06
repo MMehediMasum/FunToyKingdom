@@ -1,10 +1,14 @@
 ---
-title: "How to Win Chess Quickly: Proven Strategies to Dominate Fast"
-description: "Are you tired of long, drawn-out chess games that test your patience? Imagine winning your next match quickly, with smart moves that leave your opponent stunned"
+title: 'How to Win Chess Quickly: Proven Strategies to Dominate Fast'
+description: Are you tired of long, drawn-out chess games that test your patience?
+  Imagine winning your next match quickly, with smart moves that leave your opponent
+  stunned
 pubDate: 2025-10-13
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-win-chess-quickly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=how-to-win-chess-quickly&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you tired of long, drawn-out chess games that test your patience? Imagine winning your next match quickly, with smart moves that leave your opponent stunned.**

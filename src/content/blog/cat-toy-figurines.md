@@ -1,10 +1,14 @@
 ---
-title: "Cat Toy Figurines: Perfect Miniature Playsets for Kids’ Imaginative Fun"
-description: "Cat toy figurines bring fun and learning to children through playful, realistic cat models. These small, detailed figures serve as toys, decorations, and educat"
+title: 'Cat Toy Figurines: Perfect Miniature Playsets for Kids’ Imaginative Fun'
+description: Cat toy figurines bring fun and learning to children through playful,
+  realistic cat models. These small, detailed figures serve as toys, decorations,
+  and educat
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cat-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=cat-toy-figurines&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Cat toy figurines bring fun and learning to children through playful, realistic cat models. These small, detailed figures serve as toys, decorations, and educational tools.**

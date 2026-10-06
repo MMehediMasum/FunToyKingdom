@@ -1,10 +1,14 @@
 ---
-title: "Lego Speed Champions Porsche 963 Model Race Car Toy 76916 Review & Features"
-description: "The LEGO Speed Champions Porsche 963 Model Race Car Toy 76916 captures the thrill of racing in a compact build. This set offers an exciting challenge for builde"
+title: Lego Speed Champions Porsche 963 Model Race Car Toy 76916 Review & Features
+description: The LEGO Speed Champions Porsche 963 Model Race Car Toy 76916 captures
+  the thrill of racing in a compact build. This set offers an exciting challenge for
+  builde
 pubDate: 2026-08-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-speed-champions-porsche-963-model-race-car-toy-76916&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- LEGO Sets For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=lego-speed-champions-porsche-963-model-race-car-toy-76916&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The LEGO Speed Champions Porsche 963 Model Race Car Toy 76916 captures the thrill of racing in a compact build. This set offers an exciting challenge for builders and car fans alike.**

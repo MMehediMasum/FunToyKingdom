@@ -1,10 +1,13 @@
 ---
-title: "Rc Boat With Waterproof Body: Ultimate Guide to Durable Fun"
-description: "Are you ready to take your RC boating experience to the next level? Imagine having an RC boat with a waterproof body that lets you glide across the water withou"
+title: 'Rc Boat With Waterproof Body: Ultimate Guide to Durable Fun'
+description: Are you ready to take your RC boating experience to the next level? Imagine
+  having an RC boat with a waterproof body that lets you glide across the water withou
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-boat-with-waterproof-body&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Boat Outdoor Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-boat-with-waterproof-body&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC boating experience to the next level? Imagine having an RC boat with a waterproof body that lets you glide across the water without worrying about damage.**

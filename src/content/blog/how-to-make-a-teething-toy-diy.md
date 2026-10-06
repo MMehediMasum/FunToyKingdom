@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Teething Toy Diy: Easy & Safe Guide for Parents"
-description: "Are you looking for a safe and fun way to soothe your baby’s sore gums? Making a teething toy yourself is easier than you think. You can create something soft, "
+title: 'How to Make a Teething Toy Diy: Easy & Safe Guide for Parents'
+description: 'Are you looking for a safe and fun way to soothe your baby’s sore gums?
+  Making a teething toy yourself is easier than you think. You can create something
+  soft, '
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-teething-toy-diy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-teething-toy-diy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a safe and fun way to soothe your baby’s sore gums? Making a teething toy yourself is easier than you think.**

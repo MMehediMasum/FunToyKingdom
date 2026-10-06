@@ -1,10 +1,14 @@
 ---
-title: "Toy Soldier Review Blogs: Ultimate Insights for Collectors"
-description: "Are you a fan of toy soldiers or looking to start a collection? Finding honest and detailed reviews can be tough. You want to know which brands offer the best q"
+title: 'Toy Soldier Review Blogs: Ultimate Insights for Collectors'
+description: Are you a fan of toy soldiers or looking to start a collection? Finding
+  honest and detailed reviews can be tough. You want to know which brands offer the
+  best q
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-soldier-review-blogs&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Soldier Costume
+heroImage: https://tse1.mm.bing.net/th?q=toy-soldier-review-blogs&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you a fan of toy soldiers or looking to start a collection? Finding honest and detailed reviews can be tough.**

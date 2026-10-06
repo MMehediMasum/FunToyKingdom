@@ -1,10 +1,14 @@
 ---
-title: "Coding Stem Toys: Top Interactive Robotics and Programming Kits for Kids"
-description: "Coding STEM toys offer interactive ways for kids to learn programming. These toys blend fun with education, making coding accessible for young minds. They cater"
+title: 'Coding Stem Toys: Top Interactive Robotics and Programming Kits for Kids'
+description: Coding STEM toys offer interactive ways for kids to learn programming.
+  These toys blend fun with education, making coding accessible for young minds. They
+  cater
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-stem-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-stem-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Coding STEM toys offer interactive ways for kids to learn programming. These toys blend fun with education, making coding accessible for young minds.**

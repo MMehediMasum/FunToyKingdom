@@ -1,10 +1,13 @@
 ---
-title: "Remote Control Alligator Prank Toy: Ultimate Fun for Everyone!"
-description: "Imagine the look on your friends’ faces when a lifelike alligator suddenly appears and starts moving right before their eyes. With the Remote Control Alligator "
+title: 'Remote Control Alligator Prank Toy: Ultimate Fun for Everyone!'
+description: 'Imagine the look on your friends’ faces when a lifelike alligator suddenly
+  appears and starts moving right before their eyes. With the Remote Control Alligator '
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-alligator-prank-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-alligator-prank-toy&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine the look on your friends’ faces when a lifelike alligator suddenly appears and starts moving right before their eyes. With the Remote Control Alligator Prank Toy, you hold the power to create unforgettable moments of surprise and laughter.**

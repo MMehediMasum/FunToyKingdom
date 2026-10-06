@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Tractor: Easy Steps for a Fun Handmade Craft"
-description: "Imagine giving your child a unique, handcrafted toy that sparks imagination and hours of fun. A DIY wooden toy tractor isn’t just a plaything—it’s a chance for "
+title: 'Diy Wooden Toy Tractor: Easy Steps for a Fun Handmade Craft'
+description: 'Imagine giving your child a unique, handcrafted toy that sparks imagination
+  and hours of fun. A DIY wooden toy tractor isn’t just a plaything—it’s a chance
+  for '
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-tractor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-tractor&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a unique, handcrafted toy that sparks imagination and hours of fun. A DIY wooden toy tractor isn’t just a plaything—it’s a chance for you to create something special with your own hands.**

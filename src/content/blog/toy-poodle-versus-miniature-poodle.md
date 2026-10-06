@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Poodle Versus Miniature Poodle: Which Poodle Toy Is Best?"
 description: "Toy Poodles and Miniature Poodles are often confused due to their similar names and appearance. Yet, they have distinct traits. Toy Poodles and Miniature Poodle"
 pubDate: 2026-08-21

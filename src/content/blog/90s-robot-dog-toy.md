@@ -1,10 +1,14 @@
 ---
-title: "90'S Robot Dog Toy: Ultimate Interactive RC Pet for Kids and Adults"
-description: "Robot dog toys from the 90s remain a beloved part of many childhoods. These smart, interactive pets combined fun with technology in a unique way. Back in the 90"
+title: '90''S Robot Dog Toy: Ultimate Interactive RC Pet for Kids and Adults'
+description: Robot dog toys from the 90s remain a beloved part of many childhoods.
+  These smart, interactive pets combined fun with technology in a unique way. Back
+  in the 90
 pubDate: 2026-09-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=90s-robot-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=90s-robot-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot dog toys from the 90s remain a beloved part of many childhoods. These smart, interactive pets combined fun with technology in a unique way.**

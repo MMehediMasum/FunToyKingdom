@@ -1,10 +1,14 @@
 ---
-title: "Diy Stuffed Toy Cat Sewing Pattern: Easy & Adorable Craft Guide"
-description: "Are you looking for a fun and creative project that brings a smile to your face? Making your own stuffed toy cat is easier than you think, especially with the r"
+title: 'Diy Stuffed Toy Cat Sewing Pattern: Easy & Adorable Craft Guide'
+description: Are you looking for a fun and creative project that brings a smile to
+  your face? Making your own stuffed toy cat is easier than you think, especially
+  with the r
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-stuffed-toy-cat-sewing-pattern&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Stuffed Animals
+heroImage: https://tse1.mm.bing.net/th?q=diy-stuffed-toy-cat-sewing-pattern&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and creative project that brings a smile to your face? Making your own stuffed toy cat is easier than you think, especially with the right sewing pattern.**

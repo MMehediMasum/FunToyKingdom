@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Play Dome With Slide: Ultimate Fun for Kids Outdoors"
-description: "Imagine turning your backyard into the ultimate fun zone where your kids can climb, slide, and play for hours. An outdoor play dome with slide isn’t just a toy—"
+title: 'Outdoor Play Dome With Slide: Ultimate Fun for Kids Outdoors'
+description: Imagine turning your backyard into the ultimate fun zone where your kids
+  can climb, slide, and play for hours. An outdoor play dome with slide isn’t just
+  a toy—
 pubDate: 2026-04-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-play-dome-with-slide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-play-dome-with-slide&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into the ultimate fun zone where your kids can climb, slide, and play for hours. An outdoor play dome with slide isn’t just a toy—it’s a gateway to adventure, exercise, and endless laughter.**

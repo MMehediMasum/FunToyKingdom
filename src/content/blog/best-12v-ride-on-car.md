@@ -1,10 +1,13 @@
 ---
-title: "Best 12V Ride on Car: Top Picks for Kids’ Ultimate Fun"
-description: "Looking for the best 12V ride on car to make your child’s playtime unforgettable? You want something safe, fun, and easy to use. Choosing the right ride on car "
+title: 'Best 12V Ride on Car: Top Picks for Kids’ Ultimate Fun'
+description: 'Looking for the best 12V ride on car to make your child’s playtime unforgettable?
+  You want something safe, fun, and easy to use. Choosing the right ride on car '
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-12v-ride-on-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-12v-ride-on-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the best 12V ride on car to make your child’s playtime unforgettable? You want something safe, fun, and easy to use.**

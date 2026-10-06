@@ -1,10 +1,14 @@
 ---
-title: "Is the Liquid Inside Squishy Toys Toxic to Humans? Shocking Facts Revealed!"
-description: "Have you ever squeezed a squishy toy and wondered what’s inside that soft, squishy center? You might be surprised to learn that the liquid inside these toys cou"
+title: Is the Liquid Inside Squishy Toys Toxic to Humans? Shocking Facts Revealed!
+description: Have you ever squeezed a squishy toy and wondered what’s inside that
+  soft, squishy center? You might be surprised to learn that the liquid inside these
+  toys cou
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-the-liquid-inside-squishy-toys-toxic-to-humans&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=is-the-liquid-inside-squishy-toys-toxic-to-humans&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever squeezed a squishy toy and wondered what’s inside that soft, squishy center? You might be surprised to learn that the liquid inside these toys could affect your health.**

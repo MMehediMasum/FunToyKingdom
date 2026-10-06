@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Pizza Oven Kids Toy: Fun, Safe & Creative Playtime Ideas"
-description: "Imagine your kids having endless fun while learning to cook their favorite pizzas right in your backyard. The Outdoor Pizza Oven Kids Toy is more than just a pl"
+title: 'Outdoor Pizza Oven Kids Toy: Fun, Safe & Creative Playtime Ideas'
+description: Imagine your kids having endless fun while learning to cook their favorite
+  pizzas right in your backyard. The Outdoor Pizza Oven Kids Toy is more than just
+  a pl
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-pizza-oven-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-pizza-oven-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids having endless fun while learning to cook their favorite pizzas right in your backyard. The Outdoor Pizza Oven Kids Toy is more than just a plaything—it’s a chance to spark creativity, build confidence, and create unforgettable family moments.**

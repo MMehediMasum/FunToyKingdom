@@ -1,10 +1,14 @@
 ---
-title: "Hess Truck 60Th Anniversary Edition: Ultimate Collector’s Must-Have Toy"
-description: "The Hess Truck 60th Anniversary Edition celebrates six decades of classic toy trucks. It honors the original 1964 Hess Toy Truck with a special design. Hess tru"
+title: 'Hess Truck 60Th Anniversary Edition: Ultimate Collector’s Must-Have Toy'
+description: The Hess Truck 60th Anniversary Edition celebrates six decades of classic
+  toy trucks. It honors the original 1964 Hess Toy Truck with a special design. Hess
+  tru
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hess-truck-60th-anniversary-edition&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Safe Chew Toys For Puppies
+heroImage: https://tse1.mm.bing.net/th?q=hess-truck-60th-anniversary-edition&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **The Hess Truck 60th Anniversary Edition celebrates six decades of classic toy trucks. It honors the original 1964 Hess Toy Truck with a special design.**

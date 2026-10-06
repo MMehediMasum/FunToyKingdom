@@ -1,10 +1,14 @@
 ---
-title: "How to Sew a Plush Toy at Home: Easy Steps for Adorable Creations"
-description: "Have you ever wanted to create a soft, cuddly friend all by yourself? Sewing a plush toy at home is easier than you think, and it’s a fun way to bring your crea"
+title: 'How to Sew a Plush Toy at Home: Easy Steps for Adorable Creations'
+description: Have you ever wanted to create a soft, cuddly friend all by yourself?
+  Sewing a plush toy at home is easier than you think, and it’s a fun way to bring
+  your crea
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-a-plush-toy-at-home&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Plush Toy At
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-a-plush-toy-at-home&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to create a soft, cuddly friend all by yourself? Sewing a plush toy at home is easier than you think, and it’s a fun way to bring your creativity to life.**

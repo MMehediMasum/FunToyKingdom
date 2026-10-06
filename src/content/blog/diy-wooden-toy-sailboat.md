@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Sailboat: Easy Steps to Craft a Charming Classic"
-description: "Are you looking for a fun and creative project that brings joy to both you and your kids? Making a DIY wooden toy sailboat is the perfect way to spend quality t"
+title: 'Diy Wooden Toy Sailboat: Easy Steps to Craft a Charming Classic'
+description: Are you looking for a fun and creative project that brings joy to both
+  you and your kids? Making a DIY wooden toy sailboat is the perfect way to spend
+  quality t
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-sailboat&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-sailboat&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to both you and your kids? Making a DIY wooden toy sailboat is the perfect way to spend quality time while crafting something special.**

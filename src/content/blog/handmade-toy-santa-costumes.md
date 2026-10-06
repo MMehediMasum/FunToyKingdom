@@ -1,10 +1,14 @@
 ---
-title: "Handmade Toy Santa Costumes: Unique Festive Outfits for Kids"
-description: "Are you looking to make your little one’s holiday season truly magical? Handmade Toy Santa Costumes are the perfect way to bring joy and charm to your festive c"
+title: 'Handmade Toy Santa Costumes: Unique Festive Outfits for Kids'
+description: Are you looking to make your little one’s holiday season truly magical?
+  Handmade Toy Santa Costumes are the perfect way to bring joy and charm to your festive
+  c
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-toy-santa-costumes&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Crowns
+heroImage: https://tse1.mm.bing.net/th?q=handmade-toy-santa-costumes&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking to make your little one’s holiday season truly magical? Handmade Toy Santa Costumes are the perfect way to bring joy and charm to your festive celebrations.**

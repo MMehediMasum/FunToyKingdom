@@ -1,10 +1,14 @@
 ---
-title: "Christmas Toy Trivia: Ultimate Holiday Game for Family Fun and Laughter"
-description: "Christmas Toy Trivia brings fun and facts about favorite holiday toys. Test your knowledge with questions from classic to modern toys. This trivia game offers o"
+title: 'Christmas Toy Trivia: Ultimate Holiday Game for Family Fun and Laughter'
+description: Christmas Toy Trivia brings fun and facts about favorite holiday toys.
+  Test your knowledge with questions from classic to modern toys. This trivia game
+  offers o
 pubDate: 2026-08-13
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=christmas-toy-trivia&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=christmas-toy-trivia&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Christmas Toy Trivia brings fun and facts about favorite holiday toys. Test your knowledge with questions from classic to modern toys.**

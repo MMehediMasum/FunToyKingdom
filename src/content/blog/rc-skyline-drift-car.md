@@ -1,10 +1,14 @@
 ---
-title: "Rc Skyline Drift Car: Ultimate Guide to Mastering the Drift"
-description: "Are you ready to take your passion for RC cars to the next level? The RC Skyline Drift Car is not just any remote-controlled vehicle—it’s designed to give you t"
+title: 'Rc Skyline Drift Car: Ultimate Guide to Mastering the Drift'
+description: Are you ready to take your passion for RC cars to the next level? The
+  RC Skyline Drift Car is not just any remote-controlled vehicle—it’s designed to
+  give you t
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-skyline-drift-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-skyline-drift-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your passion for RC cars to the next level? The RC Skyline Drift Car is not just any remote-controlled vehicle—it’s designed to give you the thrill of real drifting right in your hands.**

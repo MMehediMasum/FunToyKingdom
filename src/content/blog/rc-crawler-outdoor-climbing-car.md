@@ -1,10 +1,14 @@
 ---
-title: "Rc Crawler Outdoor Climbing Car: Ultimate Adventure Machine"
-description: "Are you ready to take your RC car adventures to a whole new level? The RC Crawler Outdoor Climbing Car is designed to conquer rough terrains and steep hills wit"
+title: 'Rc Crawler Outdoor Climbing Car: Ultimate Adventure Machine'
+description: Are you ready to take your RC car adventures to a whole new level? The
+  RC Crawler Outdoor Climbing Car is designed to conquer rough terrains and steep
+  hills wit
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-crawler-outdoor-climbing-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=rc-crawler-outdoor-climbing-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your RC car adventures to a whole new level? The RC Crawler Outdoor Climbing Car is designed to conquer rough terrains and steep hills with ease.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With Camera Hd: Ultimate Guide to Stunning Aerial Shots"
-description: "Are you ready to take your drone experience to the next level? An RC drone with a HD camera lets you capture stunning aerial shots and videos like never before."
+title: 'Rc Drone With Camera Hd: Ultimate Guide to Stunning Aerial Shots'
+description: Are you ready to take your drone experience to the next level? An RC
+  drone with a HD camera lets you capture stunning aerial shots and videos like never
+  before.
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-camera-hd&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Mini Toy Drone With Camera
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-camera-hd&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your drone experience to the next level? An RC drone with a HD camera lets you capture stunning aerial shots and videos like never before.**

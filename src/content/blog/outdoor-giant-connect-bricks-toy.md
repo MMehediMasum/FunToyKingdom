@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Giant Connect Bricks Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine giving your child a toy that sparks creativity, encourages active play, and keeps them entertained for hours—right in your backyard. The Outdoor Giant C"
+title: 'Outdoor Giant Connect Bricks Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine giving your child a toy that sparks creativity, encourages active
+  play, and keeps them entertained for hours—right in your backyard. The Outdoor Giant
+  C
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-giant-connect-bricks-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-giant-connect-bricks-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages active play, and keeps them entertained for hours—right in your backyard. The Outdoor Giant Connect Bricks Toy is exactly that kind of game-changer.**

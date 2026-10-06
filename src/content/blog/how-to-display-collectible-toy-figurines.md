@@ -1,10 +1,14 @@
 ---
-title: "How to Display Collectible Toy Figurines: Stunning Ideas That Wow"
-description: "Are you tired of your collectible toy figurines sitting in a dusty box, hidden away from view? Your collection deserves to be seen and admired every day. Displa"
+title: 'How to Display Collectible Toy Figurines: Stunning Ideas That Wow'
+description: Are you tired of your collectible toy figurines sitting in a dusty box,
+  hidden away from view? Your collection deserves to be seen and admired every day.
+  Displa
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-display-collectible-toy-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=how-to-display-collectible-toy-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you tired of your collectible toy figurines sitting in a dusty box, hidden away from view? Your collection deserves to be seen and admired every day.**

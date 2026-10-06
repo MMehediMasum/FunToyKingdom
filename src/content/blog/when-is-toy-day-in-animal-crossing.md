@@ -1,10 +1,14 @@
 ---
-title: "When is Toy Day in Animal Crossing: Ultimate Date Guide 2025"
-description: "Are you ready to bring some festive fun to your Animal Crossing island? Toy Day is one of the most exciting events in the game, but do you know exactly when it "
+title: 'When is Toy Day in Animal Crossing: Ultimate Date Guide 2025'
+description: 'Are you ready to bring some festive fun to your Animal Crossing island?
+  Toy Day is one of the most exciting events in the game, but do you know exactly
+  when it '
 pubDate: 2026-01-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=when-is-toy-day-in-animal-crossing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=when-is-toy-day-in-animal-crossing&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you ready to bring some festive fun to your Animal Crossing island? Toy Day is one of the most exciting events in the game, but do you know exactly when it happens?**

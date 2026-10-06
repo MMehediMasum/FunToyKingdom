@@ -1,10 +1,14 @@
 ---
-title: "Cars Mack Hauler Toy: Ultimate Transporter for Disney Pixar Fans"
-description: "The Cars Mack Hauler Toy series brings excitement to kids and collectors alike. These toys capture the essence of the Cars movies with incredible detail and fun"
+title: 'Cars Mack Hauler Toy: Ultimate Transporter for Disney Pixar Fans'
+description: The Cars Mack Hauler Toy series brings excitement to kids and collectors
+  alike. These toys capture the essence of the Cars movies with incredible detail
+  and fun
 pubDate: 2026-01-30
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-mack-hauler-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=cars-mack-hauler-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Cars Mack Hauler Toy series brings excitement to kids and collectors alike. These toys capture the essence of the Cars movies with incredible detail and functionality.**

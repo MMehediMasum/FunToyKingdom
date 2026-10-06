@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Harness Set for Kids Climbing: Ultimate Safety & Fun Guide"
-description: "Are you looking for the perfect outdoor harness set for your kids to enjoy climbing safely? Choosing the right gear can make all the difference between a fun ad"
+title: 'Outdoor Harness Set for Kids Climbing: Ultimate Safety & Fun Guide'
+description: Are you looking for the perfect outdoor harness set for your kids to
+  enjoy climbing safely? Choosing the right gear can make all the difference between
+  a fun ad
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-harness-set-for-kids-climbing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-harness-set-for-kids-climbing&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect outdoor harness set for your kids to enjoy climbing safely? Choosing the right gear can make all the difference between a fun adventure and a stressful experience.**

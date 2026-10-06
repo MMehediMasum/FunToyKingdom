@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Get Toys for Free: Top Secret Tips Revealed!"
-description: "Are you looking to find toys for free without spending a dime? Whether you want to surprise your kids, find gifts for friends, or add to your collection, knowin"
+title: 'Where Can I Get Toys for Free: Top Secret Tips Revealed!'
+description: Are you looking to find toys for free without spending a dime? Whether
+  you want to surprise your kids, find gifts for friends, or add to your collection,
+  knowin
 pubDate: 2025-10-22
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-get-toys-for-free&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-get-toys-for-free&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking to find toys for free without spending a dime? Whether you want to surprise your kids, find gifts for friends, or add to your collection, knowing where to get toys for free can save you money and bring joy.**

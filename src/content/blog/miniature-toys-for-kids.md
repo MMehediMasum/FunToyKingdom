@@ -1,10 +1,14 @@
 ---
-title: "Miniature Toys for Kids: Top Fun Squishies, Cars & Animal Sets"
-description: "Miniature toys for kids spark imagination and encourage creative play. These small, detailed toys fit perfectly in little hands and offer endless fun. Miniature"
+title: 'Miniature Toys for Kids: Top Fun Squishies, Cars & Animal Sets'
+description: Miniature toys for kids spark imagination and encourage creative play.
+  These small, detailed toys fit perfectly in little hands and offer endless fun.
+  Miniature
 pubDate: 2026-02-14
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-toys-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=miniature-toys-for-kids&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Miniature toys for kids spark imagination and encourage creative play. These small, detailed toys fit perfectly in little hands and offer endless fun.**

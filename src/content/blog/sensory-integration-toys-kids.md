@@ -1,10 +1,14 @@
 ---
-title: "Sensory Integration Toys Kids Love for Anxiety, Autism, and Focus Boost"
-description: "Sensory integration toys help kids with ADD, OCD, and autism manage stress and anxiety. These toys are essential for calming and focus. Kids need tools that pro"
+title: Sensory Integration Toys Kids Love for Anxiety, Autism, and Focus Boost
+description: Sensory integration toys help kids with ADD, OCD, and autism manage stress
+  and anxiety. These toys are essential for calming and focus. Kids need tools that
+  pro
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-integration-toys-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=sensory-integration-toys-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory integration toys help kids with ADD, OCD, and autism manage stress and anxiety. These toys are essential for calming and focus.**

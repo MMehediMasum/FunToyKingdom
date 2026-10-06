@@ -1,10 +1,14 @@
 ---
-title: "Interactive Dog Toys for Puppies: Top Picks for Fun & Brain Stimulation"
-description: "Puppies need mental and physical stimulation to thrive. Interactive dog toys are perfect for keeping them entertained and healthy. Interactive dog toys are esse"
+title: 'Interactive Dog Toys for Puppies: Top Picks for Fun & Brain Stimulation'
+description: Puppies need mental and physical stimulation to thrive. Interactive dog
+  toys are perfect for keeping them entertained and healthy. Interactive dog toys
+  are esse
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=interactive-dog-toys-for-puppies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=interactive-dog-toys-for-puppies&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Puppies need mental and physical stimulation to thrive. Interactive dog toys are perfect for keeping them entertained and healthy.**

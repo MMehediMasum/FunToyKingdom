@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Hauler Porch Kit Ideas to Enhance Your Outdoor Adventure Space"
 description: "Exploring the world of toy hauler porch kits can enhance your outdoor adventure experience. These kits offer versatile extensions for your hauler, creating a co"
 pubDate: 2026-08-30

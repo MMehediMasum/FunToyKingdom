@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Doll Cradle: Easy, Fun, and Eco-Friendly Craft!"
-description: "Looking for a fun and creative project you can do at home? Your kids will love a DIY cardboard toy doll cradle, and you’ll enjoy making it together. Imagine tur"
+title: 'Diy Cardboard Toy Doll Cradle: Easy, Fun, and Eco-Friendly Craft!'
+description: Looking for a fun and creative project you can do at home? Your kids
+  will love a DIY cardboard toy doll cradle, and you’ll enjoy making it together.
+  Imagine tur
 pubDate: 2026-05-19
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-doll-cradle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-doll-cradle&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Looking for a fun and creative project you can do at home? Your kids will love a DIY cardboard toy doll cradle, and you’ll enjoy making it together.**

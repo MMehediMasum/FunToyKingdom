@@ -1,10 +1,14 @@
 ---
-title: "Kids Hoverboard Outdoor Toy: Ultimate Fun for Active Playtime"
-description: "Looking for a fun and exciting way to get your kids outside and moving? A kids hoverboard outdoor toy might be just what you need. Imagine your child gliding sm"
+title: 'Kids Hoverboard Outdoor Toy: Ultimate Fun for Active Playtime'
+description: Looking for a fun and exciting way to get your kids outside and moving?
+  A kids hoverboard outdoor toy might be just what you need. Imagine your child gliding
+  sm
 pubDate: 2026-05-29
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-hoverboard-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=kids-hoverboard-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to get your kids outside and moving? A kids hoverboard outdoor toy might be just what you need.**

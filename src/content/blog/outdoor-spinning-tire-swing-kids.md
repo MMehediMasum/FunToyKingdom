@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Spinning Tire Swing Kids: Ultimate Fun & Safety Guide"
-description: "Looking for a fun and exciting way to keep your kids active outdoors? An outdoor spinning tire swing might be just what you need. Imagine your children laughing"
+title: 'Outdoor Spinning Tire Swing Kids: Ultimate Fun & Safety Guide'
+description: Looking for a fun and exciting way to keep your kids active outdoors?
+  An outdoor spinning tire swing might be just what you need. Imagine your children
+  laughing
 pubDate: 2026-03-26
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-spinning-tire-swing-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-spinning-tire-swing-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to keep your kids active outdoors? An outdoor spinning tire swing might be just what you need.**

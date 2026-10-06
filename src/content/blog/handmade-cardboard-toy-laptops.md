@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Laptops: Creative Fun for Kids"
-description: "Have you ever wondered how to spark creativity and learning in your child without relying on screens or expensive gadgets? Handmade cardboard toy laptops could "
+title: 'Handmade Cardboard Toy Laptops: Creative Fun for Kids'
+description: 'Have you ever wondered how to spark creativity and learning in your
+  child without relying on screens or expensive gadgets? Handmade cardboard toy laptops
+  could '
 pubDate: 2026-07-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-laptops&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-laptops&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how to spark creativity and learning in your child without relying on screens or expensive gadgets? Handmade cardboard toy laptops could be the perfect answer for you.**

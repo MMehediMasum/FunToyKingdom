@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Racetrack: Ultimate Guide to Fun & Creativity"
-description: "Imagine turning simple cardboard into hours of fun for you and your kids. A DIY cardboard toy racetrack is not just a creative project—it’s a way to bring excit"
+title: 'Diy Cardboard Toy Racetrack: Ultimate Guide to Fun & Creativity'
+description: Imagine turning simple cardboard into hours of fun for you and your kids.
+  A DIY cardboard toy racetrack is not just a creative project—it’s a way to bring
+  excit
 pubDate: 2026-07-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-racetrack&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-racetrack&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine turning simple cardboard into hours of fun for you and your kids. A DIY cardboard toy racetrack is not just a creative project—it’s a way to bring excitement right into your home.**

@@ -1,10 +1,14 @@
 ---
-title: "Rare Disney Toy Figurines for Collectors: Ultimate Must-Have Guide"
-description: "Are you a Disney fan who loves collecting toys? Imagine owning rare Disney toy figurines that not only bring magic to your shelf but also grow in value over tim"
+title: 'Rare Disney Toy Figurines for Collectors: Ultimate Must-Have Guide'
+description: Are you a Disney fan who loves collecting toys? Imagine owning rare Disney
+  toy figurines that not only bring magic to your shelf but also grow in value over
+  tim
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-disney-toy-figurines-for-collectors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toy Dog Figurines
+heroImage: https://tse1.mm.bing.net/th?q=rare-disney-toy-figurines-for-collectors&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Disney fan who loves collecting toys? Imagine owning rare Disney toy figurines that not only bring magic to your shelf but also grow in value over time.**

@@ -1,10 +1,14 @@
 ---
-title: "Rc Lamborghini Toy Car: Ultimate Guide to Speed and Fun"
-description: "Imagine holding the thrill of a Lamborghini right in your hands. With an RC Lamborghini toy car, you don’t just watch speed—you control it. Whether you’re a car"
+title: 'Rc Lamborghini Toy Car: Ultimate Guide to Speed and Fun'
+description: Imagine holding the thrill of a Lamborghini right in your hands. With
+  an RC Lamborghini toy car, you don’t just watch speed—you control it. Whether you’re
+  a car
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-lamborghini-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Drift Car Toy
+heroImage: https://tse1.mm.bing.net/th?q=rc-lamborghini-toy-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine holding the thrill of a Lamborghini right in your hands. With an RC Lamborghini toy car, you don’t just watch speed—you control it.**

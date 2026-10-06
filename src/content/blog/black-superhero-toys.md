@@ -1,10 +1,14 @@
 ---
-title: "Black Superhero Toys: Top Marvel & DC Action Figures for Kids"
-description: "Black superhero toys inspire kids by celebrating powerful heroes of color. These figures bring favorite characters like Black Panther and Black Lightning to lif"
+title: 'Black Superhero Toys: Top Marvel & DC Action Figures for Kids'
+description: Black superhero toys inspire kids by celebrating powerful heroes of color.
+  These figures bring favorite characters like Black Panther and Black Lightning to
+  lif
 pubDate: 2026-02-15
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-superhero-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=black-superhero-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Black superhero toys inspire kids by celebrating powerful heroes of color. These figures bring favorite characters like Black Panther and Black Lightning to life.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Sailboat Inflatable Toy: Ultimate Fun for Summer Adventures"
-description: "Imagine the perfect way to add fun and excitement to your outdoor adventures this summer. An outdoor sailboat inflatable toy isn’t just a colorful float—it’s yo"
+title: 'Outdoor Sailboat Inflatable Toy: Ultimate Fun for Summer Adventures'
+description: Imagine the perfect way to add fun and excitement to your outdoor adventures
+  this summer. An outdoor sailboat inflatable toy isn’t just a colorful float—it’s
+  yo
 pubDate: 2026-07-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-sailboat-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-sailboat-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine the perfect way to add fun and excitement to your outdoor adventures this summer. An outdoor sailboat inflatable toy isn’t just a colorful float—it’s your ticket to endless hours of laughter and relaxation on the water.**

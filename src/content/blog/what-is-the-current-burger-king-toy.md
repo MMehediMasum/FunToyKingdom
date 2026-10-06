@@ -1,10 +1,14 @@
 ---
-title: "What is the Current Burger King Toy: Exciting Collectibles Revealed"
-description: "Are you curious about the latest Burger King toy that’s making kids and collectors excited? Finding out what’s new can make your next visit to Burger King even "
+title: 'What is the Current Burger King Toy: Exciting Collectibles Revealed'
+description: 'Are you curious about the latest Burger King toy that’s making kids
+  and collectors excited? Finding out what’s new can make your next visit to Burger
+  King even '
 pubDate: 2025-10-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-current-burger-king-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Burger King Toy Promotions
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-current-burger-king-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you curious about the latest Burger King toy that’s making kids and collectors excited? Finding out what’s new can make your next visit to Burger King even more fun.**

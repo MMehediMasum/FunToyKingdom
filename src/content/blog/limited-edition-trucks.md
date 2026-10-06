@@ -1,10 +1,14 @@
 ---
-title: "Limited Edition Trucks: Top Collector’s Picks for Toy and Diecast Fans"
-description: "Limited edition trucks hold a special place in the hearts of collectors and enthusiasts alike. These unique models offer a blend of nostalgia, craftsmanship, an"
+title: 'Limited Edition Trucks: Top Collector’s Picks for Toy and Diecast Fans'
+description: Limited edition trucks hold a special place in the hearts of collectors
+  and enthusiasts alike. These unique models offer a blend of nostalgia, craftsmanship,
+  an
 pubDate: 2026-09-02
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=limited-edition-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=limited-edition-trucks&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Limited edition trucks hold a special place in the hearts of collectors and enthusiasts alike. These unique models offer a blend of nostalgia, craftsmanship, and exclusivity that is hard to resist.**

@@ -1,10 +1,14 @@
 ---
-title: "Fabric Cube Toy With Rattles Inside: Ultimate Sensory Fun for Babies"
-description: "Looking for a toy that keeps your little one curious and happy? A fabric cube toy with rattles inside might be just what you need. This simple yet engaging toy "
+title: 'Fabric Cube Toy With Rattles Inside: Ultimate Sensory Fun for Babies'
+description: 'Looking for a toy that keeps your little one curious and happy? A fabric
+  cube toy with rattles inside might be just what you need. This simple yet engaging
+  toy '
 pubDate: 2026-09-13
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=fabric-cube-toy-with-rattles-inside&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=fabric-cube-toy-with-rattles-inside&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for a toy that keeps your little one curious and happy? A fabric cube toy with rattles inside might be just what you need.**

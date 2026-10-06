@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Crossbow Craft Project: Fun DIY Guide for Kids"
-description: "Are you looking for a fun and creative project that will keep you engaged for hours? Building your own wooden toy crossbow is a fantastic way to challenge your "
+title: 'Wooden Toy Crossbow Craft Project: Fun DIY Guide for Kids'
+description: 'Are you looking for a fun and creative project that will keep you engaged
+  for hours? Building your own wooden toy crossbow is a fantastic way to challenge
+  your '
 pubDate: 2026-07-03
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-crossbow-craft-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-crossbow-craft-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that will keep you engaged for hours? Building your own wooden toy crossbow is a fantastic way to challenge your skills and make something cool with your hands.**

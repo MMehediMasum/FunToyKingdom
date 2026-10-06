@@ -1,10 +1,14 @@
 ---
-title: "Hoverboard Kart Seat Attachment: Ultimate Fun and Safety Guide"
-description: "Are you ready to take your hoverboard experience to a whole new level? The Hoverboard Kart Seat Attachment transforms your hoverboard into an exciting go-kart, "
+title: 'Hoverboard Kart Seat Attachment: Ultimate Fun and Safety Guide'
+description: 'Are you ready to take your hoverboard experience to a whole new level?
+  The Hoverboard Kart Seat Attachment transforms your hoverboard into an exciting
+  go-kart, '
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hoverboard-kart-seat-attachment&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=hoverboard-kart-seat-attachment&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to take your hoverboard experience to a whole new level? The Hoverboard Kart Seat Attachment transforms your hoverboard into an exciting go-kart, giving you more control, comfort, and fun.**

@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Treasure Chest Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine your child’s eyes lighting up as they dig into the ground, uncovering a hidden treasure chest filled with surprises. An Outdoor Treasure Chest Toy isn’t"
+title: 'Outdoor Treasure Chest Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine your child’s eyes lighting up as they dig into the ground, uncovering
+  a hidden treasure chest filled with surprises. An Outdoor Treasure Chest Toy isn’t
 pubDate: 2025-11-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-treasure-chest-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-treasure-chest-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s eyes lighting up as they dig into the ground, uncovering a hidden treasure chest filled with surprises. An Outdoor Treasure Chest Toy isn’t just a plaything—it’s a gateway to adventure, creativity, and hours of fun right in your backyard.**

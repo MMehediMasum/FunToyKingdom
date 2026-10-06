@@ -1,10 +1,14 @@
 ---
-title: "Meccano Robot Building Toy: Ultimate Guide to Creative STEM Fun"
-description: "Imagine having the power to build your own robot, piece by piece, and watch it come to life right in front of your eyes. With the Meccano Robot Building Toy, yo"
+title: 'Meccano Robot Building Toy: Ultimate Guide to Creative STEM Fun'
+description: Imagine having the power to build your own robot, piece by piece, and
+  watch it come to life right in front of your eyes. With the Meccano Robot Building
+  Toy, yo
 pubDate: 2026-06-07
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=meccano-robot-building-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=meccano-robot-building-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having the power to build your own robot, piece by piece, and watch it come to life right in front of your eyes. With the Meccano Robot Building Toy, you can do just that.**

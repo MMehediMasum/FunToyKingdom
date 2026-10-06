@@ -1,10 +1,14 @@
 ---
-title: "Rugby Ball for Kids Outdoor Play: Ultimate Fun and Safety Guide"
-description: "Looking for the perfect rugby ball to make your kids’ outdoor playtime more exciting? You want something safe, durable, and just the right size for little hands"
+title: 'Rugby Ball for Kids Outdoor Play: Ultimate Fun and Safety Guide'
+description: Looking for the perfect rugby ball to make your kids’ outdoor playtime
+  more exciting? You want something safe, durable, and just the right size for little
+  hands
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rugby-ball-for-kids-outdoor-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=rugby-ball-for-kids-outdoor-play&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for the perfect rugby ball to make your kids’ outdoor playtime more exciting? You want something safe, durable, and just the right size for little hands.**

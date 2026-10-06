@@ -1,10 +1,14 @@
 ---
-title: "How to Make Doll Clothes at Home: Easy Steps for Beginners"
-description: "Do you want to give your doll a fresh new look without spending a lot of money? Making doll clothes at home is easier than you think, and it lets you create uni"
+title: 'How to Make Doll Clothes at Home: Easy Steps for Beginners'
+description: Do you want to give your doll a fresh new look without spending a lot
+  of money? Making doll clothes at home is easier than you think, and it lets you
+  create uni
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-doll-clothes-at-home&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-doll-clothes-at-home&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Do you want to give your doll a fresh new look without spending a lot of money? Making doll clothes at home is easier than you think, and it lets you create unique outfits that match your style perfectly.**

@@ -1,10 +1,14 @@
 ---
-title: "Vinyl Toys Japan: Top Collectible Figures and Exclusive Japanese Dolls"
-description: "Vinyl toys from Japan captivate collectors with their unique designs and cultural significance. These toys blend tradition and modernity. Japan offers a diverse"
+title: 'Vinyl Toys Japan: Top Collectible Figures and Exclusive Japanese Dolls'
+description: Vinyl toys from Japan captivate collectors with their unique designs
+  and cultural significance. These toys blend tradition and modernity. Japan offers
+  a diverse
 pubDate: 2026-08-09
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vinyl-toys-japan&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=vinyl-toys-japan&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Vinyl toys from Japan captivate collectors with their unique designs and cultural significance. These toys blend tradition and modernity.**

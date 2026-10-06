@@ -1,10 +1,14 @@
 ---
-title: "Walkie Talkie Toy With Long Range: Ultimate Fun for Kids Outdoors"
-description: "Are you looking for a fun way to keep your kids connected while they play outside? A walkie talkie toy with long range can be the perfect solution. Imagine your"
+title: 'Walkie Talkie Toy With Long Range: Ultimate Fun for Kids Outdoors'
+description: Are you looking for a fun way to keep your kids connected while they
+  play outside? A walkie talkie toy with long range can be the perfect solution. Imagine
+  your
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=walkie-talkie-toy-with-long-range&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=walkie-talkie-toy-with-long-range&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun way to keep your kids connected while they play outside? A walkie talkie toy with long range can be the perfect solution.**

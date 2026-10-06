@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Vintage Doll Care Tips Blog Post: Essential Secrets for Preservation"
 description: "Do you own a vintage doll that holds a special place in your heart? Taking care of these delicate treasures can be tricky, but with the right tips, you can keep"
 pubDate: 2025-12-09

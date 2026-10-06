@@ -1,10 +1,14 @@
 ---
-title: "What is a Coding Toy: Unlock Creativity and Learn Coding Fast"
-description: "Have you ever wondered how kids learn to code while having fun? A coding toy might be the answer you’re looking for. It’s not just a regular toy—it’s a smart to"
+title: 'What is a Coding Toy: Unlock Creativity and Learn Coding Fast'
+description: Have you ever wondered how kids learn to code while having fun? A coding
+  toy might be the answer you’re looking for. It’s not just a regular toy—it’s a smart
+  to
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-a-coding-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=what-is-a-coding-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered how kids learn to code while having fun? A coding toy might be the answer you’re looking for.**

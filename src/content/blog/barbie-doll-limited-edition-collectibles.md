@@ -1,10 +1,14 @@
 ---
-title: "Barbie Doll Limited Edition Collectibles: Ultimate Guide to Rare Finds"
-description: "Are you a Barbie fan or a serious collector looking to add something truly special to your collection? Barbie Doll Limited Edition Collectibles offer you a uniq"
+title: 'Barbie Doll Limited Edition Collectibles: Ultimate Guide to Rare Finds'
+description: Are you a Barbie fan or a serious collector looking to add something
+  truly special to your collection? Barbie Doll Limited Edition Collectibles offer
+  you a uniq
 pubDate: 2025-12-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-doll-limited-edition-collectibles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-doll-limited-edition-collectibles&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a Barbie fan or a serious collector looking to add something truly special to your collection? Barbie Doll Limited Edition Collectibles offer you a unique chance to own dolls that stand out from the rest.**

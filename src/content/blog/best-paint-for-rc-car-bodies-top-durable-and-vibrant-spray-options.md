@@ -1,10 +1,13 @@
 ---
-title: "Best Paint for Rc Car Bodies: Top Durable and Vibrant Spray Options"
-description: "Choosing the best paint for RC car bodies improves both look and durability. The right paint sticks well and resists scratches during races. RC car bodies need "
+title: 'Best Paint for Rc Car Bodies: Top Durable and Vibrant Spray Options'
+description: 'Choosing the best paint for RC car bodies improves both look and durability.
+  The right paint sticks well and resists scratches during races. RC car bodies need '
 pubDate: 2025-09-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-paint-for-rc-car-bodies-top-durable-and-vibrant-spray-options&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy RC Car
+heroImage: https://tse1.mm.bing.net/th?q=best-paint-for-rc-car-bodies-top-durable-and-vibrant-spray-options&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best paint for RC car bodies improves both look and durability. The right paint sticks well and resists scratches during races.**

@@ -1,10 +1,14 @@
 ---
-title: "Remote Control Shark Toy Pool: Ultimate Fun for Summer Play"
-description: "Imagine turning your pool into an exciting underwater adventure with just one toy. The Remote Control Shark Toy Pool is designed to bring fun and surprise to yo"
+title: 'Remote Control Shark Toy Pool: Ultimate Fun for Summer Play'
+description: Imagine turning your pool into an exciting underwater adventure with
+  just one toy. The Remote Control Shark Toy Pool is designed to bring fun and surprise
+  to yo
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=remote-control-shark-toy-pool&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Remote Controlled Ride Ons
+heroImage: https://tse1.mm.bing.net/th?q=remote-control-shark-toy-pool&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine turning your pool into an exciting underwater adventure with just one toy. The Remote Control Shark Toy Pool is designed to bring fun and surprise to your water play like never before.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rope Climbing Net for Kids: Ultimate Fun & Safety Guide"
-description: "Are you looking for a fun and safe way to keep your kids active outdoors? An outdoor rope climbing net for kids might be exactly what you need. It’s more than j"
+title: 'Outdoor Rope Climbing Net for Kids: Ultimate Fun & Safety Guide'
+description: Are you looking for a fun and safe way to keep your kids active outdoors?
+  An outdoor rope climbing net for kids might be exactly what you need. It’s more
+  than j
 pubDate: 2026-06-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rope-climbing-net-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rope-climbing-net-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and safe way to keep your kids active outdoors? An outdoor rope climbing net for kids might be exactly what you need.**

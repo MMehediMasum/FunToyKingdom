@@ -1,10 +1,14 @@
 ---
-title: "Diy Science Toy Projects: Fun & Easy Experiments for Kids"
-description: "Are you looking for fun ways to spark your curiosity and learn something new? DIY science toy projects are perfect for you. They let you explore cool ideas whil"
+title: 'Diy Science Toy Projects: Fun & Easy Experiments for Kids'
+description: Are you looking for fun ways to spark your curiosity and learn something
+  new? DIY science toy projects are perfect for you. They let you explore cool ideas
+  whil
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-science-toy-projects&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-science-toy-projects&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for fun ways to spark your curiosity and learn something new? DIY science toy projects are perfect for you.**

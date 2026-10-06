@@ -1,10 +1,14 @@
 ---
-title: "Toy Car Track Racing: Ultimate Slot Car Sets for Kids’ Exciting Fun"
-description: "Toy car track racing offers endless fun for kids and beginners. These sets bring excitement with fast cars and creative tracks. Toy car track racing sets come i"
+title: 'Toy Car Track Racing: Ultimate Slot Car Sets for Kids’ Exciting Fun'
+description: Toy car track racing offers endless fun for kids and beginners. These
+  sets bring excitement with fast cars and creative tracks. Toy car track racing sets
+  come i
 pubDate: 2026-08-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-track-racing&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-track-racing&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy car track racing offers endless fun for kids and beginners. These sets bring excitement with fast cars and creative tracks.**

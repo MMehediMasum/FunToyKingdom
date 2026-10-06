@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Kitchen Set: Ultimate Guide to Creative Playtime"
-description: "Imagine giving your child a toy that sparks creativity, encourages role play, and adds a warm, natural touch to their playroom—all while saving you money. A DIY"
+title: 'Diy Wooden Toy Kitchen Set: Ultimate Guide to Creative Playtime'
+description: Imagine giving your child a toy that sparks creativity, encourages role
+  play, and adds a warm, natural touch to their playroom—all while saving you money.
+  A DIY
 pubDate: 2025-11-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-kitchen-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-kitchen-set&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, encourages role play, and adds a warm, natural touch to their playroom—all while saving you money. A DIY wooden toy kitchen set is more than just a plaything; it’s a chance for you to create something special with your own hands.**

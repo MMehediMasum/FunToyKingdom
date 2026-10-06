@@ -1,10 +1,13 @@
 ---
-title: "Educational Benefits of Board Games: Unlock Learning & Fun Fast"
-description: "Have you ever thought about how much your next game night could do for your brain? Board games are more than just fun—they can boost your learning in surprising"
+title: 'Educational Benefits of Board Games: Unlock Learning & Fun Fast'
+description: Have you ever thought about how much your next game night could do for
+  your brain? Board games are more than just fun—they can boost your learning in surprising
 pubDate: 2026-07-02
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-benefits-of-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=educational-benefits-of-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever thought about how much your next game night could do for your brain? Board games are more than just fun—they can boost your learning in surprising ways.**

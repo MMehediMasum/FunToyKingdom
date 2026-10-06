@@ -1,10 +1,13 @@
 ---
-title: "Kids Balance Stepping Stones Outdoor: Fun Tips for Active Play"
-description: "Are you looking for a fun and exciting way to get your kids moving outside? Kids Balance Stepping Stones Outdoor are the perfect solution to keep your children "
+title: 'Kids Balance Stepping Stones Outdoor: Fun Tips for Active Play'
+description: 'Are you looking for a fun and exciting way to get your kids moving outside?
+  Kids Balance Stepping Stones Outdoor are the perfect solution to keep your children '
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-balance-stepping-stones-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=kids-balance-stepping-stones-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to get your kids moving outside? Kids Balance Stepping Stones Outdoor are the perfect solution to keep your children active while boosting their balance and coordination.**

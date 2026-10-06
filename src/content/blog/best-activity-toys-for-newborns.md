@@ -1,10 +1,14 @@
 ---
-title: "Best Activity Toys for Newborns: Top Picks for Early Development"
-description: "Are you looking for the best activity toys that will keep your newborn happy and help their development? Choosing the right toys can make a big difference in yo"
+title: 'Best Activity Toys for Newborns: Top Picks for Early Development'
+description: Are you looking for the best activity toys that will keep your newborn
+  happy and help their development? Choosing the right toys can make a big difference
+  in yo
 pubDate: 2026-05-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-activity-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Must Have Teething Toy
+heroImage: https://tse1.mm.bing.net/th?q=best-activity-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the best activity toys that will keep your newborn happy and help their development? Choosing the right toys can make a big difference in your baby’s early growth.**

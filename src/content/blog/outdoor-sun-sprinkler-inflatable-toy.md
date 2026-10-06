@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Sun Sprinkler Inflatable Toy: Ultimate Summer Fun Guide"
-description: "Are you looking for a fun way to keep cool and enjoy your backyard this summer? The Outdoor Sun Sprinkler Inflatable Toy is exactly what you need. Imagine turni"
+title: 'Outdoor Sun Sprinkler Inflatable Toy: Ultimate Summer Fun Guide'
+description: Are you looking for a fun way to keep cool and enjoy your backyard this
+  summer? The Outdoor Sun Sprinkler Inflatable Toy is exactly what you need. Imagine
+  turni
 pubDate: 2026-04-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-sun-sprinkler-inflatable-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-sun-sprinkler-inflatable-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to keep cool and enjoy your backyard this summer? The Outdoor Sun Sprinkler Inflatable Toy is exactly what you need.**

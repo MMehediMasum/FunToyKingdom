@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toys Washable: Durable, Fun, and Perfect for Aggressive Chewers"
-description: "Dog rope toys that are washable keep playtime clean and safe for your pet. These toys combine fun with easy care and dental benefits. Rope toys made from cotton"
+title: 'Dog Rope Toys Washable: Durable, Fun, and Perfect for Aggressive Chewers'
+description: Dog rope toys that are washable keep playtime clean and safe for your
+  pet. These toys combine fun with easy care and dental benefits. Rope toys made from
+  cotton
 pubDate: 2026-09-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toys-washable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toys-washable&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toys that are washable keep playtime clean and safe for your pet. These toys combine fun with easy care and dental benefits.**

@@ -1,10 +1,14 @@
 ---
-title: "How Far Can Toy Walkie Talkies Reach: Ultimate Range Guide"
-description: "Have you ever wondered how far your toy walkie talkies can really reach? Whether you're planning a fun outdoor adventure or just playing around the house, knowi"
+title: 'How Far Can Toy Walkie Talkies Reach: Ultimate Range Guide'
+description: Have you ever wondered how far your toy walkie talkies can really reach?
+  Whether you're planning a fun outdoor adventure or just playing around the house,
+  knowi
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-far-can-toy-walkie-talkies-reach&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Camera From Cardboard
+heroImage: https://tse1.mm.bing.net/th?q=how-far-can-toy-walkie-talkies-reach&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how far your toy walkie talkies can really reach? Whether you're planning a fun outdoor adventure or just playing around the house, knowing the true range of these gadgets can make all the difference.**

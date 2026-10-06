@@ -1,10 +1,13 @@
 ---
-title: "Musical Instruments for 7 Year Old: Top Picks for Fun Learning"
-description: "Choosing the right musical instrument for your 7-year-old can feel overwhelming. You want something that sparks their interest, matches their energy, and helps "
+title: 'Musical Instruments for 7 Year Old: Top Picks for Fun Learning'
+description: 'Choosing the right musical instrument for your 7-year-old can feel overwhelming.
+  You want something that sparks their interest, matches their energy, and helps '
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=musical-instruments-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Musical Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=musical-instruments-for-7-year-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Choosing the right musical instrument for your 7-year-old can feel overwhelming. You want something that sparks their interest, matches their energy, and helps them grow.**

@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Cars And Trucks: Top Collectible Sets For Kids & Enthusiasts"
-description: "Diecast toy cars and trucks offer fun and collectibility for kids and adults alike. These small metal vehicles come in many styles and sizes. Diecast toy cars a"
+title: 'Diecast Toy Cars And Trucks: Top Collectible Sets For Kids & Enthusiasts'
+description: Diecast toy cars and trucks offer fun and collectibility for kids and
+  adults alike. These small metal vehicles come in many styles and sizes. Diecast
+  toy cars a
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-cars-and-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toys
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-cars-and-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy cars and trucks offer fun and collectibility for kids and adults alike. These small metal vehicles come in many styles and sizes.**

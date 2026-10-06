@@ -1,10 +1,14 @@
 ---
-title: "Rare Power Rangers Collectible Toys: Ultimate Guide to Hidden Gems"
-description: "Are you a fan of Power Rangers or a collector hunting for something truly special? Rare Power Rangers collectible toys hold a unique charm that goes beyond ordi"
+title: 'Rare Power Rangers Collectible Toys: Ultimate Guide to Hidden Gems'
+description: Are you a fan of Power Rangers or a collector hunting for something truly
+  special? Rare Power Rangers collectible toys hold a unique charm that goes beyond
+  ordi
 pubDate: 2026-07-26
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rare-power-rangers-collectible-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=rare-power-rangers-collectible-toys&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you a fan of Power Rangers or a collector hunting for something truly special? Rare Power Rangers collectible toys hold a unique charm that goes beyond ordinary action figures.**

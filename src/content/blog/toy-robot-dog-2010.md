@@ -1,10 +1,14 @@
 ---
-title: "Toy Robot Dog: Top Interactive Remote Control Robotic Pets for Kids"
-description: "The Toy Robot Dog 2010 offers a fun and interactive experience for kids and adults. This robotic pet combines technology and play in a smart, easy-to-use design"
+title: 'Toy Robot Dog: Top Interactive Remote Control Robotic Pets for Kids'
+description: The Toy Robot Dog 2010 offers a fun and interactive experience for kids
+  and adults. This robotic pet combines technology and play in a smart, easy-to-use
+  design
 pubDate: 2026-02-10
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-robot-dog-2010&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-robot-dog-2010&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Toy Robot Dog 2010 offers a fun and interactive experience for kids and adults. This robotic pet combines technology and play in a smart, easy-to-use design.**

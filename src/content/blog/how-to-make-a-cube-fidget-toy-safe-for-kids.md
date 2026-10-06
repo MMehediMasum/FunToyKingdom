@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Cube Fidget Toy Safe for Kids: Expert Safety Tips"
-description: "If you want to keep your kids entertained and focused, a cube fidget toy is a great choice. But how do you make sure it’s safe for your little ones? You don’t w"
+title: 'How to Make a Cube Fidget Toy Safe for Kids: Expert Safety Tips'
+description: If you want to keep your kids entertained and focused, a cube fidget
+  toy is a great choice. But how do you make sure it’s safe for your little ones?
+  You don’t w
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-cube-fidget-toy-safe-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Cube Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-cube-fidget-toy-safe-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **If you want to keep your kids entertained and focused, a cube fidget toy is a great choice. But how do you make sure it’s safe for your little ones?**

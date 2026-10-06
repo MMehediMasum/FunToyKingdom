@@ -1,10 +1,14 @@
 ---
-title: "Toy Ice Cream Set: Top Pretend Play Kits for Kids’ Sweet Fun"
-description: "Toy ice cream sets bring fun and learning together for young children. They inspire creativity and role-playing in a safe, colorful way. These playsets often in"
+title: 'Toy Ice Cream Set: Top Pretend Play Kits for Kids’ Sweet Fun'
+description: Toy ice cream sets bring fun and learning together for young children.
+  They inspire creativity and role-playing in a safe, colorful way. These playsets
+  often in
 pubDate: 2026-08-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-ice-cream-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=toy-ice-cream-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy ice cream sets bring fun and learning together for young children. They inspire creativity and role-playing in a safe, colorful way.**

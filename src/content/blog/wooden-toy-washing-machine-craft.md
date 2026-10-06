@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Washing Machine Craft: Easy DIY Fun for Kids"
-description: "Have you ever wanted to create a fun, hands-on project that brings joy and learning to your little ones? A wooden toy washing machine craft is just the perfect "
+title: 'Wooden Toy Washing Machine Craft: Easy DIY Fun for Kids'
+description: 'Have you ever wanted to create a fun, hands-on project that brings joy
+  and learning to your little ones? A wooden toy washing machine craft is just the
+  perfect '
 pubDate: 2026-07-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-washing-machine-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-washing-machine-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a fun, hands-on project that brings joy and learning to your little ones? A wooden toy washing machine craft is just the perfect idea for you.**

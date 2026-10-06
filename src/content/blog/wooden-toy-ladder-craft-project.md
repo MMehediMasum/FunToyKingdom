@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Ladder Craft Project: Easy Steps for Kids’ Fun"
-description: "Are you looking for a fun and creative project that brings charm and warmth to your home? The Wooden Toy Ladder Craft Project is just what you need. Imagine cra"
+title: 'Wooden Toy Ladder Craft Project: Easy Steps for Kids’ Fun'
+description: Are you looking for a fun and creative project that brings charm and
+  warmth to your home? The Wooden Toy Ladder Craft Project is just what you need.
+  Imagine cra
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-ladder-craft-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-ladder-craft-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings charm and warmth to your home? The Wooden Toy Ladder Craft Project is just what you need.**

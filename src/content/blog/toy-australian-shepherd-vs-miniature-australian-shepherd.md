@@ -1,10 +1,15 @@
 ---
-title: "Toy Australian Shepherd Vs Miniature Australian Shepherd: Which Plush Toy Wins?"
-description: "Toy Australian Shepherd and Miniature Australian Shepherd are small versions of the popular Aussie dog. Both have unique traits that suit different lifestyles. "
+title: 'Toy Australian Shepherd Vs Miniature Australian Shepherd: Which Plush Toy
+  Wins?'
+description: 'Toy Australian Shepherd and Miniature Australian Shepherd are small
+  versions of the popular Aussie dog. Both have unique traits that suit different
+  lifestyles. '
 pubDate: 2026-08-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-australian-shepherd-vs-miniature-australian-shepherd&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-australian-shepherd-vs-miniature-australian-shepherd&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Australian Shepherd and Miniature Australian Shepherd are small versions of the popular Aussie dog. Both have unique traits that suit different lifestyles.**

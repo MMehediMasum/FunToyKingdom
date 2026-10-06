@@ -1,10 +1,14 @@
 ---
-title: "Toy Engine Kit: Build, Learn, and Play with Interactive STEM Models"
-description: "Toy engine kits offer an exciting way for kids and adults to explore mechanics. They combine fun with learning in a hands-on manner. These kits come in various "
+title: 'Toy Engine Kit: Build, Learn, and Play with Interactive STEM Models'
+description: 'Toy engine kits offer an exciting way for kids and adults to explore
+  mechanics. They combine fun with learning in a hands-on manner. These kits come
+  in various '
 pubDate: 2026-09-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-engine-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=toy-engine-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy engine kits offer an exciting way for kids and adults to explore mechanics. They combine fun with learning in a hands-on manner.**

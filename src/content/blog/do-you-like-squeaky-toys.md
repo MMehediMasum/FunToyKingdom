@@ -1,10 +1,13 @@
 ---
-title: "Do You Like Squeaky Toys? Discover Why They’re Irresistible!"
-description: "Do you like squeaky toys? If you do, you’re not alone. There’s something oddly satisfying about that sharp, playful sound that can grab your attention instantly"
+title: Do You Like Squeaky Toys? Discover Why They’re Irresistible!
+description: Do you like squeaky toys? If you do, you’re not alone. There’s something
+  oddly satisfying about that sharp, playful sound that can grab your attention instantly
 pubDate: 2026-01-05
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-you-like-squeaky-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=do-you-like-squeaky-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you like squeaky toys? If you do, you’re not alone.**

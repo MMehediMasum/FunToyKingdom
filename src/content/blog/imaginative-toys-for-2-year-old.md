@@ -1,10 +1,14 @@
 ---
-title: "Imaginative Toys for 2 Year Old: Spark Creativity & Joy Today"
-description: "Finding the perfect toy for your 2-year-old can feel overwhelming. You want something that sparks their imagination, keeps them engaged, and helps their growth."
+title: 'Imaginative Toys for 2 Year Old: Spark Creativity & Joy Today'
+description: Finding the perfect toy for your 2-year-old can feel overwhelming. You
+  want something that sparks their imagination, keeps them engaged, and helps their
+  growth.
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=imaginative-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Good Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=imaginative-toys-for-2-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the perfect toy for your 2-year-old can feel overwhelming. You want something that sparks their imagination, keeps them engaged, and helps their growth.**

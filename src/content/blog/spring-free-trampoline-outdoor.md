@@ -1,10 +1,14 @@
 ---
-title: "Spring Free Trampoline Outdoor: Ultimate Fun & Safety Guide"
-description: "Looking for a fun way to keep your kids active and entertained right in your backyard? A spring free trampoline outdoor is exactly what you need. Imagine a tram"
+title: 'Spring Free Trampoline Outdoor: Ultimate Fun & Safety Guide'
+description: Looking for a fun way to keep your kids active and entertained right
+  in your backyard? A spring free trampoline outdoor is exactly what you need. Imagine
+  a tram
 pubDate: 2025-11-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=spring-free-trampoline-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=spring-free-trampoline-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids active and entertained right in your backyard? A spring free trampoline outdoor is exactly what you need.**

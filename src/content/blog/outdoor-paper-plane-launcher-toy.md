@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Paper Plane Launcher Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine turning a simple paper plane into a thrilling flying machine that soars farther and faster than ever before. With the Outdoor Paper Plane Launcher Toy, "
+title: 'Outdoor Paper Plane Launcher Toy: Ultimate Fun for Kids Outdoors'
+description: 'Imagine turning a simple paper plane into a thrilling flying machine
+  that soars farther and faster than ever before. With the Outdoor Paper Plane Launcher
+  Toy, '
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-paper-plane-launcher-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-paper-plane-launcher-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning a simple paper plane into a thrilling flying machine that soars farther and faster than ever before. With the Outdoor Paper Plane Launcher Toy, you hold the power to launch your creativity into the sky.**

@@ -1,10 +1,14 @@
 ---
-title: "Rabbit Robot Toy: Interactive Plush Bunny with Sounds and Movements"
-description: "The rabbit robot toy brings fun and learning together in one interactive pet. Kids enjoy its lifelike movements and sounds that mimic a real bunny. This toy off"
+title: 'Rabbit Robot Toy: Interactive Plush Bunny with Sounds and Movements'
+description: The rabbit robot toy brings fun and learning together in one interactive
+  pet. Kids enjoy its lifelike movements and sounds that mimic a real bunny. This
+  toy off
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rabbit-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=rabbit-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The rabbit robot toy brings fun and learning together in one interactive pet. Kids enjoy its lifelike movements and sounds that mimic a real bunny.**

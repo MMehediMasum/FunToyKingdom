@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Crawl Tunnel Toy: Ultimate Fun and Active Play Guide"
-description: "Are you looking for a fun way to keep your kids active and entertained outdoors? An outdoor crawl tunnel toy could be exactly what you need. Imagine your child "
+title: 'Outdoor Crawl Tunnel Toy: Ultimate Fun and Active Play Guide'
+description: 'Are you looking for a fun way to keep your kids active and entertained
+  outdoors? An outdoor crawl tunnel toy could be exactly what you need. Imagine your
+  child '
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-crawl-tunnel-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-crawl-tunnel-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to keep your kids active and entertained outdoors? An outdoor crawl tunnel toy could be exactly what you need.**

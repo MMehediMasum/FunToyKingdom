@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Top 10 Most Valuable Dolls Blog Post: Ultimate Collector’s Guide"
 description: "Have you ever wondered which dolls hold the highest value in the world? Whether you’re a collector, a curious buyer, or just someone fascinated by unique treasu"
 pubDate: 2025-09-30

@@ -1,10 +1,14 @@
 ---
-title: "How to Make a Toy Pillow Pet: Easy Steps for Adorable Creations"
-description: "Do you want to create a cozy, cuddly friend that’s perfect for naps and playtime? Making your own toy pillow pet is easier than you think, and it’s a fun way to"
+title: 'How to Make a Toy Pillow Pet: Easy Steps for Adorable Creations'
+description: Do you want to create a cozy, cuddly friend that’s perfect for naps and
+  playtime? Making your own toy pillow pet is easier than you think, and it’s a fun
+  way to
 pubDate: 2026-05-31
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-a-toy-pillow-pet&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-a-toy-pillow-pet&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Do you want to create a cozy, cuddly friend that’s perfect for naps and playtime? Making your own toy pillow pet is easier than you think, and it’s a fun way to add a personal touch to your space.**

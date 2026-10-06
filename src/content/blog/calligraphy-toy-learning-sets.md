@@ -1,10 +1,14 @@
 ---
-title: "Calligraphy Toy Learning Sets: Unlock Creativity and Skill Development"
-description: "Are you looking for a fun and creative way to boost your child’s learning? Calligraphy Toy Learning Sets might be exactly what you need. These sets turn the art"
+title: 'Calligraphy Toy Learning Sets: Unlock Creativity and Skill Development'
+description: Are you looking for a fun and creative way to boost your child’s learning?
+  Calligraphy Toy Learning Sets might be exactly what you need. These sets turn the
+  art
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=calligraphy-toy-learning-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=calligraphy-toy-learning-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for a fun and creative way to boost your child’s learning? Calligraphy Toy Learning Sets might be exactly what you need.**

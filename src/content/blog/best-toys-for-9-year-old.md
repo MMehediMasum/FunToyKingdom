@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 9 Year Old: Top Picks for Fun & Learning"
-description: "Finding the best toys for your 9-year-old can feel overwhelming. You want something that sparks their creativity, keeps them active, and makes playtime exciting"
+title: 'Best Toys for 9 Year Old: Top Picks for Fun & Learning'
+description: Finding the best toys for your 9-year-old can feel overwhelming. You
+  want something that sparks their creativity, keeps them active, and makes playtime
+  exciting
 pubDate: 2026-04-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-9-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-9-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best toys for your 9-year-old can feel overwhelming. You want something that sparks their creativity, keeps them active, and makes playtime exciting.**

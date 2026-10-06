@@ -1,10 +1,13 @@
 ---
-title: "Scrabble Word Lists to Win: Ultimate Tips for High Scores"
-description: "If you want to crush your next Scrabble game, having the right word lists can make all the difference. Imagine spotting high-scoring words instantly and outsmar"
+title: 'Scrabble Word Lists to Win: Ultimate Tips for High Scores'
+description: If you want to crush your next Scrabble game, having the right word lists
+  can make all the difference. Imagine spotting high-scoring words instantly and outsmar
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=scrabble-word-lists-to-win&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=scrabble-word-lists-to-win&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **If you want to crush your next Scrabble game, having the right word lists can make all the difference. Imagine spotting high-scoring words instantly and outsmarting your opponents every time.**

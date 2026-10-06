@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Take Used Toys: Top Places to Donate & Recycle"
-description: "Do you have a box full of used toys and wonder where you can take them? Finding the right place to give your toys a new life isn’t always easy. You want to make"
+title: 'Where Can I Take Used Toys: Top Places to Donate & Recycle'
+description: Do you have a box full of used toys and wonder where you can take them?
+  Finding the right place to give your toys a new life isn’t always easy. You want
+  to make
 pubDate: 2026-01-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-take-used-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Selling Toys For Cash
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-take-used-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have a box full of used toys and wonder where you can take them? Finding the right place to give your toys a new life isn’t always easy.**

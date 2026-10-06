@@ -1,10 +1,14 @@
 ---
-title: "2000S Robot Dog Toy: Interactive, Musical, and Perfect for Kids Fun"
-description: "Robot dog toys from the 2000s bring fun and learning together for kids. These toys combine lights, sounds, and movement to engage children’s imaginations. Robot"
+title: '2000S Robot Dog Toy: Interactive, Musical, and Perfect for Kids Fun'
+description: Robot dog toys from the 2000s bring fun and learning together for kids.
+  These toys combine lights, sounds, and movement to engage children’s imaginations.
+  Robot
 pubDate: 2026-03-14
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=2000s-robot-dog-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- 90S Robot Dog Toy
+heroImage: https://tse1.mm.bing.net/th?q=2000s-robot-dog-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot dog toys from the 2000s bring fun and learning together for kids. These toys combine lights, sounds, and movement to engage children’s imaginations.**

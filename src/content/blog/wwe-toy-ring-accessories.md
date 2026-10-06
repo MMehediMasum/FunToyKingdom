@@ -1,10 +1,13 @@
 ---
-title: "Wwe Toy Ring Accessories: Ultimate Deluxe Set for Wrestling Action Figures"
-description: "Wrestling toy rings come alive with the right accessories. They add excitement and realism to playtime adventures. If you're passionate about WWE and AEW action"
+title: 'Wwe Toy Ring Accessories: Ultimate Deluxe Set for Wrestling Action Figures'
+description: Wrestling toy rings come alive with the right accessories. They add excitement
+  and realism to playtime adventures. If you're passionate about WWE and AEW action
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wwe-toy-ring-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=wwe-toy-ring-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Wrestling toy rings come alive with the right accessories. They add excitement and realism to playtime adventures.**

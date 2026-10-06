@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Mountain Bike for Teens: Ultimate Guide to Top Picks 2025"
 description: "Are you looking for the perfect outdoor mountain bike for your teen? Choosing the right bike can make all the difference between a fun ride and a frustrating ex"
 pubDate: 2026-03-24

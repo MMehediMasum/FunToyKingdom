@@ -1,10 +1,14 @@
 ---
-title: "Monster High Collectible Dolls: Ultimate Guide to Rare Finds"
-description: "Are you ready to dive into a world where spooky meets stylish? Monster High collectible dolls aren’t just toys—they’re a unique blend of fashion, fun, and fanta"
+title: 'Monster High Collectible Dolls: Ultimate Guide to Rare Finds'
+description: Are you ready to dive into a world where spooky meets stylish? Monster
+  High collectible dolls aren’t just toys—they’re a unique blend of fashion, fun,
+  and fanta
 pubDate: 2025-10-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to dive into a world where spooky meets stylish? Monster High collectible dolls aren’t just toys—they’re a unique blend of fashion, fun, and fantasy that capture your imagination.**

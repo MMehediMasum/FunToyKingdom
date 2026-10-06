@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Pool Slide for Toddlers: Ultimate Fun & Safety Guide"
-description: "Looking for a fun and safe way to keep your toddler entertained this summer? An inflatable pool slide for toddlers might be exactly what you need. Imagine your "
+title: 'Inflatable Pool Slide for Toddlers: Ultimate Fun & Safety Guide'
+description: 'Looking for a fun and safe way to keep your toddler entertained this
+  summer? An inflatable pool slide for toddlers might be exactly what you need. Imagine
+  your '
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-pool-slide-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Slide For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-pool-slide-for-toddlers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your toddler entertained this summer? An inflatable pool slide for toddlers might be exactly what you need.**

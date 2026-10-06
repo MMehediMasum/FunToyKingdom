@@ -1,10 +1,14 @@
 ---
-title: "Choking Hazard Awareness for Parents Toys: Essential Safety Tips"
-description: "When it comes to your child’s safety, every second counts. Did you know that some toys can pose hidden dangers you might not expect? Small parts, loose pieces, "
+title: 'Choking Hazard Awareness for Parents Toys: Essential Safety Tips'
+description: 'When it comes to your child’s safety, every second counts. Did you know
+  that some toys can pose hidden dangers you might not expect? Small parts, loose
+  pieces, '
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=choking-hazard-awareness-for-parents-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=choking-hazard-awareness-for-parents-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **When it comes to your child’s safety, every second counts. Did you know that some toys can pose hidden dangers you might not expect?**

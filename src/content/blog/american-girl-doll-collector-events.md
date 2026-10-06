@@ -1,10 +1,13 @@
 ---
-title: "American Girl Doll Collector Events: Ultimate Guide to Fun & Finds"
-description: "Are you a fan of American Girl dolls or looking to dive into this charming world? American Girl Doll Collector Events are the perfect way to connect with fellow"
+title: 'American Girl Doll Collector Events: Ultimate Guide to Fun & Finds'
+description: Are you a fan of American Girl dolls or looking to dive into this charming
+  world? American Girl Doll Collector Events are the perfect way to connect with fellow
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=american-girl-doll-collector-events&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean American Girl Dolls Safely
+heroImage: https://tse1.mm.bing.net/th?q=american-girl-doll-collector-events&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of American Girl dolls or looking to dive into this charming world? American Girl Doll Collector Events are the perfect way to connect with fellow enthusiasts, discover rare dolls, and enjoy exclusive experiences.**

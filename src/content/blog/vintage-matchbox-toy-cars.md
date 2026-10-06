@@ -1,10 +1,14 @@
 ---
-title: "Vintage Matchbox Toy Cars: Top Collectible Die-Cast Models You’ll Love"
-description: "Vintage Matchbox toy cars capture the charm of classic vehicles in a small, collectible form. These die-cast models bring nostalgia and fun for collectors and k"
+title: 'Vintage Matchbox Toy Cars: Top Collectible Die-Cast Models You’ll Love'
+description: Vintage Matchbox toy cars capture the charm of classic vehicles in a
+  small, collectible form. These die-cast models bring nostalgia and fun for collectors
+  and k
 pubDate: 2026-01-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-matchbox-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=vintage-matchbox-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Vintage Matchbox toy cars capture the charm of classic vehicles in a small, collectible form. These die-cast models bring nostalgia and fun for collectors and kids alike.**

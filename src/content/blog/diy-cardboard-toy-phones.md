@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Phones: Creative Fun for Kids at Home"
-description: "Have you ever wanted to create a fun and simple toy for your child that sparks imagination without spending a lot? DIY cardboard toy phones are the perfect way "
+title: 'Diy Cardboard Toy Phones: Creative Fun for Kids at Home'
+description: 'Have you ever wanted to create a fun and simple toy for your child that
+  sparks imagination without spending a lot? DIY cardboard toy phones are the perfect
+  way '
 pubDate: 2026-04-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-phones&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-phones&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create a fun and simple toy for your child that sparks imagination without spending a lot? DIY cardboard toy phones are the perfect way to do just that.**

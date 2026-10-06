@@ -1,10 +1,14 @@
 ---
-title: "Kids Geography Globe Learning Toy: Fun Educational Adventure!"
-description: "Are you looking for a fun and simple way to help your child explore the world right from your living room? A Kids Geography Globe Learning Toy can turn learning"
+title: 'Kids Geography Globe Learning Toy: Fun Educational Adventure!'
+description: Are you looking for a fun and simple way to help your child explore the
+  world right from your living room? A Kids Geography Globe Learning Toy can turn
+  learning
 pubDate: 2025-10-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-geography-globe-learning-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Learning Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=kids-geography-globe-learning-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun and simple way to help your child explore the world right from your living room? A Kids Geography Globe Learning Toy can turn learning into an exciting adventure.**

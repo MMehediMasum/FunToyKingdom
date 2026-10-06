@@ -1,10 +1,14 @@
 ---
-title: "Uno Flip Vs Classic Uno: Ultimate Showdown for Card Game Fans"
-description: "Are you ready to take your card game nights to the next level? If you love UNO but wonder how the classic version stacks up against the newer UNO Flip, you’re i"
+title: 'Uno Flip Vs Classic Uno: Ultimate Showdown for Card Game Fans'
+description: Are you ready to take your card game nights to the next level? If you
+  love UNO but wonder how the classic version stacks up against the newer UNO Flip,
+  you’re i
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=uno-flip-vs-classic-uno&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=uno-flip-vs-classic-uno&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you ready to take your card game nights to the next level? If you love UNO but wonder how the classic version stacks up against the newer UNO Flip, you’re in the right place.**

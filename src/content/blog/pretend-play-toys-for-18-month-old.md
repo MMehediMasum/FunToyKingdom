@@ -1,10 +1,13 @@
 ---
-title: "Pretend Play Toys for 18 Month Old: Top Picks for Early Learning"
-description: "Are you looking for the perfect toys to spark your 18-month-old’s imagination? Pretend play toys are more than just fun—they help your little one explore the wo"
+title: 'Pretend Play Toys for 18 Month Old: Top Picks for Early Learning'
+description: Are you looking for the perfect toys to spark your 18-month-old’s imagination?
+  Pretend play toys are more than just fun—they help your little one explore the wo
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=pretend-play-toys-for-18-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Pretend Play Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=pretend-play-toys-for-18-month-old&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you looking for the perfect toys to spark your 18-month-old’s imagination? Pretend play toys are more than just fun—they help your little one explore the world, build important skills, and express creativity.**

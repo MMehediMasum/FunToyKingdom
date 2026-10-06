@@ -1,10 +1,14 @@
 ---
-title: "Can We Carry Toys in Checked in Luggage: Essential Travel Tips"
-description: "Are you planning to bring toys along on your next trip but wonder if you can pack them in your checked luggage? Whether it’s a beloved stuffed animal or a set o"
+title: 'Can We Carry Toys in Checked in Luggage: Essential Travel Tips'
+description: Are you planning to bring toys along on your next trip but wonder if
+  you can pack them in your checked luggage? Whether it’s a beloved stuffed animal
+  or a set o
 pubDate: 2025-09-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-we-carry-toys-in-checked-in-luggage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=can-we-carry-toys-in-checked-in-luggage&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you planning to bring toys along on your next trip but wonder if you can pack them in your checked luggage? Whether it’s a beloved stuffed animal or a set of action figures, knowing the rules about carrying toys in checked bags can save you from surprises at the airport.**

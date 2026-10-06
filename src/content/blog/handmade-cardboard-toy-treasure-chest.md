@@ -1,10 +1,14 @@
 ---
-title: "Handmade Cardboard Toy Treasure Chest: Creative Fun for Kids"
-description: "Imagine giving your child a toy that sparks creativity, adventure, and hours of fun—all made from simple cardboard. A handmade cardboard toy treasure chest isn’"
+title: 'Handmade Cardboard Toy Treasure Chest: Creative Fun for Kids'
+description: Imagine giving your child a toy that sparks creativity, adventure, and
+  hours of fun—all made from simple cardboard. A handmade cardboard toy treasure chest
+  isn’
 pubDate: 2026-06-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-treasure-chest&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-treasure-chest&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, adventure, and hours of fun—all made from simple cardboard. A handmade cardboard toy treasure chest isn’t just a plaything; it’s a gateway to endless imagination.**

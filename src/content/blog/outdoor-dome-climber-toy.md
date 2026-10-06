@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Dome Climber Toy: Ultimate Fun & Safe Playtime Gear"
-description: "Are you looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Dome Climber Toy might be exactly what you need. It’s more than just a"
+title: 'Outdoor Dome Climber Toy: Ultimate Fun & Safe Playtime Gear'
+description: Are you looking for a fun and exciting way to keep your kids active outdoors?
+  The Outdoor Dome Climber Toy might be exactly what you need. It’s more than just
+  a
 pubDate: 2025-09-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-dome-climber-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-dome-climber-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active outdoors? The Outdoor Dome Climber Toy might be exactly what you need.**

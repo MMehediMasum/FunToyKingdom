@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Pirate Ship Pool Float: Ultimate Summer Fun Guide"
-description: "Imagine turning your pool into a thrilling pirate adventure with just one simple addition. The Inflatable Pirate Ship Pool Float isn’t just a float—it’s your ti"
+title: 'Inflatable Pirate Ship Pool Float: Ultimate Summer Fun Guide'
+description: Imagine turning your pool into a thrilling pirate adventure with just
+  one simple addition. The Inflatable Pirate Ship Pool Float isn’t just a float—it’s
+  your ti
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-pirate-ship-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Ride On Car Pool
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-pirate-ship-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your pool into a thrilling pirate adventure with just one simple addition. The Inflatable Pirate Ship Pool Float isn’t just a float—it’s your ticket to endless fun and relaxation on the water.**

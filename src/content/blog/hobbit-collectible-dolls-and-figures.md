@@ -1,10 +1,13 @@
 ---
-title: "Hobbit Collectible Dolls And Figures: Ultimate Guide to Rare Finds"
-description: "Are you a fan of The Hobbit? Imagine holding your favorite characters right in your hands. Hobbit collectible dolls and figures bring the magic of Middle-earth "
+title: 'Hobbit Collectible Dolls And Figures: Ultimate Guide to Rare Finds'
+description: 'Are you a fan of The Hobbit? Imagine holding your favorite characters
+  right in your hands. Hobbit collectible dolls and figures bring the magic of Middle-earth '
 pubDate: 2025-12-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=hobbit-collectible-dolls-and-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=hobbit-collectible-dolls-and-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of The Hobbit? Imagine holding your favorite characters right in your hands.**

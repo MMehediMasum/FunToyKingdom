@@ -1,10 +1,14 @@
 ---
-title: "Diecast Toy Tanks: Top Military Vehicle Models for Kids and Collectors"
-description: "Diecast toy tanks offer realistic, detailed military models for kids and collectors. These small, sturdy vehicles bring history and fun together in one playset."
+title: 'Diecast Toy Tanks: Top Military Vehicle Models for Kids and Collectors'
+description: Diecast toy tanks offer realistic, detailed military models for kids
+  and collectors. These small, sturdy vehicles bring history and fun together in one
+  playset.
 pubDate: 2025-10-25
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-tanks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-tanks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast toy tanks offer realistic, detailed military models for kids and collectors. These small, sturdy vehicles bring history and fun together in one playset.**

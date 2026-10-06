@@ -1,10 +1,14 @@
 ---
-title: "Balthazar Bratt Robot Toy: Ultimate Fun and Interactive Kids’ Gift Guide"
-description: "The Balthazar Bratt Robot Toy captures the fun and style of the famous character. Kids enjoy its unique design and interactive features. This robot toy stands o"
+title: 'Balthazar Bratt Robot Toy: Ultimate Fun and Interactive Kids’ Gift Guide'
+description: The Balthazar Bratt Robot Toy captures the fun and style of the famous
+  character. Kids enjoy its unique design and interactive features. This robot toy
+  stands o
 pubDate: 2026-02-18
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=balthazar-bratt-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=balthazar-bratt-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **The Balthazar Bratt Robot Toy captures the fun and style of the famous character. Kids enjoy its unique design and interactive features.**

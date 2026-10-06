@@ -1,10 +1,14 @@
 ---
-title: "Black And White Toys for Newborns: Boost Baby’s Vision & Growth"
-description: "Are you looking for the perfect toys to help your newborn’s development? Black and white toys are a simple yet powerful way to capture your baby’s attention and"
+title: 'Black And White Toys for Newborns: Boost Baby’s Vision & Growth'
+description: Are you looking for the perfect toys to help your newborn’s development?
+  Black and white toys are a simple yet powerful way to capture your baby’s attention
+  and
 pubDate: 2026-04-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=black-and-white-toys-for-newborns&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Light Up Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=black-and-white-toys-for-newborns&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect toys to help your newborn’s development? Black and white toys are a simple yet powerful way to capture your baby’s attention and stimulate their growing brain.**

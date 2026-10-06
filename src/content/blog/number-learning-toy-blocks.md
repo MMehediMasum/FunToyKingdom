@@ -1,10 +1,14 @@
 ---
-title: "Number Learning Toy Blocks: Fun & Effective Early Math Skills"
-description: "Are you looking for a fun way to help your child learn numbers? Number learning toy blocks might be exactly what you need. These colorful, hands-on toys make co"
+title: 'Number Learning Toy Blocks: Fun & Effective Early Math Skills'
+description: Are you looking for a fun way to help your child learn numbers? Number
+  learning toy blocks might be exactly what you need. These colorful, hands-on toys
+  make co
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=number-learning-toy-blocks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toy Blocks For Kids
+heroImage: https://tse1.mm.bing.net/th?q=number-learning-toy-blocks&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun way to help your child learn numbers? Number learning toy blocks might be exactly what you need.**

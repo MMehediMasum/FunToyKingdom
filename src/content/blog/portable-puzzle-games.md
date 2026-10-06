@@ -1,10 +1,14 @@
 ---
-title: "Portable Puzzle Games: Ultimate Brain-Boosting Fun On-the-Go"
-description: "Looking for a way to challenge your mind while on the go? Portable puzzle games might be exactly what you need. These games fit right in your pocket and offer e"
+title: 'Portable Puzzle Games: Ultimate Brain-Boosting Fun On-the-Go'
+description: Looking for a way to challenge your mind while on the go? Portable puzzle
+  games might be exactly what you need. These games fit right in your pocket and offer
+  e
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=portable-puzzle-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Puzzle Toys
+heroImage: https://tse1.mm.bing.net/th?q=portable-puzzle-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Looking for a way to challenge your mind while on the go? Portable puzzle games might be exactly what you need.**

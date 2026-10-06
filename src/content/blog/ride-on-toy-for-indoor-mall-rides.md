@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy for Indoor Mall Rides: Ultimate Fun and Safety Guide"
-description: "Looking for a fun and safe way to keep your little one entertained indoors? A ride on toy for indoor mall rides could be just what you need. Imagine your child "
+title: 'Ride on Toy for Indoor Mall Rides: Ultimate Fun and Safety Guide'
+description: 'Looking for a fun and safe way to keep your little one entertained indoors?
+  A ride on toy for indoor mall rides could be just what you need. Imagine your child '
 pubDate: 2026-04-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-indoor-mall-rides&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Young Kids Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-indoor-mall-rides&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your little one entertained indoors? A ride on toy for indoor mall rides could be just what you need.**

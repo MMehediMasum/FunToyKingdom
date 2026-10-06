@@ -1,10 +1,14 @@
 ---
-title: "World Record Jigsaw Puzzle Size: Unveiling the Ultimate Challenge"
-description: "Have you ever wondered how big a jigsaw puzzle can get? Imagine piecing together thousands, or even millions, of tiny pieces to create one massive picture. The "
+title: 'World Record Jigsaw Puzzle Size: Unveiling the Ultimate Challenge'
+description: 'Have you ever wondered how big a jigsaw puzzle can get? Imagine piecing
+  together thousands, or even millions, of tiny pieces to create one massive picture.
+  The '
 pubDate: 2026-05-23
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=world-record-jigsaw-puzzle-size&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Jigsaw Puzzle
+heroImage: https://tse1.mm.bing.net/th?q=world-record-jigsaw-puzzle-size&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how big a jigsaw puzzle can get? Imagine piecing together thousands, or even millions, of tiny pieces to create one massive picture.**

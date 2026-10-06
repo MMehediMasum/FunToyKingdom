@@ -1,10 +1,14 @@
 ---
-title: "Best Wooden Toys for 4 Year Old: Top Durable & Educational Picks"
-description: "Choosing the best wooden toys for your 4-year-old can feel overwhelming with so many options out there. You want something safe, fun, and that sparks your child"
+title: 'Best Wooden Toys for 4 Year Old: Top Durable & Educational Picks'
+description: Choosing the best wooden toys for your 4-year-old can feel overwhelming
+  with so many options out there. You want something safe, fun, and that sparks your
+  child
 pubDate: 2026-04-17
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wooden-toys-for-4-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=best-wooden-toys-for-4-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Choosing the best wooden toys for your 4-year-old can feel overwhelming with so many options out there. You want something safe, fun, and that sparks your child’s imagination.**

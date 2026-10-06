@@ -1,10 +1,14 @@
 ---
-title: "Tiny Robot Toy: Top Fun Wind-Up & Bendable Figures for Kids"
-description: "Tiny robot toys bring fun and learning together in a small package. These mini figures move, bend, and entertain children of all ages. Tiny robot toys come in m"
+title: 'Tiny Robot Toy: Top Fun Wind-Up & Bendable Figures for Kids'
+description: Tiny robot toys bring fun and learning together in a small package. These
+  mini figures move, bend, and entertain children of all ages. Tiny robot toys come
+  in m
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tiny-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=tiny-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Tiny robot toys bring fun and learning together in a small package. These mini figures move, bend, and entertain children of all ages.**

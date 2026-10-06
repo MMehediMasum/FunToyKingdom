@@ -1,10 +1,13 @@
 ---
-title: "Toy Tractor Display Case: Perfect Acrylic Showcase for Collectible Models"
-description: "A toy tractor display case keeps your miniature tractors safe and dust-free. It shows off your collection clearly and neatly. Collectors and kids love displayin"
+title: 'Toy Tractor Display Case: Perfect Acrylic Showcase for Collectible Models'
+description: A toy tractor display case keeps your miniature tractors safe and dust-free.
+  It shows off your collection clearly and neatly. Collectors and kids love displayin
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-tractor-display-case&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Tractor
+heroImage: https://tse1.mm.bing.net/th?q=toy-tractor-display-case&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **A toy tractor display case keeps your miniature tractors safe and dust-free. It shows off your collection clearly and neatly.**

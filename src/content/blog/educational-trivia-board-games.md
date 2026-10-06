@@ -1,10 +1,14 @@
 ---
-title: "Educational Trivia Board Games: Fun Learning for All Ages"
-description: "Are you looking for a fun way to boost your knowledge without feeling like studying? Educational trivia board games might be exactly what you need. These games "
+title: 'Educational Trivia Board Games: Fun Learning for All Ages'
+description: 'Are you looking for a fun way to boost your knowledge without feeling
+  like studying? Educational trivia board games might be exactly what you need. These
+  games '
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-trivia-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=educational-trivia-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to boost your knowledge without feeling like studying? Educational trivia board games might be exactly what you need.**

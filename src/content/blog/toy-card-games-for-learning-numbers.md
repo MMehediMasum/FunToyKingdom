@@ -1,10 +1,14 @@
 ---
-title: "Toy Card Games for Learning Numbers: Fun Ways to Boost Math Skills"
-description: "Are you looking for a fun and simple way to help your child learn numbers? Toy card games can turn learning into an exciting adventure right at home. Imagine yo"
+title: 'Toy Card Games for Learning Numbers: Fun Ways to Boost Math Skills'
+description: Are you looking for a fun and simple way to help your child learn numbers?
+  Toy card games can turn learning into an exciting adventure right at home. Imagine
+  yo
 pubDate: 2025-11-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-card-games-for-learning-numbers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=toy-card-games-for-learning-numbers&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and simple way to help your child learn numbers? Toy card games can turn learning into an exciting adventure right at home.**

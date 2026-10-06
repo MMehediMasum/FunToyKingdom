@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 2 Year Old: Top Picks for Fun & Learning"
-description: "Choosing the best toys for your 2-year-old can feel overwhelming. You want something safe, fun, and that helps your little one learn and grow. Imagine giving yo"
+title: 'Best Toys for 2 Year Old: Top Picks for Fun & Learning'
+description: Choosing the best toys for your 2-year-old can feel overwhelming. You
+  want something safe, fun, and that helps your little one learn and grow. Imagine
+  giving yo
 pubDate: 2026-03-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-2-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-2-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Choosing the best toys for your 2-year-old can feel overwhelming. You want something safe, fun, and that helps your little one learn and grow.**

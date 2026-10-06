@@ -1,10 +1,13 @@
 ---
-title: "Light Up Toy Ball for Infants: Brighten Playtime Safely & Fun"
-description: "Are you looking for a fun and safe way to keep your little one entertained? A light up toy ball for infants might be just what you need. These colorful, glowing"
+title: 'Light Up Toy Ball for Infants: Brighten Playtime Safely & Fun'
+description: Are you looking for a fun and safe way to keep your little one entertained?
+  A light up toy ball for infants might be just what you need. These colorful, glowing
 pubDate: 2026-07-22
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=light-up-toy-ball-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Teething Toys
+heroImage: https://tse1.mm.bing.net/th?q=light-up-toy-ball-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and safe way to keep your little one entertained? A light up toy ball for infants might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Gi Joe Comic Tie-In Collectible Figures: Ultimate Collector's Guide"
-description: "If you’re a fan of GI Joe comics, you know how exciting the stories and characters can be. But what if you could bring those heroes and villains to life right o"
+title: 'Gi Joe Comic Tie-In Collectible Figures: Ultimate Collector''s Guide'
+description: If you’re a fan of GI Joe comics, you know how exciting the stories and
+  characters can be. But what if you could bring those heroes and villains to life
+  right o
 pubDate: 2025-12-18
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=gi-joe-comic-tie-in-collectible-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=gi-joe-comic-tie-in-collectible-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you’re a fan of GI Joe comics, you know how exciting the stories and characters can be. But what if you could bring those heroes and villains to life right on your shelf?**

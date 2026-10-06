@@ -1,10 +1,14 @@
 ---
-title: "Best Wagon for Twins: Top Lightweight Double Strollers with All-Terrain Features"
-description: "Choosing the best wagon for twins makes outings easier and more enjoyable. A good double stroller keeps both kids safe and comfortable. Parents of twins need a "
+title: 'Best Wagon for Twins: Top Lightweight Double Strollers with All-Terrain Features'
+description: 'Choosing the best wagon for twins makes outings easier and more enjoyable.
+  A good double stroller keeps both kids safe and comfortable. Parents of twins need
+  a '
 pubDate: 2025-11-10
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wagon-for-twins-top-lightweight-double-strollers-with-all-terrain-features&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Learning Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-wagon-for-twins-top-lightweight-double-strollers-with-all-terrain-features&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best wagon for twins makes outings easier and more enjoyable. A good double stroller keeps both kids safe and comfortable.**

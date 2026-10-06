@@ -1,10 +1,14 @@
 ---
-title: "Toy Airplane Model Kits for Collectors and Kids – Top Picks"
-description: "Toy airplane models captivate both young and old with their intricate designs and historical significance. These miniature aircraft are perfect for collectors a"
+title: Toy Airplane Model Kits for Collectors and Kids – Top Picks
+description: Toy airplane models captivate both young and old with their intricate
+  designs and historical significance. These miniature aircraft are perfect for collectors
+  a
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-airplane-model&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=toy-airplane-model&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Toy airplane models captivate both young and old with their intricate designs and historical significance. These miniature aircraft are perfect for collectors and aviation enthusiasts alike.**

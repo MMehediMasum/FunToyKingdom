@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Fossils: Unique Eco-Friendly Collectibles"
-description: "Imagine giving your child a toy that sparks imagination, teaches history, and feels warm and natural in their hands. Handmade wooden toy fossils do just that. T"
+title: 'Handmade Wooden Toy Fossils: Unique Eco-Friendly Collectibles'
+description: Imagine giving your child a toy that sparks imagination, teaches history,
+  and feels warm and natural in their hands. Handmade wooden toy fossils do just that.
+  T
 pubDate: 2026-05-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-fossils&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-fossils&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks imagination, teaches history, and feels warm and natural in their hands. Handmade wooden toy fossils do just that.**

@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Wind Propeller Craft: Fun DIY Project for Kids"
-description: "Are you looking for a fun and creative project that brings joy to both kids and adults? The Wooden Toy Wind Propeller Craft is perfect for you. It’s simple to m"
+title: 'Wooden Toy Wind Propeller Craft: Fun DIY Project for Kids'
+description: Are you looking for a fun and creative project that brings joy to both
+  kids and adults? The Wooden Toy Wind Propeller Craft is perfect for you. It’s simple
+  to m
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-wind-propeller-craft&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-wind-propeller-craft&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to both kids and adults? The Wooden Toy Wind Propeller Craft is perfect for you.**

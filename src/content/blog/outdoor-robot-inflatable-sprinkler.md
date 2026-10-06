@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Robot Inflatable Sprinkler: Ultimate Summer Fun Gadget"
-description: "Imagine turning your backyard into a fun, refreshing playground that keeps everyone cool and entertained. With an Outdoor Robot Inflatable Sprinkler, you can do"
+title: 'Outdoor Robot Inflatable Sprinkler: Ultimate Summer Fun Gadget'
+description: Imagine turning your backyard into a fun, refreshing playground that
+  keeps everyone cool and entertained. With an Outdoor Robot Inflatable Sprinkler,
+  you can do
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-robot-inflatable-sprinkler&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ai Robot Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-robot-inflatable-sprinkler&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine turning your backyard into a fun, refreshing playground that keeps everyone cool and entertained. With an Outdoor Robot Inflatable Sprinkler, you can do just that.**

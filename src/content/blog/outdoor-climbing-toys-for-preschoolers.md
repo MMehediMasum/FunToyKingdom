@@ -1,10 +1,13 @@
 ---
-title: "Outdoor Climbing Toys for Preschoolers: Top Safe and Fun Playsets"
-description: "Outdoor climbing toys offer preschoolers a world of adventure and learning. These toys help develop physical skills and creativity. Children thrive when engagin"
+title: 'Outdoor Climbing Toys for Preschoolers: Top Safe and Fun Playsets'
+description: Outdoor climbing toys offer preschoolers a world of adventure and learning.
+  These toys help develop physical skills and creativity. Children thrive when engagin
 pubDate: 2026-01-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-climbing-toys-for-preschoolers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Preschoolers
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-climbing-toys-for-preschoolers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Outdoor climbing toys offer preschoolers a world of adventure and learning. These toys help develop physical skills and creativity.**

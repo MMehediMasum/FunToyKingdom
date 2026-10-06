@@ -1,10 +1,13 @@
 ---
-title: "Robot Action Figures Toys: Top Picks for Collectors and Kids Alike"
-description: "Robot action figures toys spark creativity and fun for kids and collectors alike. These figures bring robots to life with cool designs and movable parts. Robot "
+title: 'Robot Action Figures Toys: Top Picks for Collectors and Kids Alike'
+description: 'Robot action figures toys spark creativity and fun for kids and collectors
+  alike. These figures bring robots to life with cool designs and movable parts. Robot '
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-action-figures-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=robot-action-figures-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot action figures toys spark creativity and fun for kids and collectors alike. These figures bring robots to life with cool designs and movable parts.**

@@ -1,10 +1,14 @@
 ---
-title: "Coding Toy Apps for Kids: Fun, Educational, and Easy to Use"
-description: "Are you looking for a fun way to help your child learn coding? Coding toy apps for kids are the perfect solution. These apps turn learning into play, making com"
+title: 'Coding Toy Apps for Kids: Fun, Educational, and Easy to Use'
+description: Are you looking for a fun way to help your child learn coding? Coding
+  toy apps for kids are the perfect solution. These apps turn learning into play,
+  making com
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-toy-apps-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Coding Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=coding-toy-apps-for-kids&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you looking for a fun way to help your child learn coding? Coding toy apps for kids are the perfect solution.**

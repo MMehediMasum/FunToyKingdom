@@ -1,10 +1,14 @@
 ---
-title: "Best Toy Dr Kit for Kids: Top Pretend Play Doctor Sets Reviewed"
-description: "Choosing the best toy doctor kit helps kids learn and have fun at the same time. These kits encourage creativity and role play in young children. A good toy doc"
+title: 'Best Toy Dr Kit for Kids: Top Pretend Play Doctor Sets Reviewed'
+description: Choosing the best toy doctor kit helps kids learn and have fun at the
+  same time. These kits encourage creativity and role play in young children. A good
+  toy doc
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toy-dr-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=best-toy-dr-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Choosing the best toy doctor kit helps kids learn and have fun at the same time. These kits encourage creativity and role play in young children.**

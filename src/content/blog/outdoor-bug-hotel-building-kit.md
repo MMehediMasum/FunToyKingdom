@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Bug Hotel Building Kit: Create a Thriving Wildlife Haven"
-description: "Are you looking for a fun and easy way to bring more life to your garden? An Outdoor Bug Hotel Building Kit is exactly what you need. It’s a simple project that"
+title: 'Outdoor Bug Hotel Building Kit: Create a Thriving Wildlife Haven'
+description: Are you looking for a fun and easy way to bring more life to your garden?
+  An Outdoor Bug Hotel Building Kit is exactly what you need. It’s a simple project
+  that
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-bug-hotel-building-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Kids Nerf Fort Building Kit
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-bug-hotel-building-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and easy way to bring more life to your garden? An Outdoor Bug Hotel Building Kit is exactly what you need.**

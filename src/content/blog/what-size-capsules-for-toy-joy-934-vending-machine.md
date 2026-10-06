@@ -1,10 +1,14 @@
 ---
-title: "What Size Capsules for Toy & Joy 934 Vending Machine: Ultimate Guide"
-description: "Are you wondering what size capsules fit perfectly in your Toy & Joy 934 vending machine? Choosing the right capsule size is key to making your machine work smo"
+title: 'What Size Capsules for Toy & Joy 934 Vending Machine: Ultimate Guide'
+description: Are you wondering what size capsules fit perfectly in your Toy & Joy
+  934 vending machine? Choosing the right capsule size is key to making your machine
+  work smo
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-size-capsules-for-toy-joy-934-vending-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=what-size-capsules-for-toy-joy-934-vending-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you wondering what size capsules fit perfectly in your Toy & Joy 934 vending machine? Choosing the right capsule size is key to making your machine work smoothly and keeping your customers happy.**

@@ -1,10 +1,13 @@
 ---
-title: "Wooden Toy Figure Carving Tutorial: Master Crafting Skills Fast"
-description: "Have you ever wanted to create something beautiful with your own hands? Imagine holding a wooden toy figure you carved yourself—a unique piece full of character"
+title: 'Wooden Toy Figure Carving Tutorial: Master Crafting Skills Fast'
+description: Have you ever wanted to create something beautiful with your own hands?
+  Imagine holding a wooden toy figure you carved yourself—a unique piece full of character
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-figure-carving-tutorial&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-figure-carving-tutorial&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something beautiful with your own hands? Imagine holding a wooden toy figure you carved yourself—a unique piece full of character and charm.**

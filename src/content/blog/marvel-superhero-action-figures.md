@@ -1,10 +1,14 @@
 ---
-title: "Marvel Superhero Action Figures: Ultimate Collectors' Guide 2025"
-description: "Are you a fan of Marvel superheroes? Imagine holding your favorite hero right in your hands, ready to jump into action whenever you want. Marvel Superhero Actio"
+title: 'Marvel Superhero Action Figures: Ultimate Collectors'' Guide 2025'
+description: Are you a fan of Marvel superheroes? Imagine holding your favorite hero
+  right in your hands, ready to jump into action whenever you want. Marvel Superhero
+  Actio
 pubDate: 2025-11-01
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=marvel-superhero-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Superhero Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=marvel-superhero-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Marvel superheroes? Imagine holding your favorite hero right in your hands, ready to jump into action whenever you want.**

@@ -1,10 +1,14 @@
 ---
-title: "Kids Swim Rings Pool Toys: Ultimate Fun for Safe Summer Splash"
-description: "Looking for the perfect way to make pool time more fun and safe for your kids? Kids swim rings pool toys are just what you need. These colorful, easy-to-use flo"
+title: 'Kids Swim Rings Pool Toys: Ultimate Fun for Safe Summer Splash'
+description: Looking for the perfect way to make pool time more fun and safe for your
+  kids? Kids swim rings pool toys are just what you need. These colorful, easy-to-use
+  flo
 pubDate: 2026-03-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-swim-rings-pool-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=kids-swim-rings-pool-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect way to make pool time more fun and safe for your kids? Kids swim rings pool toys are just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Collectible Toy Stamps Value: Unlock Hidden Treasures Today"
-description: "Have you ever wondered if those small collectible toy stamps you have tucked away could be worth something valuable? You might be sitting on a hidden treasure w"
+title: 'Collectible Toy Stamps Value: Unlock Hidden Treasures Today'
+description: Have you ever wondered if those small collectible toy stamps you have
+  tucked away could be worth something valuable? You might be sitting on a hidden
+  treasure w
 pubDate: 2026-09-12
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=collectible-toy-stamps-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=collectible-toy-stamps-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered if those small collectible toy stamps you have tucked away could be worth something valuable? You might be sitting on a hidden treasure without even realizing it.**

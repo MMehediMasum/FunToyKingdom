@@ -1,10 +1,14 @@
 ---
-title: "Pedal Car Outdoor Ride on Toy: Ultimate Fun for Kids Outdoors"
-description: "Imagine giving your child a toy that not only brings endless fun but also boosts their physical activity and creativity. A Pedal Car Outdoor Ride on Toy does ju"
+title: 'Pedal Car Outdoor Ride on Toy: Ultimate Fun for Kids Outdoors'
+description: Imagine giving your child a toy that not only brings endless fun but
+  also boosts their physical activity and creativity. A Pedal Car Outdoor Ride on
+  Toy does ju
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=pedal-car-outdoor-ride-on-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=pedal-car-outdoor-ride-on-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that not only brings endless fun but also boosts their physical activity and creativity. A Pedal Car Outdoor Ride on Toy does just that.**

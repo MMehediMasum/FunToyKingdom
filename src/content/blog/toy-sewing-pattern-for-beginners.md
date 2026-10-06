@@ -1,10 +1,14 @@
 ---
-title: "Toy Sewing Pattern for Beginners: Easy & Fun DIY Projects"
-description: "Are you eager to create something special with your own hands but don’t know where to start? A toy sewing pattern for beginners is the perfect way to dive into "
+title: 'Toy Sewing Pattern for Beginners: Easy & Fun DIY Projects'
+description: 'Are you eager to create something special with your own hands but don’t
+  know where to start? A toy sewing pattern for beginners is the perfect way to dive
+  into '
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-sewing-pattern-for-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=toy-sewing-pattern-for-beginners&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you eager to create something special with your own hands but don’t know where to start? A toy sewing pattern for beginners is the perfect way to dive into sewing without feeling overwhelmed.**

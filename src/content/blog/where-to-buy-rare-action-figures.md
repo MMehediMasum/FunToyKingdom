@@ -1,10 +1,13 @@
 ---
-title: "Where to Buy Rare Action Figures: Top Hidden Gems Revealed"
-description: "Are you on the hunt for rare action figures that can complete your collection or become your next prized possession? Finding these hidden gems isn’t always easy"
+title: 'Where to Buy Rare Action Figures: Top Hidden Gems Revealed'
+description: Are you on the hunt for rare action figures that can complete your collection
+  or become your next prized possession? Finding these hidden gems isn’t always easy
 pubDate: 2025-08-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-rare-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-rare-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you on the hunt for rare action figures that can complete your collection or become your next prized possession? Finding these hidden gems isn’t always easy, but knowing where to look can make all the difference.**

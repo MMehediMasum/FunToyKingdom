@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Enchanted Forest Toy Kit: Magical Playtime Adventure Awaits"
-description: "Imagine turning your backyard into a magical world where creativity and adventure come alive. With the Outdoor Enchanted Forest Toy Kit, you hold the key to end"
+title: 'Outdoor Enchanted Forest Toy Kit: Magical Playtime Adventure Awaits'
+description: Imagine turning your backyard into a magical world where creativity and
+  adventure come alive. With the Outdoor Enchanted Forest Toy Kit, you hold the key
+  to end
 pubDate: 2026-03-27
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-enchanted-forest-toy-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-enchanted-forest-toy-kit&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your backyard into a magical world where creativity and adventure come alive. With the Outdoor Enchanted Forest Toy Kit, you hold the key to endless fun and discovery right outside your door.**

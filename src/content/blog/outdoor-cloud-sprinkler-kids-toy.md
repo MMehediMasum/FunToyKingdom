@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Cloud Sprinkler Kids Toy: Ultimate Summer Fun Guide"
-description: "Looking for a fun way to keep your kids cool and active this summer? The Outdoor Cloud Sprinkler Kids Toy might be exactly what you need. Imagine your children "
+title: 'Outdoor Cloud Sprinkler Kids Toy: Ultimate Summer Fun Guide'
+description: 'Looking for a fun way to keep your kids cool and active this summer?
+  The Outdoor Cloud Sprinkler Kids Toy might be exactly what you need. Imagine your
+  children '
 pubDate: 2026-04-21
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-cloud-sprinkler-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-cloud-sprinkler-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids cool and active this summer? The Outdoor Cloud Sprinkler Kids Toy might be exactly what you need.**

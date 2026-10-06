@@ -1,10 +1,14 @@
 ---
-title: "Hot Wheels Toy Cars: Ultimate 10-Pack Race and Rescue Vehicle Set"
-description: "Hot Wheels toy cars offer exciting play and collecting fun for kids and adults. These miniature vehicles come in many styles, from race cars to monster trucks. "
+title: 'Hot Wheels Toy Cars: Ultimate 10-Pack Race and Rescue Vehicle Set'
+description: 'Hot Wheels toy cars offer exciting play and collecting fun for kids
+  and adults. These miniature vehicles come in many styles, from race cars to monster
+  trucks. '
 pubDate: 2026-02-11
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=hot-wheels-toy-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=hot-wheels-toy-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Hot Wheels toy cars offer exciting play and collecting fun for kids and adults. These miniature vehicles come in many styles, from race cars to monster trucks.**

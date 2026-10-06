@@ -1,10 +1,14 @@
 ---
-title: "Light Up Reindeer Outdoor Toy Decor: Brighten Your Holiday Nights"
-description: "Imagine your yard glowing with festive charm that catches every eye. With the Light Up Reindeer Outdoor Toy Decor, you can turn your outdoor space into a magica"
+title: 'Light Up Reindeer Outdoor Toy Decor: Brighten Your Holiday Nights'
+description: Imagine your yard glowing with festive charm that catches every eye.
+  With the Light Up Reindeer Outdoor Toy Decor, you can turn your outdoor space into
+  a magica
 pubDate: 2026-05-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=light-up-reindeer-outdoor-toy-decor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Crossbow Toy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=light-up-reindeer-outdoor-toy-decor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your yard glowing with festive charm that catches every eye. With the Light Up Reindeer Outdoor Toy Decor, you can turn your outdoor space into a magical winter wonderland.**

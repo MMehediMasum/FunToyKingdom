@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Perler Beads: Creative Craft Kits for Kids’ Fun Projects"
-description: "Toy Story Perler Beads offer a fun and creative way for kids to explore their favorite characters. These kits provide everything needed for imaginative crafting"
+title: 'Toy Story Perler Beads: Creative Craft Kits for Kids’ Fun Projects'
+description: Toy Story Perler Beads offer a fun and creative way for kids to explore
+  their favorite characters. These kits provide everything needed for imaginative
+  crafting
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-perler-beads&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- How Much Money Do You
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-perler-beads&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Toy Story Perler Beads offer a fun and creative way for kids to explore their favorite characters. These kits provide everything needed for imaginative crafting.**

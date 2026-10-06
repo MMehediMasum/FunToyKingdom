@@ -1,10 +1,14 @@
 ---
-title: "Barbie Doll Dreamhouse Playset: Ultimate Fun & Imaginative Play"
-description: "Imagine stepping into a world where your creativity brings every room to life. The Barbie Doll Dreamhouse Playset isn’t just a toy—it’s your ticket to endless f"
+title: 'Barbie Doll Dreamhouse Playset: Ultimate Fun & Imaginative Play'
+description: Imagine stepping into a world where your creativity brings every room
+  to life. The Barbie Doll Dreamhouse Playset isn’t just a toy—it’s your ticket to
+  endless f
 pubDate: 2025-08-31
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-doll-dreamhouse-playset&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-doll-dreamhouse-playset&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Imagine stepping into a world where your creativity brings every room to life. The Barbie Doll Dreamhouse Playset isn’t just a toy—it’s your ticket to endless fun and adventure.**

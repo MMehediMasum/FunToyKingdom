@@ -1,10 +1,14 @@
 ---
-title: "Kids Nature Explorer Outdoor Backpack: Ultimate Adventure Gear Guide"
-description: "Are you looking for the perfect backpack to fuel your child’s love for adventure? The Kids Nature Explorer Outdoor Backpack is designed just for that. It’s more"
+title: 'Kids Nature Explorer Outdoor Backpack: Ultimate Adventure Gear Guide'
+description: Are you looking for the perfect backpack to fuel your child’s love for
+  adventure? The Kids Nature Explorer Outdoor Backpack is designed just for that.
+  It’s more
 pubDate: 2026-05-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-nature-explorer-outdoor-backpack&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=kids-nature-explorer-outdoor-backpack&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect backpack to fuel your child’s love for adventure? The Kids Nature Explorer Outdoor Backpack is designed just for that.**

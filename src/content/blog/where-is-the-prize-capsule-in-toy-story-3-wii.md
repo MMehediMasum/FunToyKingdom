@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Where is the Prize Capsule in Toy Story 3 Wii: Ultimate Guide"
 description: "Are you stuck trying to find the Prize Capsule in Toy Story 3 Wii? You’re not alone. This hidden treasure can be tricky to locate, but once you know where to lo"
 pubDate: 2026-07-26

@@ -1,10 +1,14 @@
 ---
-title: "Arduino Toy Kits for Kids: Fun, Learning & Creativity Unleashed"
-description: "Are you looking for a fun and educational way to spark your child’s creativity? Arduino toy kits for kids are the perfect choice. These kits turn learning into "
+title: 'Arduino Toy Kits for Kids: Fun, Learning & Creativity Unleashed'
+description: 'Are you looking for a fun and educational way to spark your child’s
+  creativity? Arduino toy kits for kids are the perfect choice. These kits turn learning
+  into '
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=arduino-toy-kits-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=arduino-toy-kits-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you looking for a fun and educational way to spark your child’s creativity? Arduino toy kits for kids are the perfect choice.**

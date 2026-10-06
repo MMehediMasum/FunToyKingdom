@@ -1,10 +1,14 @@
 ---
-title: "Cornhole Toss Game for Backyard: Ultimate Fun & Easy Setup Guide"
-description: "Looking for a fun and simple way to spice up your backyard gatherings? The Cornhole Toss Game is exactly what you need. It’s easy to set up, perfect for all age"
+title: 'Cornhole Toss Game for Backyard: Ultimate Fun & Easy Setup Guide'
+description: Looking for a fun and simple way to spice up your backyard gatherings?
+  The Cornhole Toss Game is exactly what you need. It’s easy to set up, perfect for
+  all age
 pubDate: 2026-04-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cornhole-toss-game-for-backyard&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Basketball Hoop
+heroImage: https://tse1.mm.bing.net/th?q=cornhole-toss-game-for-backyard&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and simple way to spice up your backyard gatherings? The Cornhole Toss Game is exactly what you need.**

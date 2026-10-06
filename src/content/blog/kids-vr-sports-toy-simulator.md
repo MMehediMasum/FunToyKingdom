@@ -1,10 +1,14 @@
 ---
-title: "Kids Vr Sports Toy Simulator: Ultimate Fun & Fitness for Kids"
-description: "Imagine giving your kids the thrill of their favorite sports right in your living room. With a Kids VR Sports Toy Simulator, you can do just that. This exciting"
+title: 'Kids Vr Sports Toy Simulator: Ultimate Fun & Fitness for Kids'
+description: Imagine giving your kids the thrill of their favorite sports right in
+  your living room. With a Kids VR Sports Toy Simulator, you can do just that. This
+  exciting
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-vr-sports-toy-simulator&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sports Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=kids-vr-sports-toy-simulator&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your kids the thrill of their favorite sports right in your living room. With a Kids VR Sports Toy Simulator, you can do just that.**

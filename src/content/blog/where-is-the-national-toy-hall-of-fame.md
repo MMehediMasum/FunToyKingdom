@@ -1,10 +1,14 @@
 ---
-title: "Where is the National Toy Hall of Fame: Discover Its Iconic Location"
-description: "Have you ever wondered where the most iconic toys in history come together to celebrate their magic? If you love toys and the stories behind them, you’re in the"
+title: 'Where is the National Toy Hall of Fame: Discover Its Iconic Location'
+description: Have you ever wondered where the most iconic toys in history come together
+  to celebrate their magic? If you love toys and the stories behind them, you’re in
+  the
 pubDate: 2026-01-10
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-is-the-national-toy-hall-of-fame&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Battle Bot
+heroImage: https://tse1.mm.bing.net/th?q=where-is-the-national-toy-hall-of-fame&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered where the most iconic toys in history come together to celebrate their magic? If you love toys and the stories behind them, you’re in the right place.**

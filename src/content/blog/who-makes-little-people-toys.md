@@ -1,10 +1,14 @@
 ---
-title: "Who Makes Little People Toys: Discover Top Trusted Brands Today"
-description: "Have you ever wondered who makes those charming Little People toys that bring so much joy to children? If you’re curious about the story behind these classic fi"
+title: 'Who Makes Little People Toys: Discover Top Trusted Brands Today'
+description: Have you ever wondered who makes those charming Little People toys that
+  bring so much joy to children? If you’re curious about the story behind these classic
+  fi
 pubDate: 2025-09-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-makes-little-people-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=who-makes-little-people-toys&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Have you ever wondered who makes those charming Little People toys that bring so much joy to children? If you’re curious about the story behind these classic figures, you’re in the right place.**

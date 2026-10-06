@@ -1,10 +1,14 @@
 ---
-title: "Is Toy a Scrabble Word: Ultimate Guide to Winning Moves"
-description: "Have you ever found yourself stuck, wondering if a simple word like \"toy\" can earn you points in Scrabble? You’re not alone. Knowing which words count can make "
+title: 'Is Toy a Scrabble Word: Ultimate Guide to Winning Moves'
+description: 'Have you ever found yourself stuck, wondering if a simple word like
+  "toy" can earn you points in Scrabble? You’re not alone. Knowing which words count
+  can make '
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-toy-a-scrabble-word&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=is-toy-a-scrabble-word&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever found yourself stuck, wondering if a simple word like "toy" can earn you points in Scrabble? You’re not alone.**

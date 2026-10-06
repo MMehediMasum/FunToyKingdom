@@ -1,10 +1,13 @@
 ---
-title: "Handmade Cardboard Toy Astronaut Helmet: Creative Fun for Kids"
-description: "Imagine your child’s eyes lighting up as they slip on a cool, handmade cardboard toy astronaut helmet. It’s not just a toy—it’s a gateway to endless adventures,"
+title: 'Handmade Cardboard Toy Astronaut Helmet: Creative Fun for Kids'
+description: Imagine your child’s eyes lighting up as they slip on a cool, handmade
+  cardboard toy astronaut helmet. It’s not just a toy—it’s a gateway to endless adventures,
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-astronaut-helmet&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-astronaut-helmet&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine your child’s eyes lighting up as they slip on a cool, handmade cardboard toy astronaut helmet. It’s not just a toy—it’s a gateway to endless adventures, creativity, and learning.**

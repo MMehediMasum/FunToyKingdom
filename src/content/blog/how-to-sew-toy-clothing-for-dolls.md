@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Toy Clothing for Dolls: Easy Steps for Perfect Fits"
-description: "Do you want to make your dolls look even more special? Sewing toy clothing for dolls is a fun and creative way to bring their outfits to life. Whether you’re a "
+title: 'How to Sew Toy Clothing for Dolls: Easy Steps for Perfect Fits'
+description: 'Do you want to make your dolls look even more special? Sewing toy clothing
+  for dolls is a fun and creative way to bring their outfits to life. Whether you’re
+  a '
 pubDate: 2025-08-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-toy-clothing-for-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-toy-clothing-for-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Do you want to make your dolls look even more special? Sewing toy clothing for dolls is a fun and creative way to bring their outfits to life.**

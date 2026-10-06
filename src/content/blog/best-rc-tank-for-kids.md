@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Tank for Kids: Top Durable & Fun Models Reviewed"
-description: "Looking for the best RC tank for kids? You want something fun, durable, and easy to control. But with so many options out there, how do you pick the perfect one"
+title: 'Best Rc Tank for Kids: Top Durable & Fun Models Reviewed'
+description: Looking for the best RC tank for kids? You want something fun, durable,
+  and easy to control. But with so many options out there, how do you pick the perfect
+  one
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-tank-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Buggy For Kids
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-tank-for-kids&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the best RC tank for kids? You want something fun, durable, and easy to control.**

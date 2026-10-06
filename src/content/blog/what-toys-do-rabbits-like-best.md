@@ -1,10 +1,14 @@
 ---
-title: "What Toys Do Rabbits Like Best: Top Picks for Happy Bunnies"
-description: "If you have a pet rabbit, you want to make sure it stays happy and healthy. One of the best ways to do that is by giving your bunny the right toys. But what toy"
+title: 'What Toys Do Rabbits Like Best: Top Picks for Happy Bunnies'
+description: If you have a pet rabbit, you want to make sure it stays happy and healthy.
+  One of the best ways to do that is by giving your bunny the right toys. But what
+  toy
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-do-rabbits-like-best&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Selling Toys For Cash
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-do-rabbits-like-best&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you have a pet rabbit, you want to make sure it stays happy and healthy. One of the best ways to do that is by giving your bunny the right toys.**

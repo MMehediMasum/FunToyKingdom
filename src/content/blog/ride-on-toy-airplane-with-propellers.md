@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy Airplane With Propellers: Ultimate Fun for Kids!"
-description: "Imagine the joy on your child’s face as they zoom around on a ride-on toy airplane with real spinning propellers. This isn’t just any toy—it’s an exciting adven"
+title: 'Ride on Toy Airplane With Propellers: Ultimate Fun for Kids!'
+description: Imagine the joy on your child’s face as they zoom around on a ride-on
+  toy airplane with real spinning propellers. This isn’t just any toy—it’s an exciting
+  adven
 pubDate: 2025-10-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-airplane-with-propellers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-airplane-with-propellers&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine the joy on your child’s face as they zoom around on a ride-on toy airplane with real spinning propellers. This isn’t just any toy—it’s an exciting adventure that sparks imagination and endless fun.**

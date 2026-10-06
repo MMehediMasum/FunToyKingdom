@@ -1,10 +1,14 @@
 ---
-title: "Rc Helicopter With Lights: Ultimate Night Flying Experience Guide"
-description: "Imagine flying a sleek RC helicopter that lights up your night sky with vibrant colors. You’re not just controlling a toy; you’re commanding a dazzling show tha"
+title: 'Rc Helicopter With Lights: Ultimate Night Flying Experience Guide'
+description: Imagine flying a sleek RC helicopter that lights up your night sky with
+  vibrant colors. You’re not just controlling a toy; you’re commanding a dazzling
+  show tha
 pubDate: 2026-06-09
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-helicopter-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Helicopter For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-helicopter-with-lights&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Imagine flying a sleek RC helicopter that lights up your night sky with vibrant colors. You’re not just controlling a toy; you’re commanding a dazzling show that captures attention wherever you go.**

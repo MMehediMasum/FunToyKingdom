@@ -1,10 +1,14 @@
 ---
-title: "Do Toy Drones Need a License: Essential Rules You Must Know"
-description: "Are you thinking about flying a toy drone but wonder if you need a license first? You’re not alone. Many people ask this question before taking their drone out "
+title: 'Do Toy Drones Need a License: Essential Rules You Must Know'
+description: 'Are you thinking about flying a toy drone but wonder if you need a license
+  first? You’re not alone. Many people ask this question before taking their drone
+  out '
 pubDate: 2026-06-02
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-toy-drones-need-a-license&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Do Toy Drones Need
+heroImage: https://tse1.mm.bing.net/th?q=do-toy-drones-need-a-license&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you thinking about flying a toy drone but wonder if you need a license first? You’re not alone.**

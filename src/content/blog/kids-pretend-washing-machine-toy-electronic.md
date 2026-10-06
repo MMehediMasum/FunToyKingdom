@@ -1,10 +1,14 @@
 ---
-title: "Kids Pretend Washing Machine Toy Electronic: Fun & Educational Playtime"
-description: "Imagine giving your child a toy that’s not only fun but also sparks their imagination and teaches them responsibility. The Kids Pretend Washing Machine Toy Elec"
+title: 'Kids Pretend Washing Machine Toy Electronic: Fun & Educational Playtime'
+description: Imagine giving your child a toy that’s not only fun but also sparks their
+  imagination and teaches them responsibility. The Kids Pretend Washing Machine Toy
+  Elec
 pubDate: 2026-07-06
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-pretend-washing-machine-toy-electronic&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Electronic Language Translator Toy
+heroImage: https://tse1.mm.bing.net/th?q=kids-pretend-washing-machine-toy-electronic&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine giving your child a toy that’s not only fun but also sparks their imagination and teaches them responsibility. The Kids Pretend Washing Machine Toy Electronic does just that.**

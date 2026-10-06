@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 7 Year Old: Top Picks for Fun & Learning"
-description: "Finding the best toys for your 7-year-old can feel overwhelming. You want something that sparks their imagination, keeps them active, and helps them learn—all w"
+title: 'Best Toys for 7 Year Old: Top Picks for Fun & Learning'
+description: Finding the best toys for your 7-year-old can feel overwhelming. You
+  want something that sparks their imagination, keeps them active, and helps them
+  learn—all w
 pubDate: 2026-05-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-7-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-7-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best toys for your 7-year-old can feel overwhelming. You want something that sparks their imagination, keeps them active, and helps them learn—all while making sure they have tons of fun.**

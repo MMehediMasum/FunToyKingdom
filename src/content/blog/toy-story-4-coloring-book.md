@@ -1,10 +1,14 @@
 ---
-title: "Toy Story 4 Coloring Book: Ultimate Fun with Stickers and Activities"
-description: "The Toy Story 4 Coloring Book brings your favorite characters to life through fun coloring and activities. Kids enjoy hours of creative play with Woody, Buzz Li"
+title: 'Toy Story 4 Coloring Book: Ultimate Fun with Stickers and Activities'
+description: The Toy Story 4 Coloring Book brings your favorite characters to life
+  through fun coloring and activities. Kids enjoy hours of creative play with Woody,
+  Buzz Li
 pubDate: 2026-08-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-4-coloring-book&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-4-coloring-book&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **The Toy Story 4 Coloring Book brings your favorite characters to life through fun coloring and activities. Kids enjoy hours of creative play with Woody, Buzz Lightyear, and friends.**

@@ -1,10 +1,14 @@
 ---
-title: "Cars 2 Miguel Camino Toy: Ultimate Die-Cast Racer for Kids"
-description: "Fans of Disney Pixar's Cars will love the Miguel Camino toy collection. These die-cast models capture the essence of the film's beloved character. Miguel Camino"
+title: 'Cars 2 Miguel Camino Toy: Ultimate Die-Cast Racer for Kids'
+description: Fans of Disney Pixar's Cars will love the Miguel Camino toy collection.
+  These die-cast models capture the essence of the film's beloved character. Miguel
+  Camino
 pubDate: 2026-09-02
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cars-2-miguel-camino-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=cars-2-miguel-camino-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Fans of Disney Pixar's Cars will love the Miguel Camino toy collection. These die-cast models capture the essence of the film's beloved character.**

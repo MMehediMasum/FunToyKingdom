@@ -1,10 +1,14 @@
 ---
-title: "Jada Toys Model Cars: Top Die-Cast Collectibles for Fast & Furious Fans"
-description: "Jada Toys model cars capture the excitement of famous vehicles from movies and real life. These die-cast cars offer great detail and quality for collectors and "
+title: 'Jada Toys Model Cars: Top Die-Cast Collectibles for Fast & Furious Fans'
+description: 'Jada Toys model cars capture the excitement of famous vehicles from
+  movies and real life. These die-cast cars offer great detail and quality for collectors
+  and '
 pubDate: 2026-01-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-model-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Model Toy Cars
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-model-cars&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Jada Toys model cars capture the excitement of famous vehicles from movies and real life. These die-cast cars offer great detail and quality for collectors and fans.**

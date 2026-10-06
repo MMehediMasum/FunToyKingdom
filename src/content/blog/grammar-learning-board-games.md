@@ -1,10 +1,14 @@
 ---
-title: "Grammar Learning Board Games: Fun Ways to Master English Skills"
-description: "Are you tired of boring grammar drills that make learning feel like a chore? Imagine turning grammar practice into a fun, exciting game you actually look forwar"
+title: 'Grammar Learning Board Games: Fun Ways to Master English Skills'
+description: Are you tired of boring grammar drills that make learning feel like a
+  chore? Imagine turning grammar practice into a fun, exciting game you actually look
+  forwar
 pubDate: 2025-10-19
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=grammar-learning-board-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=grammar-learning-board-games&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you tired of boring grammar drills that make learning feel like a chore? Imagine turning grammar practice into a fun, exciting game you actually look forward to.**

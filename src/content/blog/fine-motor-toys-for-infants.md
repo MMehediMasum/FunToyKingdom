@@ -1,10 +1,14 @@
 ---
-title: "Fine Motor Toys for Infants: Top Montessori Picks for Skill Development"
-description: "Fine motor toys play a crucial role in infant development. They enhance coordination and stimulate cognitive skills. Parents often seek toys that support their "
+title: 'Fine Motor Toys for Infants: Top Montessori Picks for Skill Development'
+description: 'Fine motor toys play a crucial role in infant development. They enhance
+  coordination and stimulate cognitive skills. Parents often seek toys that support
+  their '
 pubDate: 2026-08-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=fine-motor-toys-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tummy Time Toys
+heroImage: https://tse1.mm.bing.net/th?q=fine-motor-toys-for-infants&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Fine motor toys play a crucial role in infant development. They enhance coordination and stimulate cognitive skills.**

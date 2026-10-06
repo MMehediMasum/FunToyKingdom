@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Outdoor Zipline Harness Replacement: Ultimate Guide for Safety & Comfort"
 description: "Are you ready to feel the thrill of zipping through the great outdoors again? Your outdoor zipline harness is the key to a safe and exciting ride. But what happ"
 pubDate: 2026-04-10

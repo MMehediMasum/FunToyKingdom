@@ -1,10 +1,14 @@
 ---
-title: "How to Disinfect Bath Toys: Easy Steps for a Germ-Free Bath Time"
-description: "Your child’s bath toys bring fun and laughter, but did you know they can also hide harmful germs? If you want to keep your little one safe and healthy, learning"
+title: 'How to Disinfect Bath Toys: Easy Steps for a Germ-Free Bath Time'
+description: Your child’s bath toys bring fun and laughter, but did you know they
+  can also hide harmful germs? If you want to keep your little one safe and healthy,
+  learning
 pubDate: 2025-10-10
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-disinfect-bath-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Bath Toys For Age 1
+heroImage: https://tse1.mm.bing.net/th?q=how-to-disinfect-bath-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Your child’s bath toys bring fun and laughter, but did you know they can also hide harmful germs? If you want to keep your little one safe and healthy, learning how to disinfect bath toys is a must.**

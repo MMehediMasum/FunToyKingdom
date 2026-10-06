@@ -1,10 +1,14 @@
 ---
-title: "Easy Wooden Toy Making Ideas: Simple, Fun & Creative Projects"
-description: "Are you looking for a fun and simple way to create something special with your own hands? Easy wooden toy making ideas are just what you need to spark your crea"
+title: 'Easy Wooden Toy Making Ideas: Simple, Fun & Creative Projects'
+description: Are you looking for a fun and simple way to create something special
+  with your own hands? Easy wooden toy making ideas are just what you need to spark
+  your crea
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=easy-wooden-toy-making-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=easy-wooden-toy-making-ideas&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and simple way to create something special with your own hands? Easy wooden toy making ideas are just what you need to spark your creativity and bring joy to your home.**

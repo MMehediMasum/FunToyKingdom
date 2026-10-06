@@ -1,10 +1,13 @@
 ---
-title: "Best Card And Board Games for Couples to Spark Connection and Fun"
-description: "Finding the best card and board games for couples can boost fun and connection. These games bring laughter, deep talks, and excitement to any date night. Playin"
+title: Best Card And Board Games for Couples to Spark Connection and Fun
+description: Finding the best card and board games for couples can boost fun and connection.
+  These games bring laughter, deep talks, and excitement to any date night. Playin
 pubDate: 2025-12-24
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-and-board-games-for-couples-to-spark-connection-and-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-card-and-board-games-for-couples-to-spark-connection-and-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best card and board games for couples can boost fun and connection. These games bring laughter, deep talks, and excitement to any date night.**

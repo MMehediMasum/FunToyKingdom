@@ -1,10 +1,14 @@
 ---
-title: "Best Wooden Toys for 6 Year Old: Top Picks for Fun & Learning"
-description: "Looking for the best wooden toys for your 6-year-old? You want something safe, fun, and that sparks your child’s imagination. Wooden toys are perfect because th"
+title: 'Best Wooden Toys for 6 Year Old: Top Picks for Fun & Learning'
+description: Looking for the best wooden toys for your 6-year-old? You want something
+  safe, fun, and that sparks your child’s imagination. Wooden toys are perfect because
+  th
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wooden-toys-for-6-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-wooden-toys-for-6-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for the best wooden toys for your 6-year-old? You want something safe, fun, and that sparks your child’s imagination.**

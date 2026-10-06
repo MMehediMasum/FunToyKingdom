@@ -1,10 +1,14 @@
 ---
-title: "Where to Buy a Hess Toy Truck: Ultimate Guide for Collectors"
-description: "Are you looking for the perfect place to buy a Hess Toy Truck? Whether you’re a collector or searching for a special gift, finding the right spot to purchase on"
+title: 'Where to Buy a Hess Toy Truck: Ultimate Guide for Collectors'
+description: Are you looking for the perfect place to buy a Hess Toy Truck? Whether
+  you’re a collector or searching for a special gift, finding the right spot to purchase
+  on
 pubDate: 2025-09-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-to-buy-a-hess-toy-truck&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=where-to-buy-a-hess-toy-truck&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect place to buy a Hess Toy Truck? Whether you’re a collector or searching for a special gift, finding the right spot to purchase one can feel tricky.**

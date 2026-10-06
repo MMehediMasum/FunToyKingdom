@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone With Brushless Motors: Ultimate Power and Speed Guide"
-description: "Are you ready to take your drone flying experience to the next level? An RC drone with brushless motors could be exactly what you need. These powerful motors of"
+title: 'Rc Drone With Brushless Motors: Ultimate Power and Speed Guide'
+description: Are you ready to take your drone flying experience to the next level?
+  An RC drone with brushless motors could be exactly what you need. These powerful
+  motors of
 pubDate: 2026-05-12
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-with-brushless-motors&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-with-brushless-motors&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to take your drone flying experience to the next level? An RC drone with brushless motors could be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Kids Cheerleading Outdoor Practice Set: Ultimate Guide for Fun & Safety"
-description: "Are you looking for a fun and exciting way to keep your kids active and energized? The Kids Cheerleading Outdoor Practice Set is exactly what you need! Imagine "
+title: 'Kids Cheerleading Outdoor Practice Set: Ultimate Guide for Fun & Safety'
+description: 'Are you looking for a fun and exciting way to keep your kids active
+  and energized? The Kids Cheerleading Outdoor Practice Set is exactly what you need!
+  Imagine '
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-cheerleading-outdoor-practice-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=kids-cheerleading-outdoor-practice-set&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to keep your kids active and energized? The Kids Cheerleading Outdoor Practice Set is exactly what you need!**

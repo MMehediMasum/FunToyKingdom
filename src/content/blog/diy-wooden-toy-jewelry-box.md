@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Jewelry Box: Creative Ideas for Unique Gifts"
-description: "Are you looking for a fun and creative way to organize your jewelry? A DIY wooden toy jewelry box could be just what you need. Imagine having a charming, handma"
+title: 'Diy Wooden Toy Jewelry Box: Creative Ideas for Unique Gifts'
+description: Are you looking for a fun and creative way to organize your jewelry?
+  A DIY wooden toy jewelry box could be just what you need. Imagine having a charming,
+  handma
 pubDate: 2026-05-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-jewelry-box&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-jewelry-box&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to organize your jewelry? A DIY wooden toy jewelry box could be just what you need.**

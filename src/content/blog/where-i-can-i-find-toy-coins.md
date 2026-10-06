@@ -1,10 +1,14 @@
 ---
-title: "Where I Can I Find Toy Coins: Ultimate Guide to Best Sources"
-description: "Are you looking for the perfect toy coins to add fun and learning to your playtime? Whether it’s for a game, a collection, or educational purposes, finding the "
+title: 'Where I Can I Find Toy Coins: Ultimate Guide to Best Sources'
+description: 'Are you looking for the perfect toy coins to add fun and learning to
+  your playtime? Whether it’s for a game, a collection, or educational purposes, finding
+  the '
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-i-can-i-find-toy-coins&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Popular Christmas Toys
+heroImage: https://tse1.mm.bing.net/th?q=where-i-can-i-find-toy-coins&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for the perfect toy coins to add fun and learning to your playtime? Whether it’s for a game, a collection, or educational purposes, finding the right toy coins can be tricky.**

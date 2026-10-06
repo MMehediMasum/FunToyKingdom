@@ -1,10 +1,14 @@
 ---
-title: "Toy Make Up Set: Perfect Pretend Play for Kids’ Creative Fun"
-description: "Toy make up sets offer children a fun way to explore creativity and pretend play. These kits come with safe, washable cosmetics designed for young kids. A toy m"
+title: 'Toy Make Up Set: Perfect Pretend Play for Kids’ Creative Fun'
+description: Toy make up sets offer children a fun way to explore creativity and pretend
+  play. These kits come with safe, washable cosmetics designed for young kids. A toy
+  m
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-make-up-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy House Out
+heroImage: https://tse1.mm.bing.net/th?q=toy-make-up-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Toy make up sets offer children a fun way to explore creativity and pretend play. These kits come with safe, washable cosmetics designed for young kids.**

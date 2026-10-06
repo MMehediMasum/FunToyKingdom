@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Toy Doll Dresses: Easy Steps for Beautiful Outfits"
-description: "Are you ready to create charming dresses for your toy dolls that stand out? Sewing toy doll dresses can be fun and surprisingly simple when you know the right s"
+title: 'How to Sew Toy Doll Dresses: Easy Steps for Beautiful Outfits'
+description: Are you ready to create charming dresses for your toy dolls that stand
+  out? Sewing toy doll dresses can be fun and surprisingly simple when you know the
+  right s
 pubDate: 2026-07-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-toy-doll-dresses&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sew Toy Doll Dresses
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-toy-doll-dresses&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to create charming dresses for your toy dolls that stand out? Sewing toy doll dresses can be fun and surprisingly simple when you know the right steps.**

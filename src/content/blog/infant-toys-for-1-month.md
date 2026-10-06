@@ -1,10 +1,14 @@
 ---
-title: "Infant Toys for 1 Month: Best Montessori Sensory & Tummy Time Picks"
-description: "Choosing the right toys for a 1-month-old infant supports early growth and senses. Simple, safe toys help babies explore their new world. At one month old, babi"
+title: 'Infant Toys for 1 Month: Best Montessori Sensory & Tummy Time Picks'
+description: Choosing the right toys for a 1-month-old infant supports early growth
+  and senses. Simple, safe toys help babies explore their new world. At one month
+  old, babi
 pubDate: 2026-01-13
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-toys-for-1-month&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=infant-toys-for-1-month&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys for a 1-month-old infant supports early growth and senses. Simple, safe toys help babies explore their new world.**

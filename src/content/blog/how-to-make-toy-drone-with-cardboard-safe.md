@@ -1,10 +1,14 @@
 ---
-title: "How to Make Toy Drone With Cardboard Safe: Expert Tips & Tricks"
-description: "Are you ready to build your own toy drone using simple cardboard but worried about keeping it safe and durable? Making a toy drone at home can be fun and reward"
+title: 'How to Make Toy Drone With Cardboard Safe: Expert Tips & Tricks'
+description: Are you ready to build your own toy drone using simple cardboard but
+  worried about keeping it safe and durable? Making a toy drone at home can be fun
+  and reward
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-toy-drone-with-cardboard-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Drone Toy For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-toy-drone-with-cardboard-safe&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you ready to build your own toy drone using simple cardboard but worried about keeping it safe and durable? Making a toy drone at home can be fun and rewarding, but without the right tips, it might break quickly or even become unsafe to use.**

@@ -1,10 +1,14 @@
 ---
-title: "Toys And Games for 9 Year Olds: Top Magic, STEM, and RC Picks"
-description: "Choosing the right toys and games for 9-year-olds can be a delightful challenge. Kids at this age are curious and full of energy. Selecting toys and games that "
+title: 'Toys And Games for 9 Year Olds: Top Magic, STEM, and RC Picks'
+description: 'Choosing the right toys and games for 9-year-olds can be a delightful
+  challenge. Kids at this age are curious and full of energy. Selecting toys and games
+  that '
 pubDate: 2026-01-23
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=toys-and-games-for-9-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=toys-and-games-for-9-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the right toys and games for 9-year-olds can be a delightful challenge. Kids at this age are curious and full of energy.**

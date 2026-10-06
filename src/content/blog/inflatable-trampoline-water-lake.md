@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Trampoline Water Lake: Ultimate Summer Fun Guide"
-description: "Imagine turning your summer days into unforgettable adventures with just one simple addition to your lake. An inflatable trampoline water lake is more than just"
+title: 'Inflatable Trampoline Water Lake: Ultimate Summer Fun Guide'
+description: Imagine turning your summer days into unforgettable adventures with just
+  one simple addition to your lake. An inflatable trampoline water lake is more than
+  just
 pubDate: 2026-03-23
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-trampoline-water-lake&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Water Sprinkler Toy
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-trampoline-water-lake&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your summer days into unforgettable adventures with just one simple addition to your lake. An inflatable trampoline water lake is more than just a floating toy—it’s your ticket to endless fun, laughter, and excitement right on the water.**

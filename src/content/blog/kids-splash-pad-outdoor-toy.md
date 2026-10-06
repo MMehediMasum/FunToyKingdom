@@ -1,10 +1,14 @@
 ---
-title: "Kids Splash Pad Outdoor Toy: Ultimate Fun for Sunny Days"
-description: "Looking for a fun and safe way to keep your kids cool and entertained this summer? A kids splash pad outdoor toy might be just what you need. Imagine your littl"
+title: 'Kids Splash Pad Outdoor Toy: Ultimate Fun for Sunny Days'
+description: Looking for a fun and safe way to keep your kids cool and entertained
+  this summer? A kids splash pad outdoor toy might be just what you need. Imagine
+  your littl
 pubDate: 2026-04-16
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-splash-pad-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=kids-splash-pad-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids cool and entertained this summer? A kids splash pad outdoor toy might be just what you need.**

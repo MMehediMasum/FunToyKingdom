@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Catamaran Inflatable Kids Toy: Ultimate Fun & Safety Guide"
-description: "Imagine your kids laughing and playing on a bright, colorful inflatable toy that floats on water, turning any outdoor day into an unforgettable adventure. The O"
+title: 'Outdoor Catamaran Inflatable Kids Toy: Ultimate Fun & Safety Guide'
+description: Imagine your kids laughing and playing on a bright, colorful inflatable
+  toy that floats on water, turning any outdoor day into an unforgettable adventure.
+  The O
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-catamaran-inflatable-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 11
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-catamaran-inflatable-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your kids laughing and playing on a bright, colorful inflatable toy that floats on water, turning any outdoor day into an unforgettable adventure. The Outdoor Catamaran Inflatable Kids Toy is designed to bring fun, safety, and excitement all in one.**

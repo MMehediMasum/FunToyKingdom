@@ -1,10 +1,14 @@
 ---
-title: "Best Wooden Toys for 1 Year Old: Top Durable & Safe Picks"
-description: "Choosing the best wooden toys for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one learn and grow. Imagine gi"
+title: 'Best Wooden Toys for 1 Year Old: Top Durable & Safe Picks'
+description: Choosing the best wooden toys for your 1-year-old can feel overwhelming.
+  You want something safe, fun, and that helps your little one learn and grow. Imagine
+  gi
 pubDate: 2026-04-01
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-wooden-toys-for-1-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-wooden-toys-for-1-year-old&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Choosing the best wooden toys for your 1-year-old can feel overwhelming. You want something safe, fun, and that helps your little one learn and grow.**

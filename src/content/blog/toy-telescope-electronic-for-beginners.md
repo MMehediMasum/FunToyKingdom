@@ -1,10 +1,14 @@
 ---
-title: "Toy Telescope Electronic for Beginners: Ultimate Guide to Start Stargazing"
-description: "Have you ever looked up at the night sky and wished you could see the stars and planets up close? A toy telescope electronic for beginners can make that dream c"
+title: 'Toy Telescope Electronic for Beginners: Ultimate Guide to Start Stargazing'
+description: Have you ever looked up at the night sky and wished you could see the
+  stars and planets up close? A toy telescope electronic for beginners can make that
+  dream c
 pubDate: 2026-07-14
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-telescope-electronic-for-beginners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=toy-telescope-electronic-for-beginners&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever looked up at the night sky and wished you could see the stars and planets up close? A toy telescope electronic for beginners can make that dream come true, right from your own backyard.**

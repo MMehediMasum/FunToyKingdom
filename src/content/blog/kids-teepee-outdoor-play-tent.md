@@ -1,10 +1,14 @@
 ---
-title: "Kids Teepee Outdoor Play Tent: Ultimate Fun & Adventure Spot"
-description: "Imagine giving your child a special place just for them—right in your backyard. A Kids Teepee Outdoor Play Tent can turn any outdoor space into a magical hideaw"
+title: 'Kids Teepee Outdoor Play Tent: Ultimate Fun & Adventure Spot'
+description: Imagine giving your child a special place just for them—right in your
+  backyard. A Kids Teepee Outdoor Play Tent can turn any outdoor space into a magical
+  hideaw
 pubDate: 2026-05-09
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-teepee-outdoor-play-tent&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=kids-teepee-outdoor-play-tent&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a special place just for them—right in your backyard. A Kids Teepee Outdoor Play Tent can turn any outdoor space into a magical hideaway where your little one can play, imagine, and relax.**

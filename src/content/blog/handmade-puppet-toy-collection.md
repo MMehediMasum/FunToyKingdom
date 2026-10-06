@@ -1,10 +1,14 @@
 ---
-title: "Handmade Puppet Toy Collection: Unique Gifts to Delight Everyone"
-description: "Are you looking for a unique way to bring joy and creativity into your life or your child’s playtime? Handmade puppet toys offer something special that mass-pro"
+title: 'Handmade Puppet Toy Collection: Unique Gifts to Delight Everyone'
+description: Are you looking for a unique way to bring joy and creativity into your
+  life or your child’s playtime? Handmade puppet toys offer something special that
+  mass-pro
 pubDate: 2026-07-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-puppet-toy-collection&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=handmade-puppet-toy-collection&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking for a unique way to bring joy and creativity into your life or your child’s playtime? Handmade puppet toys offer something special that mass-produced toys simply can’t match.**

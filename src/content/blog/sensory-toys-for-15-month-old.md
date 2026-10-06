@@ -1,10 +1,14 @@
 ---
-title: "Sensory Toys for 15 Month Old Toddlers to Boost Learning and Fun"
-description: "Sensory toys help 15-month-olds explore and learn through touch, sight, and sound. They support brain growth and fine motor skills. At 15 months, toddlers are c"
+title: Sensory Toys for 15 Month Old Toddlers to Boost Learning and Fun
+description: Sensory toys help 15-month-olds explore and learn through touch, sight,
+  and sound. They support brain growth and fine motor skills. At 15 months, toddlers
+  are c
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-toys-for-15-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-toys-for-15-month-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory toys help 15-month-olds explore and learn through touch, sight, and sound. They support brain growth and fine motor skills.**

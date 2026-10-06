@@ -1,10 +1,14 @@
 ---
-title: "Do Wendy'S Kids Meals Have Toys: Fun Surprises Inside!"
-description: "Are you wondering if Wendy’s kids meals come with toys that can make your little one’s meal extra fun? If you’ve ever grabbed a kids meal from other places, you"
+title: 'Do Wendy''S Kids Meals Have Toys: Fun Surprises Inside!'
+description: Are you wondering if Wendy’s kids meals come with toys that can make
+  your little one’s meal extra fun? If you’ve ever grabbed a kids meal from other
+  places, you
 pubDate: 2025-10-26
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=do-wendys-kids-meals-have-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Lover Toys
+heroImage: https://tse1.mm.bing.net/th?q=do-wendys-kids-meals-have-toys&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you wondering if Wendy’s kids meals come with toys that can make your little one’s meal extra fun? If you’ve ever grabbed a kids meal from other places, you know how much a toy can brighten up the experience.**

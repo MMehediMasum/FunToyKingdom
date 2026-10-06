@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Camping: Fun Family Games for Outdoor Adventures"
-description: "Camping trips become more fun with the right board games. They bring family and friends closer while enjoying the outdoors. Choosing games for camping means pic"
+title: 'Best Board Games for Camping: Fun Family Games for Outdoor Adventures'
+description: Camping trips become more fun with the right board games. They bring
+  family and friends closer while enjoying the outdoors. Choosing games for camping
+  means pic
 pubDate: 2025-09-18
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-camping-fun-family-games-for-outdoor-adventures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-camping-fun-family-games-for-outdoor-adventures&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Camping trips become more fun with the right board games. They bring family and friends closer while enjoying the outdoors.**

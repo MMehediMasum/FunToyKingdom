@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Shrimp Catching Toy Kids: Ultimate Fun for Summer Play"
-description: "Are you looking for a fun and exciting way to get your kids outdoors? An outdoor shrimp catching toy is just what you need! Imagine your children laughing and e"
+title: 'Outdoor Shrimp Catching Toy Kids: Ultimate Fun for Summer Play'
+description: Are you looking for a fun and exciting way to get your kids outdoors?
+  An outdoor shrimp catching toy is just what you need! Imagine your children laughing
+  and e
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-shrimp-catching-toy-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-shrimp-catching-toy-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to get your kids outdoors? An outdoor shrimp catching toy is just what you need!**

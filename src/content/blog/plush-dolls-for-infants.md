@@ -1,10 +1,14 @@
 ---
-title: "Plush Dolls for Infants: Safe, Soft, and Perfect Snuggle Buddies"
-description: "Are you searching for the perfect soft companion for your little one? Plush dolls for infants aren’t just cute toys—they can become your baby’s first best frien"
+title: 'Plush Dolls for Infants: Safe, Soft, and Perfect Snuggle Buddies'
+description: Are you searching for the perfect soft companion for your little one?
+  Plush dolls for infants aren’t just cute toys—they can become your baby’s first
+  best frien
 pubDate: 2026-03-25
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=plush-dolls-for-infants&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dolls For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=plush-dolls-for-infants&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you searching for the perfect soft companion for your little one? Plush dolls for infants aren’t just cute toys—they can become your baby’s first best friend.**

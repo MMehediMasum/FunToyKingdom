@@ -1,10 +1,14 @@
 ---
-title: "Best Card Games for 5 Year Olds to Spark Fun and Learning Together"
-description: "Choosing the best card games for 5 year olds helps develop their thinking and social skills. Simple rules and bright colors keep kids engaged and happy. Card ga"
+title: Best Card Games for 5 Year Olds to Spark Fun and Learning Together
+description: Choosing the best card games for 5 year olds helps develop their thinking
+  and social skills. Simple rules and bright colors keep kids engaged and happy. Card
+  ga
 pubDate: 2025-12-28
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-card-games-for-5-year-olds-to-spark-fun-and-learning-together&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games Ages 3 4
+heroImage: https://tse1.mm.bing.net/th?q=best-card-games-for-5-year-olds-to-spark-fun-and-learning-together&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Choosing the best card games for 5 year olds helps develop their thinking and social skills. Simple rules and bright colors keep kids engaged and happy.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Hat Sewing Project: Easy Steps for Creative Fun"
-description: "Are you ready to create something fun and unique with your own hands? This DIY toy hat sewing project is perfect for you! Whether you’re new to sewing or lookin"
+title: 'Diy Toy Hat Sewing Project: Easy Steps for Creative Fun'
+description: Are you ready to create something fun and unique with your own hands?
+  This DIY toy hat sewing project is perfect for you! Whether you’re new to sewing
+  or lookin
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-hat-sewing-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Tent Sewing Project
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-hat-sewing-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you ready to create something fun and unique with your own hands? This DIY toy hat sewing project is perfect for you!**

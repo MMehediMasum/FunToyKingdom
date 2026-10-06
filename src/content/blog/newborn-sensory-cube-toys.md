@@ -1,10 +1,14 @@
 ---
-title: "Newborn Sensory Cube Toys: Boost Baby’s Development Today"
-description: "Are you looking for the perfect toy to help your newborn explore the world around them? Newborn sensory cube toys might be just what you need. These colorful, s"
+title: 'Newborn Sensory Cube Toys: Boost Baby’s Development Today'
+description: Are you looking for the perfect toy to help your newborn explore the
+  world around them? Newborn sensory cube toys might be just what you need. These
+  colorful, s
 pubDate: 2026-04-20
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=newborn-sensory-cube-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys By Age
+heroImage: https://tse1.mm.bing.net/th?q=newborn-sensory-cube-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for the perfect toy to help your newborn explore the world around them? Newborn sensory cube toys might be just what you need.**

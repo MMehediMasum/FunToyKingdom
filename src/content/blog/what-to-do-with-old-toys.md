@@ -1,10 +1,14 @@
 ---
-title: "What to Do With Old Toys: Creative Ways to Reuse and Donate"
-description: "Do you have a box full of old toys gathering dust in your home? You’re not alone. Those toys once brought joy, but now they just take up space. What if you coul"
+title: 'What to Do With Old Toys: Creative Ways to Reuse and Donate'
+description: Do you have a box full of old toys gathering dust in your home? You’re
+  not alone. Those toys once brought joy, but now they just take up space. What if
+  you coul
 pubDate: 2026-01-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-to-do-with-old-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-to-do-with-old-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have a box full of old toys gathering dust in your home? You’re not alone.**

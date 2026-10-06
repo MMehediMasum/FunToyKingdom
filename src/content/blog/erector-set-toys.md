@@ -1,10 +1,14 @@
 ---
-title: "Erector Set Toys: Top STEM Building Kits for Creative Kids"
-description: "Erector sets have fascinated children and adults alike for generations. These construction toys inspire creativity and problem-solving skills. Erector set toys "
+title: 'Erector Set Toys: Top STEM Building Kits for Creative Kids'
+description: 'Erector sets have fascinated children and adults alike for generations.
+  These construction toys inspire creativity and problem-solving skills. Erector set
+  toys '
 pubDate: 2026-08-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=erector-set-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Mozart Magic Cube
+heroImage: https://tse1.mm.bing.net/th?q=erector-set-toys&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Erector sets have fascinated children and adults alike for generations. These construction toys inspire creativity and problem-solving skills.**

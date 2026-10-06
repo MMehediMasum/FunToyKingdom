@@ -1,10 +1,14 @@
 ---
-title: "Snow Sled Outdoor Toy for Kids: Ultimate Winter Fun Guide"
-description: "Are you looking for the perfect way to make winter unforgettable for your kids? A snow sled outdoor toy is exactly what you need. Imagine your children’s laught"
+title: 'Snow Sled Outdoor Toy for Kids: Ultimate Winter Fun Guide'
+description: Are you looking for the perfect way to make winter unforgettable for
+  your kids? A snow sled outdoor toy is exactly what you need. Imagine your children’s
+  laught
 pubDate: 2026-06-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=snow-sled-outdoor-toy-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Raft Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=snow-sled-outdoor-toy-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect way to make winter unforgettable for your kids? A snow sled outdoor toy is exactly what you need.**

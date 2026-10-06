@@ -1,10 +1,14 @@
 ---
-title: "How to Earn More Toy Capsules in My Forbidden Love: Ultimate Guide"
-description: "Are you struggling to get enough toy capsules in My Forbidden Love? You’re not alone. These capsules are key to unlocking exciting rewards and making your gamep"
+title: 'How to Earn More Toy Capsules in My Forbidden Love: Ultimate Guide'
+description: Are you struggling to get enough toy capsules in My Forbidden Love? You’re
+  not alone. These capsules are key to unlocking exciting rewards and making your
+  gamep
 pubDate: 2026-07-28
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-earn-more-toy-capsules-in-my-forbidden-love&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Rings
+heroImage: https://tse1.mm.bing.net/th?q=how-to-earn-more-toy-capsules-in-my-forbidden-love&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you struggling to get enough toy capsules in My Forbidden Love? You’re not alone.**

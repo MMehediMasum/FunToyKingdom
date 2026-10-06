@@ -1,10 +1,14 @@
 ---
-title: "What Lube is Best for Toys: Ultimate Guide for Safe Play"
-description: "Choosing the right lube for your toys can make all the difference in your experience. You want something that feels smooth, lasts long, and keeps your toys in p"
+title: 'What Lube is Best for Toys: Ultimate Guide for Safe Play'
+description: Choosing the right lube for your toys can make all the difference in
+  your experience. You want something that feels smooth, lasts long, and keeps your
+  toys in p
 pubDate: 2026-01-03
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-lube-is-best-for-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Silicone Toy Care
+heroImage: https://tse1.mm.bing.net/th?q=what-lube-is-best-for-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Choosing the right lube for your toys can make all the difference in your experience. You want something that feels smooth, lasts long, and keeps your toys in perfect condition.**

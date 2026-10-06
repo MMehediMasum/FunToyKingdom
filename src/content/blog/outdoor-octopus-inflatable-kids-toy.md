@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Octopus Inflatable Kids Toy: Ultimate Fun for Summer Play"
-description: "Looking for a fun and safe way to keep your kids entertained outdoors? The Outdoor Octopus Inflatable Kids Toy might be exactly what you need. Imagine your chil"
+title: 'Outdoor Octopus Inflatable Kids Toy: Ultimate Fun for Summer Play'
+description: Looking for a fun and safe way to keep your kids entertained outdoors?
+  The Outdoor Octopus Inflatable Kids Toy might be exactly what you need. Imagine
+  your chil
 pubDate: 2026-03-18
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-octopus-inflatable-kids-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-octopus-inflatable-kids-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your kids entertained outdoors? The Outdoor Octopus Inflatable Kids Toy might be exactly what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Monster High Cleo De Nile Collectible: Must-Have Iconic Doll!"
-description: "Are you a fan of unique collectibles that stand out on your shelf? The Monster High Cleo De Nile collectible is exactly what your collection needs. With her str"
+title: 'Monster High Cleo De Nile Collectible: Must-Have Iconic Doll!'
+description: Are you a fan of unique collectibles that stand out on your shelf? The
+  Monster High Cleo De Nile collectible is exactly what your collection needs. With
+  her str
 pubDate: 2025-12-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=monster-high-cleo-de-nile-collectible&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Collectible Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=monster-high-cleo-de-nile-collectible&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of unique collectibles that stand out on your shelf? The Monster High Cleo De Nile collectible is exactly what your collection needs.**

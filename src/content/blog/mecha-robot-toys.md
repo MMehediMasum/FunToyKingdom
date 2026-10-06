@@ -1,10 +1,14 @@
 ---
-title: "Mecha Robot Toys: Ultimate Building Kits for Creative Teens and Kids"
-description: "Mecha robot toys offer hours of fun and creativity for kids and adults alike. These building sets combine action, imagination, and skill in one exciting package"
+title: 'Mecha Robot Toys: Ultimate Building Kits for Creative Teens and Kids'
+description: Mecha robot toys offer hours of fun and creativity for kids and adults
+  alike. These building sets combine action, imagination, and skill in one exciting
+  package
 pubDate: 2026-02-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mecha-robot-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=mecha-robot-toys&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Mecha robot toys offer hours of fun and creativity for kids and adults alike. These building sets combine action, imagination, and skill in one exciting package.**

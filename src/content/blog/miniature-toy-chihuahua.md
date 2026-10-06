@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Miniature Toy Chihuahua: Perfect Hand-Painted Figurines for Kids’ Playsets"
 description: "Miniature Toy Chihuahuas capture the charm of tiny dogs in detailed, hand-painted figures. These small collectibles bring joy to kids and adults alike. Miniatur"
 pubDate: 2026-08-06

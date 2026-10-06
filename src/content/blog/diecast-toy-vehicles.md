@@ -1,10 +1,14 @@
 ---
-title: "Diecast & Toy Vehicles: Top Metal Model Cars and Trucks for Kids"
-description: "Diecast and toy vehicles offer fun and learning for kids and collectors alike. These small, detailed models bring real vehicles to life in miniature form. Dieca"
+title: 'Diecast & Toy Vehicles: Top Metal Model Cars and Trucks for Kids'
+description: Diecast and toy vehicles offer fun and learning for kids and collectors
+  alike. These small, detailed models bring real vehicles to life in miniature form.
+  Dieca
 pubDate: 2026-08-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diecast-toy-vehicles&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Diecast Toy Trucks
+heroImage: https://tse1.mm.bing.net/th?q=diecast-toy-vehicles&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Diecast and toy vehicles offer fun and learning for kids and collectors alike. These small, detailed models bring real vehicles to life in miniature form.**

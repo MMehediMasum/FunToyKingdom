@@ -1,10 +1,14 @@
 ---
-title: "Automatic Cat Toy Ball: Keep Your Indoor Cat Active and Entertained"
-description: "Automatic cat toy balls keep indoor cats active and entertained without much effort from owners. These smart toys move on their own and catch cats’ attention qu"
+title: 'Automatic Cat Toy Ball: Keep Your Indoor Cat Active and Entertained'
+description: Automatic cat toy balls keep indoor cats active and entertained without
+  much effort from owners. These smart toys move on their own and catch cats’ attention
+  qu
 pubDate: 2026-08-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=automatic-cat-toy-ball&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cat Toy With Ball Inside
+heroImage: https://tse1.mm.bing.net/th?q=automatic-cat-toy-ball&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Automatic cat toy balls keep indoor cats active and entertained without much effort from owners. These smart toys move on their own and catch cats’ attention quickly.**

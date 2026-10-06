@@ -1,10 +1,14 @@
 ---
-title: "Camping Toys for Preschoolers: Top Fun Outdoor Playsets for Kids"
-description: "Camping toys for preschoolers make outdoor adventures fun and safe. These toys help children explore nature while learning through play. Preschool camping toys "
+title: 'Camping Toys for Preschoolers: Top Fun Outdoor Playsets for Kids'
+description: 'Camping toys for preschoolers make outdoor adventures fun and safe.
+  These toys help children explore nature while learning through play. Preschool camping
+  toys '
 pubDate: 2026-01-14
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=camping-toys-for-preschoolers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toys For Preschoolers
+heroImage: https://tse1.mm.bing.net/th?q=camping-toys-for-preschoolers&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Camping toys for preschoolers make outdoor adventures fun and safe. These toys help children explore nature while learning through play.**

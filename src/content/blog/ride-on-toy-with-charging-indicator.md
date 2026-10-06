@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Charging Indicator: Ultimate Convenience & Safety Guide"
-description: "Imagine your child’s excitement when they hop on their ride-on toy, ready for endless fun. But what if the fun suddenly stops because the battery dies without w"
+title: 'Ride on Toy With Charging Indicator: Ultimate Convenience & Safety Guide'
+description: Imagine your child’s excitement when they hop on their ride-on toy, ready
+  for endless fun. But what if the fun suddenly stops because the battery dies without
+  w
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-charging-indicator&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-charging-indicator&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s excitement when they hop on their ride-on toy, ready for endless fun. But what if the fun suddenly stops because the battery dies without warning?**

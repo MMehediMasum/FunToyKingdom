@@ -1,10 +1,14 @@
 ---
-title: "Soft Cube Toy Sensory Play: Boost Creativity and Motor Skills"
-description: "Imagine giving your child a toy that’s not just fun but also sparks their senses and helps their brain grow. Soft cube toy sensory play does exactly that. These"
+title: 'Soft Cube Toy Sensory Play: Boost Creativity and Motor Skills'
+description: Imagine giving your child a toy that’s not just fun but also sparks their
+  senses and helps their brain grow. Soft cube toy sensory play does exactly that.
+  These
 pubDate: 2026-09-12
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=soft-cube-toy-sensory-play&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Sensory Toys
+heroImage: https://tse1.mm.bing.net/th?q=soft-cube-toy-sensory-play&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Imagine giving your child a toy that’s not just fun but also sparks their senses and helps their brain grow. Soft cube toy sensory play does exactly that.**

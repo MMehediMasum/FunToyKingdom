@@ -1,10 +1,14 @@
 ---
-title: "Best Building Toys for 6 Year Olds: Top Space and Rescue Kits"
-description: "Building toys help 6 year olds develop creativity and problem-solving skills. They offer hours of fun while boosting fine motor skills and imagination. Choosing"
+title: 'Best Building Toys for 6 Year Olds: Top Space and Rescue Kits'
+description: Building toys help 6 year olds develop creativity and problem-solving
+  skills. They offer hours of fun while boosting fine motor skills and imagination.
+  Choosing
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-building-toys-for-6-year-olds-top-space-and-rescue-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-building-toys-for-6-year-olds-top-space-and-rescue-kits&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Building toys help 6 year olds develop creativity and problem-solving skills. They offer hours of fun while boosting fine motor skills and imagination.**

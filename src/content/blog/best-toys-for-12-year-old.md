@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 12 Year Old: Top Picks for Fun & Learning"
-description: "Finding the best toys for a 12-year-old can be tricky. You want something fun, exciting, and just right for their age. Whether you're shopping for your child, a"
+title: 'Best Toys for 12 Year Old: Top Picks for Fun & Learning'
+description: Finding the best toys for a 12-year-old can be tricky. You want something
+  fun, exciting, and just right for their age. Whether you're shopping for your child,
+  a
 pubDate: 2026-04-24
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-12-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-12-year-old&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Finding the best toys for a 12-year-old can be tricky. You want something fun, exciting, and just right for their age.**

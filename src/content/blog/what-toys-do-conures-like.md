@@ -1,10 +1,14 @@
 ---
-title: "What Toys Do Conures Like: Top Picks for Happy, Active Birds"
-description: "If you have a conure, you know how playful and curious these birds can be. But have you ever wondered what toys truly keep your feathered friend happy and enter"
+title: 'What Toys Do Conures Like: Top Picks for Happy, Active Birds'
+description: If you have a conure, you know how playful and curious these birds can
+  be. But have you ever wondered what toys truly keep your feathered friend happy
+  and enter
 pubDate: 2026-01-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-do-conures-like&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-do-conures-like&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you have a conure, you know how playful and curious these birds can be. But have you ever wondered what toys truly keep your feathered friend happy and entertained?**

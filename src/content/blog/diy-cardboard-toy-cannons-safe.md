@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Cannons Safe: Fun, Creative & Kid-Friendly Ideas"
-description: "Looking for a fun and safe way to create your own toy cannon? You’re in the right place. DIY cardboard toy cannons are not only exciting to build, but they’re a"
+title: 'Diy Cardboard Toy Cannons Safe: Fun, Creative & Kid-Friendly Ideas'
+description: Looking for a fun and safe way to create your own toy cannon? You’re
+  in the right place. DIY cardboard toy cannons are not only exciting to build, but
+  they’re a
 pubDate: 2026-05-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-cannons-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Oven
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-cannons-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and safe way to create your own toy cannon? You’re in the right place.**

@@ -1,10 +1,14 @@
 ---
-title: "Foam Glider Airplane Toy: Ultimate Fun for Kids and Adults"
-description: "Are you looking for a fun and simple way to enjoy outdoor play? A foam glider airplane toy might be just what you need. It’s lightweight, easy to throw, and can"
+title: 'Foam Glider Airplane Toy: Ultimate Fun for Kids and Adults'
+description: Are you looking for a fun and simple way to enjoy outdoor play? A foam
+  glider airplane toy might be just what you need. It’s lightweight, easy to throw,
+  and can
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=foam-glider-airplane-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=foam-glider-airplane-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and simple way to enjoy outdoor play? A foam glider airplane toy might be just what you need.**

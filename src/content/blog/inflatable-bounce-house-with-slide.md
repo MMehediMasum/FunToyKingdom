@@ -1,10 +1,14 @@
 ---
-title: "Inflatable Bounce House With Slide: Ultimate Fun for Kids!"
-description: "Looking for a fun way to keep your kids entertained at parties or family gatherings? An inflatable bounce house with slide might be exactly what you need. Imagi"
+title: 'Inflatable Bounce House With Slide: Ultimate Fun for Kids!'
+description: Looking for a fun way to keep your kids entertained at parties or family
+  gatherings? An inflatable bounce house with slide might be exactly what you need.
+  Imagi
 pubDate: 2026-06-13
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=inflatable-bounce-house-with-slide&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Slide For Toddlers
+heroImage: https://tse1.mm.bing.net/th?q=inflatable-bounce-house-with-slide&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids entertained at parties or family gatherings? An inflatable bounce house with slide might be exactly what you need.**

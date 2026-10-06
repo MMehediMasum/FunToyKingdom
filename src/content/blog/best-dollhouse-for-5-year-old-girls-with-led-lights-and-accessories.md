@@ -1,10 +1,14 @@
 ---
-title: "Best Dollhouse for 5 Year Old Girls with LED Lights and Accessories"
-description: "Choosing the best dollhouse for a 5-year-old can make playtime more fun and creative. A good dollhouse sparks imagination and helps develop fine motor skills. D"
+title: Best Dollhouse for 5 Year Old Girls with LED Lights and Accessories
+description: Choosing the best dollhouse for a 5-year-old can make playtime more fun
+  and creative. A good dollhouse sparks imagination and helps develop fine motor skills.
+  D
 pubDate: 2025-10-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouse-for-5-year-old-girls-with-led-lights-and-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouse-for-5-year-old-girls-with-led-lights-and-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Choosing the best dollhouse for a 5-year-old can make playtime more fun and creative. A good dollhouse sparks imagination and helps develop fine motor skills.**

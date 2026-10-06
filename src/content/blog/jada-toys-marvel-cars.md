@@ -1,10 +1,14 @@
 ---
-title: "Jada Toys Marvel Cars: Ultimate Die-Cast Collectibles for Fans"
-description: "Jada Toys Marvel Cars combine popular superhero figures with detailed die-cast vehicles. These collectible sets appeal to both kids and adults who enjoy Marvel "
+title: 'Jada Toys Marvel Cars: Ultimate Die-Cast Collectibles for Fans'
+description: 'Jada Toys Marvel Cars combine popular superhero figures with detailed
+  die-cast vehicles. These collectible sets appeal to both kids and adults who enjoy
+  Marvel '
 pubDate: 2026-03-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-marvel-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Toy Cars Collection
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-marvel-cars&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Jada Toys Marvel Cars combine popular superhero figures with detailed die-cast vehicles. These collectible sets appeal to both kids and adults who enjoy Marvel characters and cars.**

@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Fire Engine: Build a Charming Classic Playset"
-description: "Imagine creating a toy that sparks joy, creativity, and hours of fun—all with your own hands. A DIY wooden toy fire engine is more than just a plaything; it’s a"
+title: 'Diy Wooden Toy Fire Engine: Build a Charming Classic Playset'
+description: Imagine creating a toy that sparks joy, creativity, and hours of fun—all
+  with your own hands. A DIY wooden toy fire engine is more than just a plaything;
+  it’s a
 pubDate: 2026-07-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-fire-engine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Helicopter
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-fire-engine&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a toy that sparks joy, creativity, and hours of fun—all with your own hands. A DIY wooden toy fire engine is more than just a plaything; it’s a chance for you to build something meaningful.**

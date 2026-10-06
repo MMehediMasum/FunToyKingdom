@@ -1,10 +1,14 @@
 ---
-title: "Disney Princess Toddler Dolls: Magical Gifts for Little Fans"
-description: "Are you looking for the perfect toy that will light up your toddler’s face and spark their imagination? Disney Princess Toddler Dolls are more than just toys—th"
+title: 'Disney Princess Toddler Dolls: Magical Gifts for Little Fans'
+description: Are you looking for the perfect toy that will light up your toddler’s
+  face and spark their imagination? Disney Princess Toddler Dolls are more than just
+  toys—th
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=disney-princess-toddler-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Clean Old Princess Dolls
+heroImage: https://tse1.mm.bing.net/th?q=disney-princess-toddler-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you looking for the perfect toy that will light up your toddler’s face and spark their imagination? Disney Princess Toddler Dolls are more than just toys—they’re a magical way to bring your child’s favorite stories to life.**

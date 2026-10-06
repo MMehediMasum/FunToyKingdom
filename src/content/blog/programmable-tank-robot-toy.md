@@ -1,10 +1,13 @@
 ---
-title: "Programmable Tank Robot Toy: Ultimate Guide to Fun & Learning"
-description: "Imagine having a toy that not only moves but thinks with you. A programmable tank robot toy lets you control every move, turning playtime into an exciting learn"
+title: 'Programmable Tank Robot Toy: Ultimate Guide to Fun & Learning'
+description: Imagine having a toy that not only moves but thinks with you. A programmable
+  tank robot toy lets you control every move, turning playtime into an exciting learn
 pubDate: 2026-05-25
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=programmable-tank-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- I Robot Toy
+heroImage: https://tse1.mm.bing.net/th?q=programmable-tank-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Imagine having a toy that not only moves but thinks with you. A programmable tank robot toy lets you control every move, turning playtime into an exciting learning adventure.**

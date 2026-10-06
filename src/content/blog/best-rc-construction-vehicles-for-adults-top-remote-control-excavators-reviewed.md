@@ -1,10 +1,14 @@
 ---
-title: "Best Rc Construction Vehicles for Adults: Top Remote Control Excavators Reviewed"
-description: "Remote control construction vehicles offer fun and realistic experiences for adults who enjoy model machinery. These RC vehicles come with detailed features, po"
+title: 'Best Rc Construction Vehicles for Adults: Top Remote Control Excavators Reviewed'
+description: Remote control construction vehicles offer fun and realistic experiences
+  for adults who enjoy model machinery. These RC vehicles come with detailed features,
+  po
 pubDate: 2025-10-27
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-rc-construction-vehicles-for-adults-top-remote-control-excavators-reviewed&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Car Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-rc-construction-vehicles-for-adults-top-remote-control-excavators-reviewed&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Remote control construction vehicles offer fun and realistic experiences for adults who enjoy model machinery. These RC vehicles come with detailed features, powerful controls, and durable designs.**

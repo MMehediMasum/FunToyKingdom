@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Summer Tires: Ultimate Fun for Sunny Days"
-description: "Imagine your child zooming around safely and smoothly on their favorite ride-on toy, no matter how sunny and warm it gets outside. You want the best for your li"
+title: 'Ride on Toy With Summer Tires: Ultimate Fun for Sunny Days'
+description: Imagine your child zooming around safely and smoothly on their favorite
+  ride-on toy, no matter how sunny and warm it gets outside. You want the best for
+  your li
 pubDate: 2026-05-04
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-summer-tires&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-summer-tires&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child zooming around safely and smoothly on their favorite ride-on toy, no matter how sunny and warm it gets outside. You want the best for your little one, and that includes making sure their ride-on toy handles perfectly on summer surfaces.**

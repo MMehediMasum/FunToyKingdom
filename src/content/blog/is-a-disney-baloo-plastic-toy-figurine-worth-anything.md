@@ -1,10 +1,14 @@
 ---
-title: "Is a Disney Baloo Plastic Toy Figurine Worth Anything? Discover Value!"
-description: "Have you ever come across a Disney Baloo plastic toy figurine and wondered if it could be worth something? Maybe you found one in your attic or received it as a"
+title: Is a Disney Baloo Plastic Toy Figurine Worth Anything? Discover Value!
+description: Have you ever come across a Disney Baloo plastic toy figurine and wondered
+  if it could be worth something? Maybe you found one in your attic or received it
+  as a
 pubDate: 2026-07-27
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=is-a-disney-baloo-plastic-toy-figurine-worth-anything&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Figurine
+heroImage: https://tse1.mm.bing.net/th?q=is-a-disney-baloo-plastic-toy-figurine-worth-anything&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever come across a Disney Baloo plastic toy figurine and wondered if it could be worth something? Maybe you found one in your attic or received it as a gift long ago.**

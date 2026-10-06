@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Animals: Easy Steps for Perfect Crafts"
-description: "Are you looking for a fun and creative way to bring joy to your kids or add a charming touch to your home? Making wooden toy animals might be just what you need"
+title: 'How to Make Wooden Toy Animals: Easy Steps for Perfect Crafts'
+description: Are you looking for a fun and creative way to bring joy to your kids
+  or add a charming touch to your home? Making wooden toy animals might be just what
+  you need
 pubDate: 2026-05-21
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-animals&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to bring joy to your kids or add a charming touch to your home? Making wooden toy animals might be just what you need.**

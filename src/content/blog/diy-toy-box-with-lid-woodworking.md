@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Box With Lid Woodworking: Easy Step-by-Step Guide"
-description: "Are you tired of toys scattered all over your home? Imagine having a sturdy, stylish toy box that not only keeps things tidy but also adds charm to your room. B"
+title: 'Diy Toy Box With Lid Woodworking: Easy Step-by-Step Guide'
+description: Are you tired of toys scattered all over your home? Imagine having a
+  sturdy, stylish toy box that not only keeps things tidy but also adds charm to your
+  room. B
 pubDate: 2026-07-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-box-with-lid-woodworking&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Wooden Toy Box
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-box-with-lid-woodworking&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you tired of toys scattered all over your home? Imagine having a sturdy, stylish toy box that not only keeps things tidy but also adds charm to your room.**

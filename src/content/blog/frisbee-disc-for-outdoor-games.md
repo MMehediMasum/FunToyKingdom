@@ -1,10 +1,14 @@
 ---
-title: "Frisbee Disc for Outdoor Games: Ultimate Fun and Fitness Guide"
-description: "Are you looking for a fun way to bring your friends and family together outdoors? A Frisbee disc could be exactly what you need. It’s simple to use, easy to car"
+title: 'Frisbee Disc for Outdoor Games: Ultimate Fun and Fitness Guide'
+description: Are you looking for a fun way to bring your friends and family together
+  outdoors? A Frisbee disc could be exactly what you need. It’s simple to use, easy
+  to car
 pubDate: 2025-08-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=frisbee-disc-for-outdoor-games&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=frisbee-disc-for-outdoor-games&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun way to bring your friends and family together outdoors? A Frisbee disc could be exactly what you need.**

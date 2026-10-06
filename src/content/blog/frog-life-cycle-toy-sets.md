@@ -1,10 +1,14 @@
 ---
-title: "Frog Life Cycle Toy Sets: Ultimate Learning Fun for Kids"
-description: "Have you ever wondered how a tiny egg turns into a hopping frog? With frog life cycle toy sets, you can see every step up close and clear. These toys make learn"
+title: 'Frog Life Cycle Toy Sets: Ultimate Learning Fun for Kids'
+description: Have you ever wondered how a tiny egg turns into a hopping frog? With
+  frog life cycle toy sets, you can see every step up close and clear. These toys
+  make learn
 pubDate: 2026-06-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=frog-life-cycle-toy-sets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Army Sets
+heroImage: https://tse1.mm.bing.net/th?q=frog-life-cycle-toy-sets&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wondered how a tiny egg turns into a hopping frog? With frog life cycle toy sets, you can see every step up close and clear.**

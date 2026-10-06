@@ -1,10 +1,14 @@
 ---
-title: "Lego Speed Champions Porsche Toy Car: Ultimate Racing Model Kit for Kids"
-description: "The LEGO Speed Champions Porsche toy car series offers thrilling building experiences for kids and racing enthusiasts. These sets combine creativity, play, and "
+title: 'Lego Speed Champions Porsche Toy Car: Ultimate Racing Model Kit for Kids'
+description: 'The LEGO Speed Champions Porsche toy car series offers thrilling building
+  experiences for kids and racing enthusiasts. These sets combine creativity, play,
+  and '
 pubDate: 2026-01-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=lego-speed-champions-porsche-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=lego-speed-champions-porsche-toy-car&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The LEGO Speed Champions Porsche toy car series offers thrilling building experiences for kids and racing enthusiasts. These sets combine creativity, play, and a love for iconic sports cars.**

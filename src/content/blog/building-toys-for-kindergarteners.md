@@ -1,10 +1,14 @@
 ---
-title: "Building Toys for Kindergarteners: Boost Creativity and Learning"
-description: "Are you looking for a fun and smart way to boost your kindergartener’s learning? Building toys might be exactly what you need. These simple tools do more than j"
+title: 'Building Toys for Kindergarteners: Boost Creativity and Learning'
+description: Are you looking for a fun and smart way to boost your kindergartener’s
+  learning? Building toys might be exactly what you need. These simple tools do more
+  than j
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=building-toys-for-kindergarteners&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Building Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=building-toys-for-kindergarteners&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and smart way to boost your kindergartener’s learning? Building toys might be exactly what you need.**

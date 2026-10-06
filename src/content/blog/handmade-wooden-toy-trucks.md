@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Trucks: Timeless Fun for Every Child"
-description: "Are you searching for a toy that sparks creativity, lasts for years, and feels special in your child’s hands? Handmade wooden toy trucks are more than just play"
+title: 'Handmade Wooden Toy Trucks: Timeless Fun for Every Child'
+description: Are you searching for a toy that sparks creativity, lasts for years,
+  and feels special in your child’s hands? Handmade wooden toy trucks are more than
+  just play
 pubDate: 2026-04-25
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-trucks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Trucks For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-trucks&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Are you searching for a toy that sparks creativity, lasts for years, and feels special in your child’s hands? Handmade wooden toy trucks are more than just playthings—they offer a unique blend of charm, durability, and imagination.**

@@ -1,10 +1,13 @@
 ---
-title: "Board Games for 11 Year Old: Top Fun Picks to Boost Skills"
-description: "Are you looking for the perfect board games that will keep your 11-year-old entertained and thinking? Choosing the right game can make all the difference betwee"
+title: 'Board Games for 11 Year Old: Top Fun Picks to Boost Skills'
+description: Are you looking for the perfect board games that will keep your 11-year-old
+  entertained and thinking? Choosing the right game can make all the difference betwee
 pubDate: 2026-04-09
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=board-games-for-11-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=board-games-for-11-year-old&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for the perfect board games that will keep your 11-year-old entertained and thinking? Choosing the right game can make all the difference between a fun family night and a boring afternoon.**

@@ -1,10 +1,13 @@
 ---
-title: "Diy Wooden Pull Toy Animals: Creative Fun for Kids & Crafters"
-description: "Imagine creating a charming wooden pull toy animal with your own hands—something unique, safe, and full of character for your child to enjoy. You might think it"
+title: 'Diy Wooden Pull Toy Animals: Creative Fun for Kids & Crafters'
+description: Imagine creating a charming wooden pull toy animal with your own hands—something
+  unique, safe, and full of character for your child to enjoy. You might think it
 pubDate: 2026-06-06
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-pull-toy-animals&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Rocket Launcher
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-pull-toy-animals&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine creating a charming wooden pull toy animal with your own hands—something unique, safe, and full of character for your child to enjoy. You might think it’s complicated, but it’s easier than you expect.**

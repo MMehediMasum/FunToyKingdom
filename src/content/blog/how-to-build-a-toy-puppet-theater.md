@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Toy Puppet Theater: Easy Steps for Creative Fun"
-description: "Do you want to create a magical space where imagination comes alive? Building a toy puppet theater is a fun and simple way to bring stories to life right in you"
+title: 'How to Build a Toy Puppet Theater: Easy Steps for Creative Fun'
+description: Do you want to create a magical space where imagination comes alive?
+  Building a toy puppet theater is a fun and simple way to bring stories to life right
+  in you
 pubDate: 2026-06-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-toy-puppet-theater&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-toy-puppet-theater&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Do you want to create a magical space where imagination comes alive? Building a toy puppet theater is a fun and simple way to bring stories to life right in your own home.**

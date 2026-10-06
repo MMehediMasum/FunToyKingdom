@@ -1,10 +1,14 @@
 ---
-title: "Dragon Ball Z Goten Toys: Top Collectible Figures for Every Fan"
-description: "Dragon Ball Z Goten toys bring the excitement of the anime to life. Fans can explore a variety of figures that capture Goten’s charm. These collectible toys off"
+title: 'Dragon Ball Z Goten Toys: Top Collectible Figures for Every Fan'
+description: Dragon Ball Z Goten toys bring the excitement of the anime to life. Fans
+  can explore a variety of figures that capture Goten’s charm. These collectible toys
+  off
 pubDate: 2026-02-06
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dragon-ball-z-goten-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dragon Ball Z Toys
+heroImage: https://tse1.mm.bing.net/th?q=dragon-ball-z-goten-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dragon Ball Z Goten toys bring the excitement of the anime to life. Fans can explore a variety of figures that capture Goten’s charm.**

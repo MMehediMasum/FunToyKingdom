@@ -1,10 +1,14 @@
 ---
-title: "Toy R Us WWE Ring: Ultimate Playset for Wrestling Action Fans"
-description: "The Toy R Us WWE Ring collection offers thrilling playsets for young wrestling fans. These sets bring action-packed fun to life. Each playset features unique el"
+title: 'Toy R Us WWE Ring: Ultimate Playset for Wrestling Action Fans'
+description: The Toy R Us WWE Ring collection offers thrilling playsets for young
+  wrestling fans. These sets bring action-packed fun to life. Each playset features
+  unique el
 pubDate: 2026-02-21
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-r-us-wwe-ring&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- WWE Ring Toy
+heroImage: https://tse1.mm.bing.net/th?q=toy-r-us-wwe-ring&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Toy R Us WWE Ring collection offers thrilling playsets for young wrestling fans. These sets bring action-packed fun to life.**

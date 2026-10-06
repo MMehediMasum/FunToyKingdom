@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Kids BMX Bike Starter: Ultimate Guide to Fun & Safety"
 description: "Looking for the perfect BMX bike to get your child started? Choosing the right kids BMX bike starter can make all the difference in how much your child enjoys r"
 pubDate: 2026-03-18

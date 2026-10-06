@@ -1,10 +1,14 @@
 ---
-title: "Antique Toy China Tea Set: Charming Miniature Porcelain Playtime Delight"
-description: "Antique toy China tea sets bring charm and nostalgia to playtime. These delicate miniature sets inspire creativity and role play in children. Antique toy China "
+title: 'Antique Toy China Tea Set: Charming Miniature Porcelain Playtime Delight'
+description: 'Antique toy China tea sets bring charm and nostalgia to playtime. These
+  delicate miniature sets inspire creativity and role play in children. Antique toy
+  China '
 pubDate: 2026-08-17
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=antique-toy-china-tea-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell My Vintage Toys
+heroImage: https://tse1.mm.bing.net/th?q=antique-toy-china-tea-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Antique toy China tea sets bring charm and nostalgia to playtime. These delicate miniature sets inspire creativity and role play in children.**

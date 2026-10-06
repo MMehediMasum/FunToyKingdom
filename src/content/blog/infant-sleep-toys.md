@@ -1,10 +1,14 @@
 ---
-title: "Infant Sleep Toys That Soothe, Comfort, and Promote Better Rest"
-description: "Infant sleep toys help babies relax and fall asleep more easily. These toys combine soothing sounds, gentle lights, and soft textures. Choosing the right sleep "
+title: Infant Sleep Toys That Soothe, Comfort, and Promote Better Rest
+description: 'Infant sleep toys help babies relax and fall asleep more easily. These
+  toys combine soothing sounds, gentle lights, and soft textures. Choosing the right
+  sleep '
 pubDate: 2026-01-31
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=infant-sleep-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dog Rope Toy For Teething
+heroImage: https://tse1.mm.bing.net/th?q=infant-sleep-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Infant sleep toys help babies relax and fall asleep more easily. These toys combine soothing sounds, gentle lights, and soft textures.**

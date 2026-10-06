@@ -1,10 +1,14 @@
 ---
-title: "Blue Robot Toy: Top Remote Control Robots with LED Eyes for Kids"
-description: "Blue robot toys offer fun, learning, and interaction for kids of various ages. These toys come with features like remote control, music, and LED eyes. Robots in"
+title: 'Blue Robot Toy: Top Remote Control Robots with LED Eyes for Kids'
+description: Blue robot toys offer fun, learning, and interaction for kids of various
+  ages. These toys come with features like remote control, music, and LED eyes. Robots
+  in
 pubDate: 2026-02-28
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=blue-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=blue-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Blue robot toys offer fun, learning, and interaction for kids of various ages. These toys come with features like remote control, music, and LED eyes.**

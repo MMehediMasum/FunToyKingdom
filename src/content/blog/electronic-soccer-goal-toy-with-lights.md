@@ -1,10 +1,14 @@
 ---
-title: "Electronic Soccer Goal Toy With Lights: Ultimate Fun for Kids"
-description: "Imagine turning your game time into an exciting, glowing challenge that keeps you on your toes. The Electronic Soccer Goal Toy With Lights is not just any toy—i"
+title: 'Electronic Soccer Goal Toy With Lights: Ultimate Fun for Kids'
+description: Imagine turning your game time into an exciting, glowing challenge that
+  keeps you on your toes. The Electronic Soccer Goal Toy With Lights is not just any
+  toy—i
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=electronic-soccer-goal-toy-with-lights&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Frisbee Disc For Outdoor Games
+heroImage: https://tse1.mm.bing.net/th?q=electronic-soccer-goal-toy-with-lights&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine turning your game time into an exciting, glowing challenge that keeps you on your toes. The Electronic Soccer Goal Toy With Lights is not just any toy—it brings action, fun, and a splash of light right to your fingertips.**

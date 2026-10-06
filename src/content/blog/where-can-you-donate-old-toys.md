@@ -1,10 +1,14 @@
 ---
-title: "Where Can You Donate Old Toys: Top Places to Spread Joy Fast"
-description: "Do you have old toys lying around, gathering dust? Imagine turning those forgotten playthings into smiles for children who need them. You might wonder, where ca"
+title: 'Where Can You Donate Old Toys: Top Places to Spread Joy Fast'
+description: Do you have old toys lying around, gathering dust? Imagine turning those
+  forgotten playthings into smiles for children who need them. You might wonder, where
+  ca
 pubDate: 2025-09-11
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-you-donate-old-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=where-can-you-donate-old-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Do you have old toys lying around, gathering dust? Imagine turning those forgotten playthings into smiles for children who need them.**

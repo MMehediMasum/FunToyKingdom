@@ -1,10 +1,14 @@
 ---
-title: "Diy Wooden Toy Pirate Ship: Easy Step-by-Step Guide for Kids"
-description: "Are you looking for a fun and creative project that brings joy to your little one? Building a DIY wooden toy pirate ship is a perfect way to spark imagination a"
+title: 'Diy Wooden Toy Pirate Ship: Easy Step-by-Step Guide for Kids'
+description: Are you looking for a fun and creative project that brings joy to your
+  little one? Building a DIY wooden toy pirate ship is a perfect way to spark imagination
+  a
 pubDate: 2026-04-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-wooden-toy-pirate-ship&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-wooden-toy-pirate-ship&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings joy to your little one? Building a DIY wooden toy pirate ship is a perfect way to spark imagination and create lasting memories.**

@@ -1,10 +1,14 @@
 ---
-title: "How to Craft a Wooden Toy Aeroplane: Easy Steps for Perfect Build"
-description: "Have you ever wanted to create something special with your own hands? Imagine building a wooden toy aeroplane that’s not only fun to play with but also a beauti"
+title: 'How to Craft a Wooden Toy Aeroplane: Easy Steps for Perfect Build'
+description: Have you ever wanted to create something special with your own hands?
+  Imagine building a wooden toy aeroplane that’s not only fun to play with but also
+  a beauti
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-craft-a-wooden-toy-aeroplane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=how-to-craft-a-wooden-toy-aeroplane&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Imagine building a wooden toy aeroplane that’s not only fun to play with but also a beautiful piece you can proudly display.**

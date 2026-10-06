@@ -1,10 +1,14 @@
 ---
-title: "Kids Ride on Toy With Horn Sounds: Exciting Fun for Little Drivers"
-description: "Looking for a fun and exciting toy that will keep your child entertained for hours? A kids ride on toy with horn sounds might be just what you need. Imagine you"
+title: 'Kids Ride on Toy With Horn Sounds: Exciting Fun for Little Drivers'
+description: Looking for a fun and exciting toy that will keep your child entertained
+  for hours? A kids ride on toy with horn sounds might be just what you need. Imagine
+  you
 pubDate: 2026-05-30
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-ride-on-toy-with-horn-sounds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age 2 Ride On Toys
+heroImage: https://tse1.mm.bing.net/th?q=kids-ride-on-toy-with-horn-sounds&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting toy that will keep your child entertained for hours? A kids ride on toy with horn sounds might be just what you need.**

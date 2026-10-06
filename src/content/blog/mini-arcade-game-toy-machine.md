@@ -1,10 +1,14 @@
 ---
-title: "Mini Arcade Game Toy Machine: Ultimate Fun for All Ages"
-description: "Imagine having your favorite arcade games right at your fingertips, anytime you want. A Mini Arcade Game Toy Machine brings that excitement straight to your hom"
+title: 'Mini Arcade Game Toy Machine: Ultimate Fun for All Ages'
+description: Imagine having your favorite arcade games right at your fingertips, anytime
+  you want. A Mini Arcade Game Toy Machine brings that excitement straight to your
+  hom
 pubDate: 2026-07-09
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mini-arcade-game-toy-machine&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Capsule Sizes
+heroImage: https://tse1.mm.bing.net/th?q=mini-arcade-game-toy-machine&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Imagine having your favorite arcade games right at your fingertips, anytime you want. A Mini Arcade Game Toy Machine brings that excitement straight to your home or office.**

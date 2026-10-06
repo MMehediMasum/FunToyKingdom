@@ -1,10 +1,14 @@
 ---
-title: "Educational Battle Bot Toy Kits: Ignite Creativity and Learning Fun"
-description: "Are you ready to spark your creativity and learn new skills while having fun? Educational Battle Bot Toy Kits are the perfect way for you to build, customize, a"
+title: 'Educational Battle Bot Toy Kits: Ignite Creativity and Learning Fun'
+description: Are you ready to spark your creativity and learn new skills while having
+  fun? Educational Battle Bot Toy Kits are the perfect way for you to build, customize,
+  a
 pubDate: 2026-07-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=educational-battle-bot-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Educational Toys For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=educational-battle-bot-toy-kits&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Are you ready to spark your creativity and learn new skills while having fun? Educational Battle Bot Toy Kits are the perfect way for you to build, customize, and control your own robot warrior.**

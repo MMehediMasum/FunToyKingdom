@@ -1,10 +1,14 @@
 ---
-title: "Yellow Robot Toy: Top Remote Control and Interactive Robots for Kids"
-description: "Yellow robot toys captivate children with fun features and bright colors. These toys combine play, learning, and creativity in one package. Yellow robot toys co"
+title: 'Yellow Robot Toy: Top Remote Control and Interactive Robots for Kids'
+description: Yellow robot toys captivate children with fun features and bright colors.
+  These toys combine play, learning, and creativity in one package. Yellow robot toys
+  co
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=yellow-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=yellow-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Yellow robot toys captivate children with fun features and bright colors. These toys combine play, learning, and creativity in one package.**

@@ -1,10 +1,14 @@
 ---
-title: "Grimlock Robot Toy: Ultimate Transforming Dino Action Figure for Kids"
-description: "Grimlock robot toys captivate young minds with their dynamic transformations and engaging play features. These toys bring the beloved Transformers character to "
+title: 'Grimlock Robot Toy: Ultimate Transforming Dino Action Figure for Kids'
+description: 'Grimlock robot toys captivate young minds with their dynamic transformations
+  and engaging play features. These toys bring the beloved Transformers character
+  to '
 pubDate: 2026-03-04
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=grimlock-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=grimlock-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Grimlock robot toys captivate young minds with their dynamic transformations and engaging play features. These toys bring the beloved Transformers character to life, providing endless hours of fun for kids.**

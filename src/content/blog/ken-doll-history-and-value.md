@@ -1,10 +1,14 @@
 ---
-title: "Ken Doll History And Value: Uncover Rare Facts & True Worth"
-description: "Have you ever wondered where the Ken doll came from and why it’s become such a popular collectible? Whether you grew up playing with Ken or are curious about it"
+title: 'Ken Doll History And Value: Uncover Rare Facts & True Worth'
+description: Have you ever wondered where the Ken doll came from and why it’s become
+  such a popular collectible? Whether you grew up playing with Ken or are curious
+  about it
 pubDate: 2025-09-16
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=ken-doll-history-and-value&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Baby Alive Doll History
+heroImage: https://tse1.mm.bing.net/th?q=ken-doll-history-and-value&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Have you ever wondered where the Ken doll came from and why it’s become such a popular collectible? Whether you grew up playing with Ken or are curious about its worth today, understanding its history can reveal surprising stories and hidden value.**

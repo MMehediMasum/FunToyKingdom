@@ -1,10 +1,14 @@
 ---
-title: "Best Coffee Tables for Board Games with Removable Tops and Storage"
-description: "Finding the best coffee table for board games makes playtime fun and organized. These tables offer space, storage, and comfort for players. A good board game co"
+title: Best Coffee Tables for Board Games with Removable Tops and Storage
+description: Finding the best coffee table for board games makes playtime fun and
+  organized. These tables offer space, storage, and comfort for players. A good board
+  game co
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-coffee-tables-for-board-games-with-removable-tops-and-storage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=best-coffee-tables-for-board-games-with-removable-tops-and-storage&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Finding the best coffee table for board games makes playtime fun and organized. These tables offer space, storage, and comfort for players.**

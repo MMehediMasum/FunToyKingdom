@@ -1,10 +1,14 @@
 ---
-title: "Wooden Toy Rocket Building Ideas: Creative DIY Projects for Kids"
-description: "Are you looking for a fun and creative project that you can build with your own hands? Wooden toy rockets are a fantastic way to spark your imagination and enjo"
+title: 'Wooden Toy Rocket Building Ideas: Creative DIY Projects for Kids'
+description: Are you looking for a fun and creative project that you can build with
+  your own hands? Wooden toy rockets are a fantastic way to spark your imagination
+  and enjo
 pubDate: 2026-07-12
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=wooden-toy-rocket-building-ideas&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Wooden Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=wooden-toy-rocket-building-ideas&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can build with your own hands? Wooden toy rockets are a fantastic way to spark your imagination and enjoy a hands-on experience.**

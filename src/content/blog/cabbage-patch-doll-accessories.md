@@ -1,10 +1,14 @@
 ---
-title: "Cabbage Patch Doll Accessories: Must-Have Stylish Add-Ons"
-description: "If you own a Cabbage Patch Doll, you know how special it is to keep your doll looking perfect and full of personality. But have you ever thought about how the r"
+title: 'Cabbage Patch Doll Accessories: Must-Have Stylish Add-Ons'
+description: If you own a Cabbage Patch Doll, you know how special it is to keep your
+  doll looking perfect and full of personality. But have you ever thought about how
+  the r
 pubDate: 2025-12-10
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=cabbage-patch-doll-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Doll House For Age 2
+heroImage: https://tse1.mm.bing.net/th?q=cabbage-patch-doll-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **If you own a Cabbage Patch Doll, you know how special it is to keep your doll looking perfect and full of personality. But have you ever thought about how the right accessories can bring your doll to life even more?**

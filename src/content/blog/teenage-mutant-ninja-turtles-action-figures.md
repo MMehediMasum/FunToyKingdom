@@ -1,10 +1,14 @@
 ---
-title: "Teenage Mutant Ninja Turtles Action Figures: Ultimate Collector’s Guide"
-description: "Are you a fan of heroes who fight crime with style and a slice of pizza? Teenage Mutant Ninja Turtles action figures bring those iconic characters right into yo"
+title: 'Teenage Mutant Ninja Turtles Action Figures: Ultimate Collector’s Guide'
+description: Are you a fan of heroes who fight crime with style and a slice of pizza?
+  Teenage Mutant Ninja Turtles action figures bring those iconic characters right
+  into yo
 pubDate: 2025-09-05
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=teenage-mutant-ninja-turtles-action-figures&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Paint Toy Soldier Action Figures
+heroImage: https://tse1.mm.bing.net/th?q=teenage-mutant-ninja-turtles-action-figures&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of heroes who fight crime with style and a slice of pizza? Teenage Mutant Ninja Turtles action figures bring those iconic characters right into your hands.**

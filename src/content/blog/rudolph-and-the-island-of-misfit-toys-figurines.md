@@ -1,10 +1,14 @@
 ---
-title: "Rudolph And the Island of Misfit Toys Figurines: Ultimate Collectible Guide"
-description: "Rudolph and the Island of Misfit Toys figurines bring classic holiday magic to your collection. These figures capture beloved characters from the famous Christm"
+title: 'Rudolph And the Island of Misfit Toys Figurines: Ultimate Collectible Guide'
+description: Rudolph and the Island of Misfit Toys figurines bring classic holiday
+  magic to your collection. These figures capture beloved characters from the famous
+  Christm
 pubDate: 2025-09-22
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rudolph-and-the-island-of-misfit-toys-figurines&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Figurines
+heroImage: https://tse1.mm.bing.net/th?q=rudolph-and-the-island-of-misfit-toys-figurines&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Rudolph and the Island of Misfit Toys figurines bring classic holiday magic to your collection. These figures capture beloved characters from the famous Christmas story.**

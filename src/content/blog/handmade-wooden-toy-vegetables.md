@@ -1,10 +1,14 @@
 ---
-title: "Handmade Wooden Toy Vegetables: Safe, Eco-Friendly Fun for Kids"
-description: "Imagine giving your child a toy that sparks creativity, teaches healthy eating, and lasts for years. Handmade wooden toy vegetables do just that. They’re simple"
+title: 'Handmade Wooden Toy Vegetables: Safe, Eco-Friendly Fun for Kids'
+description: Imagine giving your child a toy that sparks creativity, teaches healthy
+  eating, and lasts for years. Handmade wooden toy vegetables do just that. They’re
+  simple
 pubDate: 2026-07-20
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-wooden-toy-vegetables&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Wooden Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-wooden-toy-vegetables&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that sparks creativity, teaches healthy eating, and lasts for years. Handmade wooden toy vegetables do just that.**

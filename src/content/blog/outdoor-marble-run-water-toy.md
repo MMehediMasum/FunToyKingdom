@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Marble Run Water Toy: Ultimate Fun for Kids Outdoors"
-description: "Looking for a fun way to keep your kids active and entertained outdoors? The Outdoor Marble Run Water Toy might be just what you need. Imagine your child’s eyes"
+title: 'Outdoor Marble Run Water Toy: Ultimate Fun for Kids Outdoors'
+description: Looking for a fun way to keep your kids active and entertained outdoors?
+  The Outdoor Marble Run Water Toy might be just what you need. Imagine your child’s
+  eyes
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-marble-run-water-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 4
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-marble-run-water-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to keep your kids active and entertained outdoors? The Outdoor Marble Run Water Toy might be just what you need.**

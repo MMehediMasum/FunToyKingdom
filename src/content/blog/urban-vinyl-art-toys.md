@@ -1,10 +1,14 @@
 ---
-title: "Urban Vinyl Art Toys: Top Fashion Sets and Collectibles for Enthusiasts"
-description: "Urban vinyl art toys are redefining the boundaries of art and play. These creative collectibles blend pop culture and artistry. Their vibrant designs and unique"
+title: 'Urban Vinyl Art Toys: Top Fashion Sets and Collectibles for Enthusiasts'
+description: Urban vinyl art toys are redefining the boundaries of art and play. These
+  creative collectibles blend pop culture and artistry. Their vibrant designs and
+  unique
 pubDate: 2026-02-17
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=urban-vinyl-art-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=urban-vinyl-art-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Urban vinyl art toys are redefining the boundaries of art and play. These creative collectibles blend pop culture and artistry.**

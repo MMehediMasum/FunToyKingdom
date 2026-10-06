@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Mega Figure Set: Ultimate Collectible Action Figures for Fans"
-description: "Toy Story fans, rejoice! The Toy Story Mega Figure Set offers an exciting collection of beloved characters in one package. This set brings together a variety of"
+title: 'Toy Story Mega Figure Set: Ultimate Collectible Action Figures for Fans'
+description: Toy Story fans, rejoice! The Toy Story Mega Figure Set offers an exciting
+  collection of beloved characters in one package. This set brings together a variety
+  of
 pubDate: 2025-11-05
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-mega-figure-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Toys Set
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-mega-figure-set&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story fans, rejoice! The Toy Story Mega Figure Set offers an exciting collection of beloved characters in one package.**

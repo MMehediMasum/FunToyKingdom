@@ -1,10 +1,14 @@
 ---
-title: "How to Build a Wooden Toy Plane: Step-by-Step Crafting Guide"
-description: "Have you ever wanted to create something special with your own hands? Building a wooden toy plane is a fun and rewarding project that you can enjoy, whether you"
+title: 'How to Build a Wooden Toy Plane: Step-by-Step Crafting Guide'
+description: Have you ever wanted to create something special with your own hands?
+  Building a wooden toy plane is a fun and rewarding project that you can enjoy, whether
+  you
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-plane&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Plane
+heroImage: https://tse1.mm.bing.net/th?q=how-to-build-a-wooden-toy-plane&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wanted to create something special with your own hands? Building a wooden toy plane is a fun and rewarding project that you can enjoy, whether you're a beginner or have some woodworking experience.**

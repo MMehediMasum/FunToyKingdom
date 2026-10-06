@@ -1,10 +1,14 @@
 ---
-title: "How Do You Frame a Completed Puzzle: Easy Steps for Perfect Display"
-description: "You’ve spent hours piecing together your puzzle, and now it’s complete. But how do you turn all that hard work into a beautiful display? Framing your finished p"
+title: 'How Do You Frame a Completed Puzzle: Easy Steps for Perfect Display'
+description: You’ve spent hours piecing together your puzzle, and now it’s complete.
+  But how do you turn all that hard work into a beautiful display? Framing your finished
+  p
 pubDate: 2025-09-13
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-frame-a-completed-puzzle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Glue Puzzle For Framing
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-frame-a-completed-puzzle&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **You’ve spent hours piecing together your puzzle, and now it’s complete. But how do you turn all that hard work into a beautiful display?**

@@ -1,10 +1,14 @@
 ---
-title: "How Do You Apply for Toys for Tots: Easy Steps to Get Started"
-description: "Are you looking to bring joy to a child’s holiday season? Applying for Toys for Tots can make a big difference for families in need, and it’s easier than you mi"
+title: 'How Do You Apply for Toys for Tots: Easy Steps to Get Started'
+description: Are you looking to bring joy to a child’s holiday season? Applying for
+  Toys for Tots can make a big difference for families in need, and it’s easier than
+  you mi
 pubDate: 2026-01-08
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-do-you-apply-for-toys-for-tots&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Free Toy Programs
+heroImage: https://tse1.mm.bing.net/th?q=how-do-you-apply-for-toys-for-tots&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you looking to bring joy to a child’s holiday season? Applying for Toys for Tots can make a big difference for families in need, and it’s easier than you might think.**

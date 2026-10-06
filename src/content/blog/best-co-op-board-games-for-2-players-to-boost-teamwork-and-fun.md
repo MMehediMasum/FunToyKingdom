@@ -1,10 +1,14 @@
 ---
-title: "Best Co Op Board Games for 2 Players to Boost Teamwork and Fun"
-description: "Cooperative board games for two players offer fun teamwork and exciting challenges. They bring strategy and bonding into every session. Playing co-op board game"
+title: Best Co Op Board Games for 2 Players to Boost Teamwork and Fun
+description: Cooperative board games for two players offer fun teamwork and exciting
+  challenges. They bring strategy and bonding into every session. Playing co-op board
+  game
 pubDate: 2025-12-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-co-op-board-games-for-2-players-to-boost-teamwork-and-fun&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 6 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-co-op-board-games-for-2-players-to-boost-teamwork-and-fun&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Cooperative board games for two players offer fun teamwork and exciting challenges. They bring strategy and bonding into every session.**

@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story 5 Stinky Pete: Ultimate Action Figure Collectors Must-Have Guide"
 description: "Toy Story 5 brings back Stinky Pete, the villain from Woody's Roundup. Fans eagerly await his role in the new adventure. Stinky Pete remains a memorable charact"
 pubDate: 2026-08-15

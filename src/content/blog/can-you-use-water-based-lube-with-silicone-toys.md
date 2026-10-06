@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Water Based Lube With Silicone Toys? Ultimate Guide"
-description: "If you own silicone toys, you probably want to keep them safe and in great condition. But what about the lube you use? Can you use water-based lube with silicon"
+title: Can You Use Water Based Lube With Silicone Toys? Ultimate Guide
+description: If you own silicone toys, you probably want to keep them safe and in
+  great condition. But what about the lube you use? Can you use water-based lube with
+  silicon
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-water-based-lube-with-silicone-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Silicone Toy Care
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-water-based-lube-with-silicone-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you own silicone toys, you probably want to keep them safe and in great condition. But what about the lube you use?**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Inflatable Ghost Halloween: Spooky Decor That Wows"
-description: "Are you ready to transform your yard into the spookiest spot on the block this Halloween? An outdoor inflatable ghost is the perfect way to grab attention and c"
+title: 'Outdoor Inflatable Ghost Halloween: Spooky Decor That Wows'
+description: Are you ready to transform your yard into the spookiest spot on the block
+  this Halloween? An outdoor inflatable ghost is the perfect way to grab attention
+  and c
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-inflatable-ghost-halloween&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Tire Swing For Kids Outdoor
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-inflatable-ghost-halloween&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to transform your yard into the spookiest spot on the block this Halloween? An outdoor inflatable ghost is the perfect way to grab attention and create a fun, eerie vibe that everyone will love.**

@@ -1,10 +1,14 @@
 ---
-title: "Can You Donate Toys to Goodwill: Essential Guide for Donors"
-description: "Are you wondering if you can donate toys to Goodwill? Maybe you have a box of gently used toys sitting around, and you want to give them a new life. Donating to"
+title: 'Can You Donate Toys to Goodwill: Essential Guide for Donors'
+description: Are you wondering if you can donate toys to Goodwill? Maybe you have
+  a box of gently used toys sitting around, and you want to give them a new life.
+  Donating to
 pubDate: 2025-11-09
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-donate-toys-to-goodwill&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Donation
+heroImage: https://tse1.mm.bing.net/th?q=can-you-donate-toys-to-goodwill&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you wondering if you can donate toys to Goodwill? Maybe you have a box of gently used toys sitting around, and you want to give them a new life.**

@@ -1,10 +1,14 @@
 ---
-title: "What is the White Stuff in Squishy Toys: Surprising Truth Revealed"
-description: "Have you ever squeezed your favorite squishy toy and noticed a mysterious white stuff inside? You might have wondered what it is and if it’s safe to touch. That"
+title: 'What is the White Stuff in Squishy Toys: Surprising Truth Revealed'
+description: Have you ever squeezed your favorite squishy toy and noticed a mysterious
+  white stuff inside? You might have wondered what it is and if it’s safe to touch.
+  That
 pubDate: 2025-09-06
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-white-stuff-in-squishy-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Soft Toy
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-white-stuff-in-squishy-toys&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever squeezed your favorite squishy toy and noticed a mysterious white stuff inside? You might have wondered what it is and if it’s safe to touch.**

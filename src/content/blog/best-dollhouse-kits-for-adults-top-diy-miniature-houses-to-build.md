@@ -1,10 +1,13 @@
 ---
-title: "Best Dollhouse Kits for Adults: Top DIY Miniature Houses to Build"
-description: "Dollhouse kits offer a fun and creative hobby for adults who enjoy building detailed miniatures. These kits come in various styles and scales, perfect for diffe"
+title: 'Best Dollhouse Kits for Adults: Top DIY Miniature Houses to Build'
+description: Dollhouse kits offer a fun and creative hobby for adults who enjoy building
+  detailed miniatures. These kits come in various styles and scales, perfect for diffe
 pubDate: 2025-12-19
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-dollhouse-kits-for-adults-top-diy-miniature-houses-to-build&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Dollhouse For Age 5
+heroImage: https://tse1.mm.bing.net/th?q=best-dollhouse-kits-for-adults-top-diy-miniature-houses-to-build&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Dollhouse kits offer a fun and creative hobby for adults who enjoy building detailed miniatures. These kits come in various styles and scales, perfect for different skill levels and tastes.**

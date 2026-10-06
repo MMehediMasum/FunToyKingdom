@@ -1,10 +1,14 @@
 ---
-title: "Kids Metal Detector Toy: Ultimate Guide to Fun & Learning"
-description: "Are you looking for a fun and exciting way to spark your child’s curiosity? A kids metal detector toy could be just what you need. Imagine your child’s eyes lig"
+title: 'Kids Metal Detector Toy: Ultimate Guide to Fun & Learning'
+description: Are you looking for a fun and exciting way to spark your child’s curiosity?
+  A kids metal detector toy could be just what you need. Imagine your child’s eyes
+  lig
 pubDate: 2026-07-11
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-metal-detector-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age Appropriate Toys
+heroImage: https://tse1.mm.bing.net/th?q=kids-metal-detector-toy&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s curiosity? A kids metal detector toy could be just what you need.**

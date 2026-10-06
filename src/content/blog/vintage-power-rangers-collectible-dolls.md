@@ -1,10 +1,14 @@
 ---
-title: "Vintage Power Rangers Collectible Dolls: Ultimate Guide to Rare Finds"
-description: "Are you a fan of Power Rangers or a collector searching for something truly special? Vintage Power Rangers collectible dolls bring back the excitement and nosta"
+title: 'Vintage Power Rangers Collectible Dolls: Ultimate Guide to Rare Finds'
+description: Are you a fan of Power Rangers or a collector searching for something
+  truly special? Vintage Power Rangers collectible dolls bring back the excitement
+  and nosta
 pubDate: 2025-12-07
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=vintage-power-rangers-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=vintage-power-rangers-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of Power Rangers or a collector searching for something truly special? Vintage Power Rangers collectible dolls bring back the excitement and nostalgia of your favorite heroes from the past.**

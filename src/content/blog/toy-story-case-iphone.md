@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Case iPhone: Ultimate Disney Pixar Protection and Style"
-description: "Toy Story cases for iPhone bring your favorite characters to your phone. They combine fun design with phone protection. These cases feature popular Toy Story ch"
+title: 'Toy Story Case iPhone: Ultimate Disney Pixar Protection and Style'
+description: Toy Story cases for iPhone bring your favorite characters to your phone.
+  They combine fun design with phone protection. These cases feature popular Toy Story
+  ch
 pubDate: 2026-08-12
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-case-iphone&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-case-iphone&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story cases for iPhone bring your favorite characters to your phone. They combine fun design with phone protection.**

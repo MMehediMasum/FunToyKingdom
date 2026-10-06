@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy With Working Trunk: Ultimate Fun for Kids"
-description: "Imagine giving your child a toy that’s not just fun to ride but also sparks their curiosity every time they open the trunk. A ride on toy with a working trunk a"
+title: 'Ride on Toy With Working Trunk: Ultimate Fun for Kids'
+description: Imagine giving your child a toy that’s not just fun to ride but also
+  sparks their curiosity every time they open the trunk. A ride on toy with a working
+  trunk a
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-working-trunk&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-working-trunk&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that’s not just fun to ride but also sparks their curiosity every time they open the trunk. A ride on toy with a working trunk adds an exciting layer to playtime, turning simple rides into thrilling adventures.**

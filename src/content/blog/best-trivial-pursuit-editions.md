@@ -1,10 +1,14 @@
 ---
-title: "Best Trivial Pursuit Editions: Ultimate Guide to Top Picks 2025"
-description: "Are you ready to take your game nights to the next level? Choosing the right edition of Trivial Pursuit can make all the difference between a fun challenge and "
+title: 'Best Trivial Pursuit Editions: Ultimate Guide to Top Picks 2025'
+description: 'Are you ready to take your game nights to the next level? Choosing the
+  right edition of Trivial Pursuit can make all the difference between a fun challenge
+  and '
 pubDate: 2026-06-25
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-trivial-pursuit-editions&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=best-trivial-pursuit-editions&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are you ready to take your game nights to the next level? Choosing the right edition of Trivial Pursuit can make all the difference between a fun challenge and a frustrating quiz.**

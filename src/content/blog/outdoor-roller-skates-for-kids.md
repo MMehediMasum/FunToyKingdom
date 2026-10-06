@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Roller Skates for Kids: Fun, Safe, and Stylish Picks"
-description: "Are you looking for the perfect outdoor roller skates for kids? Choosing the right pair can turn playtime into an exciting adventure filled with laughter and en"
+title: 'Outdoor Roller Skates for Kids: Fun, Safe, and Stylish Picks'
+description: Are you looking for the perfect outdoor roller skates for kids? Choosing
+  the right pair can turn playtime into an exciting adventure filled with laughter
+  and en
 pubDate: 2025-09-11
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-roller-skates-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Cricket Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-roller-skates-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for the perfect outdoor roller skates for kids? Choosing the right pair can turn playtime into an exciting adventure filled with laughter and energy.**

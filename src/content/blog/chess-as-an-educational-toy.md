@@ -1,10 +1,14 @@
 ---
-title: "Chess As an Educational Toy: Boost Kids’ Brainpower Fast"
-description: "Have you ever wondered how a simple game could boost your child’s brainpower? Chess isn’t just a game; it’s a powerful educational toy that sharpens thinking, i"
+title: 'Chess As an Educational Toy: Boost Kids’ Brainpower Fast'
+description: Have you ever wondered how a simple game could boost your child’s brainpower?
+  Chess isn’t just a game; it’s a powerful educational toy that sharpens thinking,
+  i
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=chess-as-an-educational-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Chess Toy Or
+heroImage: https://tse1.mm.bing.net/th?q=chess-as-an-educational-toy&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how a simple game could boost your child’s brainpower? Chess isn’t just a game; it’s a powerful educational toy that sharpens thinking, improves focus, and builds problem-solving skills.**

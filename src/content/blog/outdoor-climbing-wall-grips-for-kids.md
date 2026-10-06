@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Climbing Wall Grips for Kids: Safe, Fun, and Durable Choices"
-description: "Are you looking to make your backyard more fun and active for your kids? Outdoor climbing wall grips for kids can turn any space into an exciting adventure zone"
+title: 'Outdoor Climbing Wall Grips for Kids: Safe, Fun, and Durable Choices'
+description: Are you looking to make your backyard more fun and active for your kids?
+  Outdoor climbing wall grips for kids can turn any space into an exciting adventure
+  zone
 pubDate: 2026-06-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-climbing-wall-grips-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-climbing-wall-grips-for-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking to make your backyard more fun and active for your kids? Outdoor climbing wall grips for kids can turn any space into an exciting adventure zone.**

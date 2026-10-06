@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Best Dirt Bikes for Kids: Top Electric and Gas-Powered Picks"
 description: "Choosing the best dirt bike for kids helps ensure fun and safe riding experiences. Kids need bikes that match their age, size, and skill level. Dirt bikes for c"
 pubDate: 2025-11-08

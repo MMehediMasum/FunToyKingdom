@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Theater Puppet Stage: Create Magical Puppet Shows Easily"
-description: "Are you looking for a fun and creative project that brings stories to life right in your home? A DIY toy theater puppet stage is the perfect way to spark imagin"
+title: 'Diy Toy Theater Puppet Stage: Create Magical Puppet Shows Easily'
+description: Are you looking for a fun and creative project that brings stories to
+  life right in your home? A DIY toy theater puppet stage is the perfect way to spark
+  imagin
 pubDate: 2026-06-16
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-theater-puppet-stage&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Wooden Toy Top
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-theater-puppet-stage&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that brings stories to life right in your home? A DIY toy theater puppet stage is the perfect way to spark imagination and enjoy hours of entertainment.**

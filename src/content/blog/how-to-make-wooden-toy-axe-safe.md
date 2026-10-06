@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Axe Safe: Expert Tips for Kid-Friendly Play"
-description: "Are you worried that your child’s wooden toy axe might not be safe to play with? You want your little one to have fun, but safety always comes first. Making a w"
+title: 'How to Make Wooden Toy Axe Safe: Expert Tips for Kid-Friendly Play'
+description: Are you worried that your child’s wooden toy axe might not be safe to
+  play with? You want your little one to have fun, but safety always comes first.
+  Making a w
 pubDate: 2026-07-18
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-axe-safe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-axe-safe&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you worried that your child’s wooden toy axe might not be safe to play with? You want your little one to have fun, but safety always comes first.**

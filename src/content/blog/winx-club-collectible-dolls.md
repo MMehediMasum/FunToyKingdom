@@ -1,10 +1,14 @@
 ---
-title: "Winx Club Collectible Dolls: Ultimate Guide to Must-Have Treasures"
-description: "Are you a fan of magical adventures and colorful characters? Winx Club Collectible Dolls bring your favorite fairies to life right in your hands. Whether you're"
+title: 'Winx Club Collectible Dolls: Ultimate Guide to Must-Have Treasures'
+description: Are you a fan of magical adventures and colorful characters? Winx Club
+  Collectible Dolls bring your favorite fairies to life right in your hands. Whether
+  you're
 pubDate: 2025-12-12
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=winx-club-collectible-dolls&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Value Collectible Dolls And Figures
+heroImage: https://tse1.mm.bing.net/th?q=winx-club-collectible-dolls&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a fan of magical adventures and colorful characters? Winx Club Collectible Dolls bring your favorite fairies to life right in your hands.**

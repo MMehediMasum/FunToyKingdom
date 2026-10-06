@@ -1,10 +1,14 @@
 ---
-title: "Harry Potter Quidditch Action Figure: Ultimate Collector’s Dream Toy"
-description: "Are you a true Harry Potter fan looking to bring the magic of Quidditch right into your hands? The Harry Potter Quidditch Action Figure is more than just a toy—"
+title: 'Harry Potter Quidditch Action Figure: Ultimate Collector’s Dream Toy'
+description: Are you a true Harry Potter fan looking to bring the magic of Quidditch
+  right into your hands? The Harry Potter Quidditch Action Figure is more than just
+  a toy—
 pubDate: 2025-09-11
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=harry-potter-quidditch-action-figure&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rare Gi Joe Action Figure
+heroImage: https://tse1.mm.bing.net/th?q=harry-potter-quidditch-action-figure&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you a true Harry Potter fan looking to bring the magic of Quidditch right into your hands? The Harry Potter Quidditch Action Figure is more than just a toy—it’s a chance to relive your favorite moments from the wizarding world.**

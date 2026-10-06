@@ -1,10 +1,14 @@
 ---
-title: "How to Play Toy Story Monopoly: Ultimate Guide for Fun & Wins"
-description: "Are you ready to dive into the fun world of Toy Story Monopoly? This game brings your favorite characters right to your game board, making every move exciting a"
+title: 'How to Play Toy Story Monopoly: Ultimate Guide for Fun & Wins'
+description: Are you ready to dive into the fun world of Toy Story Monopoly? This
+  game brings your favorite characters right to your game board, making every move
+  exciting a
 pubDate: 2025-11-17
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-play-toy-story-monopoly&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Play Toy Story Monopoly
+heroImage: https://tse1.mm.bing.net/th?q=how-to-play-toy-story-monopoly&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you ready to dive into the fun world of Toy Story Monopoly? This game brings your favorite characters right to your game board, making every move exciting and full of surprises.**

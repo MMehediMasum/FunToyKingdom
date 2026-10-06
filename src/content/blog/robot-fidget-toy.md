@@ -1,10 +1,14 @@
 ---
-title: "Robot Fidget Toy: Top Sensory Stress Relief Gadgets for Kids"
-description: "Robot fidget toys offer fun and calming play for kids and adults. These small, transformable toys help relieve stress and improve focus. Robot fidget toys come "
+title: 'Robot Fidget Toy: Top Sensory Stress Relief Gadgets for Kids'
+description: 'Robot fidget toys offer fun and calming play for kids and adults. These
+  small, transformable toys help relieve stress and improve focus. Robot fidget toys
+  come '
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=robot-fidget-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=robot-fidget-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Robot fidget toys offer fun and calming play for kids and adults. These small, transformable toys help relieve stress and improve focus.**

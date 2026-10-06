@@ -1,10 +1,14 @@
 ---
-title: "Toy Car Garage With Elevator: Ultimate Multi-Level Playset for Kids"
-description: "Toy car garages with elevators offer exciting playtime for kids who love vehicles. These multi-level playsets include ramps and lifts for endless fun. Toy car g"
+title: 'Toy Car Garage With Elevator: Ultimate Multi-Level Playset for Kids'
+description: Toy car garages with elevators offer exciting playtime for kids who love
+  vehicles. These multi-level playsets include ramps and lifts for endless fun. Toy
+  car g
 pubDate: 2026-08-29
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-car-garage-with-elevator&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=toy-car-garage-with-elevator&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Toy car garages with elevators offer exciting playtime for kids who love vehicles. These multi-level playsets include ramps and lifts for endless fun.**

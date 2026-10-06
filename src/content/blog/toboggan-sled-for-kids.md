@@ -1,10 +1,14 @@
 ---
-title: "Toboggan Sled for Kids: Ultimate Fun and Safety Guide 2025"
-description: "Looking for the perfect toboggan sled for kids? You want something safe, fun, and easy to use that will turn chilly winter days into unforgettable adventures. C"
+title: 'Toboggan Sled for Kids: Ultimate Fun and Safety Guide 2025'
+description: Looking for the perfect toboggan sled for kids? You want something safe,
+  fun, and easy to use that will turn chilly winter days into unforgettable adventures.
+  C
 pubDate: 2026-03-22
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toboggan-sled-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Push Pull Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=toboggan-sled-for-kids&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Looking for the perfect toboggan sled for kids? You want something safe, fun, and easy to use that will turn chilly winter days into unforgettable adventures.**

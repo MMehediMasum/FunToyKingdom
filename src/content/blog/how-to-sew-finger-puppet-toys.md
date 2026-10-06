@@ -1,10 +1,14 @@
 ---
-title: "How to Sew Finger Puppet Toys: Easy Steps for Creative Fun"
-description: "Have you ever wanted to create something fun and magical with your own hands? Sewing finger puppet toys is a simple and rewarding way to do just that. Imagine b"
+title: 'How to Sew Finger Puppet Toys: Easy Steps for Creative Fun'
+description: Have you ever wanted to create something fun and magical with your own
+  hands? Sewing finger puppet toys is a simple and rewarding way to do just that.
+  Imagine b
 pubDate: 2026-06-22
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-sew-finger-puppet-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- What Toys Do Guinea Pigs
+heroImage: https://tse1.mm.bing.net/th?q=how-to-sew-finger-puppet-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wanted to create something fun and magical with your own hands? Sewing finger puppet toys is a simple and rewarding way to do just that.**

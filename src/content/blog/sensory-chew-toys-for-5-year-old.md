@@ -1,10 +1,14 @@
 ---
-title: "Sensory Chew Toys for 5 Year Olds: Top Picks for Fun & Development"
-description: "Sensory chew toys help 5-year-olds explore and learn through touch and taste. These toys support calmness and focus during play or quiet time. Chew toys designe"
+title: 'Sensory Chew Toys for 5 Year Olds: Top Picks for Fun & Development'
+description: Sensory chew toys help 5-year-olds explore and learn through touch and
+  taste. These toys support calmness and focus during play or quiet time. Chew toys
+  designe
 pubDate: 2025-11-20
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-5-year-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Chew Toys For Age
+heroImage: https://tse1.mm.bing.net/th?q=sensory-chew-toys-for-5-year-old&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory chew toys help 5-year-olds explore and learn through touch and taste. These toys support calmness and focus during play or quiet time.**

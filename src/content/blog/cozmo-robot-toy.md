@@ -1,10 +1,14 @@
 ---
-title: "Cozmo Robot Toy: Ultimate Screen Guard and Decoration Kit Review"
-description: "Cozmo Robot Toy offers fun and learning in a small, friendly robot. It interacts, plays games, and responds to your touch. Cozmo is a smart robot designed for k"
+title: 'Cozmo Robot Toy: Ultimate Screen Guard and Decoration Kit Review'
+description: Cozmo Robot Toy offers fun and learning in a small, friendly robot. It
+  interacts, plays games, and responds to your touch. Cozmo is a smart robot designed
+  for k
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=cozmo-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy Robot For Kids
+heroImage: https://tse1.mm.bing.net/th?q=cozmo-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Cozmo Robot Toy offers fun and learning in a small, friendly robot. It interacts, plays games, and responds to your touch.**

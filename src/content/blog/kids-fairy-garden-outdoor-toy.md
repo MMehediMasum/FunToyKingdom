@@ -1,10 +1,14 @@
 ---
-title: "Kids Fairy Garden Outdoor Toy: Magical Fun for Creative Play"
-description: "Imagine a magical space right in your backyard where your child’s imagination can run wild. A Kids Fairy Garden Outdoor Toy is more than just a plaything—it’s a"
+title: 'Kids Fairy Garden Outdoor Toy: Magical Fun for Creative Play'
+description: Imagine a magical space right in your backyard where your child’s imagination
+  can run wild. A Kids Fairy Garden Outdoor Toy is more than just a plaything—it’s
+  a
 pubDate: 2026-05-08
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-fairy-garden-outdoor-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=kids-fairy-garden-outdoor-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine a magical space right in your backyard where your child’s imagination can run wild. A Kids Fairy Garden Outdoor Toy is more than just a plaything—it’s a gateway to endless adventures and creative fun.**

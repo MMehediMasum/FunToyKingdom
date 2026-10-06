@@ -1,10 +1,14 @@
 ---
-title: "Ride on Toy for Grassy Hills: Ultimate Fun and Safe Adventure"
-description: "Imagine your child zooming happily up and down grassy hills, laughter filling the air. A ride on toy designed for grassy hills can turn ordinary outdoor play in"
+title: 'Ride on Toy for Grassy Hills: Ultimate Fun and Safe Adventure'
+description: Imagine your child zooming happily up and down grassy hills, laughter
+  filling the air. A ride on toy designed for grassy hills can turn ordinary outdoor
+  play in
 pubDate: 2026-05-20
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-for-grassy-hills&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Features
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-for-grassy-hills&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child zooming happily up and down grassy hills, laughter filling the air. A ride on toy designed for grassy hills can turn ordinary outdoor play into an exciting adventure right in your backyard or park.**

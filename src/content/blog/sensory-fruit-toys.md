@@ -1,10 +1,14 @@
 ---
-title: "Sensory Fruit Toys: Fun and Educational Plush Playsets for Toddlers"
-description: "Sensory fruit toys help children learn through touch, sight, and play. These toys come in bright colors and soft textures. Sensory fruit toys offer fun and lear"
+title: 'Sensory Fruit Toys: Fun and Educational Plush Playsets for Toddlers'
+description: Sensory fruit toys help children learn through touch, sight, and play.
+  These toys come in bright colors and soft textures. Sensory fruit toys offer fun
+  and lear
 pubDate: 2026-02-01
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=sensory-fruit-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Age 9
+heroImage: https://tse1.mm.bing.net/th?q=sensory-fruit-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Sensory fruit toys help children learn through touch, sight, and play. These toys come in bright colors and soft textures.**

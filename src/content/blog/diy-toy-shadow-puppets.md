@@ -1,10 +1,14 @@
 ---
-title: "Diy Toy Shadow Puppets: Creative Fun for Kids & Families"
-description: "Looking for a fun and creative activity that brings joy to your family time? DIY toy shadow puppets are an easy and exciting way to spark imagination and laught"
+title: 'Diy Toy Shadow Puppets: Creative Fun for Kids & Families'
+description: Looking for a fun and creative activity that brings joy to your family
+  time? DIY toy shadow puppets are an easy and exciting way to spark imagination and
+  laught
 pubDate: 2026-05-02
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-toy-shadow-puppets&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Telescope
+heroImage: https://tse1.mm.bing.net/th?q=diy-toy-shadow-puppets&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Looking for a fun and creative activity that brings joy to your family time? DIY toy shadow puppets are an easy and exciting way to spark imagination and laughter right at home.**

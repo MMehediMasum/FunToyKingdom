@@ -1,10 +1,14 @@
 ---
-title: "Eve Robot Toy: The Ultimate Cuddly and Creative Gift for Kids"
-description: "Eve Robot Toy offers fun and learning for kids and adults alike. It combines creativity, technology, and play in one package. This collection of Eve Robot Toys "
+title: 'Eve Robot Toy: The Ultimate Cuddly and Creative Gift for Kids'
+description: 'Eve Robot Toy offers fun and learning for kids and adults alike. It
+  combines creativity, technology, and play in one package. This collection of Eve
+  Robot Toys '
 pubDate: 2026-09-06
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=eve-robot-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Robot Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=eve-robot-toy&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Eve Robot Toy offers fun and learning for kids and adults alike. It combines creativity, technology, and play in one package.**

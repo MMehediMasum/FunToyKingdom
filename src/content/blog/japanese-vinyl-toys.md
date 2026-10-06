@@ -1,10 +1,14 @@
 ---
-title: "Japanese Vinyl Toys: Top Collectibles for Unique Anime and Movie Fans"
-description: "Japanese vinyl toys blend art, culture, and fun in collectible figures. They bring popular characters to life with unique design and craftsmanship. These toys c"
+title: 'Japanese Vinyl Toys: Top Collectibles for Unique Anime and Movie Fans'
+description: Japanese vinyl toys blend art, culture, and fun in collectible figures.
+  They bring popular characters to life with unique design and craftsmanship. These
+  toys c
 pubDate: 2026-08-25
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=japanese-vinyl-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Vinyl Toys
+heroImage: https://tse1.mm.bing.net/th?q=japanese-vinyl-toys&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Japanese vinyl toys blend art, culture, and fun in collectible figures. They bring popular characters to life with unique design and craftsmanship.**

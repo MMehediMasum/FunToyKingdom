@@ -1,10 +1,14 @@
 ---
-title: "Handmade Fabric Toy Food Set: Safe, Creative Play for Kids"
-description: "Imagine your child’s face lighting up as they explore a colorful world of pretend meals. A Handmade Fabric Toy Food Set brings that magic right into your home. "
+title: 'Handmade Fabric Toy Food Set: Safe, Creative Play for Kids'
+description: 'Imagine your child’s face lighting up as they explore a colorful world
+  of pretend meals. A Handmade Fabric Toy Food Set brings that magic right into your
+  home. '
 pubDate: 2026-04-26
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-fabric-toy-food-set&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Fabric Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-fabric-toy-food-set&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine your child’s face lighting up as they explore a colorful world of pretend meals. A Handmade Fabric Toy Food Set brings that magic right into your home.**

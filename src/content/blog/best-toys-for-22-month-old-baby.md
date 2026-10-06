@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 22 Month Old Baby: Top Picks for Fun & Learning"
-description: "Finding the best toys for your 22-month-old baby can feel overwhelming. You want something safe, fun, and that helps your little one grow. But with so many opti"
+title: 'Best Toys for 22 Month Old Baby: Top Picks for Fun & Learning'
+description: Finding the best toys for your 22-month-old baby can feel overwhelming.
+  You want something safe, fun, and that helps your little one grow. But with so many
+  opti
 pubDate: 2026-05-19
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-22-month-old-baby&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rattle Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-22-month-old-baby&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Finding the best toys for your 22-month-old baby can feel overwhelming. You want something safe, fun, and that helps your little one grow.**

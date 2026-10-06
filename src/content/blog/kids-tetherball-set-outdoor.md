@@ -1,10 +1,13 @@
 ---
-title: "Kids Tetherball Set Outdoor: Ultimate Fun for Active Playtime"
-description: "Looking for a fun way to get your kids moving outdoors? A Kids Tetherball Set Outdoor is just what you need. Imagine your children laughing and playing, improvi"
+title: 'Kids Tetherball Set Outdoor: Ultimate Fun for Active Playtime'
+description: Looking for a fun way to get your kids moving outdoors? A Kids Tetherball
+  Set Outdoor is just what you need. Imagine your children laughing and playing, improvi
 pubDate: 2026-06-04
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=kids-tetherball-set-outdoor&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Rugby Ball
+heroImage: https://tse1.mm.bing.net/th?q=kids-tetherball-set-outdoor&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun way to get your kids moving outdoors? A Kids Tetherball Set Outdoor is just what you need.**

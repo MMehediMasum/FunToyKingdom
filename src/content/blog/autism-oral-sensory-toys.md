@@ -1,10 +1,14 @@
 ---
-title: "Autism Oral Sensory Toys: Top Chew Necklaces for Calming Kids"
-description: "Oral sensory toys help children and adults with autism manage chewing and biting needs safely. These chew necklaces and tubes provide comfort and reduce anxiety"
+title: 'Autism Oral Sensory Toys: Top Chew Necklaces for Calming Kids'
+description: Oral sensory toys help children and adults with autism manage chewing
+  and biting needs safely. These chew necklaces and tubes provide comfort and reduce
+  anxiety
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=autism-oral-sensory-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=autism-oral-sensory-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Oral sensory toys help children and adults with autism manage chewing and biting needs safely. These chew necklaces and tubes provide comfort and reduce anxiety for sensory seekers.**

@@ -1,10 +1,14 @@
 ---
-title: "Best Board Games for Family Game Night: Top Fun Picks for All Ages"
-description: "Family game night brings everyone together for fun and laughter. Choosing the best board games makes the evening memorable and exciting. Board games create a ch"
+title: 'Best Board Games for Family Game Night: Top Fun Picks for All Ages'
+description: Family game night brings everyone together for fun and laughter. Choosing
+  the best board games makes the evening memorable and exciting. Board games create
+  a ch
 pubDate: 2025-12-26
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-board-games-for-family-game-night-top-fun-picks-for-all-ages&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For 5 Players
+heroImage: https://tse1.mm.bing.net/th?q=best-board-games-for-family-game-night-top-fun-picks-for-all-ages&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Family game night brings everyone together for fun and laughter. Choosing the best board games makes the evening memorable and exciting.**

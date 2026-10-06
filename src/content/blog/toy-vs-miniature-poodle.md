@@ -1,10 +1,14 @@
 ---
-title: "Toy Vs Miniature Poodle: Which Realistic Dog Figurine Is Best for Kids?"
-description: "Toy and miniature poodles often confuse dog lovers due to their similar looks. Both offer charm, but key differences set them apart. Toy and miniature poodles b"
+title: 'Toy Vs Miniature Poodle: Which Realistic Dog Figurine Is Best for Kids?'
+description: Toy and miniature poodles often confuse dog lovers due to their similar
+  looks. Both offer charm, but key differences set them apart. Toy and miniature poodles
+  b
 pubDate: 2026-02-23
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-vs-miniature-poodle&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Miniature Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=toy-vs-miniature-poodle&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy and miniature poodles often confuse dog lovers due to their similar looks. Both offer charm, but key differences set them apart.**

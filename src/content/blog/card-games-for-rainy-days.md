@@ -1,10 +1,14 @@
 ---
-title: "Card Games for Rainy Days: Fun & Cozy Indoor Entertainment Ideas"
-description: "Rainy days can make you feel stuck inside with nothing fun to do. But what if you could turn those gloomy hours into moments full of laughter and excitement? Ca"
+title: 'Card Games for Rainy Days: Fun & Cozy Indoor Entertainment Ideas'
+description: Rainy days can make you feel stuck inside with nothing fun to do. But
+  what if you could turn those gloomy hours into moments full of laughter and excitement?
+  Ca
 pubDate: 2025-10-18
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=card-games-for-rainy-days&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Card Games For Age 6
+heroImage: https://tse1.mm.bing.net/th?q=card-games-for-rainy-days&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Rainy days can make you feel stuck inside with nothing fun to do. But what if you could turn those gloomy hours into moments full of laughter and excitement?**

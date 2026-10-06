@@ -1,10 +1,14 @@
 ---
-title: "Can You Use Silicone Lube on Silicone Toys: Essential Safety Tips"
-description: "If you own silicone toys, you probably want to keep them in the best shape possible. But when it comes to choosing the right lubricant, things can get confusing"
+title: 'Can You Use Silicone Lube on Silicone Toys: Essential Safety Tips'
+description: If you own silicone toys, you probably want to keep them in the best
+  shape possible. But when it comes to choosing the right lubricant, things can get
+  confusing
 pubDate: 2026-01-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=can-you-use-silicone-lube-on-silicone-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Silicone Toy Care
+heroImage: https://tse1.mm.bing.net/th?q=can-you-use-silicone-lube-on-silicone-toys&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **If you own silicone toys, you probably want to keep them in the best shape possible. But when it comes to choosing the right lubricant, things can get confusing.**

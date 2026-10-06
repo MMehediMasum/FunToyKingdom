@@ -1,10 +1,14 @@
 ---
-title: "Tech Toys for Teens 2025: Must-Have Gadgets to Watch!"
-description: "Are you looking for the perfect tech toys to excite the teens in your life this year? Whether it’s for a birthday, holiday, or just because, finding gadgets tha"
+title: 'Tech Toys for Teens 2025: Must-Have Gadgets to Watch!'
+description: Are you looking for the perfect tech toys to excite the teens in your
+  life this year? Whether it’s for a birthday, holiday, or just because, finding gadgets
+  tha
 pubDate: 2026-05-18
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=tech-toys-for-teens-2024&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Sewing Kit For Teens
+heroImage: https://tse1.mm.bing.net/th?q=tech-toys-for-teens-2024&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for the perfect tech toys to excite the teens in your life this year? Whether it’s for a birthday, holiday, or just because, finding gadgets that are both fun and useful can be tricky.**

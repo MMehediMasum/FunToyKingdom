@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Astronaut Sprinkler Inflatable: Ultimate Summer Fun Guide"
-description: "Looking for a fun and unique way to cool down your backyard this summer? The Outdoor Astronaut Sprinkler Inflatable might be just what you need. Imagine your ki"
+title: 'Outdoor Astronaut Sprinkler Inflatable: Ultimate Summer Fun Guide'
+description: Looking for a fun and unique way to cool down your backyard this summer?
+  The Outdoor Astronaut Sprinkler Inflatable might be just what you need. Imagine
+  your ki
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-astronaut-sprinkler-inflatable&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Train Sprinkler Inflatable Toy
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-astronaut-sprinkler-inflatable&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and unique way to cool down your backyard this summer? The Outdoor Astronaut Sprinkler Inflatable might be just what you need.**

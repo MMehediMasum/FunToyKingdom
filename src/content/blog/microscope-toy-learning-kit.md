@@ -1,10 +1,13 @@
 ---
-title: "Microscope Toy Learning Kit: Unlock Kids’ Curiosity & Science Fun"
-description: "Have you ever wondered what secrets hide in the tiniest things around you? A Microscope Toy Learning Kit can open up a whole new world right at your fingertips."
+title: 'Microscope Toy Learning Kit: Unlock Kids’ Curiosity & Science Fun'
+description: Have you ever wondered what secrets hide in the tiniest things around
+  you? A Microscope Toy Learning Kit can open up a whole new world right at your fingertips.
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=microscope-toy-learning-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Use Abacus Toy
+heroImage: https://tse1.mm.bing.net/th?q=microscope-toy-learning-kit&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Have you ever wondered what secrets hide in the tiniest things around you? A Microscope Toy Learning Kit can open up a whole new world right at your fingertips.**

@@ -1,10 +1,14 @@
 ---
-title: "What Toys are Made in America: Top Quality Picks for 2025"
-description: "Are you curious about where your child’s toys come from? Knowing which toys are made in America can give you peace of mind about quality and safety. You want th"
+title: 'What Toys are Made in America: Top Quality Picks for 2025'
+description: Are you curious about where your child’s toys come from? Knowing which
+  toys are made in America can give you peace of mind about quality and safety. You
+  want th
 pubDate: 2025-11-04
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-toys-are-made-in-america&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Manufacturing Origins
+heroImage: https://tse1.mm.bing.net/th?q=what-toys-are-made-in-america&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you curious about where your child’s toys come from? Knowing which toys are made in America can give you peace of mind about quality and safety.**

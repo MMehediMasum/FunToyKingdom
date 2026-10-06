@@ -1,10 +1,14 @@
 ---
-title: "Weather Forecast Toy Kits: Fun DIY Science for Kids"
-description: "Have you ever wished you could predict the weather like a real meteorologist? Imagine having your own weather station right at home, learning how storms form, a"
+title: 'Weather Forecast Toy Kits: Fun DIY Science for Kids'
+description: Have you ever wished you could predict the weather like a real meteorologist?
+  Imagine having your own weather station right at home, learning how storms form,
+  a
 pubDate: 2026-05-28
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=weather-forecast-toy-kits&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Activity Walker Toys
+heroImage: https://tse1.mm.bing.net/th?q=weather-forecast-toy-kits&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Have you ever wished you could predict the weather like a real meteorologist? Imagine having your own weather station right at home, learning how storms form, and understanding the secrets behind rain and sunshine.**

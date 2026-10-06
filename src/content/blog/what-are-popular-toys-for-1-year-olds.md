@@ -1,10 +1,14 @@
 ---
-title: "What are Popular Toys for 1 Year Olds: Top Picks for Fun & Learning"
-description: "Choosing the perfect toy for a 1-year-old can feel overwhelming. You want something that sparks their curiosity, keeps them safe, and helps them learn. But with"
+title: 'What are Popular Toys for 1 Year Olds: Top Picks for Fun & Learning'
+description: Choosing the perfect toy for a 1-year-old can feel overwhelming. You
+  want something that sparks their curiosity, keeps them safe, and helps them learn.
+  But with
 pubDate: 2025-10-16
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-are-popular-toys-for-1-year-olds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Age Appropriate Toys
+heroImage: https://tse1.mm.bing.net/th?q=what-are-popular-toys-for-1-year-olds&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the perfect toy for a 1-year-old can feel overwhelming. You want something that sparks their curiosity, keeps them safe, and helps them learn.**

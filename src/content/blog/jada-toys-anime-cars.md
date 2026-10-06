@@ -1,10 +1,13 @@
 ---
-title: "Jada Toys Anime Cars: Ultimate Die-Cast Collectibles for Anime Fans"
-description: "Jada Toys brings anime and car enthusiasts together with their detailed die-cast models. These collectibles blend iconic anime characters with popular vehicles."
+title: 'Jada Toys Anime Cars: Ultimate Die-Cast Collectibles for Anime Fans'
+description: Jada Toys brings anime and car enthusiasts together with their detailed
+  die-cast models. These collectibles blend iconic anime characters with popular vehicles.
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=jada-toys-anime-cars&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Cars Mater Toys
+heroImage: https://tse1.mm.bing.net/th?q=jada-toys-anime-cars&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Jada Toys brings anime and car enthusiasts together with their detailed die-cast models. These collectibles blend iconic anime characters with popular vehicles.**

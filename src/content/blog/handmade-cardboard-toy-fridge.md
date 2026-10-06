@@ -1,10 +1,13 @@
 ---
-title: "Handmade Cardboard Toy Fridge: Creative DIY Fun for Kids"
-description: "Imagine giving your child a toy that’s not only fun but also sparks creativity and teaches sustainability. A handmade cardboard toy fridge is just that – a simp"
+title: 'Handmade Cardboard Toy Fridge: Creative DIY Fun for Kids'
+description: Imagine giving your child a toy that’s not only fun but also sparks creativity
+  and teaches sustainability. A handmade cardboard toy fridge is just that – a simp
 pubDate: 2026-06-23
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-fridge&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Handmade Cardboard Toy Animals
+heroImage: https://tse1.mm.bing.net/th?q=handmade-cardboard-toy-fridge&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Imagine giving your child a toy that’s not only fun but also sparks creativity and teaches sustainability. A handmade cardboard toy fridge is just that – a simple, eco-friendly plaything that can brighten up your child’s playtime while encouraging imagination.**

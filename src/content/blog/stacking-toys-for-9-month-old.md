@@ -1,10 +1,14 @@
 ---
-title: "Stacking Toys for 9 Month Old: Top Picks for Learning and Fun"
-description: "Stacking toys help 9-month-old babies develop hand-eye coordination and problem-solving skills. These toys keep infants engaged while promoting learning through"
+title: 'Stacking Toys for 9 Month Old: Top Picks for Learning and Fun'
+description: Stacking toys help 9-month-old babies develop hand-eye coordination and
+  problem-solving skills. These toys keep infants engaged while promoting learning
+  through
 pubDate: 2026-09-04
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-toys-for-9-month-old&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Stacking Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=stacking-toys-for-9-month-old&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Stacking toys help 9-month-old babies develop hand-eye coordination and problem-solving skills. These toys keep infants engaged while promoting learning through play.**

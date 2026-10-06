@@ -1,10 +1,14 @@
 ---
-title: "Toyan Engine Kit: Build and Run a Fully Functional V8 Model Engine"
-description: "The Toyan Engine Kit offers a hands-on experience building real working engine models. These kits provide an engaging way to learn about engine mechanics and fu"
+title: 'Toyan Engine Kit: Build and Run a Fully Functional V8 Model Engine'
+description: The Toyan Engine Kit offers a hands-on experience building real working
+  engine models. These kits provide an engaging way to learn about engine mechanics
+  and fu
 pubDate: 2026-07-30
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toyan-engine-kit&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Engine Kits
+heroImage: https://tse1.mm.bing.net/th?q=toyan-engine-kit&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **The Toyan Engine Kit offers a hands-on experience building real working engine models. These kits provide an engaging way to learn about engine mechanics and function.**

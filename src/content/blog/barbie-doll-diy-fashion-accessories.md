@@ -1,10 +1,14 @@
 ---
-title: "Barbie Doll Diy Fashion Accessories: Creative Ideas to Shine Bright"
-description: "Are you ready to take your Barbie doll’s style to the next level? Imagine creating unique fashion accessories that make your doll stand out from the crowd. With"
+title: 'Barbie Doll Diy Fashion Accessories: Creative Ideas to Shine Bright'
+description: Are you ready to take your Barbie doll’s style to the next level? Imagine
+  creating unique fashion accessories that make your doll stand out from the crowd.
+  With
 pubDate: 2025-12-13
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=barbie-doll-diy-fashion-accessories&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Story Barbie Doll Cameo
+heroImage: https://tse1.mm.bing.net/th?q=barbie-doll-diy-fashion-accessories&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Are you ready to take your Barbie doll’s style to the next level? Imagine creating unique fashion accessories that make your doll stand out from the crowd.**

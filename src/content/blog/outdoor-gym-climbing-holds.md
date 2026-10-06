@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Gym Climbing Holds: Ultimate Guide to Strength & Fun"
-description: "Are you looking to add excitement and challenge to your outdoor workout space? Outdoor gym climbing holds could be just what you need. These sturdy grips turn a"
+title: 'Outdoor Gym Climbing Holds: Ultimate Guide to Strength & Fun'
+description: Are you looking to add excitement and challenge to your outdoor workout
+  space? Outdoor gym climbing holds could be just what you need. These sturdy grips
+  turn a
 pubDate: 2026-03-30
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-gym-climbing-holds&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Outdoor Toys For Age 18
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-gym-climbing-holds&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking to add excitement and challenge to your outdoor workout space? Outdoor gym climbing holds could be just what you need.**

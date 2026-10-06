@@ -1,10 +1,14 @@
 ---
-title: "How to Make Pringles Can Toy: Easy DIY Fun for Kids"
-description: "Looking for a fun and creative way to turn an empty Pringles can into something amazing? You’re in the right place! Making a Pringles can toy is simple, excitin"
+title: 'How to Make Pringles Can Toy: Easy DIY Fun for Kids'
+description: Looking for a fun and creative way to turn an empty Pringles can into
+  something amazing? You’re in the right place! Making a Pringles can toy is simple,
+  excitin
 pubDate: 2025-09-13
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-pringles-can-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sell Old Toys
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-pringles-can-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Looking for a fun and creative way to turn an empty Pringles can into something amazing? You’re in the right place!**

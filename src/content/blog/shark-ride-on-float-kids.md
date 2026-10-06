@@ -1,10 +1,14 @@
 ---
-title: "Shark Ride on Float Kids: Ultimate Fun for Summer Adventures"
-description: "Imagine your child’s face lighting up with pure joy as they glide across the pool on a fun, shark-shaped float. The Shark Ride on Float Kids is not just a toy—i"
+title: 'Shark Ride on Float Kids: Ultimate Fun for Summer Adventures'
+description: Imagine your child’s face lighting up with pure joy as they glide across
+  the pool on a fun, shark-shaped float. The Shark Ride on Float Kids is not just
+  a toy—i
 pubDate: 2026-04-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=shark-ride-on-float-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride Ons Ages 3 5
+heroImage: https://tse1.mm.bing.net/th?q=shark-ride-on-float-kids&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine your child’s face lighting up with pure joy as they glide across the pool on a fun, shark-shaped float. The Shark Ride on Float Kids is not just a toy—it’s an exciting way to turn ordinary water time into an unforgettable adventure.**

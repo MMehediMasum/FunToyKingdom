@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Toy Story Special Edition DVD: Ultimate Collector’s Guide and Reviews"
 description: "The Toy Story Special Edition DVDs bring the magic of Pixar’s beloved films to your home. Each edition offers enhanced features for fans of all ages. These spec"
 pubDate: 2026-09-08

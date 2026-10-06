@@ -1,10 +1,14 @@
 ---
-title: "How to Defrizz Toy Hair Plushies: Easy Tips for Flawless Fur"
-description: "Are your toy hair plushies looking messy and frizzy? You’re not alone. Over time, the soft hair on these beloved toys can get tangled and lose their smooth, shi"
+title: 'How to Defrizz Toy Hair Plushies: Easy Tips for Flawless Fur'
+description: Are your toy hair plushies looking messy and frizzy? You’re not alone.
+  Over time, the soft hair on these beloved toys can get tangled and lose their smooth,
+  shi
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-defrizz-toy-hair-plushies&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Plush Animal Toys For Infants
+heroImage: https://tse1.mm.bing.net/th?q=how-to-defrizz-toy-hair-plushies&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Are your toy hair plushies looking messy and frizzy? You’re not alone.**

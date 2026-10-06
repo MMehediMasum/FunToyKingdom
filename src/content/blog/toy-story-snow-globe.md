@@ -1,10 +1,14 @@
 ---
-title: "Toy Story Snow Globe: Magical Collectible for Disney Fans and Kids"
-description: "Toy Story snow globes bring your favorite characters to life inside a magical globe. These collectibles blend fun, nostalgia, and charm perfectly. Disney Pixar’"
+title: 'Toy Story Snow Globe: Magical Collectible for Disney Fans and Kids'
+description: Toy Story snow globes bring your favorite characters to life inside a
+  magical globe. These collectibles blend fun, nostalgia, and charm perfectly. Disney
+  Pixar’
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=toy-story-snow-globe&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Toy Story Toys
+heroImage: https://tse1.mm.bing.net/th?q=toy-story-snow-globe&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **Toy Story snow globes bring your favorite characters to life inside a magical globe. These collectibles blend fun, nostalgia, and charm perfectly.**

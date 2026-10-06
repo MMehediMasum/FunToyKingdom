@@ -1,10 +1,14 @@
 ---
-title: "Who Invented Monopoly Board Game: Unveiling Its Fascinating Origins"
-description: "Have you ever wondered who invented the Monopoly board game you love to play with friends and family? You might think it’s just a simple game, but its story is "
+title: 'Who Invented Monopoly Board Game: Unveiling Its Fascinating Origins'
+description: 'Have you ever wondered who invented the Monopoly board game you love
+  to play with friends and family? You might think it’s just a simple game, but its
+  story is '
 pubDate: 2026-05-22
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=who-invented-monopoly-board-game&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Spinner For Board
+heroImage: https://tse1.mm.bing.net/th?q=who-invented-monopoly-board-game&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered who invented the Monopoly board game you love to play with friends and family? You might think it’s just a simple game, but its story is full of surprising twists and clever ideas.**

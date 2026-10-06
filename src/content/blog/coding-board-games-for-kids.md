@@ -1,10 +1,14 @@
 ---
-title: "Coding Board Games for Kids: Fun Ways to Boost Coding Skills"
-description: "Are you looking for a fun way to help your child learn coding without staring at a screen? Coding board games for kids might be exactly what you need. These gam"
+title: 'Coding Board Games for Kids: Fun Ways to Boost Coding Skills'
+description: Are you looking for a fun way to help your child learn coding without
+  staring at a screen? Coding board games for kids might be exactly what you need.
+  These gam
 pubDate: 2025-11-16
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=coding-board-games-for-kids&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Board Games For Age 8
+heroImage: https://tse1.mm.bing.net/th?q=coding-board-games-for-kids&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Are you looking for a fun way to help your child learn coding without staring at a screen? Coding board games for kids might be exactly what you need.**

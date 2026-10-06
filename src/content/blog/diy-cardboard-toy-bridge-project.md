@@ -1,10 +1,14 @@
 ---
-title: "Diy Cardboard Toy Bridge Project: Easy Steps for Fun Crafting"
-description: "Are you looking for a fun and creative project that you can do right at home? Building a DIY cardboard toy bridge is a perfect way to challenge your imagination"
+title: 'Diy Cardboard Toy Bridge Project: Easy Steps for Fun Crafting'
+description: Are you looking for a fun and creative project that you can do right
+  at home? Building a DIY cardboard toy bridge is a perfect way to challenge your
+  imagination
 pubDate: 2026-05-01
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=diy-cardboard-toy-bridge-project&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Cardboard Toy Garage
+heroImage: https://tse1.mm.bing.net/th?q=diy-cardboard-toy-bridge-project&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative project that you can do right at home? Building a DIY cardboard toy bridge is a perfect way to challenge your imagination and skills.**

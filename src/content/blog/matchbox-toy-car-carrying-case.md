@@ -1,10 +1,14 @@
 ---
-title: "Matchbox Toy Car Carrying Case: Durable, Portable Organizer for Collectors"
-description: "A Matchbox toy car carrying case keeps your collection safe and organized. It makes transport and display simple and neat. Toy car collectors need a reliable st"
+title: 'Matchbox Toy Car Carrying Case: Durable, Portable Organizer for Collectors'
+description: A Matchbox toy car carrying case keeps your collection safe and organized.
+  It makes transport and display simple and neat. Toy car collectors need a reliable
+  st
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=matchbox-toy-car-carrying-case&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Cars For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=matchbox-toy-car-carrying-case&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **A Matchbox toy car carrying case keeps your collection safe and organized. It makes transport and display simple and neat.**

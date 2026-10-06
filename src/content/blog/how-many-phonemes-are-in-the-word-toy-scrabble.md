@@ -1,10 +1,14 @@
 ---
-title: "How Many Phonemes are in the Word Toy Scrabble: Ultimate Guide"
-description: "Have you ever wondered how many sounds make up the word \"Toy Scrabble\"? Understanding phonemes—the smallest units of sound in speech—can help you improve your p"
+title: 'How Many Phonemes are in the Word Toy Scrabble: Ultimate Guide'
+description: Have you ever wondered how many sounds make up the word "Toy Scrabble"?
+  Understanding phonemes—the smallest units of sound in speech—can help you improve
+  your p
 pubDate: 2025-10-15
-author: "gustavostowe"
-categories: ["Puzzle & Board Games"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-many-phonemes-are-in-the-word-toy-scrabble&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Is Toy Scrabble Word
+heroImage: https://tse1.mm.bing.net/th?q=how-many-phonemes-are-in-the-word-toy-scrabble&w=424&h=424&c=7
+topic: Games & Puzzles
 ---
 
 **Have you ever wondered how many sounds make up the word "Toy Scrabble"? Understanding phonemes—the smallest units of sound in speech—can help you improve your pronunciation and language skills.**

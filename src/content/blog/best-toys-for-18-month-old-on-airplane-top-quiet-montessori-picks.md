@@ -1,10 +1,14 @@
 ---
-title: "Best Toys for 18 Month Old on Airplane: Top Quiet Montessori Picks"
-description: "Traveling with an 18-month-old can be tricky without the right toys. The best toys keep toddlers busy, calm, and happy on the airplane. Choosing toys that fit s"
+title: 'Best Toys for 18 Month Old on Airplane: Top Quiet Montessori Picks'
+description: Traveling with an 18-month-old can be tricky without the right toys.
+  The best toys keep toddlers busy, calm, and happy on the airplane. Choosing toys
+  that fit s
 pubDate: 2025-11-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-18-month-old-on-airplane-top-quiet-montessori-picks&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Montessori Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-18-month-old-on-airplane-top-quiet-montessori-picks&w=424&h=424&c=7
+topic: Educational, STEM & Robot Toys
 ---
 
 **Traveling with an 18-month-old can be tricky without the right toys. The best toys keep toddlers busy, calm, and happy on the airplane.**

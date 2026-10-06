@@ -1,10 +1,14 @@
 ---
-title: "How Can I Make a Toy: Easy DIY Ideas for Kids and Adults"
-description: "Have you ever wondered how you can make a toy that brings joy and sparks creativity? Imagine holding something you built with your own hands—a toy that’s not ju"
+title: 'How Can I Make a Toy: Easy DIY Ideas for Kids and Adults'
+description: Have you ever wondered how you can make a toy that brings joy and sparks
+  creativity? Imagine holding something you built with your own hands—a toy that’s
+  not ju
 pubDate: 2025-09-10
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-can-i-make-a-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Toy
+heroImage: https://tse1.mm.bing.net/th?q=how-can-i-make-a-toy&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Have you ever wondered how you can make a toy that brings joy and sparks creativity? Imagine holding something you built with your own hands—a toy that’s not just fun but also unique.**

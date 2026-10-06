@@ -1,10 +1,14 @@
 ---
-title: "Where Can I Buy Jack in the Box Toy: Ultimate Guide 2025"
-description: "Are you searching for the perfect Jack in the Box toy but don’t know where to start? Finding that fun, nostalgic toy can feel tricky when there are so many opti"
+title: 'Where Can I Buy Jack in the Box Toy: Ultimate Guide 2025'
+description: Are you searching for the perfect Jack in the Box toy but don’t know
+  where to start? Finding that fun, nostalgic toy can feel tricky when there are so
+  many opti
 pubDate: 2025-09-14
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=where-can-i-buy-jack-in-the-box-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Buy Toys Cheap
+heroImage: https://tse1.mm.bing.net/th?q=where-can-i-buy-jack-in-the-box-toy&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Are you searching for the perfect Jack in the Box toy but don’t know where to start? Finding that fun, nostalgic toy can feel tricky when there are so many options out there.**

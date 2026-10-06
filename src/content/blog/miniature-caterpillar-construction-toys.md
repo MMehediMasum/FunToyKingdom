@@ -1,10 +1,14 @@
 ---
-title: "Miniature Caterpillar Construction Toys: Perfect Set for Kids’ Creative Play"
-description: "Miniature Caterpillar construction toys capture young imaginations with their realistic designs and moving parts. These toys are perfect for creative play. Chil"
+title: 'Miniature Caterpillar Construction Toys: Perfect Set for Kids’ Creative Play'
+description: Miniature Caterpillar construction toys capture young imaginations with
+  their realistic designs and moving parts. These toys are perfect for creative play.
+  Chil
 pubDate: 2026-02-25
-author: "gustavostowe"
-categories: ["Action Figures & Dolls"]
-heroImage: "https://tse1.mm.bing.net/th?q=miniature-caterpillar-construction-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Benefits Of Building Block Toys
+heroImage: https://tse1.mm.bing.net/th?q=miniature-caterpillar-construction-toys&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Miniature Caterpillar construction toys capture young imaginations with their realistic designs and moving parts. These toys are perfect for creative play.**

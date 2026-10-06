@@ -1,10 +1,14 @@
 ---
-title: "Rc Drone for Outdoor Flying: Ultimate Guide to Thrilling Adventures"
-description: "Looking for the perfect RC drone to take your outdoor flying experience to the next level? You’re in the right place. Whether you’re a beginner or a seasoned fl"
+title: 'Rc Drone for Outdoor Flying: Ultimate Guide to Thrilling Adventures'
+description: Looking for the perfect RC drone to take your outdoor flying experience
+  to the next level? You’re in the right place. Whether you’re a beginner or a seasoned
+  fl
 pubDate: 2026-04-15
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=rc-drone-for-outdoor-flying&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Toy Drone For Kids
+heroImage: https://tse1.mm.bing.net/th?q=rc-drone-for-outdoor-flying&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **Looking for the perfect RC drone to take your outdoor flying experience to the next level? You’re in the right place.**

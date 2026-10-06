@@ -1,10 +1,14 @@
 ---
-title: "Ride on Dump Truck for Toddlers: Ultimate Fun and Safety Guide"
-description: "Looking for a fun and safe way to keep your toddler entertained? A ride on dump truck could be just what you need. Imagine your little one’s eyes lighting up as"
+title: 'Ride on Dump Truck for Toddlers: Ultimate Fun and Safety Guide'
+description: Looking for a fun and safe way to keep your toddler entertained? A ride
+  on dump truck could be just what you need. Imagine your little one’s eyes lighting
+  up as
 pubDate: 2026-05-07
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-dump-truck-for-toddlers&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Jeep For Kids
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-dump-truck-for-toddlers&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and safe way to keep your toddler entertained? A ride on dump truck could be just what you need.**

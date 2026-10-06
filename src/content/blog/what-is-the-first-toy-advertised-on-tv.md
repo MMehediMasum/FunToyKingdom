@@ -1,10 +1,14 @@
 ---
-title: "What is the First Toy Advertised on Tv: Discover the Iconic Classic!"
-description: "Have you ever wondered which toy was the very first to appear in a TV commercial? That simple question opens a fascinating window into how advertising changed t"
+title: 'What is the First Toy Advertised on Tv: Discover the Iconic Classic!'
+description: Have you ever wondered which toy was the very first to appear in a TV
+  commercial? That simple question opens a fascinating window into how advertising
+  changed t
 pubDate: 2026-01-02
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=what-is-the-first-toy-advertised-on-tv&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Germ Safety
+heroImage: https://tse1.mm.bing.net/th?q=what-is-the-first-toy-advertised-on-tv&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Have you ever wondered which toy was the very first to appear in a TV commercial? That simple question opens a fascinating window into how advertising changed the way we shop for toys.**

@@ -1,10 +1,14 @@
 ---
-title: "Air Rocket Launcher With Pump: Ultimate Fun for All Ages"
-description: "Are you ready to take your outdoor fun to the next level? An Air Rocket Launcher with Pump is exactly what you need to bring excitement, challenge, and teamwork"
+title: 'Air Rocket Launcher With Pump: Ultimate Fun for All Ages'
+description: Are you ready to take your outdoor fun to the next level? An Air Rocket
+  Launcher with Pump is exactly what you need to bring excitement, challenge, and
+  teamwork
 pubDate: 2026-03-19
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=air-rocket-launcher-with-pump&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=air-rocket-launcher-with-pump&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you ready to take your outdoor fun to the next level? An Air Rocket Launcher with Pump is exactly what you need to bring excitement, challenge, and teamwork into your backyard or park.**

@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Fox Inflatable Pool Float: Ultimate Summer Fun Essential"
-description: "Imagine yourself lounging on a sunny day, floating effortlessly on a pool that feels more like a fun adventure than just a swim. The Outdoor Fox Inflatable Pool"
+title: 'Outdoor Fox Inflatable Pool Float: Ultimate Summer Fun Essential'
+description: Imagine yourself lounging on a sunny day, floating effortlessly on a
+  pool that feels more like a fun adventure than just a swim. The Outdoor Fox Inflatable
+  Pool
 pubDate: 2025-10-20
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-fox-inflatable-pool-float&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Inflatable Pool Toys For Kids
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-fox-inflatable-pool-float&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine yourself lounging on a sunny day, floating effortlessly on a pool that feels more like a fun adventure than just a swim. The Outdoor Fox Inflatable Pool Float is here to turn that vision into your new reality.**

@@ -1,10 +1,14 @@
 ---
-title: "Woody Toy Story RC Car: Ultimate Guide to Fun and Adventure"
-description: "The Woody Toy Story RC Car brings your favorite cowboy to life with remote control fun. Kids can drive Woody and other characters from Toy Story in exciting pla"
+title: 'Woody Toy Story RC Car: Ultimate Guide to Fun and Adventure'
+description: The Woody Toy Story RC Car brings your favorite cowboy to life with remote
+  control fun. Kids can drive Woody and other characters from Toy Story in exciting
+  pla
 pubDate: 2026-03-17
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=woody-toy-story-rc-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- RC Car For Age 10
+heroImage: https://tse1.mm.bing.net/th?q=woody-toy-story-rc-car&w=424&h=424&c=7
+topic: Cars, Trucks, Trains & RC Toys
 ---
 
 **The Woody Toy Story RC Car brings your favorite cowboy to life with remote control fun. Kids can drive Woody and other characters from Toy Story in exciting play.**

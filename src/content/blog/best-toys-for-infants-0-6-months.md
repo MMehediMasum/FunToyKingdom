@@ -1,10 +1,13 @@
 ---
-title: "Best Toys for Infants 0 6 Months: Top Picks for Early Development"
-description: "Choosing the best toys for your infant aged 0 to 6 months can feel overwhelming. You want to pick items that are safe, engaging, and help your baby grow. But wi"
+title: 'Best Toys for Infants 0 6 Months: Top Picks for Early Development'
+description: Choosing the best toys for your infant aged 0 to 6 months can feel overwhelming.
+  You want to pick items that are safe, engaging, and help your baby grow. But wi
 pubDate: 2026-04-07
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=best-toys-for-infants-0-6-months&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Infant Learning Toys
+heroImage: https://tse1.mm.bing.net/th?q=best-toys-for-infants-0-6-months&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Choosing the best toys for your infant aged 0 to 6 months can feel overwhelming. You want to pick items that are safe, engaging, and help your baby grow.**

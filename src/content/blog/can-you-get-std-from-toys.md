@@ -1,4 +1,5 @@
 ---
+noindex: true
 title: "Can You Get Std from Toys: Essential Facts You Must Know"
 description: "Have you ever wondered if using toys can put your health at risk? When it comes to staying safe and enjoying yourself, understanding the truth about sexually tr"
 pubDate: 2025-09-10

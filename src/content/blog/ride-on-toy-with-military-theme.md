@@ -1,10 +1,13 @@
 ---
-title: "Ride on Toy With Military Theme: Ultimate Adventure for Kids"
-description: "Are you looking for a fun and exciting way to spark your child’s imagination? A ride on toy with a military theme might be just what you need. Imagine your litt"
+title: 'Ride on Toy With Military Theme: Ultimate Adventure for Kids'
+description: Are you looking for a fun and exciting way to spark your child’s imagination?
+  A ride on toy with a military theme might be just what you need. Imagine your litt
 pubDate: 2026-04-23
-author: "gustavostowe"
-categories: ["Ride-On & Remote-Controlled Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=ride-on-toy-with-military-theme&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy With Police
+heroImage: https://tse1.mm.bing.net/th?q=ride-on-toy-with-military-theme&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Are you looking for a fun and exciting way to spark your child’s imagination? A ride on toy with a military theme might be just what you need.**

@@ -1,10 +1,14 @@
 ---
-title: "Children'S Cleaning Set Toy: Fun Pretend Play for Toddlers and Kids"
-description: "Children's cleaning set toys make house chores fun and teach responsibility early. These colorful sets include brooms, mops, dustpans, and brushes for pretend p"
+title: 'Children''S Cleaning Set Toy: Fun Pretend Play for Toddlers and Kids'
+description: Children's cleaning set toys make house chores fun and teach responsibility
+  early. These colorful sets include brooms, mops, dustpans, and brushes for pretend
+  p
 pubDate: 2025-11-14
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=childrens-cleaning-set-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toy Kitchen Set For Kids
+heroImage: https://tse1.mm.bing.net/th?q=childrens-cleaning-set-toy&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Children's cleaning set toys make house chores fun and teach responsibility early. These colorful sets include brooms, mops, dustpans, and brushes for pretend play.**

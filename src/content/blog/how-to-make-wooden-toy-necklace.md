@@ -1,10 +1,14 @@
 ---
-title: "How to Make Wooden Toy Necklace: Easy Steps for Stunning DIY Jewelry"
-description: "Are you looking for a fun and creative way to make a unique accessory? Making a wooden toy necklace is easier than you think, and it’s a perfect project for you"
+title: 'How to Make Wooden Toy Necklace: Easy Steps for Stunning DIY Jewelry'
+description: Are you looking for a fun and creative way to make a unique accessory?
+  Making a wooden toy necklace is easier than you think, and it’s a perfect project
+  for you
 pubDate: 2026-07-24
-author: "gustavostowe"
-categories: ["Creative & DIY Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-necklace&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- DIY Wooden Toy Motorcycle
+heroImage: https://tse1.mm.bing.net/th?q=how-to-make-wooden-toy-necklace&w=424&h=424&c=7
+topic: Building, DIY & Handmade Toys
 ---
 
 **Are you looking for a fun and creative way to make a unique accessory? Making a wooden toy necklace is easier than you think, and it’s a perfect project for you to enjoy alone or with loved ones.**

@@ -1,10 +1,14 @@
 ---
-title: "Disinfecting Infant Toys: Safe and Effective Cleaners for Baby Essentials"
-description: "Keeping infant toys clean helps protect babies from germs and illnesses. Disinfecting toys regularly ensures a safe play environment for your little one. Babies"
+title: 'Disinfecting Infant Toys: Safe and Effective Cleaners for Baby Essentials'
+description: Keeping infant toys clean helps protect babies from germs and illnesses.
+  Disinfecting toys regularly ensures a safe play environment for your little one.
+  Babies
 pubDate: 2026-03-11
-author: "gustavostowe"
-categories: ["Toys by Age Group"]
-heroImage: "https://tse1.mm.bing.net/th?q=disinfecting-infant-toys&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Toddler Toys For Car Rides
+heroImage: https://tse1.mm.bing.net/th?q=disinfecting-infant-toys&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Keeping infant toys clean helps protect babies from germs and illnesses. Disinfecting toys regularly ensures a safe play environment for your little one.**

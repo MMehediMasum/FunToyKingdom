@@ -1,10 +1,14 @@
 ---
-title: "Dog Rope Toy Amazon: Top Heavy Duty Chew Toys for Aggressive Dogs"
-description: "Dog rope toys on Amazon offer durable fun for dogs of all sizes. These toys help keep dogs entertained and support dental health. Dog rope toys are great for ch"
+title: 'Dog Rope Toy Amazon: Top Heavy Duty Chew Toys for Aggressive Dogs'
+description: Dog rope toys on Amazon offer durable fun for dogs of all sizes. These
+  toys help keep dogs entertained and support dental health. Dog rope toys are great
+  for ch
 pubDate: 2026-08-03
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=dog-rope-toy-amazon&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Heavy Chewer Dog Rope Toys
+heroImage: https://tse1.mm.bing.net/th?q=dog-rope-toy-amazon&w=424&h=424&c=7
+topic: Toy Care, Shopping & Pet Toys
 ---
 
 **Dog rope toys on Amazon offer durable fun for dogs of all sizes. These toys help keep dogs entertained and support dental health.**

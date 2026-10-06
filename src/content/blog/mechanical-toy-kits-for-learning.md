@@ -1,10 +1,14 @@
 ---
-title: "Mechanical Toy Kits for Learning: Unlock Creativity and STEM Skills"
-description: "Have you ever wanted to make learning fun and hands-on? Mechanical toy kits are a perfect way to do just that. They let you build cool moving models while disco"
+title: 'Mechanical Toy Kits for Learning: Unlock Creativity and STEM Skills'
+description: Have you ever wanted to make learning fun and hands-on? Mechanical toy
+  kits are a perfect way to do just that. They let you build cool moving models while
+  disco
 pubDate: 2026-06-29
-author: "gustavostowe"
-categories: ["Educational Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=mechanical-toy-kits-for-learning&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Build Toy Puppet Theater
+heroImage: https://tse1.mm.bing.net/th?q=mechanical-toy-kits-for-learning&w=424&h=424&c=7
+topic: Pretend Play, Plush & Novelty Toys
 ---
 
 **Have you ever wanted to make learning fun and hands-on? Mechanical toy kits are a perfect way to do just that.**

@@ -1,10 +1,13 @@
 ---
-title: "Bubble Lawn Mower Toy: Fun, Safe, and Perfect for Kids"
-description: "Imagine giving your child a toy that sparks endless fun while encouraging outdoor play. The Bubble Lawn Mower Toy is just that – a perfect blend of imagination "
+title: 'Bubble Lawn Mower Toy: Fun, Safe, and Perfect for Kids'
+description: 'Imagine giving your child a toy that sparks endless fun while encouraging
+  outdoor play. The Bubble Lawn Mower Toy is just that – a perfect blend of imagination '
 pubDate: 2025-09-10
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=bubble-lawn-mower-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Foam Dart Bow And Arrow
+heroImage: https://tse1.mm.bing.net/th?q=bubble-lawn-mower-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine giving your child a toy that sparks endless fun while encouraging outdoor play. The Bubble Lawn Mower Toy is just that – a perfect blend of imagination and activity.**

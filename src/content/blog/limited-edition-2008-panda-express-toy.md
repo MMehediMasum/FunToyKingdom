@@ -1,10 +1,13 @@
 ---
-title: "Limited Edition Panda Express Toy: Must-Have Collectible Plush Review"
-description: "The Limited Edition 2008 Panda Express Toy is a rare find for collectors. This toy represents a special moment in fast-food memorabilia history. This collectibl"
+title: 'Limited Edition Panda Express Toy: Must-Have Collectible Plush Review'
+description: The Limited Edition 2008 Panda Express Toy is a rare find for collectors.
+  This toy represents a special moment in fast-food memorabilia history. This collectibl
 pubDate: 2026-08-23
-author: "gustavostowe"
-categories: ["Collectible Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=limited-edition-2008-panda-express-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Limited Edition Toy
+heroImage: https://tse1.mm.bing.net/th?q=limited-edition-2008-panda-express-toy&w=424&h=424&c=7
+topic: Dolls, Collectibles & Characters
 ---
 
 **The Limited Edition 2008 Panda Express Toy is a rare find for collectors. This toy represents a special moment in fast-food memorabilia history.**

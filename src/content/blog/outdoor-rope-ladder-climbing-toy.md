@@ -1,10 +1,14 @@
 ---
-title: "Outdoor Rope Ladder Climbing Toy: Ultimate Fun for Active Kids"
-description: "Looking for a fun and exciting way to get your kids moving outdoors? An outdoor rope ladder climbing toy might be just what you need. It’s more than just a play"
+title: 'Outdoor Rope Ladder Climbing Toy: Ultimate Fun for Active Kids'
+description: Looking for a fun and exciting way to get your kids moving outdoors?
+  An outdoor rope ladder climbing toy might be just what you need. It’s more than
+  just a play
 pubDate: 2026-04-12
-author: "gustavostowe"
-categories: ["Outdoor & Sports Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=outdoor-rope-ladder-climbing-toy&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Climbing Toys For Age 3
+heroImage: https://tse1.mm.bing.net/th?q=outdoor-rope-ladder-climbing-toy&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Looking for a fun and exciting way to get your kids moving outdoors? An outdoor rope ladder climbing toy might be just what you need.**

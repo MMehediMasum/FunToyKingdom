@@ -1,10 +1,13 @@
 ---
-title: "Stacking Toys Autism: Top Sensory Blocks for Toddlers’ Learning Fun"
-description: "Stacking toys offer great benefits for children with autism. They improve focus, coordination, and sensory skills. These toys come in many styles, like colorful"
+title: 'Stacking Toys Autism: Top Sensory Blocks for Toddlers’ Learning Fun'
+description: Stacking toys offer great benefits for children with autism. They improve
+  focus, coordination, and sensory skills. These toys come in many styles, like colorful
 pubDate: 2025-10-08
-author: "gustavostowe"
-categories: ["Baby & Toddler Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=stacking-toys-autism&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Sensory Toys For Autism 3
+heroImage: https://tse1.mm.bing.net/th?q=stacking-toys-autism&w=424&h=424&c=7
+topic: Baby, Toddler & Sensory Toys
 ---
 
 **Stacking toys offer great benefits for children with autism. They improve focus, coordination, and sensory skills.**

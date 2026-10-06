@@ -1,10 +1,14 @@
 ---
-title: "Voice Controlled Toy Car: Ultimate Fun with Smart Tech Play"
-description: "Imagine controlling a toy car just by speaking to it. No buttons, no remote—just your voice. Sounds exciting, right? If you’ve ever wished for a hands-free way "
+title: 'Voice Controlled Toy Car: Ultimate Fun with Smart Tech Play'
+description: 'Imagine controlling a toy car just by speaking to it. No buttons, no
+  remote—just your voice. Sounds exciting, right? If you’ve ever wished for a hands-free
+  way '
 pubDate: 2026-06-08
-author: "gustavostowe"
-categories: ["Electronic & Tech Toys"]
-heroImage: "https://tse1.mm.bing.net/th?q=voice-controlled-toy-car&w=424&h=424&c=7"
+author: gustavostowe
+categories:
+- Ride On Toy Car
+heroImage: https://tse1.mm.bing.net/th?q=voice-controlled-toy-car&w=424&h=424&c=7
+topic: Outdoor, Ride-On & Sports Toys
 ---
 
 **Imagine controlling a toy car just by speaking to it. No buttons, no remote—just your voice.**
