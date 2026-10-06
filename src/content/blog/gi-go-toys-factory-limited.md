@@ -22,7 +22,7 @@ Playsets like high chair sets and keepsake gift packs add variety to the pretend
 ## <a href="https://www.amazon.com/dp/B0B7BMW3S2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection: Feeding Fun Doll Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7BMW3S2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+,="" ages="" alt="DREAM COLLECTION: Feeding Fun Doll Set w/ 12" baby="" doll="" dolls,="" gi-go="" kids="" multicolor"="" playset,="" src="https://m.media-amazon.com/images/I/417T7Bc4a6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7BMW3S2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/417T7Bc4a6L._SL500_.jpg" alt="DREAM COLLECTION: Feeding Fun Doll Set w/ 12"></a>
 
 
 The **DREAM COLLECTION: Feeding Fun Doll Set** featuring a **12" Baby Doll** by **Gi-Go Dolls** is ideal for **children ages 3 and up** who enjoy imaginative play and nurturing activities. This multicolor playset is perfect for young kids who love role-playing as caregivers, helping to develop empathy and social skills while having fun. Parents looking for a durable and engaging toy to encourage creative interaction will find this set an excellent choice.
@@ -50,7 +50,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0B7BMW3S2?tag=gea
 ## <a href="https://www.amazon.com/dp/B0DG5Z1ZGB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection: All Occasions Baby Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG5Z1ZGB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 2+"="" accessories,="" age="" alt="Dream Collection: All Occasions Baby Set - Pastel - 4 Lifelike 7" baby="" bath="" clothing,="" doll="" feeding="" friends,="" kids="" match="" mix="" src="https://m.media-amazon.com/images/I/41tYGTh83xL._SL500_.jpg" toys,=""/></a>
+<a href="https://www.amazon.com/dp/B0DG5Z1ZGB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41tYGTh83xL._SL500_.jpg" alt="Dream Collection: All Occasions Baby Set - Pastel - 4 Lifelike 7"></a>
 
 
 The **Dream Collection: All Occasions Baby Set - Pastel** is perfect for young children aged **2 and above** who love imaginative play and nurturing activities. Ideal for parents and gift-givers seeking a versatile and engaging toy that encourages creativity, this set appeals to kids who enjoy caring for lifelike baby dolls and mixing and matching clothing and accessories.
@@ -77,7 +77,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0DG5Z1ZGB?tag=gea
 ## <a href="https://www.amazon.com/dp/B0DG5Z6MHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deluxe Twin Set - Bunny - 2 Lifelike 14" Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG5Z6MHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2+"="" 4="" accessories,="" ages="" alt="DREAM COLLECTION: Deluxe Twin Set - Bunny - 2 Lifelike 14" baby="" body,="" dolls,="" feeding="" kids="" pacifiers,="" pc="" play,="" pretend="" soft="" src="https://m.media-amazon.com/images/I/41icyB0G4+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG5Z6MHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41icyB0G4+L._SL500_.jpg" alt="DREAM COLLECTION: Deluxe Twin Set - Bunny - 2 Lifelike 14"></a>
 
 
 The **DREAM COLLECTION: Deluxe Twin Set - Bunny** is perfect for parents and gift-givers seeking a high-quality, engaging toy for children ages 2 and up who love imaginative play. Ideal for kids who enjoy caring for baby dolls, this set provides a lifelike experience with two adorable 14-inch dolls and multiple accessories to enhance pretend feeding and nurturing activities.
@@ -104,7 +104,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0DG5Z6MHS?tag=gea
 ## <a href="https://www.amazon.com/dp/B0DG5YW8T9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection: Baby Doll Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG5YW8T9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 2+"="" 3="" accessories,="" ages="" alt="Dream Collection: Baby Doll Starter Set - Pink &amp; Blue, 12" clothes,="" doll,="" feeding="" kids="" lifelike="" match="" mix="" pc="" posable,="" soft="" src="https://m.media-amazon.com/images/I/41uIh-TMbrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG5YW8T9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41uIh-TMbrL._SL500_.jpg" alt="Dream Collection: Baby Doll Starter Set - Pink &amp; Blue, 12"></a>
 
 
 The **Dream Collection: Baby Doll Starter Set** is perfect for young children aged **2 years and above** who enjoy imaginative play and nurturing activities. Ideal for parents, grandparents, or gift-givers seeking a high-quality, lifelike doll that encourages creativity and role-playing, this set provides an engaging experience with its mix-and-match clothes and feeding accessories.
@@ -133,7 +133,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0DG5YW8T9?tag=gea
 ## <a href="https://www.amazon.com/dp/B0DG5XZXRF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soft Baby Doll Maggie</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG5XZXRF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2="" 2+"="" accessories,="" ages="" alt="DREAM COLLECTION: Soft Baby Doll Maggie - Pink &amp; White, 14" baby="" doll,="" feeding="" kids="" lifelike="" pacifier,="" pc="" play,="" pretend="" rattle,="" src="https://m.media-amazon.com/images/I/41feaL2nDSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG5XZXRF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41feaL2nDSL._SL500_.jpg" alt="DREAM COLLECTION: Soft Baby Doll Maggie - Pink &amp; White, 14"></a>
 
 
 The **DREAM COLLECTION: Soft Baby Doll Maggie - Pink & White** is perfect for young children aged 2 and above who enjoy imaginative and nurturing play. Ideal for parents and gift-givers looking for a lifelike baby doll that encourages creativity and emotional development, this doll offers a realistic and engaging experience for toddlers.
@@ -161,7 +161,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0DG5XZXRF?tag=gea
 ## <a href="https://www.amazon.com/dp/B0DG615CN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">My Lil Wardrobe</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG615CN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 2+"="" 3pc="" accessories,="" age="" alt="DREAM COLLECTION: My Lil Wardrobe - Pink, Purple, Teal - 14" clothing,="" doll,="" kids="" lifelike="" match="" mix="" play="" play,="" pretend="" soft="" src="https://m.media-amazon.com/images/I/415X6pfZW2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG615CN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/415X6pfZW2L._SL500_.jpg" alt="DREAM COLLECTION: My Lil Wardrobe - Pink, Purple, Teal - 14"></a>
 
 
 The **DREAM COLLECTION: My Lil Wardrobe** is perfect for young children aged 2 and above who love imaginative play and enjoy dressing up dolls. Ideal for parents and gift-givers seeking a high-quality, interactive toy that encourages creativity, fine motor skills, and role-playing, this lifelike soft doll with mix & match clothing and accessories offers endless fun for toddlers and preschoolers.
@@ -189,7 +189,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0DG615CN7?tag=gea
 ## <a href="https://www.amazon.com/dp/B0DG5XG6LX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Baby Doll 4-in-1 High Chair Play Set </a>
 
 
-<a href="https://www.amazon.com/dp/B0DG5XG6LX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2+"="" accessories,="" ages="" alt="DREAM COLLECTION: Baby Doll 4-in-1 High Chair Play Set - Pink &amp; Teal - 12" carrier,="" doll,="" feeding="" hand-held="" kids="" play,="" realistic="" src="https://m.media-amazon.com/images/I/41mIhuBF+UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG5XG6LX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41mIhuBF+UL._SL500_.jpg" alt="DREAM COLLECTION: Baby Doll 4-in-1 High Chair Play Set - Pink &amp; Teal - 12"></a>
 
 
 Ideal for parents and caregivers looking to encourage imaginative play in toddlers, the **DREAM COLLECTION: Baby Doll 4-in-1 High Chair Play Set** is perfect for children aged 2 and up. This play set is designed to engage young kids who enjoy role-playing and nurturing activities, providing a safe and interactive way to develop their creativity and motor skills.
@@ -217,7 +217,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0DG5XG6LX?tag=gea
 ## <a href="https://www.amazon.com/dp/B0DG61QB92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection: Baby Keepsake Gift Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG61QB92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 2+"="" accessory="" ages="" alt="Dream Collection: Baby Keepsake Gift Set - Pink &amp; Blue - 14" baby="" bag,="" body,="" bottle,="" clothing,="" doll,="" hard="" kids="" lifelike="" match="" mix="" src="https://m.media-amazon.com/images/I/51I0vo8ULcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG61QB92?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/51I0vo8ULcL._SL500_.jpg" alt="Dream Collection: Baby Keepsake Gift Set - Pink &amp; Blue - 14"></a>
 
 
 The **Dream Collection: Baby Keepsake Gift Set** is perfect for parents, grandparents, and gift-givers looking to delight children aged 2 and above with a lifelike and interactive baby doll experience. Ideal for young kids who enjoy imaginative play, this set offers a charming way to nurture creativity and empathy through role-playing. Its realistic design and mix & match clothing make it a thoughtful keepsake as well as a fun toy.
@@ -245,7 +245,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B0DG61QB92?tag=gea
 ## <a href="https://www.amazon.com/dp/B08H2SY9DW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Happy Friend Girls Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B08H2SY9DW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Happy Friend 504207 Girls Toys" src="https://m.media-amazon.com/images/I/41+t48zFEuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08H2SY9DW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/41+t48zFEuL._SL500_.jpg" alt="Happy Friend 504207 Girls Toys"></a>
 
 
 The **Happy Friend 504207 Girls Toys** is ideal for young girls who enjoy engaging, imaginative play. This toy is perfect for parents or gift-givers looking to provide a safe, fun, and interactive experience that encourages creativity and social skills development. It suits children who love vibrant, well-crafted toys that can keep them entertained for hours.
@@ -272,7 +272,7 @@ To buy this product, click <a href="https://www.amazon.com/dp/B08H2SY9DW?tag=gea
 ## <a href="https://www.amazon.com/dp/B08HRK1ZPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Happy Friend Hf Maja New Born 40cm Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B08HRK1ZPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Happy Friend HF Maja New Born 40cm Playset" src="https://m.media-amazon.com/images/I/410Zj1yPFNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HRK1ZPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img src="https://m.media-amazon.com/images/I/410Zj1yPFNL._SL500_.jpg" alt="Happy Friend HF Maja New Born 40cm Playset"></a>
 
 
 The **Happy Friend HF Maja New Born 40cm Playset** is ideal for parents and caregivers looking to provide young children with a nurturing and interactive toy. This playset is perfect for toddlers and preschoolers who enjoy imaginative play and role-playing activities that help develop empathy and social skills. If you want a high-quality, adorable doll set that encourages creativity and fine motor development, this product is an excellent choice.
