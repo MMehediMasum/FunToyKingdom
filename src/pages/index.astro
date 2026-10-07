@@ -4,6 +4,7 @@ import BaseHead from '../components/BaseHead.astro';
 import Header from '../components/Header.astro';
 import Footer from '../components/Footer.astro';
 import { SITE_TITLE, SITE_DESCRIPTION } from '../consts';
+import { slugify } from '../utils/slug';
 
 const allPosts = (await getCollection('blog')).sort(
 	(a, b) => b.data.pubDate.valueOf() - a.data.pubDate.valueOf()
@@ -105,7 +106,7 @@ const topicTiles = orderedTopics.map((name, i) => {
 		...meta,
 		num: String(i + 1).padStart(2, '0'),
 		countText: count > 0 ? `${count} ${count === 1 ? 'category' : 'categories'}` : 'Explore',
-		href: `/topic/${name.toLowerCase().replace(/\s+/g, '-')}/`,
+		href: `/topic/${slugify(name)}/`,
 	};
 });
 
