@@ -9,7 +9,7 @@ const allPosts = (await getCollection('blog')).sort(
 	(a, b) => b.data.pubDate.valueOf() - a.data.pubDate.valueOf()
 );
 
-const topics = [...new Set(allPosts.map((post) => post.data.topic).filter(Boolean))].sort();
+const topicsFromPosts = [...new Set(allPosts.map((post) => post.data.topic).filter(Boolean))].sort();
 const topicCategorySets = new Map();
 for (const post of allPosts) {
 	if (!post.data.topic) continue;
@@ -24,9 +24,98 @@ const topicCounts = new Map(
 	[...topicCategorySets.entries()].map(([topic, set]) => [topic, set.size])
 );
 
-const [featuredTopic, ...otherTopics] = topics;
+/* ---------- Topic tiles: fixed order + colors + icons ---------- */
+type TopicMeta = { icon: string; from: string; to: string; blurb: string };
 
-const [featuredPost, ...restPosts] = allPosts.slice(0, 7);
+const topicMeta: Record<string, TopicMeta> = {
+	'Baby, Toddler & Sensory Toys': {
+		icon: '🍼',
+		from: '#f45b9b',
+		to: '#be185d',
+		blurb: 'Soft, safe and sensory-rich picks for the tiniest hands.',
+	},
+	'Educational, STEM & Robot Toys': {
+		icon: '🤖',
+		from: '#0ea5e9',
+		to: '#0369a1',
+		blurb: 'Curious minds, coding bots and hands-on science.',
+	},
+	'Cars, Trucks, Trains & RC Toys': {
+		icon: '🏎️',
+		from: '#f97316',
+		to: '#c2410c',
+		blurb: 'Vroom, choo-choo and remote-control thrills.',
+	},
+	'Outdoor, Ride-On & Sports Toys': {
+		icon: '🛴',
+		from: '#22a559',
+		to: '#166534',
+		blurb: 'Fresh-air fun, from scooters to backyard sports.',
+	},
+	'Dolls, Collectibles & Characters': {
+		icon: '🪆',
+		from: '#a855f7',
+		to: '#6d28d9',
+		blurb: 'Dolls, figures and favorite characters.',
+	},
+	'Pretend Play, Plush & Novelty Toys': {
+		icon: '🧸',
+		from: '#f59e0b',
+		to: '#b45309',
+		blurb: 'Make-believe, cuddly plush and quirky novelties.',
+	},
+	'Building, DIY & Handmade Toys': {
+		icon: '🧱',
+		from: '#ef4444',
+		to: '#b91c1c',
+		blurb: 'Blocks, kits and crafty handmade creations.',
+	},
+	'Games & Puzzles': {
+		icon: '🧩',
+		from: '#6366f1',
+		to: '#3730a3',
+		blurb: 'Board games, brain teasers and jigsaws.',
+	},
+	'Toy Care, Shopping & Pet Toys': {
+		icon: '🐾',
+		from: '#14b8a6',
+		to: '#0f766e',
+		blurb: 'Cleaning, smart buying, and toys for pets too.',
+	},
+};
+
+const fallbackMeta: TopicMeta = {
+	icon: '🎁',
+	from: '#64748b',
+	to: '#334155',
+	blurb: '',
+};
+
+const configuredOrder = Object.keys(topicMeta);
+const orderedTopics = [
+	...configuredOrder,
+	...topicsFromPosts.filter((t) => !configuredOrder.includes(t)),
+].slice(0, 9);
+
+const topicTiles = orderedTopics.map((name, i) => {
+	const meta = topicMeta[name] ?? fallbackMeta;
+	const count = topicCounts.get(name) ?? 0;
+	return {
+		name,
+		...meta,
+		num: String(i + 1).padStart(2, '0'),
+		countText: count > 0 ? `${count} ${count === 1 ? 'category' : 'categories'}` : 'Explore',
+		href: `/topic/${name.toLowerCase().replace(/\s+/g, '-')}/`,
+	};
+});
+
+/* ---------- Latest posts: 1 featured + 3 side + 3 bottom ---------- */
+const latestPosts = allPosts.slice(0, 7);
+const featuredPost = latestPosts[0];
+const sidePosts = latestPosts.slice(1, 4);
+const morePosts = latestPosts.slice(4, 7);
+
+const chipColors = ['#f45b9b', '#0ea5e9', '#f97316', '#22a559', '#a855f7', '#ef4444', '#6366f1'];
 
 function thumbUrl(query: string) {
 	const q = encodeURIComponent(query);
@@ -52,276 +141,741 @@ function formatDate(date: Date) {
 				margin: 0 auto;
 			}
 
-			/* ---------- Hero ---------- */
+			/* =====================================================
+			   HERO
+			   Background is always a light, warm gradient (in both light
+			   and dark site themes), so its text uses fixed dark colors
+			   instead of the theme variables.
+			   ===================================================== */
 			.hero {
 				position: relative;
 				overflow: hidden;
 				background:
-					radial-gradient(ellipse 58% 80% at 10% 12%, rgba(255, 107, 107, 0.20), transparent 60%),
-					radial-gradient(ellipse 55% 75% at 90% 8%, rgba(255, 190, 70, 0.24), transparent 60%),
-					radial-gradient(ellipse 65% 60% at 50% 118%, rgba(70, 184, 209, 0.18), transparent 65%),
-					linear-gradient(180deg, #fffaf0 0%, #fff1dc 100%);
-				border-radius: 24px;
-				padding: 4.5rem 2.5rem;
+					radial-gradient(circle at 8% 18%, rgba(255, 194, 51, 0.38), transparent 38%),
+					radial-gradient(circle at 92% 12%, rgba(79, 140, 255, 0.28), transparent 40%),
+					radial-gradient(circle at 85% 105%, rgba(244, 91, 155, 0.24), transparent 42%),
+					radial-gradient(circle at 12% 105%, rgba(52, 195, 143, 0.26), transparent 40%),
+					linear-gradient(180deg, #fffaf0 0%, #fff0da 100%);
+				border-radius: 28px;
+				padding: 5rem 2.5rem 5.2rem;
 				margin: 1.5rem auto 3.5rem;
 				text-align: center;
 			}
+			/* subtle toy-confetti pattern */
 			.hero::before {
 				content: '';
 				position: absolute;
-				top: 0;
-				right: 0;
-				bottom: 0;
-				left: 0;
+				inset: 0;
 				z-index: 0;
-				background-image: url("data:image/svg+xml,%3Csvg xmlns=%27http://www.w3.org/2000/svg%27 width=%27120%27 height=%27120%27%3E%3Cg fill=%27%23e0585e%27%3E%3Ccircle cx=%2720%27 cy=%2725%27 r=%276%27/%3E%3Ccircle cx=%2792%27 cy=%2718%27 r=%274%27/%3E%3Cpath d=%27M62 48l4.5 9.3 10.2 1.5-7.4 7.2 1.7 10.2L62 71l-9 5.2 1.7-10.2-7.4-7.2 10.2-1.5z%27/%3E%3Ccircle cx=%2718%27 cy=%2795%27 r=%274%27/%3E%3Ccircle cx=%2798%27 cy=%2790%27 r=%276%27/%3E%3Crect x=%2745%27 y=%27100%27 width=%2710%27 height=%2710%27 rx=%272%27/%3E%3C/g%3E%3C/svg%3E");
+				background-image: url("data:image/svg+xml,%3Csvg xmlns=%27http://www.w3.org/2000/svg%27 width=%27120%27 height=%27120%27%3E%3Ccircle cx=%2720%27 cy=%2724%27 r=%275%27 fill=%27%23ff6b4a%27/%3E%3Crect x=%2778%27 y=%2720%27 width=%2710%27 height=%2710%27 rx=%272%27 fill=%27%234f8cff%27 transform=%27rotate(20 83 25)%27/%3E%3Cpolygon points=%2730,86 33,94 42,94 35,99 38,108 30,102 22,108 25,99 18,94 27,94%27 fill=%27%23ffb400%27/%3E%3Cpath d=%27M88 82h14v4H88z M93 77h4v14h-4z%27 fill=%27%2334c38f%27/%3E%3C/svg%3E");
 				background-size: 120px 120px;
-				opacity: 0.07;
+				opacity: 0.22;
 				pointer-events: none;
 			}
-			.hero-content {
-				position: relative;
-				z-index: 1;
-				/* Hero background is always a light cream gradient, in both
-				   light and dark site themes, so its text must stay fixed
-				   dark colors rather than following the --black/--gray-dark
-				   theme variables (which flip to light colors in dark mode
-				   and would become invisible here). */
-				color: #14171f;
-			}
-			.hero h1 {
-				font-size: clamp(2rem, 4vw, 2.9rem);
-				line-height: 1.15;
-				margin: 0 0 0.6em;
-				max-width: 22ch;
-				margin-left: auto;
-				margin-right: auto;
-				color: #14171f;
-			}
-			.hero p {
-				max-width: 52ch;
-				margin: 0 auto;
-				color: #4a5164;
-				font-size: 1.1rem;
-			}
-
-			/* ---------- Topic cards ---------- */
-			.section-heading {
-				font-size: 1.5rem;
-				margin: 0 0 1.2rem;
-			}
-			.topic-row {
-				display: grid;
-				grid-template-columns: repeat(auto-fit, minmax(220px, 1fr));
-				gap: 1.5rem;
-				list-style: none;
-				margin: 0 0 3.5rem;
-				padding: 0;
-			}
-			.topic-card {
-				position: relative;
-				display: block;
-				border-radius: 16px;
-				overflow: hidden;
-				aspect-ratio: 4 / 3;
-				text-decoration: none;
-				color: white;
-				box-shadow: 0 1px 3px rgba(var(--gray), 25%);
-				transition: transform 0.2s ease;
-			}
-			.topic-card:hover {
-				transform: translateY(-3px);
-			}
-			.topic-card img {
-				width: 100%;
-				height: 100%;
-				object-fit: cover;
-				display: block;
-			}
-			.topic-card .overlay {
+			/* rainbow strip along the bottom edge */
+			.hero::after {
+				content: '';
 				position: absolute;
-				inset: 0;
-				background: linear-gradient(180deg, rgba(15, 18, 25, 0) 40%, rgba(15, 18, 25, 0.75) 100%);
-			}
-			.topic-card .label {
-				position: absolute;
-				left: 1.2rem;
-				bottom: 1rem;
-				right: 1.2rem;
-			}
-			.topic-card .label h3 {
-				margin: 0;
-				font-size: 1.4rem;
-				color: #fff;
-			}
-			.topic-card .label span {
-				font-size: 0.85rem;
-				opacity: 0.85;
-				color: #fff;
-			}
-
-			/* ---------- Featured topic banner ---------- */
-			.topic-featured {
-				position: relative;
-				display: block;
-				border-radius: 20px;
-				overflow: hidden;
-				aspect-ratio: 21 / 6;
-				text-decoration: none;
-				color: white;
-				box-shadow: 0 1px 3px rgba(var(--gray), 25%);
-				margin-bottom: 1.4rem;
-			}
-			.topic-featured img {
-				width: 100%;
-				height: 100%;
-				object-fit: cover;
-				display: block;
-			}
-			.topic-featured .overlay {
-				position: absolute;
-				top: 0;
+				left: 0;
 				right: 0;
 				bottom: 0;
-				left: 0;
-				background: linear-gradient(100deg, rgba(15, 18, 25, 0.78) 0%, rgba(15, 18, 25, 0.5) 42%, rgba(15, 18, 25, 0.05) 78%);
+				height: 8px;
+				z-index: 1;
+				background: linear-gradient(
+					90deg,
+					#f45b9b 0 16.66%,
+					#f97316 0 33.33%,
+					#ffc233 0 50%,
+					#22a559 0 66.66%,
+					#0ea5e9 0 83.33%,
+					#a855f7 0 100%
+				);
 			}
-			.topic-featured .label {
+
+			/* floating decorations */
+			.shapes {
 				position: absolute;
-				left: 2.2rem;
-				top: 50%;
-				transform: translateY(-50%);
-				max-width: 60%;
+				inset: 0;
+				z-index: 0;
+				pointer-events: none;
 			}
-			.topic-featured .label h3 {
-				margin: 0 0 0.3rem;
-				font-size: clamp(1.4rem, 3vw, 2.1rem);
-				color: #fff;
+			.shape {
+				position: absolute;
+				display: block;
+				animation: float 6s ease-in-out infinite;
 			}
-			.topic-featured .label span {
-				font-size: 0.95rem;
-				opacity: 0.92;
-				color: #fff;
+			.s-block {
+				width: 56px;
+				height: 56px;
+				border-radius: 12px;
+				background: #ffc233;
+				box-shadow: inset 0 -6px 0 rgba(0, 0, 0, 0.12);
+				top: 14%;
+				left: 5%;
+				transform: rotate(-12deg);
 			}
-			@media (max-width: 640px) {
-				.topic-featured {
-					aspect-ratio: 4 / 3;
+			.s-block::after {
+				content: '';
+				position: absolute;
+				width: 20px;
+				height: 20px;
+				border-radius: 50%;
+				background: rgba(255, 255, 255, 0.55);
+				top: 10px;
+				left: 10px;
+			}
+			.s-ball {
+				width: 44px;
+				height: 44px;
+				border-radius: 50%;
+				background: radial-gradient(circle at 30% 30%, #8ab8ff, #3b6fe0);
+				top: 16%;
+				right: 7%;
+				animation-delay: -2s;
+			}
+			.s-tri {
+				width: 52px;
+				height: 52px;
+				background: #f45b9b;
+				clip-path: polygon(50% 0, 100% 100%, 0 100%);
+				bottom: 14%;
+				left: 8%;
+				animation-delay: -1s;
+			}
+			.s-star {
+				width: 54px;
+				height: 54px;
+				background: #ff9f1c;
+				clip-path: polygon(50% 0, 61% 35%, 98% 35%, 68% 57%, 79% 91%, 50% 70%, 21% 91%, 32% 57%, 2% 35%, 39% 35%);
+				bottom: 16%;
+				right: 6%;
+				animation-delay: -3s;
+			}
+			.s-ring {
+				width: 38px;
+				height: 38px;
+				border-radius: 50%;
+				border: 8px solid #34c38f;
+				top: 54%;
+				left: 16%;
+				animation-delay: -4s;
+			}
+			.s-emoji {
+				font-size: 2.4rem;
+				line-height: 1;
+			}
+			.e1 {
+				top: 10%;
+				left: 24%;
+				animation-delay: -1.5s;
+			}
+			.e2 {
+				top: 60%;
+				right: 18%;
+				animation-delay: -2.5s;
+			}
+			.e3 {
+				top: 8%;
+				right: 24%;
+				animation-delay: -3.5s;
+			}
+			@keyframes float {
+				0%,
+				100% {
+					translate: 0 0;
 				}
-				.topic-featured .label {
-					max-width: 80%;
+				50% {
+					translate: 0 -12px;
 				}
 			}
 
-			/* ---------- Latest posts ---------- */
-			.post-category {
-				font-size: 0.8rem;
-				color: var(--accent-dark);
-				font-weight: 600;
-				margin-bottom: 0.25rem;
+			.hero-content {
+				position: relative;
+				z-index: 2;
+				color: #14171f;
 			}
-			.post-title {
-				line-height: 1.35;
+			.hero-eyebrow {
+				display: inline-block;
+				padding: 0.4rem 1rem;
+				margin-bottom: 1.2rem;
+				border-radius: 999px;
+				background: #fff;
+				color: #c2410c;
+				font-size: 0.85rem;
 				font-weight: 700;
-				margin: 0 0 0.4rem;
+				letter-spacing: 0.04em;
+				box-shadow: 0 2px 0 rgba(194, 65, 12, 0.18);
 			}
-			.post-date {
+			.hero h1 {
+				font-size: clamp(2.1rem, 5vw, 3.5rem);
+				line-height: 1.12;
+				font-weight: 800;
+				margin: 0 auto 0.6em;
+				max-width: 20ch;
+				color: #14171f;
+			}
+			.hero h1 .hl {
+				background: linear-gradient(transparent 62%, rgba(255, 194, 51, 0.7) 62% 92%, transparent 92%);
+				padding: 0 0.1em;
+			}
+			.hero p {
+				max-width: 56ch;
+				margin: 0 auto;
+				color: #4a5164;
+				font-size: 1.12rem;
+				line-height: 1.6;
+			}
+			.hero-actions {
+				display: flex;
+				flex-wrap: wrap;
+				justify-content: center;
+				gap: 0.9rem;
+				margin-top: 1.9rem;
+			}
+			.btn {
+				display: inline-block;
+				padding: 0.8rem 1.5rem;
+				border-radius: 999px;
+				font-weight: 700;
+				font-size: 1rem;
+				text-decoration: none;
+				transition:
+					transform 0.15s ease,
+					box-shadow 0.15s ease;
+			}
+			.btn:hover {
+				transform: translateY(-2px);
+			}
+			.btn-primary {
+				background: #ff6b4a;
+				color: #fff;
+				box-shadow: 0 4px 0 #c2410c;
+			}
+			.btn-primary:hover {
+				box-shadow: 0 6px 0 #c2410c;
+			}
+			.btn-ghost {
+				background: #fff;
+				color: #14171f;
+				box-shadow: 0 4px 0 rgba(20, 23, 31, 0.15);
+			}
+			.hero-chips {
+				display: flex;
+				flex-wrap: wrap;
+				justify-content: center;
+				gap: 0.6rem;
+				margin-top: 1.8rem;
+			}
+			.hero-chips span {
+				padding: 0.3rem 0.85rem;
+				border-radius: 999px;
+				background: rgba(255, 255, 255, 0.75);
+				color: #4a5164;
+				font-size: 0.85rem;
+				font-weight: 600;
+			}
+
+			/* =====================================================
+			   SECTION HEADINGS
+			   ===================================================== */
+			.section-head {
+				margin: 0 0 1.4rem;
+			}
+			.eyebrow {
+				display: inline-block;
+				font-size: 0.8rem;
+				font-weight: 800;
+				letter-spacing: 0.1em;
+				text-transform: uppercase;
+				color: #ff6b4a;
+				margin-bottom: 0.3rem;
+			}
+			.section-heading {
+				font-size: 1.8rem;
+				margin: 0;
+				scroll-margin-top: 80px;
+			}
+			.section-sub {
+				margin: 0.35rem 0 0;
+				color: rgb(var(--gray));
+				font-size: 1rem;
+			}
+			section[id] {
+				scroll-margin-top: 80px;
+			}
+
+			/* =====================================================
+			   TOPICS: colorful bento grid (9 tiles tile a perfect rectangle)
+			   rows 1-2: [ 1 (big) ][ 2 / 3 stacked ]
+			   row  3  : [ 4 ][ 5 ][ 6 ]
+			   rows 4-5: [ 7 (big) ][ 8 / 9 stacked ]
+			   ===================================================== */
+			.topic-bento {
+				display: grid;
+				grid-template-columns: repeat(6, 1fr);
+				grid-auto-rows: 150px;
+				gap: 1rem;
+				list-style: none;
+				margin: 0 0 4rem;
+				padding: 0;
+			}
+			.topic-bento li {
+				min-width: 0;
+			}
+			.topic-bento li:nth-child(1) {
+				grid-column: span 3;
+				grid-row: span 2;
+			}
+			.topic-bento li:nth-child(2),
+			.topic-bento li:nth-child(3) {
+				grid-column: span 3;
+			}
+			.topic-bento li:nth-child(4),
+			.topic-bento li:nth-child(5),
+			.topic-bento li:nth-child(6) {
+				grid-column: span 2;
+			}
+			.topic-bento li:nth-child(7) {
+				grid-column: span 2;
+				grid-row: span 2;
+			}
+			.topic-bento li:nth-child(8),
+			.topic-bento li:nth-child(9) {
+				grid-column: span 4;
+			}
+
+			.topic-tile {
+				position: relative;
+				isolation: isolate;
+				display: flex;
+				flex-direction: column;
+				justify-content: flex-end;
+				height: 100%;
+				padding: 1.1rem 1.3rem;
+				border-radius: 22px;
+				overflow: hidden;
+				text-decoration: none;
+				color: #fff;
+				background: linear-gradient(135deg, var(--from), var(--to));
+				box-shadow:
+					0 6px 0 rgba(0, 0, 0, 0.14),
+					0 10px 22px rgba(0, 0, 0, 0.12);
+				transition:
+					transform 0.2s ease,
+					box-shadow 0.2s ease;
+			}
+			/* dotted texture */
+			.topic-tile::before {
+				content: '';
+				position: absolute;
+				inset: 0;
+				z-index: -1;
+				background-image: radial-gradient(rgba(255, 255, 255, 0.22) 2px, transparent 2.5px);
+				background-size: 20px 20px;
+			}
+			/* soft circle blob */
+			.topic-tile::after {
+				content: '';
+				position: absolute;
+				z-index: -1;
+				width: 170px;
+				height: 170px;
+				border-radius: 50%;
+				background: rgba(255, 255, 255, 0.16);
+				top: -50px;
+				right: -40px;
+				transition: transform 0.3s ease;
+			}
+			.topic-tile:hover {
+				transform: translateY(-5px) rotate(-0.6deg);
+				box-shadow:
+					0 11px 0 rgba(0, 0, 0, 0.14),
+					0 16px 28px rgba(0, 0, 0, 0.16);
+			}
+			.topic-tile:hover::after {
+				transform: scale(1.25);
+			}
+			.topic-tile .num {
+				position: absolute;
+				top: 0.9rem;
+				left: 1.2rem;
+				padding: 0.1rem 0.6rem;
+				border-radius: 999px;
+				background: rgba(255, 255, 255, 0.25);
+				color: #fff;
+				font-size: 0.75rem;
+				font-weight: 800;
+				letter-spacing: 0.06em;
+			}
+			.topic-tile .icon {
+				position: absolute;
+				top: 0.6rem;
+				right: 1rem;
+				font-size: 3.6rem;
+				line-height: 1;
+				transform: rotate(-8deg);
+				filter: drop-shadow(0 4px 6px rgba(0, 0, 0, 0.25));
+				transition: transform 0.25s ease;
+			}
+			.topic-tile:hover .icon {
+				transform: rotate(8deg) scale(1.15);
+			}
+			.topic-tile .name {
+				margin: 0;
+				max-width: 82%;
+				font-size: 1.18rem;
+				line-height: 1.2;
+				font-weight: 800;
+				color: #fff;
+				text-shadow: 0 1px 3px rgba(0, 0, 0, 0.3);
+			}
+			.topic-tile .blurb {
+				display: none;
+				margin: 0.4rem 0 0;
+				max-width: 30ch;
+				font-size: 0.95rem;
+				line-height: 1.4;
+				color: rgba(255, 255, 255, 0.92);
+			}
+			.topic-tile .count {
+				margin-top: 0.3rem;
 				font-size: 0.82rem;
+				font-weight: 600;
+				color: rgba(255, 255, 255, 0.9);
+			}
+			.topic-tile .go {
+				position: absolute;
+				right: 1rem;
+				bottom: 0.9rem;
+				width: 34px;
+				height: 34px;
+				border-radius: 50%;
+				display: grid;
+				place-items: center;
+				background: #fff;
+				color: #14171f;
+				font-weight: 800;
+				transition: transform 0.2s ease;
+			}
+			.topic-tile:hover .go {
+				transform: translateX(4px);
+			}
+			/* the two big tiles get bigger type + icon + blurb */
+			.topic-bento li:nth-child(1) .icon,
+			.topic-bento li:nth-child(7) .icon {
+				font-size: 6.5rem;
+				top: 1.6rem;
+			}
+			.topic-bento li:nth-child(1) .name,
+			.topic-bento li:nth-child(7) .name {
+				font-size: 1.7rem;
+				max-width: 90%;
+			}
+			.topic-bento li:nth-child(1) .blurb,
+			.topic-bento li:nth-child(7) .blurb {
+				display: block;
+			}
+
+			/* =====================================================
+			   LATEST ARTICLES: magazine layout
+			   [ featured (big) ][ 3 compact cards ]
+			   [ card ][ card ][ card ]
+			   ===================================================== */
+			.latest {
+				display: grid;
+				grid-template-columns: 1.35fr 1fr;
+				gap: 1.4rem;
+				margin-bottom: 1.4rem;
+			}
+
+			.featured {
+				position: relative;
+				isolation: isolate;
+				display: flex;
+				align-items: flex-end;
+				min-height: 440px;
+				border-radius: 26px;
+				overflow: hidden;
+				text-decoration: none;
+				color: #fff;
+				background: linear-gradient(135deg, #6366f1, #a855f7 55%, #f45b9b);
+				box-shadow: 0 10px 28px rgba(0, 0, 0, 0.18);
+			}
+			.featured img {
+				position: absolute;
+				inset: 0;
+				z-index: -2;
+				width: 100%;
+				height: 100%;
+				object-fit: cover;
+				transition: transform 0.5s ease;
+			}
+			.featured:hover img {
+				transform: scale(1.06);
+			}
+			.featured .shade {
+				position: absolute;
+				inset: 0;
+				z-index: -1;
+				background: linear-gradient(180deg, rgba(10, 12, 20, 0.05) 25%, rgba(10, 12, 20, 0.88) 100%);
+			}
+			.featured .badge {
+				position: absolute;
+				top: 1.1rem;
+				left: 1.1rem;
+				padding: 0.35rem 0.9rem;
+				border-radius: 999px;
+				background: #ffc233;
+				color: #14171f;
+				font-size: 0.8rem;
+				font-weight: 800;
+				letter-spacing: 0.04em;
+			}
+			.featured .body {
+				padding: 1.6rem;
+			}
+			.featured .cat {
+				display: inline-block;
+				margin-bottom: 0.5rem;
+				font-size: 0.85rem;
+				font-weight: 700;
+				color: #ffd36b;
+			}
+			.featured .title {
+				margin: 0 0 0.5rem;
+				font-size: clamp(1.4rem, 2.6vw, 2rem);
+				line-height: 1.22;
+				font-weight: 800;
+				color: #fff;
+			}
+			.featured .date {
+				font-size: 0.85rem;
+				color: rgba(255, 255, 255, 0.8);
+			}
+
+			.side-list {
+				display: flex;
+				flex-direction: column;
+				gap: 1rem;
+				list-style: none;
+				margin: 0;
+				padding: 0;
+			}
+			.side-list li {
+				flex: 1;
+				display: flex;
+			}
+			.side-card {
+				flex: 1;
+				display: grid;
+				grid-template-columns: 128px 1fr;
+				gap: 1rem;
+				align-items: center;
+				padding: 0.8rem;
+				border-radius: 20px;
+				text-decoration: none;
+				color: rgb(var(--black));
+				background: rgb(var(--gray-light));
+				border-left: 6px solid var(--chip);
+				transition:
+					transform 0.2s ease,
+					box-shadow 0.2s ease;
+			}
+			.side-card:hover {
+				transform: translateX(5px);
+				box-shadow: 0 6px 16px rgba(0, 0, 0, 0.12);
+			}
+			.side-thumb {
+				aspect-ratio: 1 / 1;
+				border-radius: 14px;
+				overflow: hidden;
+				background: var(--chip);
+			}
+			.side-thumb img {
+				width: 100%;
+				height: 100%;
+				object-fit: cover;
+				display: block;
+			}
+			.chip {
+				display: inline-block;
+				padding: 0.15rem 0.65rem;
+				border-radius: 999px;
+				background: var(--chip);
+				color: #fff;
+				font-size: 0.72rem;
+				font-weight: 700;
+				margin-bottom: 0.35rem;
+			}
+			.side-title {
+				margin: 0 0 0.3rem;
+				font-size: 1.02rem;
+				line-height: 1.32;
+				font-weight: 700;
+			}
+			.side-card:hover .side-title {
+				color: var(--chip);
+			}
+			.date-sm {
+				font-size: 0.8rem;
 				color: rgb(var(--gray));
 			}
 
-			/* Featured post (big, editorial) */
-			.post-featured {
+			.more-grid {
 				display: grid;
-				grid-template-columns: 1.15fr 1fr;
-				gap: 2.2rem;
-				align-items: center;
-				text-decoration: none;
-				color: rgb(var(--black));
-				margin-bottom: 2.6rem;
-			}
-			.post-featured .post-thumb {
-				aspect-ratio: 4 / 3;
-				border-radius: 16px;
-				overflow: hidden;
-				background: rgb(var(--gray-light));
-			}
-			.post-featured .post-thumb img {
-				width: 100%;
-				height: 100%;
-				object-fit: cover;
-				display: block;
-				transition: transform 0.3s ease;
-			}
-			.post-featured:hover .post-thumb img {
-				transform: scale(1.04);
-			}
-			.post-featured .post-title {
-				font-size: clamp(1.3rem, 2.4vw, 1.7rem);
-			}
-			.post-featured:hover .post-title {
-				color: var(--accent);
-			}
-			.post-featured .post-excerpt {
-				color: rgb(var(--gray-dark));
-				font-size: 0.98rem;
-				line-height: 1.65;
-				margin: 0.7rem 0 0.9rem;
-			}
-
-			/* Remaining posts: compact two-column list rows */
-			.post-list {
-				display: grid;
-				grid-template-columns: repeat(2, 1fr);
-				gap: 1.4rem 2.2rem;
+				grid-template-columns: repeat(3, 1fr);
+				gap: 1.4rem;
 				list-style: none;
-				margin: 0;
+				margin: 0 0 4rem;
 				padding: 0;
 			}
-			.post-row {
+			.more-card {
+				position: relative;
 				display: flex;
-				gap: 1rem;
-				align-items: center;
+				flex-direction: column;
+				height: 100%;
 				text-decoration: none;
 				color: rgb(var(--black));
+				padding-bottom: 0.9rem;
 			}
-			.post-row .post-thumb {
-				flex: none;
-				width: 88px;
-				height: 88px;
-				border-radius: 10px;
+			.more-card::after {
+				content: '';
+				position: absolute;
+				left: 0;
+				bottom: 0;
+				width: 36%;
+				height: 5px;
+				border-radius: 5px;
+				background: var(--chip);
+				transition: width 0.3s ease;
+			}
+			.more-card:hover::after {
+				width: 100%;
+			}
+			.more-thumb {
+				position: relative;
+				aspect-ratio: 474 / 274;
+				border-radius: 20px;
 				overflow: hidden;
-				background: rgb(var(--gray-light));
+				background: var(--chip);
+				margin-bottom: 0.9rem;
 			}
-			.post-row .post-thumb img {
+			.more-thumb img {
 				width: 100%;
 				height: 100%;
 				object-fit: cover;
 				display: block;
+				transition: transform 0.4s ease;
 			}
-			.post-row .post-title {
-				font-size: 0.98rem;
-				margin: 0 0 0.3rem;
-				display: -webkit-box;
-				-webkit-line-clamp: 2;
-				-webkit-box-orient: vertical;
-				overflow: hidden;
+			.more-card:hover .more-thumb img {
+				transform: scale(1.06);
 			}
-			.post-row:hover .post-title {
-				color: var(--accent);
+			.more-thumb .chip {
+				position: absolute;
+				left: 0.8rem;
+				bottom: 0.8rem;
+				margin: 0;
+				font-size: 0.75rem;
+				padding: 0.25rem 0.8rem;
+			}
+			.more-title {
+				margin: 0 0 0.35rem;
+				font-size: 1.1rem;
+				line-height: 1.35;
+				font-weight: 700;
+			}
+			.more-card:hover .more-title {
+				color: var(--chip);
 			}
 
-			@media (max-width: 720px) {
-				.post-featured {
+			/* =====================================================
+			   RESPONSIVE
+			   ===================================================== */
+			@media (max-width: 900px) {
+				.latest {
 					grid-template-columns: 1fr;
 				}
-				.post-list {
-					grid-template-columns: 1fr;
+				.featured {
+					min-height: 340px;
+				}
+				.more-grid {
+					grid-template-columns: repeat(2, 1fr);
+				}
+				.s-ring,
+				.e1,
+				.e3 {
+					display: none;
+				}
+			}
+
+			@media (max-width: 760px) {
+				.topic-bento {
+					grid-template-columns: repeat(2, 1fr);
+					grid-auto-rows: 150px;
+				}
+				.topic-bento li:nth-child(n) {
+					grid-column: span 1;
+					grid-row: span 1;
+				}
+				.topic-bento li:nth-child(1) {
+					grid-column: span 2;
+				}
+				.topic-bento li:nth-child(1) .icon,
+				.topic-bento li:nth-child(7) .icon {
+					font-size: 4.5rem;
+					top: 0.9rem;
+				}
+				.topic-bento li:nth-child(7) .icon {
+					font-size: 3.6rem;
+					top: 0.6rem;
+				}
+				.topic-bento li:nth-child(7) .name {
+					font-size: 1.18rem;
+				}
+				.topic-bento li:nth-child(7) .blurb {
+					display: none;
+				}
+				.topic-tile .name {
+					font-size: 1.05rem;
+					max-width: 100%;
+				}
+				.topic-tile .icon {
+					font-size: 3rem;
+				}
+				.topic-tile .go {
+					display: none;
 				}
 			}
 
 			@media (max-width: 640px) {
 				.hero {
-					padding: 2.2rem 1.4rem;
+					padding: 3rem 1.3rem 3.4rem;
+				}
+				.s-block,
+				.s-tri,
+				.s-star,
+				.s-ball,
+				.e2 {
+					transform: scale(0.7);
+				}
+				.side-card {
+					grid-template-columns: 96px 1fr;
+				}
+				.more-grid {
+					grid-template-columns: 1fr;
+				}
+			}
+
+			@media (prefers-reduced-motion: reduce) {
+				.shape {
+					animation: none;
+				}
+				.topic-tile,
+				.topic-tile *,
+				.featured img,
+				.more-thumb img,
+				.side-card {
+					transition: none;
 				}
 			}
 		</style>
@@ -329,41 +883,55 @@ function formatDate(date: Date) {
 	<body>
 		<Header />
 		<main>
+			<!-- ================= HERO ================= -->
 			<section class="hero">
+				<div class="shapes" aria-hidden="true">
+					<span class="shape s-block"></span>
+					<span class="shape s-ball"></span>
+					<span class="shape s-tri"></span>
+					<span class="shape s-star"></span>
+					<span class="shape s-ring"></span>
+					<span class="shape s-emoji e1">🚀</span>
+					<span class="shape s-emoji e2">🧸</span>
+					<span class="shape s-emoji e3">🧩</span>
+				</div>
 				<div class="hero-content">
-					<h1>Find Every Kid's Next Favorite Toy</h1>
-					<p>{SITE_DESCRIPTION}</p>
+					<span class="hero-eyebrow">🎈 Welcome to the Toy Kingdom</span>
+					<h1>Find the perfect toy for <span class="hl">every little explorer</span></h1>
+					<p>
+						Friendly guides and smart picks for baby toys, STEM kits, RC cars, dolls, puzzles and more,
+						so every playtime feels a little more magical.
+					</p>
+					<div class="hero-actions">
+						<a class="btn btn-primary" href="#topics">Explore toy topics</a>
+						<a class="btn btn-ghost" href="#latest">Read latest guides</a>
+					</div>
+					<div class="hero-chips">
+						<span>🧸 {orderedTopics.length} toy topics</span>
+						<span>📚 {allPosts.length} guides &amp; counting</span>
+						<span>🎁 Gift ideas for every age</span>
+					</div>
 				</div>
 			</section>
 
-			<section>
-				<h2 class="section-heading">Browse by Toy Types</h2>
-
-				{featuredTopic && (
-					<a
-						class="topic-featured"
-						href={`/topic/${featuredTopic.toLowerCase().replace(/\s+/g, '-')}/`}
-					>
-						<img src={thumbUrl(featuredTopic)} alt="" loading="lazy" onerror="this.style.display='none'" />
-						<div class="overlay" />
-						<div class="label">
-							<h3>{featuredTopic}</h3>
-							<span>{topicCounts.get(featuredTopic)} categories</span>
-						</div>
-					</a>
-				)}
-
-				<ul class="topic-row">
+			<!-- ================= TOPICS ================= -->
+			<section id="topics">
+				<div class="section-head">
+					<span class="eyebrow">Toy topics</span>
+					<h2 class="section-heading">Browse by toy type</h2>
+					<p class="section-sub">Nine playful worlds to explore. Pick one and dive in.</p>
+				</div>
+				<ul class="topic-bento">
 					{
-						otherTopics.map((topic) => (
+						topicTiles.map((t) => (
 							<li>
-								<a class="topic-card" href={`/topic/${topic.toLowerCase().replace(/\s+/g, '-')}/`}>
-									<img src={thumbUrl(topic)} alt="" loading="lazy" onerror="this.style.display='none'" />
-									<div class="overlay" />
-									<div class="label">
-										<h3>{topic}</h3>
-										<span>{topicCounts.get(topic)} categories</span>
-									</div>
+								<a class="topic-tile" href={t.href} style={`--from:${t.from};--to:${t.to};`}>
+									<span class="num">{t.num}</span>
+									<span class="icon" aria-hidden="true">{t.icon}</span>
+									<h3 class="name">{t.name}</h3>
+									{t.blurb && <p class="blurb">{t.blurb}</p>}
+									<span class="count">{t.countText}</span>
+									<span class="go" aria-hidden="true">→</span>
 								</a>
 							</li>
 						))
@@ -371,55 +939,90 @@ function formatDate(date: Date) {
 				</ul>
 			</section>
 
-			<section>
-				<h2 class="section-heading">Latest articles</h2>
+			<!-- ================= LATEST ARTICLES ================= -->
+			<section id="latest">
+				<div class="section-head">
+					<span class="eyebrow">Fresh from the playroom</span>
+					<h2 class="section-heading">Latest articles</h2>
+				</div>
 
-				{featuredPost && (
-					<a class="post-featured" href={`/${featuredPost.id}/`}>
-						<div class="post-thumb">
-							<img
-								src={thumbUrl(`${featuredPost.data.topic ?? ''} ${featuredPost.data.title}`)}
-								alt=""
-								loading="lazy"
-								onerror="this.style.display='none'"
-							/>
-						</div>
-						<div>
-							{featuredPost.data.categories?.[0] && (
-								<span class="post-category">{featuredPost.data.categories[0]}</span>
-							)}
-							<h3 class="post-title">{featuredPost.data.title}</h3>
-							<p class="post-excerpt">{featuredPost.data.description}</p>
-							<span class="post-date">{formatDate(featuredPost.data.pubDate)}</span>
-						</div>
-					</a>
-				)}
+				{
+					featuredPost && (
+						<div class="latest">
+							<a class="featured" href={`/${featuredPost.id}/`}>
+								<img
+									src={thumbUrl(`${featuredPost.data.topic ?? ''} ${featuredPost.data.title}`)}
+									alt=""
+									loading="lazy"
+									onerror="this.style.display='none'"
+								/>
+								<div class="shade" />
+								<span class="badge">⭐ NEW</span>
+								<div class="body">
+									{featuredPost.data.categories?.[0] && (
+										<span class="cat">{featuredPost.data.categories[0]}</span>
+									)}
+									<h3 class="title">{featuredPost.data.title}</h3>
+									<span class="date">{formatDate(featuredPost.data.pubDate)}</span>
+								</div>
+							</a>
 
-				<ul class="post-list">
-					{
-						restPosts.map((post) => (
-							<li>
-								<a class="post-row" href={`/${post.id}/`}>
-									<div class="post-thumb">
-										<img
-											src={thumbUrl(`${post.data.topic ?? ''} ${post.data.title}`)}
-											alt=""
-											loading="lazy"
-											onerror="this.style.display='none'"
-										/>
-									</div>
-									<div>
-										{post.data.categories?.[0] && (
-											<span class="post-category">{post.data.categories[0]}</span>
-										)}
-										<h3 class="post-title">{post.data.title}</h3>
-										<span class="post-date">{formatDate(post.data.pubDate)}</span>
-									</div>
-								</a>
-							</li>
-						))
-					}
-				</ul>
+							<ul class="side-list">
+								{sidePosts.map((post, i) => (
+									<li>
+										<a
+											class="side-card"
+											href={`/${post.id}/`}
+											style={`--chip:${chipColors[(i + 1) % chipColors.length]};`}
+										>
+											<div class="side-thumb">
+												<img
+													src={thumbUrl(`${post.data.topic ?? ''} ${post.data.title}`)}
+													alt=""
+													loading="lazy"
+													onerror="this.style.display='none'"
+												/>
+											</div>
+											<div>
+												{post.data.categories?.[0] && <span class="chip">{post.data.categories[0]}</span>}
+												<h3 class="side-title">{post.data.title}</h3>
+												<span class="date-sm">{formatDate(post.data.pubDate)}</span>
+											</div>
+										</a>
+									</li>
+								))}
+							</ul>
+						</div>
+					)
+				}
+
+				{
+					morePosts.length > 0 && (
+						<ul class="more-grid">
+							{morePosts.map((post, i) => (
+								<li>
+									<a
+										class="more-card"
+										href={`/${post.id}/`}
+										style={`--chip:${chipColors[(i + 4) % chipColors.length]};`}
+									>
+										<div class="more-thumb">
+											<img
+												src={thumbUrl(`${post.data.topic ?? ''} ${post.data.title}`)}
+												alt=""
+												loading="lazy"
+												onerror="this.style.display='none'"
+											/>
+											{post.data.categories?.[0] && <span class="chip">{post.data.categories[0]}</span>}
+										</div>
+										<h3 class="more-title">{post.data.title}</h3>
+										<span class="date-sm">{formatDate(post.data.pubDate)}</span>
+									</a>
+								</li>
+							))}
+						</ul>
+					)
+				}
 			</section>
 		</main>
 		<Footer />
