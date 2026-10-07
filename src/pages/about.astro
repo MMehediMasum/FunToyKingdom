@@ -1,208 +1,646 @@
 ---
 import StaticPage from '../layouts/StaticPage.astro';
+import { TOPIC_META } from '../consts';
+import { slugify } from '../utils/slug';
+
+const topics = Object.entries(TOPIC_META).map(([name, meta]) => ({
+	name,
+	icon: meta.icon,
+	color: meta.to,
+	href: `/topic/${slugify(name)}/`,
+}));
+
+const siteUrl = (Astro.site ?? new URL('https://funtoykingdom.com')).toString().replace(/\/$/, '');
+
+const aboutJsonLd = {
+	'@context': 'https://schema.org',
+	'@type': 'AboutPage',
+	url: `${siteUrl}/about/`,
+	mainEntity: {
+		'@type': 'Person',
+		name: 'Gustavo Stowe',
+		jobTitle: 'Toy Industry Analyst & Parent Product Tester',
+		image: `${siteUrl}/gustavo-stowe.jpg`,
+		address: {
+			'@type': 'PostalAddress',
+			addressLocality: 'Minneapolis',
+			addressRegion: 'MN',
+			addressCountry: 'US',
+		},
+		knowsAbout: [
+			'Educational and STEM toys',
+			'Toy safety standards (ASTM F963, CPSC)',
+			'Age-appropriate play development',
+		],
+		sameAs: ['https://www.facebook.com/GustavoStowe/'],
+		worksFor: { '@type': 'Organization', name: 'Fun Toy Kingdom', url: siteUrl },
+	},
+};
 ---
 
 <StaticPage
 	title="About Us"
-	description="Learn about FunToyKingdom, our mission, and the baby, collectible, educational and creative toys we feature."
+	description="Meet Gustavo Stowe, a former toy retail buyer and father of three who tests every toy in real households for at least two weeks before Fun Toy Kingdom recommends it."
 	icon="🧸"
 >
-	<p>
-		At <strong>FunToyKingdom</strong>, we believe that toys are more than just objects of play—they are tools of
-		imagination, learning, growth, and joy. Our kingdom is built around one core mission: to bring happiness,
-		creativity, and development into the lives of children, toddlers, and even collectors through carefully
-		curated toys that inspire, educate, and entertain.
-	</p>
-	<p>
-		From <strong>baby and toddler toys</strong> that support early development, to <strong>collectible treasures</strong>
-		cherished by enthusiasts, to <strong>educational toys</strong> that foster lifelong learning, and
-		<strong>creative DIY sets</strong> that unleash imagination—we are here to make every playtime an adventure
-		worth remembering.
-	</p>
-	<p>
-		We aren't just a toy store. We are a trusted partner for parents, educators, and toy lovers who want safe,
-		high-quality, and meaningful play experiences.
-	</p>
+	<script type="application/ld+json" set:html={JSON.stringify(aboutJsonLd)} />
 
-	<h2>Our Story</h2>
-	<p>
-		The story of FunToyKingdom began with a simple belief: <em>play is powerful.</em> As parents, educators, and toy
-		enthusiasts ourselves, we noticed that toys are more than just entertainment. They are stepping stones that
-		shape a child's early development, creativity, and social skills.
-	</p>
-	<p>
-		We also realized that the toy market was flooded with options—yet not all were safe, meaningful, or designed
-		with a child's growth in mind. Parents often struggled to find toys that were not only fun but also durable,
-		safe, and educational. Collectors faced a similar challenge—finding unique, high-quality collectible pieces to
-		treasure.
-	</p>
-	<p>
-		That's when FunToyKingdom was born. A kingdom where every toy is chosen with care, purpose, and passion. Our
-		goal is to create a one-stop destination where families and toy lovers can find toys that align with their
-		values, their child's developmental stage, and their own passions for creativity and collection.
-	</p>
+	<div class="about">
+		<p class="lead">
+			<strong>Fun Toy Kingdom</strong> is a toy review and buying-advice site built on one rule: no toy gets
+			recommended until it has survived at least two weeks in a real household.
+		</p>
 
-	<h2>Our Mission</h2>
-	<p>Our mission at FunToyKingdom is simple yet powerful:</p>
-	<p>
-		<strong>To provide safe, engaging, and innovative toys that inspire joy, nurture creativity, and support lifelong learning.</strong>
-	</p>
-	<p>We believe that play:</p>
-	<ul>
-		<li>Encourages <strong>imagination and creativity</strong>.</li>
-		<li>Develops <strong>problem-solving and cognitive skills</strong>.</li>
-		<li>Builds <strong>emotional and social intelligence</strong>.</li>
-		<li>Creates <strong>lasting memories for children and families</strong>.</li>
-	</ul>
-	<p>
-		Every toy in our collection is handpicked with these values in mind, ensuring that it adds something
-		meaningful to playtime.
-	</p>
+		<!-- ============ AUTHOR CARD ============ -->
+		<section class="hero" aria-label="About the author">
+			<img
+				class="hero-photo"
+				src="/gustavo-stowe.jpg"
+				alt="Gustavo Stowe, toy industry analyst and parent product tester"
+				width="128"
+				height="128"
+			/>
+			<div class="hero-text">
+				<p class="hero-name">Gustavo Stowe</p>
+				<p class="hero-role">Toy Industry Analyst &amp; Parent Product Tester</p>
+				<p class="hero-tag">“Play-tested by real kids, reviewed by a real dad.”</p>
+				<ul class="hero-chips">
+					<li>📍 Minneapolis, Minnesota</li>
+					<li>👨‍👧‍👦 Father of three</li>
+					<li>🏬 Ex-toy retail buyer</li>
+				</ul>
+			</div>
+		</section>
 
-	<h2>What We Offer</h2>
-	<p>
-		At FunToyKingdom, we take pride in offering toys across multiple categories that suit different ages,
-		interests, and passions.
-	</p>
+		<ul class="stats">
+			<li style="--c:#be185d">
+				<span class="num">7</span>
+				<span class="lbl">years as a toy retail buyer &amp; product tester</span>
+			</li>
+			<li style="--c:#0369a1">
+				<span class="num">3</span>
+				<span class="lbl">children at home</span>
+			</li>
+			<li style="--c:#166534">
+				<span class="num">20+</span>
+				<span class="lbl">local families on the testing panel</span>
+			</li>
+			<li style="--c:#c2410c">
+				<span class="num">2</span>
+				<span class="lbl">weeks minimum before any recommendation</span>
+			</li>
+		</ul>
 
-	<h3>1. Baby &amp; Toddler Toys</h3>
-	<p>
-		The earliest years are the most critical for development. That's why our <strong>baby and toddler toys</strong>
-		are carefully chosen to promote sensory learning, motor skills, and safe exploration. From rattles and
-		stacking toys to soft plush companions, our collection helps little ones grow while having fun.
-	</p>
-	<p>
-		We prioritize <strong>safety above all else</strong>, ensuring every toy meets international safety standards
-		and is made from child-friendly, non-toxic materials.
-	</p>
+		<!-- ============ 1. WHO I AM ============ -->
+		<section class="sec" style="--c:#be185d">
+			<div class="sec-head">
+				<span class="sec-num" aria-hidden="true">👋</span>
+				<h2 class="sec-title">Hi, I'm Gustavo</h2>
+			</div>
+			<p>
+				I'm a toy industry analyst and parent product tester based in Minneapolis, Minnesota, and a father
+				of three. I write this site for parents and grandparents who want a straight answer to a simple
+				question: <em>is this toy actually worth buying?</em>
+			</p>
+			<p>Off the clock, you'll find me deep in one of these:</p>
+			<ul class="chips">
+				<li>🧠 Child development</li>
+				<li>🎲 Board games &amp; LEGO</li>
+				<li>⚽ Coaching youth soccer</li>
+				<li>🏒 Ice hockey</li>
+				<li>🏺 Vintage toy history</li>
+			</ul>
+		</section>
 
-	<h3>2. Collectible Toys</h3>
-	<p>
-		For children, collectors, and enthusiasts alike, <strong>collectible toys</strong> hold a special place. They
-		tell stories, capture memories, and often become timeless keepsakes. At FunToyKingdom, we bring you a wide
-		variety of collectibles—action figures, dolls, limited-edition sets, and more.
-	</p>
-	<p>
-		Whether you're building a personal collection or surprising someone with a unique gift, our collectibles are
-		curated for quality, uniqueness, and value.
-	</p>
+		<!-- ============ 2. CONNECTION ============ -->
+		<section class="sec" style="--c:#c2410c">
+			<div class="sec-head">
+				<span class="sec-num" aria-hidden="true">🏬</span>
+				<h2 class="sec-title">How toys became my job</h2>
+			</div>
+			<p>
+				I spent <strong>seven years as a product tester and buyer</strong> for a regional toy retail chain.
+				That's where I completed CPSC toy-safety training for retail buyers and saw, from the inside, how
+				the industry decides which toys make it onto store shelves.
+			</p>
+			<p>
+				As a dad, I got frustrated with review sites that recommend toys no child has ever played with. So
+				I built my own testing panel: <strong>more than twenty local families</strong> who try each toy in
+				a real home before it earns a word of praise from me. I also contribute seasonal gift-guide
+				commentary to local parenting publications.
+			</p>
+		</section>
 
-	<h3>3. Educational Toys</h3>
-	<p>
-		Learning should never be boring. Our <strong>educational toys</strong> are designed to blend fun with
-		knowledge, turning playtime into a classroom of creativity. From puzzles that challenge the brain to STEM kits
-		that introduce science, technology, engineering, and math, these toys encourage problem-solving and critical
-		thinking in exciting ways.
-	</p>
-	<p>
-		We also provide toys that support <strong>literacy, numeracy, and motor skill development</strong>, making
-		them perfect companions for both school and home learning.
-	</p>
+		<!-- ============ 3. KNOWLEDGE ============ -->
+		<section class="sec" style="--c:#0369a1">
+			<div class="sec-head">
+				<span class="sec-num" aria-hidden="true">🎓</span>
+				<h2 class="sec-title">What I know (and what I don't)</h2>
+			</div>
+			<p>My focus is narrow on purpose, so you know exactly what you're getting:</p>
+			<ul class="chips">
+				<li>🔬 Educational &amp; STEM toy reviews, ages 0–12</li>
+				<li>🛡️ Toy safety standards (ASTM F963 / CPSC)</li>
+				<li>🌱 Age-appropriate play development</li>
+				<li>🏷️ Spotting real learning value behind “STEM” and “brain-building” labels</li>
+			</ul>
+			<div class="note-box warm">
+				<span class="note-icon">💬</span>
+				<span>
+					<strong>An honest limit:</strong> I'm a former toy buyer and a dad, not a pediatrician, child
+					psychologist or safety lab. I measure toys against published standards and real-life play. For
+					medical or developmental concerns, talk to your child's doctor, and check the
+					<a href="https://www.cpsc.gov/Recalls" target="_blank" rel="noopener noreferrer">CPSC recall list</a>
+					before you buy.
+				</span>
+			</div>
+		</section>
 
-	<h3>4. Creative &amp; DIY Toys</h3>
-	<p>
-		Nothing sparks imagination like the joy of creating something with your own hands. That's why our
-		<strong>creative and DIY toys</strong> focus on crafts, building, painting, and designing. These toys give
-		kids (and adults!) the opportunity to express themselves, build patience, and gain confidence in their
-		abilities.
-	</p>
-	<p>
-		From art kits to building blocks, these toys make every child feel like an inventor or an artist in their own
-		right.
-	</p>
+		<!-- ============ 4. THE GAP ============ -->
+		<section class="sec" style="--c:#6d28d9">
+			<div class="sec-head">
+				<span class="sec-num" aria-hidden="true">🔎</span>
+				<h2 class="sec-title">The gap I wanted to close</h2>
+			</div>
+			<p>Walk down any toy aisle, or scroll any shopping page, and the same problems show up:</p>
+			<ul class="gap-list">
+				<li><span>📦</span> Flashy packaging and influencer hype doing the selling.</li>
+				<li><span>🏷️</span> Buzzwords like “STEM” stamped on toys with little real learning in them.</li>
+				<li><span>👻</span> Reviews written by people who never put the toy in front of a child.</li>
+			</ul>
+			<p>
+				I wanted reviews that weigh <strong>durability, genuine play value and safety compliance</strong>
+				instead, so parents and grandparents can cut through the marketing and choose with confidence.
+			</p>
+		</section>
 
-	<h2>Why Choose FunToyKingdom?</h2>
-	<p>
-		We understand you have many choices when it comes to buying toys—but FunToyKingdom stands apart. Here's why
-		families and toy enthusiasts trust us:
-	</p>
-	<ul class="icon-grid">
-		<li><span class="emoji">🛡️</span><span><strong>Safety First</strong> – Every toy undergoes strict quality checks and meets international safety standards. We never compromise on child safety.</span></li>
-		<li><span class="emoji">📚</span><span><strong>Educational Value</strong> – Our toys are designed not just for fun but also for growth. Whether it's building fine motor skills or enhancing creativity, every toy has a purpose.</span></li>
-		<li><span class="emoji">🧩</span><span><strong>Diverse Collection</strong> – From baby rattles to collectible action figures, our catalog caters to all ages, interests, and passions.</span></li>
-		<li><span class="emoji">🌱</span><span><strong>Sustainability Focus</strong> – We care about the planet and are working toward eco-friendly packaging and sustainable toy options.</span></li>
-		<li><span class="emoji">💬</span><span><strong>Customer-Centered Service</strong> – Our kingdom revolves around our customers. We provide clear guidance, age-appropriate suggestions, and excellent customer support to help you make the best choices.</span></li>
-	</ul>
+		<!-- ============ 5. PROMISE ============ -->
+		<section class="sec" style="--c:#166534">
+			<div class="sec-head">
+				<span class="sec-num" aria-hidden="true">✅</span>
+				<h2 class="sec-title">How a toy earns a recommendation</h2>
+			</div>
+			<ol class="steps">
+				<li>
+					<span class="step-n">1</span>
+					<span><strong>Check the claims.</strong> Age range, safety standards (ASTM F963 / CPSC) and
+					marketing promises are checked against what's really in the box.</span>
+				</li>
+				<li>
+					<span class="step-n">2</span>
+					<span><strong>Put it in real homes.</strong> Families on the testing panel use the toy in everyday
+					life, not a staged photo shoot.</span>
+				</li>
+				<li>
+					<span class="step-n">3</span>
+					<span><strong>Report honestly.</strong> Durability, play value and safety decide the verdict,
+					including what falls short.</span>
+				</li>
+			</ol>
+			<div class="rule">
+				<span class="rule-icon">⏳</span>
+				<span>No toy is recommended until it's survived at least <strong>two weeks in a real household</strong>.</span>
+			</div>
+			<p class="small">
+				Fun Toy Kingdom participates in the Amazon Services LLC Associates Program and earns from
+				qualifying purchases. <a href="/disclosure/">Read the full disclosure</a>.
+			</p>
+		</section>
 
-	<h2>The Power of Play</h2>
-	<p>
-		At FunToyKingdom, we celebrate the <strong>power of play</strong>. Play is more than just a pastime—it is
-		essential for growth, creativity, and connection.
-	</p>
-	<ul>
-		<li>For babies and toddlers, play builds a foundation for learning.</li>
-		<li>For older children, play nurtures imagination, teamwork, and problem-solving.</li>
-		<li>For collectors, toys preserve stories, nostalgia, and identity.</li>
-	</ul>
-	<p>
-		We believe that toys have the magical ability to bring families together, spark joy in every heart, and even
-		teach lifelong skills that extend far beyond childhood.
-	</p>
+		<!-- ============ 6. SITE PLAN ============ -->
+		<section class="sec" style="--c:#b45309">
+			<div class="sec-head">
+				<span class="sec-num" aria-hidden="true">🗺️</span>
+				<h2 class="sec-title">What you'll find here</h2>
+			</div>
+			<p>
+				This site is for parents and grandparents choosing toys for infants through pre-teens. Pick the
+				world your child is into and dive in:
+			</p>
+			<ul class="topic-grid">
+				{
+					topics.map((t) => (
+						<li style={`--c:${t.color}`}>
+							<a href={t.href}>
+								<span class="t-icon" aria-hidden="true">{t.icon}</span>
+								<span class="t-name">{t.name}</span>
+							</a>
+						</li>
+					))
+				}
+			</ul>
+		</section>
 
-	<h2>Our Commitment to Parents &amp; Educators</h2>
-	<p>
-		We know that as a parent, you want the very best for your child. That's why we make sure that every toy you
-		find at FunToyKingdom has been carefully vetted for <strong>safety, durability, and developmental value</strong>.
-	</p>
-	<p>
-		For educators, our toys serve as valuable tools in classrooms, helping to create engaging, hands-on learning
-		environments. We are committed to supporting schools and educational institutions with toys that complement
-		academic goals while keeping children entertained.
-	</p>
-
-	<h2>Our Commitment to Collectors</h2>
-	<p>
-		At FunToyKingdom, we don't just focus on children—we also celebrate <strong>collectors and enthusiasts</strong>.
-		Collectible toys are more than just objects; they represent passion, creativity, and sometimes even an
-		investment.
-	</p>
-	<p>
-		That's why we provide access to unique, high-quality collectible toys that cater to enthusiasts of all ages.
-		Whether you're a lifelong collector or just starting, our collection helps you build your own little kingdom
-		of treasures.
-	</p>
-
-	<h2>Our Vision for the Future</h2>
-	<p>
-		FunToyKingdom is not just about today—it's about tomorrow. Our vision is to grow into the most trusted and
-		beloved toy destination globally. We want to expand our collection, promote
-		<strong>eco-friendly and sustainable toy options</strong>, and continue to innovate in the world of play.
-	</p>
-	<p>
-		We dream of building a community where parents, children, and collectors can share experiences, exchange
-		ideas, and celebrate the joy of toys together.
-	</p>
-
-	<h2>Meet the Team Behind FunToyKingdom</h2>
-	<p>
-		FunToyKingdom is powered by a passionate team of parents, educators, toy experts, and dreamers who believe in
-		the magic of play. Every member of our team shares a commitment to bringing only the best toys into your
-		hands.
-	</p>
-	<p>
-		From product researchers and safety testers to customer care representatives, we are here to ensure that your
-		journey with us is seamless, fun, and rewarding.
-	</p>
-
-	<h2>Join Our Kingdom</h2>
-	<p>
-		When you choose FunToyKingdom, you're not just buying toys—you're joining a community that believes in the joy
-		and power of play. We invite you to:
-	</p>
-	<ul>
-		<li>Explore our collections.</li>
-		<li>Share your child's or your own play experiences with us.</li>
-		<li>Join us on social media where we share tips, play ideas, and updates on new arrivals.</li>
-	</ul>
-	<p>Together, let's make every playtime memorable.</p>
-
-	<h2>Closing Note</h2>
-	<div class="note-box">
-		<span class="note-icon">🧸</span>
-		<span>
-			At <strong>FunToyKingdom</strong>, we believe every toy tells a story. A story of joy, growth, imagination,
-			and love. Whether you're a parent choosing your baby's first toy, a child discovering new worlds through
-			play, or a collector adding a cherished piece to your shelf—we're here to make your journey unforgettable.
-		</span>
+		<!-- ============ 7. FINISH ============ -->
+		<section class="cta">
+			<span class="cta-icon" aria-hidden="true">🧸</span>
+			<h2 class="cta-title">Let's find the right toy</h2>
+			<p>
+				Whether it's a first rattle or a gift for a pre-teen, I'd love for this site to save you time and
+				money. Start with a topic that fits your child, and if there's a toy you'd like me to look at,
+				send me a note.
+			</p>
+			<div class="cta-actions">
+				<a class="btn btn-primary" href="/#topics">Explore toy topics</a>
+				<a class="btn btn-ghost" href="/contact/">Get in touch</a>
+			</div>
+			<p class="sign">— Gustavo</p>
+		</section>
 	</div>
 </StaticPage>
+
+<style>
+	.about {
+		--radius-lg: 22px;
+	}
+	.about .lead {
+		font-size: 1.15rem;
+		line-height: 1.7;
+		margin-bottom: 1.6rem;
+	}
+
+	/* ---------- author card ---------- */
+	.hero {
+		position: relative;
+		display: flex;
+		align-items: center;
+		gap: 1.5rem;
+		overflow: hidden;
+		padding: 1.6rem 1.6rem 1.9rem;
+		border-radius: 26px;
+		background: linear-gradient(
+			135deg,
+			color-mix(in srgb, #ffc233 24%, var(--surface)),
+			color-mix(in srgb, #ff6b4a 18%, var(--surface))
+		);
+		border: 1px solid rgb(var(--border));
+		box-shadow: var(--box-shadow);
+	}
+	.hero::after {
+		content: '';
+		position: absolute;
+		left: 0;
+		right: 0;
+		bottom: 0;
+		height: 6px;
+		background: linear-gradient(
+			90deg,
+			#f45b9b 0 16.66%,
+			#f97316 0 33.33%,
+			#ffc233 0 50%,
+			#22a559 0 66.66%,
+			#0ea5e9 0 83.33%,
+			#a855f7 0 100%
+		);
+	}
+	.hero-photo {
+		flex: none;
+		width: 128px;
+		height: 128px;
+		border-radius: 50%;
+		object-fit: cover;
+		border: 5px solid var(--surface);
+		outline: 4px solid var(--accent);
+		box-shadow: 0 8px 20px rgba(0, 0, 0, 0.18);
+	}
+	.about .hero-text p {
+		margin: 0;
+	}
+	.hero-name {
+		font-family: var(--font-display);
+		font-weight: 700;
+		font-size: 1.7rem;
+		line-height: 1.15;
+		color: rgb(var(--black));
+	}
+	.hero-role {
+		margin-top: 0.15rem !important;
+		font-weight: 700;
+		color: var(--accent-text);
+	}
+	.hero-tag {
+		margin-top: 0.5rem !important;
+		font-style: italic;
+		color: rgb(var(--gray-dark));
+	}
+	.hero-chips {
+		display: flex;
+		flex-wrap: wrap;
+		gap: 0.5rem;
+		margin: 0.9rem 0 0 !important;
+		padding: 0 !important;
+		list-style: none;
+	}
+	.hero-chips li {
+		margin: 0 !important;
+		padding: 0.25rem 0.8rem;
+		border-radius: 999px;
+		background: var(--surface);
+		border: 1px solid rgb(var(--border));
+		font-size: 0.85rem;
+		font-weight: 700;
+	}
+
+	/* ---------- stats ---------- */
+	.stats {
+		display: grid;
+		grid-template-columns: repeat(4, 1fr);
+		gap: 0.8rem;
+		list-style: none;
+		margin: 1.2rem 0 0 !important;
+		padding: 0 !important;
+	}
+	.stats li {
+		display: flex;
+		flex-direction: column;
+		gap: 0.2rem;
+		margin: 0 !important;
+		padding: 1rem 0.9rem;
+		border-radius: 18px;
+		background: var(--c);
+		color: #fff;
+		box-shadow: 0 5px 0 rgba(0, 0, 0, 0.18);
+	}
+	.stats .num {
+		font-family: var(--font-display);
+		font-weight: 700;
+		font-size: 2.1rem;
+		line-height: 1;
+	}
+	.stats .lbl {
+		font-size: 0.8rem;
+		font-weight: 700;
+		line-height: 1.35;
+		opacity: 0.95;
+	}
+
+	/* ---------- section cards ---------- */
+	.sec {
+		margin: 2rem 0 0;
+		padding: 1.5rem 1.6rem 1.3rem;
+		border-radius: var(--radius-lg);
+		background: color-mix(in srgb, var(--c) 8%, var(--surface));
+		border: 1px solid color-mix(in srgb, var(--c) 25%, transparent);
+	}
+	.sec-head {
+		display: flex;
+		align-items: center;
+		gap: 0.85rem;
+		margin-bottom: 0.9rem;
+	}
+	.sec-num {
+		flex: none;
+		display: grid;
+		place-items: center;
+		width: 44px;
+		height: 44px;
+		border-radius: 14px;
+		background: var(--c);
+		font-size: 1.35rem;
+		box-shadow: 0 3px 0 rgba(0, 0, 0, 0.22);
+		transform: rotate(-5deg);
+	}
+	.about h2.sec-title {
+		margin: 0;
+		padding: 0;
+		border: none;
+		font-size: 1.4rem;
+		line-height: 1.2;
+	}
+	.sec > p:last-child,
+	.sec > ul:last-child {
+		margin-bottom: 0.2rem;
+	}
+
+	/* chips */
+	.chips {
+		display: flex;
+		flex-wrap: wrap;
+		gap: 0.55rem;
+		list-style: none;
+		padding: 0 !important;
+		margin: 0 0 1.1rem !important;
+	}
+	.chips li {
+		margin: 0 !important;
+		padding: 0.3rem 0.9rem;
+		border-radius: 999px;
+		background: var(--surface);
+		border: 1px solid color-mix(in srgb, var(--c) 35%, transparent);
+		font-size: 0.9rem;
+		font-weight: 700;
+		line-height: 1.45;
+	}
+
+	/* gap list */
+	.gap-list {
+		list-style: none;
+		padding: 0 !important;
+		margin: 0 0 1.1rem !important;
+	}
+	.gap-list li {
+		display: flex;
+		gap: 0.7rem;
+		align-items: flex-start;
+		margin: 0 0 0.5rem !important;
+		padding: 0.7rem 1rem;
+		border-radius: 14px;
+		background: var(--surface);
+		border: 1px solid color-mix(in srgb, var(--c) 25%, transparent);
+	}
+	.gap-list li span:first-child {
+		flex: none;
+		font-size: 1.25rem;
+		line-height: 1.5;
+	}
+
+	/* steps */
+	.steps {
+		list-style: none;
+		counter-reset: none;
+		padding: 0 !important;
+		margin: 0 0 1.2rem !important;
+	}
+	.steps li {
+		display: flex;
+		gap: 0.9rem;
+		align-items: flex-start;
+		margin: 0 0 0.7rem !important;
+		padding: 0.9rem 1rem;
+		border-radius: 16px;
+		background: var(--surface);
+		border: 1px solid color-mix(in srgb, var(--c) 25%, transparent);
+	}
+	.step-n {
+		flex: none;
+		display: grid;
+		place-items: center;
+		width: 34px;
+		height: 34px;
+		border-radius: 50%;
+		background: var(--c);
+		color: #fff;
+		font-family: var(--font-display);
+		font-weight: 700;
+	}
+	.rule {
+		display: flex;
+		gap: 0.8rem;
+		align-items: center;
+		margin: 0 0 1.1rem;
+		padding: 1rem 1.2rem;
+		border-radius: 16px;
+		background: #ffc233;
+		color: #14171f;
+		font-weight: 700;
+		box-shadow: 0 4px 0 rgba(0, 0, 0, 0.15);
+	}
+	.rule strong {
+		color: #14171f;
+	}
+	.rule-icon {
+		font-size: 1.6rem;
+	}
+	.small {
+		font-size: 0.88rem;
+		color: rgb(var(--gray));
+	}
+
+	/* topic tiles */
+	.topic-grid {
+		display: grid;
+		grid-template-columns: repeat(auto-fill, minmax(200px, 1fr));
+		gap: 0.7rem;
+		list-style: none;
+		padding: 0 !important;
+		margin: 0.2rem 0 0.4rem !important;
+	}
+	.topic-grid li {
+		margin: 0 !important;
+	}
+	.topic-grid a {
+		display: flex;
+		align-items: center;
+		gap: 0.7rem;
+		height: 100%;
+		padding: 0.7rem 0.9rem;
+		border-radius: 14px;
+		background: var(--surface);
+		border: 1px solid color-mix(in srgb, var(--c) 30%, transparent);
+		border-left: 6px solid var(--c);
+		color: rgb(var(--black));
+		text-decoration: none;
+		font-weight: 700;
+		font-size: 0.9rem;
+		line-height: 1.3;
+		transition: transform 0.15s ease, box-shadow 0.15s ease;
+	}
+	.topic-grid a:hover {
+		transform: translateY(-2px);
+		box-shadow: var(--box-shadow);
+		color: rgb(var(--black));
+	}
+	.t-icon {
+		flex: none;
+		font-size: 1.5rem;
+	}
+
+	/* closing call to action */
+	.cta {
+		position: relative;
+		overflow: hidden;
+		isolation: isolate;
+		margin: 2.4rem 0 0;
+		padding: 2.2rem 1.8rem 1.8rem;
+		border-radius: 26px;
+		text-align: center;
+		color: #14171f;
+		background:
+			radial-gradient(circle at 10% 15%, rgba(255, 255, 255, 0.55), transparent 40%),
+			linear-gradient(135deg, #ffc233, #ff8a5c 60%, #f45b9b);
+		box-shadow: 0 6px 0 rgba(0, 0, 0, 0.14), 0 14px 30px rgba(0, 0, 0, 0.12);
+	}
+	.cta-icon {
+		display: block;
+		font-size: 2.8rem;
+		line-height: 1;
+		margin-bottom: 0.4rem;
+	}
+	.about h2.cta-title {
+		margin: 0 0 0.6rem;
+		padding: 0;
+		border: none;
+		color: #14171f;
+		font-size: 1.7rem;
+	}
+	.cta p {
+		max-width: 46ch;
+		margin: 0 auto 1.2rem;
+		color: #2b2230;
+	}
+	.cta-actions {
+		display: flex;
+		flex-wrap: wrap;
+		justify-content: center;
+		gap: 0.8rem;
+	}
+	.btn {
+		display: inline-block;
+		padding: 0.75rem 1.4rem;
+		border-radius: 999px;
+		font-weight: 700;
+		text-decoration: none;
+		transition: transform 0.15s ease;
+	}
+	.btn:hover {
+		transform: translateY(-2px);
+	}
+	.btn-primary {
+		background: #14171f;
+		color: #fff;
+		box-shadow: 0 4px 0 rgba(0, 0, 0, 0.3);
+	}
+	.btn-primary:hover {
+		color: #fff;
+	}
+	.btn-ghost {
+		background: #fff;
+		color: #14171f;
+		box-shadow: 0 4px 0 rgba(0, 0, 0, 0.15);
+	}
+	.btn-ghost:hover {
+		color: #14171f;
+	}
+	.cta .sign {
+		margin: 1.4rem 0 0;
+		font-family: var(--font-display);
+		font-size: 1.2rem;
+		font-weight: 600;
+	}
+
+	@media (max-width: 640px) {
+		.hero {
+			flex-direction: column;
+			text-align: center;
+			padding: 1.5rem 1.2rem 1.8rem;
+		}
+		.hero-chips {
+			justify-content: center;
+		}
+		.stats {
+			grid-template-columns: repeat(2, 1fr);
+		}
+		.sec {
+			padding: 1.2rem 1.1rem 1.1rem;
+		}
+		.cta {
+			padding: 1.8rem 1.2rem 1.5rem;
+		}
+	}
+	@media (prefers-reduced-motion: reduce) {
+		.topic-grid a,
+		.btn {
+			transition: none;
+		}
+	}
+</style>
