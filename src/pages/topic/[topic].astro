@@ -4,7 +4,7 @@ import { getCollection } from 'astro:content';
 import BaseHead from '../../components/BaseHead.astro';
 import Footer from '../../components/Footer.astro';
 import Header from '../../components/Header.astro';
-import { SITE_DESCRIPTION, SITE_TITLE } from '../../consts';
+import { FALLBACK_TOPIC_META, SITE_DESCRIPTION, SITE_TITLE, TOPIC_META } from '../../consts';
 
 export async function getStaticPaths() {
 	const allPosts = await getCollection('blog');
@@ -18,6 +18,8 @@ export async function getStaticPaths() {
 const { topicName } = Astro.props;
 const allPosts = await getCollection('blog');
 const postsInTopic = allPosts.filter((post) => post.data.topic === topicName);
+
+const meta = TOPIC_META[topicName] ?? FALLBACK_TOPIC_META;
 
 const categoryCounts = new Map();
 for (const post of postsInTopic) {
@@ -36,94 +38,251 @@ function thumbUrl(category: string) {
 <!doctype html>
 <html lang="en">
 	<head>
-		<BaseHead title={`${topicName} - ${SITE_TITLE}`} description={SITE_DESCRIPTION} />
+		<BaseHead title={`${topicName} - ${SITE_TITLE}`} description={meta.blurb || SITE_DESCRIPTION} />
 		<style>
 			main {
-				width: min(1100px, 92vw);
+				width: min(1100px, 100% - 2em);
+				max-width: 100%;
+				padding: 1.8rem 0 3.5rem;
 			}
-			.topic-header {
-				text-align: center;
-				margin-bottom: 2.5rem;
+
+			/* ---------- banner ---------- */
+			.topic-banner {
+				position: relative;
+				isolation: isolate;
+				overflow: hidden;
+				margin-bottom: 2.6rem;
+				padding: 2.6rem 2.4rem 2.4rem;
+				border-radius: 28px;
+				color: #fff;
+				background: linear-gradient(135deg, var(--from), var(--to));
+				box-shadow:
+					0 6px 0 rgba(0, 0, 0, 0.14),
+					0 14px 30px rgba(0, 0, 0, 0.14);
+			}
+			/* darkening wash so white text always passes contrast */
+			.topic-banner::before {
+				content: '';
+				position: absolute;
+				inset: 0;
+				z-index: -1;
+				background:
+					radial-gradient(rgba(255, 255, 255, 0.2) 2px, transparent 2.5px) 0 0 / 22px 22px,
+					linear-gradient(90deg, rgba(0, 0, 0, 0.3), rgba(0, 0, 0, 0) 75%);
+			}
+			.topic-banner::after {
+				content: '';
+				position: absolute;
+				z-index: -1;
+				top: -70px;
+				right: -50px;
+				width: 260px;
+				height: 260px;
+				border-radius: 50%;
+				background: rgba(255, 255, 255, 0.16);
+			}
+			.banner-icon {
+				position: absolute;
+				top: 50%;
+				right: 2.4rem;
+				font-size: clamp(4.5rem, 12vw, 8rem);
+				line-height: 1;
+				transform: translateY(-50%) rotate(-8deg);
+				filter: drop-shadow(0 6px 8px rgba(0, 0, 0, 0.3));
+			}
+			.crumbs {
+				display: flex;
+				flex-wrap: wrap;
+				gap: 0.4rem;
+				margin-bottom: 1.1rem;
+				font-size: 0.85rem;
+				font-weight: 700;
+			}
+			.crumbs a {
+				color: rgba(255, 255, 255, 0.92);
+				text-decoration: none;
+			}
+			.crumbs a:hover {
+				color: #fff;
+				text-decoration: underline;
+			}
+			.crumbs .sep {
+				opacity: 0.6;
 			}
 			.topic-title {
-				margin-bottom: 0.3em;
+				max-width: 18ch;
+				margin: 0 0 0.5rem;
+				color: #fff;
+				font-size: clamp(1.9rem, 4.6vw, 3rem);
+				line-height: 1.12;
+				text-shadow: 0 2px 4px rgba(0, 0, 0, 0.3);
+				text-wrap: balance;
 			}
-			.topic-meta {
+			.topic-blurb {
+				max-width: 40ch;
+				margin: 0 0 1.3rem;
+				color: rgba(255, 255, 255, 0.95);
+				font-size: 1.1rem;
+				line-height: 1.5;
+			}
+			.topic-stats {
+				display: flex;
+				flex-wrap: wrap;
+				gap: 0.6rem;
 				margin: 0;
-				color: rgb(var(--gray));
-				font-size: 0.95em;
+				padding: 0;
+				list-style: none;
+			}
+			.topic-stats li {
+				padding: 0.3rem 0.95rem;
+				border-radius: 999px;
+				background: rgba(255, 255, 255, 0.95);
+				color: #14171f;
+				font-size: 0.85rem;
+				font-weight: 700;
+			}
+
+			/* ---------- category cards ---------- */
+			.section-label {
+				margin: 0 0 1.2rem;
+				font-size: 1.5rem;
 			}
 			.category-grid {
 				display: grid;
-				grid-template-columns: repeat(auto-fill, minmax(230px, 1fr));
-				gap: 1.6rem;
+				grid-template-columns: repeat(auto-fill, minmax(240px, 1fr));
+				gap: 1.5rem;
 				list-style-type: none;
 				margin: 0;
 				padding: 0;
 			}
 			.category-card {
+				position: relative;
 				display: flex;
 				flex-direction: column;
 				height: 100%;
-				border-radius: 14px;
+				border-radius: 20px;
 				overflow: hidden;
-				background: rgb(var(--gray-light));
-				box-shadow: 0 1px 3px rgba(var(--gray), 20%);
+				background: var(--surface);
+				border: 1px solid rgb(var(--border));
 				text-decoration: none;
 				color: rgb(var(--black));
 				transition: transform 0.2s ease, box-shadow 0.2s ease;
 			}
+			.category-card::after {
+				content: '';
+				position: absolute;
+				left: 0;
+				right: 0;
+				bottom: 0;
+				height: 5px;
+				background: linear-gradient(90deg, var(--from), var(--to));
+			}
 			.category-card:hover {
-				transform: translateY(-3px);
+				transform: translateY(-4px);
 				box-shadow: var(--box-shadow);
 			}
 			.thumb {
 				position: relative;
 				width: 100%;
 				aspect-ratio: 474 / 274;
-				background: rgb(var(--gray-light));
 				overflow: hidden;
+				background: linear-gradient(135deg, var(--from), var(--to));
+			}
+			.thumb .fallback {
+				position: absolute;
+				inset: 0;
+				display: grid;
+				place-items: center;
+				font-size: 3rem;
+				opacity: 0.85;
 			}
 			.thumb img {
+				position: absolute;
+				inset: 0;
 				width: 100%;
 				height: 100%;
 				object-fit: cover;
 				display: block;
+				border-radius: 0;
+				transition: transform 0.4s ease;
+			}
+			.category-card:hover .thumb img {
+				transform: scale(1.06);
 			}
 			.card-body {
 				display: flex;
 				flex-direction: column;
 				flex-grow: 1;
-				padding: 0.9rem 1.1rem 1rem;
+				padding: 1rem 1.2rem 1.3rem;
 			}
 			.cat-name {
 				margin: 0;
-				font-size: 1.05rem;
-				line-height: 1.35;
-				font-weight: 700;
-				min-height: calc(1.35em * 2);
+				font-size: 1.1rem;
+				line-height: 1.3;
+				min-height: calc(1.3em * 2);
 				display: -webkit-box;
 				-webkit-line-clamp: 2;
 				-webkit-box-orient: vertical;
 				overflow: hidden;
 			}
-			.count {
+			.card-foot {
+				display: flex;
+				align-items: center;
+				justify-content: space-between;
 				margin-top: auto;
-				padding-top: 0.6rem;
+				padding-top: 0.7rem;
 				color: rgb(var(--gray));
-				font-size: 0.85em;
+				font-size: 0.88rem;
+				font-weight: 700;
+			}
+			.go {
+				display: grid;
+				place-items: center;
+				width: 30px;
+				height: 30px;
+				border-radius: 50%;
+				background: rgb(var(--gray-light));
+				color: rgb(var(--black));
+				transition: 0.2s ease;
+			}
+			.category-card:hover .go {
+				background: var(--to);
+				color: #fff;
+				transform: translateX(3px);
 			}
 			.category-card:hover .cat-name {
-				color: var(--accent);
+				color: var(--accent-text);
 			}
 			.empty {
 				text-align: center;
 				color: rgb(var(--gray));
 			}
-			@media (max-width: 480px) {
+
+			@media (max-width: 600px) {
+				.topic-banner {
+					padding: 1.8rem 1.4rem 1.7rem;
+					border-radius: 22px;
+				}
+				.banner-icon {
+					top: 1.2rem;
+					right: 1rem;
+					transform: rotate(-8deg);
+					font-size: 4rem;
+					opacity: 0.9;
+				}
+				.topic-title {
+					max-width: 11ch;
+				}
 				.category-grid {
 					grid-template-columns: repeat(auto-fill, minmax(160px, 1fr));
 					gap: 1rem;
+				}
+			}
+			@media (prefers-reduced-motion: reduce) {
+				.category-card,
+				.category-card *,
+				.thumb img {
+					transition: none;
 				}
 			}
 		</style>
@@ -131,13 +290,23 @@ function thumbUrl(category: string) {
 	<body>
 		<Header />
 		<main>
-			<div class="topic-header">
+			<section class="topic-banner" style={`--from:${meta.from};--to:${meta.to};`}>
+				<span class="banner-icon" aria-hidden="true">{meta.icon}</span>
+				<nav class="crumbs" aria-label="Breadcrumb">
+					<a href="/">Home</a>
+					<span class="sep">›</span>
+					<span>Topic</span>
+				</nav>
 				<h1 class="topic-title">{topicName}</h1>
-				<p class="topic-meta">
-					{categories.length} categories · {postsInTopic.length} posts
-				</p>
-			</div>
-			<section>
+				{meta.blurb && <p class="topic-blurb">{meta.blurb}</p>}
+				<ul class="topic-stats">
+					<li>📂 {categories.length} {categories.length === 1 ? 'category' : 'categories'}</li>
+					<li>📚 {postsInTopic.length} {postsInTopic.length === 1 ? 'guide' : 'guides'}</li>
+				</ul>
+			</section>
+
+			<section style={`--from:${meta.from};--to:${meta.to};`}>
+				<h2 class="section-label">Browse categories</h2>
 				{
 					categories.length === 0 ? (
 						<p class="empty">No categories found under this topic yet.</p>
@@ -145,11 +314,11 @@ function thumbUrl(category: string) {
 						<ul class="category-grid">
 							{categories.map(([category, count]) => (
 								<li>
-									<a
-										class="category-card"
-										href={`/categories/${slugify(category)}/`}
-									>
+									<a class="category-card" href={`/categories/${slugify(category)}/`}>
 										<div class="thumb">
+											<span class="fallback" aria-hidden="true">
+												{meta.icon}
+											</span>
 											<img
 												src={thumbUrl(category)}
 												alt=""
@@ -158,10 +327,15 @@ function thumbUrl(category: string) {
 											/>
 										</div>
 										<div class="card-body">
-											<h2 class="cat-name">{category}</h2>
-											<span class="count">
-												{count} {count === 1 ? 'post' : 'posts'}
-											</span>
+											<h3 class="cat-name">{category}</h3>
+											<div class="card-foot">
+												<span>
+													{count} {count === 1 ? 'post' : 'posts'}
+												</span>
+												<span class="go" aria-hidden="true">
+													→
+												</span>
+											</div>
 										</div>
 									</a>
 								</li>

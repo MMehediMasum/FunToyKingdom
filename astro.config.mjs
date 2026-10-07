@@ -9,27 +9,25 @@ export default defineConfig({
 	site: 'https://funtoykingdom.com',
 	integrations: [mdx(), sitemap()],
 	fonts: [
+		// Headings: rounded, friendly, toy-like
 		{
-			provider: fontProviders.local(),
-			name: 'Atkinson',
-			cssVariable: '--font-atkinson',
-			fallbacks: ['sans-serif'],
-			options: {
-				variants: [
-					{
-						src: ['./src/assets/fonts/atkinson-regular.woff'],
-						weight: 400,
-						style: 'normal',
-						display: 'swap',
-					},
-					{
-						src: ['./src/assets/fonts/atkinson-bold.woff'],
-						weight: 700,
-						style: 'normal',
-						display: 'swap',
-					},
-				],
-			},
+			provider: fontProviders.google(),
+			name: 'Fredoka',
+			cssVariable: '--font-heading',
+			weights: [600, 700],
+			styles: ['normal'],
+			subsets: ['latin'],
+			fallbacks: ['ui-rounded', 'system-ui', 'sans-serif'],
+		},
+		// Body text: soft, highly readable rounded sans
+		{
+			provider: fontProviders.google(),
+			name: 'Nunito',
+			cssVariable: '--font-body',
+			weights: [400, 700],
+			styles: ['normal', 'italic'],
+			subsets: ['latin'],
+			fallbacks: ['system-ui', 'sans-serif'],
 		},
 	],
 });

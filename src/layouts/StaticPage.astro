@@ -10,15 +10,6 @@ interface Props {
 }
 
 const { title, description, icon = '🐾' } = Astro.props;
-
-const relatedPages = [
-	{ href: '/', label: 'Home', icon: '🏠' },
-	{ href: '/about/', label: 'About Us', icon: '🐾' },
-	{ href: '/contact/', label: 'Contact', icon: '📬' },
-	{ href: '/privacy-policy/', label: 'Privacy Policy', icon: '🔒' },
-	{ href: '/disclosure/', label: 'Disclosure', icon: '💰' },
-	{ href: '/terms/', label: 'Terms', icon: '📜' },
-].filter((p) => p.label !== title);
 ---
 
 <!doctype html>
@@ -29,13 +20,13 @@ const relatedPages = [
 			main {
 				width: min(720px, 90vw);
 				margin: 0 auto;
-				padding: 2.5rem 0 4rem;
+				padding: 2.5rem 0 3rem;
 			}
 			.page-icon {
 				width: 56px;
 				height: 56px;
 				border-radius: 50%;
-				background: rgb(var(--gray-light));
+				background: var(--accent-soft);
 				display: flex;
 				align-items: center;
 				justify-content: center;
@@ -64,7 +55,7 @@ const relatedPages = [
 				margin-bottom: 0.5em;
 			}
 			.static-page :global(p) {
-				line-height: 1.7;
+				line-height: 1.75;
 				margin-bottom: 1.1em;
 			}
 			.static-page :global(ul),
@@ -164,45 +155,6 @@ const relatedPages = [
 					height: 72px;
 				}
 			}
-
-			/* ---------- Interlinking footer nav ---------- */
-			.related-nav {
-				margin-top: 3.5rem;
-				padding-top: 2rem;
-				border-top: 1px solid rgb(var(--gray-light));
-			}
-			.related-nav h2 {
-				font-size: 1rem;
-				color: rgb(var(--gray));
-				font-weight: 600;
-				margin-bottom: 1rem;
-				border: none;
-				padding: 0;
-			}
-			.related-links {
-				display: flex;
-				flex-wrap: wrap;
-				gap: 0.7rem;
-				list-style: none;
-				padding: 0;
-				margin: 0;
-			}
-			.related-links a {
-				display: inline-flex;
-				align-items: center;
-				gap: 0.4rem;
-				background: rgb(var(--gray-light));
-				color: rgb(var(--black));
-				text-decoration: none;
-				padding: 0.5rem 1rem;
-				border-radius: 999px;
-				font-size: 0.9rem;
-				transition: 0.15s ease;
-			}
-			.related-links a:hover {
-				background: var(--accent);
-				color: white;
-			}
 		</style>
 	</head>
 	<body>
@@ -213,20 +165,6 @@ const relatedPages = [
 			<div class="static-page">
 				<slot />
 			</div>
-			<nav class="related-nav" aria-label="More pages">
-				<h2>More on Fun Toy Kingdom</h2>
-				<ul class="related-links">
-					{
-						relatedPages.map((p) => (
-							<li>
-								<a href={p.href}>
-									<span>{p.icon}</span> {p.label}
-								</a>
-							</li>
-						))
-					}
-				</ul>
-			</nav>
 		</main>
 		<Footer />
 	</body>
