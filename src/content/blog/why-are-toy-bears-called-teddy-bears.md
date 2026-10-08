@@ -112,12 +112,20 @@ Teddy Bears became popular in the early 1900s. After Roosevelt's story and Micht
 
 Teddy Bears are special for their soft, cuddly design and historical origin. They symbolize comfort, childhood, and nostalgia. Their unique connection to President Roosevelt’s story adds charm. This emotional value sets Teddy Bears apart from other toys.
 
+<div style="position:relative;padding-bottom:56.25%;height:0;overflow:hidden;margin:2rem 0;">
+  <iframe
+    src="https://www.youtube.com/embed/hXrNslg7hcw"
+    title="Why Are Toy Bears Called Teddy Bears?"
+    loading="lazy"
+    allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"
+    allowfullscreen
+    style="position:absolute;top:0;left:0;width:100%;height:100%;border:0;">
+  </iframe>
+</div>
+
 ## Conclusion
 
 The name "Teddy Bear" comes from a famous story about President Roosevelt. A kind act turned into a popular toy loved by many. Today, teddy bears bring comfort and joy to people worldwide. They remind us of kindness and simple happiness.
 
 Everyone, young or old, can enjoy a soft teddy bear. This small bear holds a big place in history and hearts. A timeless symbol of warmth and friendship.
 
-
-
-https://www.youtube.com/watch?v=hXrNslg7hcw
