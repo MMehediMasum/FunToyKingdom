@@ -22,10 +22,10 @@ Whether you are fixing wires or installing new parts, a quality soldering iron i
 
 
 
-## <a href="https://www.amazon.com/dp/B087767KNW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
+## <a href="https://www.amazon.com/dp/B087767KNW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B087767KNW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 60W Soldering Iron with 5pc Interchangeable Tips, 10-in-1 Adjustable Temperature Solder Welding Tools, Fast Heating, Electronic Repair, 110V" src="https://m.media-amazon.com/images/I/41rapiHruXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087767KNW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 60W Soldering Iron with 5pc Interchangeable Tips, 10-in-1 Adjustable Temperature Solder Welding Tools, Fast Heating, Electronic Repair, 110V" src="https://m.media-amazon.com/images/I/41rapiHruXL._SL500_.jpg"/></a>
 
 
 The **Soldering Iron Kit, 60W** is ideal for electronics enthusiasts, DIY hobbyists, and professional repair technicians who require a versatile and efficient tool for soldering tasks. If you need a reliable soldering solution for electronic repair, craft projects, or small-scale manufacturing, this kit offers the perfect blend of power, precision, and convenience.
@@ -47,10 +47,10 @@ The **Q-MING 60W Soldering Iron Kit** stands out due to its ability to quickly r
 
 Designed with a compact form factor and lightweight build, this soldering kit is comfortable to use for extended periods, reducing hand fatigue. Additionally, the inclusion of 10 different tools in one kit makes it a comprehensive solution for various repair and crafting needs, ensuring users have everything necessary for efficient solder welding in one package.
 
-## <a href="https://www.amazon.com/dp/B082F1RKTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yihua 926 Iii 60w Soldering Iron Station Kit</a>
+## <a href="https://www.amazon.com/dp/B082F1RKTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yihua 926 Iii 60w Soldering Iron Station Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B082F1RKTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YIHUA 926 III 60W LED Display Soldering Iron Station Kit w 2 Helping Hands, 6 Extra Iron Tips, Roll of Lead-Free Solder, Solder Sucker, S/S Tweezers, °C/ºF Conversion, Auto Sleep &amp; Calibration Support" src="https://m.media-amazon.com/images/I/51ldm12oXUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082F1RKTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YIHUA 926 III 60W LED Display Soldering Iron Station Kit w 2 Helping Hands, 6 Extra Iron Tips, Roll of Lead-Free Solder, Solder Sucker, S/S Tweezers, °C/ºF Conversion, Auto Sleep &amp; Calibration Support" src="https://m.media-amazon.com/images/I/51ldm12oXUL._SL500_.jpg"/></a>
 
 
 The **YIHUA 926 III 60W LED Display Soldering Iron Station Kit** is ideal for electronics hobbyists, DIY enthusiasts, and professionals who require precise and reliable soldering tools. If you are someone working on circuit boards, repairing electronics, or engaging in detailed soldering tasks, this kit offers a comprehensive solution with versatile accessories and advanced features to enhance your workflow.
@@ -75,10 +75,10 @@ The **YIHUA 926 III soldering station** offers a robust combination of power and
 
 Additionally, the kit’s thoughtful accessories, such as the **helping hands**, **solder sucker**, and **tweezers**, provide practical support that enhances efficiency and accuracy. Features like **auto sleep mode** and **calibration support** not only save energy but also maintain consistent performance over time, making this soldering station a reliable tool for both frequent and occasional users.
 
-## <a href="https://www.amazon.com/dp/B08PZBPXLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
+## <a href="https://www.amazon.com/dp/B08PZBPXLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08PZBPXLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 80W 110V Fast Heat up in 10s LCD Digital Adjustable Temperature Soldering Gun Thermostatic Soldering Kit for Electronic" src="https://m.media-amazon.com/images/I/41lyDS64qsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PZBPXLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 80W 110V Fast Heat up in 10s LCD Digital Adjustable Temperature Soldering Gun Thermostatic Soldering Kit for Electronic" src="https://m.media-amazon.com/images/I/41lyDS64qsL._SL500_.jpg"/></a>
 
 
 The **Soldering Iron Kit, 80W 110V Fast Heat up in 10s LCD Digital Adjustable Temperature Soldering Gun Thermostatic Soldering Kit** is ideal for electronics enthusiasts, hobbyists, and professionals who require a reliable and efficient tool for precise soldering tasks. Whether you're assembling circuit boards, repairing electronic devices, or working on DIY projects, this kit offers the versatility and control needed to achieve excellent results.
@@ -100,10 +100,10 @@ Featuring an **80W power rating** and a rapid **10-second heat-up**, this solder
 
 The kit's dimensions—standing at approximately 7.874 inches in length and weighing just 0.275 pounds—make it highly portable and easy to handle, even for prolonged periods. Manufactured by **Liouhoum** and finished in a distinctive **80W-blue**, it combines functionality with a sleek aesthetic. Whether you are a beginner or a seasoned technician, this soldering gun offers the versatility and precision required to tackle a wide range of electronic projects with confidence.
 
-## <a href="https://www.amazon.com/dp/B0B3D96MN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Premium Kit</a>
+## <a href="https://www.amazon.com/dp/B0B3D96MN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Premium Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3D96MN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Premium Kit, 60W Soldering Gun with Ceramic Heater, 12-in-1 Soldering Tool, Adjustable Temperature 200 to 450°C, Includes Soldering Iron Tip, Solder Wire, Pump and Paste" src="https://m.media-amazon.com/images/I/51k0bP+5e6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3D96MN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Premium Kit, 60W Soldering Gun with Ceramic Heater, 12-in-1 Soldering Tool, Adjustable Temperature 200 to 450°C, Includes Soldering Iron Tip, Solder Wire, Pump and Paste" src="https://m.media-amazon.com/images/I/51k0bP+5e6L._SL500_.jpg"/></a>
 
 
 The **Soldering Iron Premium Kit** is perfect for electronics enthusiasts, DIY hobbyists, and professionals who require a reliable and versatile soldering tool. If you need precise control over soldering temperature and a comprehensive kit that includes essential accessories, this **60W soldering gun** with an adjustable temperature range of **200 to 450°C** is an excellent choice.
@@ -126,10 +126,10 @@ The **MEAKEST Soldering Iron Premium Kit** stands out due to its **60W power** c
 
 Additionally, the inclusion of a **12-in-1 soldering tool set** along with **solder wire, pump, and paste** provides everything needed to start soldering right out of the box. The ergonomic design, paired with its lightweight and compact size, offers comfortable handling, reducing hand fatigue during extended use. Overall, this kit delivers excellent value by combining functionality, versatility, and ease of use in one comprehensive package.
 
-## <a href="https://www.amazon.com/dp/B0CLP5Y9JS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
+## <a href="https://www.amazon.com/dp/B0CLP5Y9JS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLP5Y9JS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 100W LED Digital Solder Gun kits with Ceramic Heater, Adjustable Temperature Welding Tools with Tips, Wick Braid, Stand, Solders Wire, Sponge, Flux Paste, Red" src="https://m.media-amazon.com/images/I/51A2JEItuVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLP5Y9JS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 100W LED Digital Solder Gun kits with Ceramic Heater, Adjustable Temperature Welding Tools with Tips, Wick Braid, Stand, Solders Wire, Sponge, Flux Paste, Red" src="https://m.media-amazon.com/images/I/51A2JEItuVL._SL500_.jpg"/></a>
 
 
 The **Soldering Iron Kit, 100W LED Digital Solder Gun** is ideal for hobbyists, electronics enthusiasts, and professionals who require precise and efficient soldering tools. Whether you are assembling circuit boards, repairing electronics, or working on DIY projects, this kit offers a comprehensive solution with adjustable temperature control and essential accessories. Its user-friendly design makes it suitable for both beginners and experienced users looking for reliability and performance.
@@ -153,10 +153,10 @@ The **Q-MING Soldering Iron Kit** stands out with its powerful 100W ceramic heat
 
 Additionally, the kit includes a variety of essential accessories such as solder tips, wick braid, flux paste, and solder wire, providing everything needed to get started immediately. The included stand ensures safety and convenience, preventing accidental burns or damage when the iron is not in use. The lightweight and compact design enhances maneuverability, making it comfortable to use for extended periods without fatigue.
 
-## <a href="https://www.amazon.com/dp/B07RVMZNYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yihua 939d+ Digital Soldering Station</a>
+## <a href="https://www.amazon.com/dp/B07RVMZNYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yihua 939d+ Digital Soldering Station</a>
 
 
-<a href="https://www.amazon.com/dp/B07RVMZNYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YIHUA 939D+ Digital Soldering Station, 75W Equivalent with Precision Heat Control (392°F to 896°F) and Built-in Transformer. ESD Safe, Lead Free with °C/°F display (Black)" src="https://m.media-amazon.com/images/I/51viI+dGSNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RVMZNYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YIHUA 939D+ Digital Soldering Station, 75W Equivalent with Precision Heat Control (392°F to 896°F) and Built-in Transformer. ESD Safe, Lead Free with °C/°F display (Black)" src="https://m.media-amazon.com/images/I/51viI+dGSNL._SL500_.jpg"/></a>
 
 
 The **YIHUA 939D+ Digital Soldering Station** is ideal for electronics enthusiasts, professional technicians, and hobbyists who require precise temperature control for delicate soldering tasks. If you need a reliable, compact, and efficient soldering tool that supports a wide temperature range and offers safety features, this station is designed for you.
@@ -180,10 +180,10 @@ The **YIHUA 939D+ Digital Soldering Station** boasts a wide temperature range fr
 
 Designed with user safety and convenience in mind, the soldering station includes an **ESD safe** feature that protects sensitive components from electrostatic discharge, which is crucial when working with modern electronic devices. The clear digital display with selectable **°C/°F** units makes it easy to monitor and adjust the temperature accurately, improving user control and soldering efficiency. Its compact black design not only looks professional but also fits comfortably in any workspace, making it an excellent choice for both personal and professional use.
 
-## <a href="https://www.amazon.com/dp/B0D41ZMDPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fanttik T1 Max Soldering Iron Kit</a>
+## <a href="https://www.amazon.com/dp/B0D41ZMDPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fanttik T1 Max Soldering Iron Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0D41ZMDPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fanttik T1 Max Soldering Iron Kit, Cordless Soldering Iron, 7 Seconds Fast Heating(390°F-840℉), Auto Sleep, 4 Precision Soldering Tips(C210), 360° Swivel Stand, Soldering Iron for Precision Repair" src="https://m.media-amazon.com/images/I/41ZVMABuiWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D41ZMDPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fanttik T1 Max Soldering Iron Kit, Cordless Soldering Iron, 7 Seconds Fast Heating(390°F-840℉), Auto Sleep, 4 Precision Soldering Tips(C210), 360° Swivel Stand, Soldering Iron for Precision Repair" src="https://m.media-amazon.com/images/I/41ZVMABuiWL._SL500_.jpg"/></a>
 
 
 The **Fanttik T1 Max Soldering Iron Kit** is ideal for electronics enthusiasts, DIY hobbyists, and professionals who require a reliable and efficient soldering tool. If you need a cordless soldering iron that heats up quickly and offers precision for detailed repair work, this kit is designed for you.
@@ -205,10 +205,10 @@ The **Fanttik T1 Max** stands out with its rapid heating capability, reaching op
 
 Equipped with four precision tips, the kit caters to a wide range of soldering needs, from delicate electronics to more robust components. The auto sleep function intelligently preserves battery life, allowing users to focus on their tasks without worrying about frequent recharges. Additionally, the 360° swivel stand not only ensures safety by securely holding the hot iron but also adds to the ergonomic design, making the overall experience efficient and comfortable.
 
-## <a href="https://www.amazon.com/dp/B0BXN5NXFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wep 8786d-i Se Hot Air Soldering Iron Station Kit</a>
+## <a href="https://www.amazon.com/dp/B0BXN5NXFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wep 8786d-i Se Hot Air Soldering Iron Station Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXN5NXFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WEP 8786D-I SE Hot Air Soldering Iron Station Kit 2-IN-1 for Rework, Desoldering with Lead-Free Solder Wire, 5 Soldering Tips, 3 Hot Air Nozzles,Tweezers, Desoldering Pump" src="https://m.media-amazon.com/images/I/511vIMQ7qlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXN5NXFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WEP 8786D-I SE Hot Air Soldering Iron Station Kit 2-IN-1 for Rework, Desoldering with Lead-Free Solder Wire, 5 Soldering Tips, 3 Hot Air Nozzles,Tweezers, Desoldering Pump" src="https://m.media-amazon.com/images/I/511vIMQ7qlL._SL500_.jpg"/></a>
 
 
 The **WEP 8786D-I SE Hot Air Soldering Iron Station Kit 2-IN-1** is ideal for electronics enthusiasts, technicians, and professionals who require a versatile tool for precise rework and desoldering tasks. Whether you're working on delicate circuit boards or repairing electronic components, this kit provides everything needed for efficient and reliable soldering and desoldering, making it perfect for hobbyists and experts alike.
@@ -231,10 +231,10 @@ The **WEP 8786D-I SE** kit integrates both a hot air station and a soldering iro
 
 With a focus on safety and environmental concerns, the inclusion of **lead-free solder wire** supports healthier working conditions. The ergonomic design and additional accessories such as tweezers and a desoldering pump make this kit a comprehensive solution for detailed electronic work, providing users with confidence and improved outcomes in their projects.
 
-## <a href="https://www.amazon.com/dp/B0CZ94B328?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
+## <a href="https://www.amazon.com/dp/B0CZ94B328?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soldering Iron Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ94B328?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 100W Soldering Gun with LED Digital Display, Adjustable Temperature 356-932℉ Solder Kit for Electronics, Includes Soldering Iron Tip, Solder Wire, Stand, Tweezers and Paste, Green" src="https://m.media-amazon.com/images/I/41xsRwce7rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ94B328?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soldering Iron Kit, 100W Soldering Gun with LED Digital Display, Adjustable Temperature 356-932℉ Solder Kit for Electronics, Includes Soldering Iron Tip, Solder Wire, Stand, Tweezers and Paste, Green" src="https://m.media-amazon.com/images/I/41xsRwce7rL._SL500_.jpg"/></a>
 
 
 The **Soldering Iron Kit, 100W Soldering Gun with LED Digital Display** is ideal for electronics hobbyists, DIY enthusiasts, and professionals who require precise temperature control and reliable performance for soldering tasks. If you are looking for a versatile and user-friendly soldering solution to work on circuit boards, repair electronics, or create custom projects, this kit is designed to meet your needs efficiently.
@@ -257,10 +257,10 @@ This **100W soldering gun** features an adjustable temperature range from 356℉
 
 Beyond its powerful heating capabilities, the kit is thoughtfully equipped with practical accessories such as a soldering iron tip, solder wire, stand, tweezers, and paste. These inclusions make it a ready-to-use solution, eliminating the need for additional purchases. The ergonomic, lightweight design combined with the sturdy green casing offers comfort and durability, making it an excellent choice for prolonged soldering sessions in a workshop or on the go.
 
-## <a href="https://www.amazon.com/dp/B09TXP1KDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wep 927-iv Soldering Station Kit</a>
+## <a href="https://www.amazon.com/dp/B09TXP1KDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wep 927-iv Soldering Station Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09TXP1KDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WEP 927-IV Soldering Station Kit High-Power 110W with 3 Preset Channels, Sleep Mode, LED Magnifier, 5 Extra Iron Tips, Tip Cleaner, 2 Helping Hands, Tip Storage Slots, Lead-free Solder Wire, Tweezers" src="https://m.media-amazon.com/images/I/51-97nkYLSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TXP1KDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WEP 927-IV Soldering Station Kit High-Power 110W with 3 Preset Channels, Sleep Mode, LED Magnifier, 5 Extra Iron Tips, Tip Cleaner, 2 Helping Hands, Tip Storage Slots, Lead-free Solder Wire, Tweezers" src="https://m.media-amazon.com/images/I/51-97nkYLSL._SL500_.jpg"/></a>
 
 
 The **WEP 927-IV Soldering Station Kit** is ideal for both professional electronics technicians and hobbyists seeking a reliable, high-performance soldering solution. If you require precise temperature control, versatile tool options, and additional accessories to enhance your soldering projects, this kit is an excellent choice. It is especially suitable for users working on detailed circuit boards or delicate components who need consistent heat delivery and convenient tool management.

@@ -116,7 +116,7 @@ Always make kids wear a helmet when riding the quad bike. A helmet protects thei
 Other protective gear like knee pads, elbow pads, and gloves help prevent scrapes and bruises.
 
 * Use a properly fitting helmet with straps fastened
-* Wear [knee and elbow pads](https://www.amazon.com/s?k=kids+knee+and+elbow+pads+for+riding&tag=gearcookware-20) to protect joints
+* Wear [knee and elbow pads](https://www.amazon.com/s?k=kids+knee+and+elbow+pads+for+riding&tag=mofb05-20) to protect joints
 * Gloves improve grip and protect hands
 * Wear closed-toe shoes to guard feet
 
@@ -154,10 +154,10 @@ Many models come with different features. You can find options for all budgets a
 
 Several brands make popular ride on quad bikes. They focus on safety, battery life, and design.
 
-* [Power Wheels](https://www.amazon.com/s?k=Power+Wheels+quad+bike&tag=gearcookware-20) offers durable and colorful models with easy controls.
+* [Power Wheels](https://www.amazon.com/s?k=Power+Wheels+quad+bike&tag=mofb05-20) offers durable and colorful models with easy controls.
 * Best Choice Products includes models with adjustable speeds and parental remote control.
 * Kid Motorz features realistic designs and strong motors for outdoor play.
-* [Peg Perego](https://www.amazon.com/s?k=Peg+Perego+quad+bike&tag=gearcookware-20) provides Italian-made quad bikes with smooth rides and quality batteries.
+* [Peg Perego](https://www.amazon.com/s?k=Peg+Perego+quad+bike&tag=mofb05-20) provides Italian-made quad bikes with smooth rides and quality batteries.
 
 ### Budget-friendly Options
 
@@ -179,7 +179,7 @@ These models often include safety extras and entertainment options. They suit ol
 * Multiple speed levels and reverse gear
 * Built-in music players and sound effects
 * LED lights and detailed bodywork
-* [Remote control for parents](https://www.amazon.com/s?k=ride+on+quad+bike+with+remote+control&tag=gearcookware-20) to assist riding
+* [Remote control for parents](https://www.amazon.com/s?k=ride+on+quad+bike+with+remote+control&tag=mofb05-20) to assist riding
 * High-capacity batteries for longer use
 
 ## Maintenance And Care
@@ -298,7 +298,7 @@ Yes, they are safe when used with proper supervision and safety gear. Most model
 
 
 
-Ride on toy quad bikes usually use [rechargeable 6V or 12V batteries](https://www.amazon.com/s?k=rechargeable+12v+battery+for+ride+on+toys&tag=gearcookware-20). Battery life typically ranges from 1 to 2 hours of continuous play. Charging time varies but usually takes 8 to 12 hours. Always use the recommended charger.
+Ride on toy quad bikes usually use [rechargeable 6V or 12V batteries](https://www.amazon.com/s?k=rechargeable+12v+battery+for+ride+on+toys&tag=mofb05-20). Battery life typically ranges from 1 to 2 hours of continuous play. Charging time varies but usually takes 8 to 12 hours. Always use the recommended charger.
 
 
 

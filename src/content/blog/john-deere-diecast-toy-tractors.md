@@ -23,10 +23,10 @@ Kids enjoy realistic farm play with sets like the TOMY 26-piece farm toy set. Co
 
 
 
-## <a href="https://www.amazon.com/dp/B00D75PUWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere 7215r Tractor With 1590 Grain Drill Replica</a>
+## <a href="https://www.amazon.com/dp/B00D75PUWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere 7215r Tractor With 1590 Grain Drill Replica</a>
 
 
-<a href="https://www.amazon.com/dp/B00D75PUWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere 7215R Tractor with 1590 Grain Drill Replica - 1:64 Scale - Authentic Die-Cast and Plastic Replica- John Deere Tractor Toys" src="https://m.media-amazon.com/images/I/41kNc5ON2FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D75PUWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere 7215R Tractor with 1590 Grain Drill Replica - 1:64 Scale - Authentic Die-Cast and Plastic Replica- John Deere Tractor Toys" src="https://m.media-amazon.com/images/I/41kNc5ON2FL._SL500_.jpg"/></a>
 
 
 The **ERTL John Deere 7215R Tractor with 1590 Grain Drill Replica** is ideal for **collectors**, **John Deere enthusiasts**, and **children** who enjoy detailed and authentic farm equipment toys. This **1:64 scale model** offers a perfect blend of **durability** and **realistic design**, making it suitable for display or imaginative play. Anyone looking for a high-quality replica that captures the essence of a real John Deere tractor should consider this item.
@@ -49,12 +49,12 @@ The **ERTL John Deere 7215R Tractor with 1590 Grain Drill Replica** stands out w
 
 Designed by **TOMY Intl.**, this model captures the essential features of the real tractor, providing users with an engaging experience whether used for play or as part of a collection. The detailed grain drill attachment adds an extra layer of authenticity, making it perfect for enthusiasts who appreciate agricultural machinery. Overall, this replica combines quality craftsmanship with practical size and design, offering an excellent value for both young fans and adult collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00D75PUWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00D75PUWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B085HN6PK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Ertl Iron Die-cast Tractor, Gator, Skid Steer 3-pack Farm Toys</a>
+## <a href="https://www.amazon.com/dp/B085HN6PK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Ertl Iron Die-cast Tractor, Gator, Skid Steer 3-pack Farm Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B085HN6PK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere ERTL Iron Die-Cast Tractor, Gator, Skid Steer 3-Pack Farm Toys with Collectible Display Box - Officially Licensed - 3 Inch - 3 Count" src="https://m.media-amazon.com/images/I/513oQOjon5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085HN6PK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere ERTL Iron Die-Cast Tractor, Gator, Skid Steer 3-Pack Farm Toys with Collectible Display Box - Officially Licensed - 3 Inch - 3 Count" src="https://m.media-amazon.com/images/I/513oQOjon5L._SL500_.jpg"/></a>
 
 
 The **John Deere ERTL Iron Die-Cast Tractor, Gator, Skid Steer 3-Pack Farm Toys** is perfect for **farm equipment enthusiasts**, **collectors**, and **children** who enjoy realistic and durable miniature models. Ideal for those looking to combine playtime with educational value, this set appeals to anyone who appreciates the craftsmanship of **officially licensed John Deere** replicas.
@@ -76,12 +76,12 @@ The **John Deere ERTL Iron Die-Cast 3-Pack** delivers impressive realism through
 
 Beyond the attractive design, these farm toys offer excellent tactile experience thanks to their durable materials and compact dimensions. Weighing just around **0.1 pounds**, they are easy to carry along for on-the-go play. The officially licensed status guarantees that the models reflect the true details of John Deere equipment, appealing to collectors who seek authenticity. Whether used as educational tools or cherished collectibles, this 3-pack balances playability with display-worthy quality.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B085HN6PK7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B085HN6PK7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000CP4J6O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Tomy John Deere Toy Truck &amp; Toy Tractor With Trailers </a>
+## <a href="https://www.amazon.com/dp/B000CP4J6O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Tomy John Deere Toy Truck &amp; Toy Tractor With Trailers </a>
 
 
-<a href="https://www.amazon.com/dp/B000CP4J6O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOMY John Deere Toy Truck &amp; Toy Tractor With Trailers 26-Piece Farm Toy Value Set" src="https://m.media-amazon.com/images/I/51SxieYOUcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CP4J6O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOMY John Deere Toy Truck &amp; Toy Tractor With Trailers 26-Piece Farm Toy Value Set" src="https://m.media-amazon.com/images/I/51SxieYOUcL._SL500_.jpg"/></a>
 
 
 The **TOMY John Deere Toy Truck & Toy Tractor With Trailers 26-Piece Farm Toy Value Set** is ideal for young children who love imaginative play and have an interest in farming and construction vehicles. This set is perfect for parents or gift-givers looking to encourage creativity, fine motor skills, and role-playing in kids aged 3 and up. It is especially suited for those who appreciate durable, branded toys with a realistic farm theme.
@@ -105,12 +105,12 @@ This 26-piece farm toy value set offers a wonderful combination of a toy truck a
 
 Additionally, the set’s durability ensures it can withstand rough handling, common during active play, making it a long-lasting addition to any child’s toy collection. Parents will appreciate the quality and safety standards maintained by **TOMY Intl.**, while children benefit from the fun and educational value of the toy. This set not only entertains but also fosters developmental skills such as hand-eye coordination, problem-solving, and creativity.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000CP4J6O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000CP4J6O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B004VV8790?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Tractor Toy With J&amp;m Grain Cart</a>
+## <a href="https://www.amazon.com/dp/B004VV8790?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Tractor Toy With J&amp;m Grain Cart</a>
 
 
-<a href="https://www.amazon.com/dp/B004VV8790?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Tractor Toy with J&amp;M Grain Cart - 1:64 Scale - Farm and Construction Toys - Authentic Die-Cast John Deere Tractor Toys - 8 Years and Up" src="https://m.media-amazon.com/images/I/4198QHvkMOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004VV8790?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Tractor Toy with J&amp;M Grain Cart - 1:64 Scale - Farm and Construction Toys - Authentic Die-Cast John Deere Tractor Toys - 8 Years and Up" src="https://m.media-amazon.com/images/I/4198QHvkMOL._SL500_.jpg"/></a>
 
 
 The **ERTL John Deere Tractor Toy with J&M Grain Cart** is ideal for children aged **8 years and up** who have an interest in farming, construction, or collecting authentic die-cast models. It is perfect for young enthusiasts who enjoy imaginative play with detailed and realistic farm equipment, as well as for collectors seeking a high-quality **1:64 scale** replica of iconic John Deere machinery.
@@ -133,12 +133,12 @@ The **ERTL John Deere Tractor Toy** features an authentic design that closely re
 
 Thanks to its compact and lightweight design, children can easily maneuver the tractor and grain cart, allowing for extended play sessions without fatigue. The toy’s vibrant **green color** and detailed decals capture the iconic John Deere look, making it visually appealing and instantly recognizable. Overall, this product combines quality, education, and fun, making it a valuable toy for young fans of farming and construction themes.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B004VV8790?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B004VV8790?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Die-cast Farm Toys Playset</a>
+## <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Die-cast Farm Toys Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B00G4BDHO0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Die-Cast Farm Toys Playset - 1:64 Scale - Includes Farm Animals, Machine Shed, Toy Tractors, Toy Trucks, and Farm Tools - 70 Count - 8 Years and Up" src="https://m.media-amazon.com/images/I/31a29MEeXPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00G4BDHO0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Die-Cast Farm Toys Playset - 1:64 Scale - Includes Farm Animals, Machine Shed, Toy Tractors, Toy Trucks, and Farm Tools - 70 Count - 8 Years and Up" src="https://m.media-amazon.com/images/I/31a29MEeXPL._SL500_.jpg"/></a>
 
 
 The **ERTL John Deere Die-Cast Farm Toys Playset** is ideal for children aged **8 years and up** who have an interest in farming, machinery, and imaginative play. It is perfect for young enthusiasts who enjoy detailed and realistic toy sets that offer both educational and entertainment value. Parents and gift-givers looking for a high-quality, durable playset that encourages creativity and learning about farm life will find this item a great choice.
@@ -161,12 +161,12 @@ The **ERTL John Deere Die-Cast Farm Toys Playset** offers an extensive collectio
 
 Constructed with **die-cast metal** for durability, this playset withstands active play sessions and can be passed down as a collectible item. The **1:64 scale** allows for detailed replicas that appeal to both kids and collectors. Overall, this playset nurtures creativity, motor skills, and practical knowledge about farm life, making it an excellent investment for young learners and hobbyists.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01BYSO37C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Lawn Tractor</a>
+## <a href="https://www.amazon.com/dp/B01BYSO37C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Lawn Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B01BYSO37C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere Lawn Tractor 1/32 Scale, Green, Yellow" src="https://m.media-amazon.com/images/I/41m49A8c0PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01BYSO37C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere Lawn Tractor 1/32 Scale, Green, Yellow" src="https://m.media-amazon.com/images/I/41m49A8c0PL._SL500_.jpg"/></a>
 
 
 The **John Deere Lawn Tractor 1/32 Scale** model is ideal for collectors, hobbyists, and fans of agricultural machinery who appreciate detailed replicas. Whether you are a John Deere enthusiast or looking for a unique gift, this miniature tractor offers a blend of authenticity and charm that suits display purposes and educational collections.
@@ -189,12 +189,12 @@ This **John Deere Lawn Tractor** model stands out with its precise craftsmanship
 
 Beyond its aesthetic appeal, this scale model serves as an educational tool, helping users understand the design and function of lawn tractors on a miniature level. Its sturdy build allows it to be handled safely during display or demonstration, while the bright colors enhance its visual appeal. Overall, this model combines quality, authenticity, and practicality, making it a worthwhile acquisition for anyone interested in agricultural machinery replicas.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01BYSO37C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01BYSO37C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CBT3GTRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/64 8rx 410 Planter Toy</a>
+## <a href="https://www.amazon.com/dp/B0CBT3GTRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/64 8rx 410 Planter Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBT3GTRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/64 8RX 410 w/ 1775NT 24-Row Planter Toy - LP82766" src="https://m.media-amazon.com/images/I/31v6TgYQEVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBT3GTRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/64 8RX 410 w/ 1775NT 24-Row Planter Toy - LP82766" src="https://m.media-amazon.com/images/I/31v6TgYQEVL._SL500_.jpg"/></a>
 
 
 The **John Deere 1/64 8RX 410 w/ 1775NT 24-Row Planter Toy - LP82766** is ideal for collectors and enthusiasts of agricultural models, especially those who appreciate detailed replicas of farming equipment. This toy is perfect for children interested in farming, as well as adults who enjoy adding precise miniature machinery to their collection. If you value authenticity and quality craftsmanship, this item is a great choice.
@@ -215,12 +215,12 @@ The **John Deere 1/64 8RX 410 w/ 1775NT 24-Row Planter Toy** boasts impressive a
 
 Moreover, the toy’s lightweight construction ensures it can be handled easily, whether for imaginative play or display purposes. Being manufactured by **John Deere** itself guarantees a level of authenticity and quality that collectors and fans appreciate. Overall, this model delivers both aesthetic value and functional appeal for those passionate about agricultural equipment replicas.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CBT3GTRL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CBT3GTRL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00OG83OZ0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere 8320r Tractor And Model 637 Disk Set</a>
+## <a href="https://www.amazon.com/dp/B00OG83OZ0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere 8320r Tractor And Model 637 Disk Set</a>
 
 
-<a href="https://www.amazon.com/dp/B00OG83OZ0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere 8320R Tractor and Model 637 Disk Set (1:64 Scale)" src="https://m.media-amazon.com/images/I/41OTVoQD64L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OG83OZ0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere 8320R Tractor and Model 637 Disk Set (1:64 Scale)" src="https://m.media-amazon.com/images/I/41OTVoQD64L._SL500_.jpg"/></a>
 
 
 The **ERTL John Deere 8320R Tractor and Model 637 Disk Set (1:64 Scale)** is perfect for collectors, farming enthusiasts, and children who love detailed and realistic farm equipment replicas. If you are looking for a high-quality, miniature model that accurately represents the iconic John Deere tractor and disk set, this item is an excellent choice. It offers both educational and decorative value, making it ideal for hobbyists and fans of agricultural machinery alike.
@@ -242,12 +242,12 @@ The **ERTL John Deere 8320R Tractor and Model 637 Disk Set** excels in bringing 
 
 Additionally, the model’s black color and carefully crafted features capture the authentic look of the original tractor and disk set. This enhances the visual appeal for collectors and serves as an educational tool for younger users interested in agriculture. The lightweight and compact size make it easy to handle, transport, and store, adding to its convenience. Overall, this set is a valuable addition to any farm model collection or playset, combining quality, realism, and user-friendly design.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00OG83OZ0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00OG83OZ0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BM51R541?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale 435 Die-cast Toy Tractor</a>
+## <a href="https://www.amazon.com/dp/B0BM51R541?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale 435 Die-cast Toy Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B0BM51R541?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale 435 Die-Cast Toy Tractor Ages 8+" src="https://m.media-amazon.com/images/I/41nGDCF5TVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BM51R541?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale 435 Die-Cast Toy Tractor Ages 8+" src="https://m.media-amazon.com/images/I/41nGDCF5TVL._SL500_.jpg"/></a>
 
 
 The **John Deere 1/16 Scale 435 Die-Cast Toy Tractor** is ideal for children aged 8 and above who have a keen interest in farming equipment, model collecting, or imaginative outdoor play. This detailed replica is perfect for young enthusiasts who appreciate authenticity and durability in their toys, as well as collectors looking to add a high-quality piece to their collection.
@@ -269,12 +269,12 @@ The **John Deere 1/16 Scale 435 Die-Cast Toy Tractor** stands out for its remark
 
 Beyond its visual appeal, this toy tractor offers educational benefits by familiarizing young users with farming equipment and encouraging imaginative scenarios related to agriculture and machinery operation. The official **John Deere branding** guarantees authenticity, making it a prized possession for fans of the brand or those interested in agricultural history. Overall, it is a versatile product that blends play, learning, and collecting seamlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BM51R541?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BM51R541?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07SV52KPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 2038r Tractor</a>
+## <a href="https://www.amazon.com/dp/B07SV52KPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 2038r Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B07SV52KPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 2038R Tractor w/Loader" src="https://m.media-amazon.com/images/I/41z2c2T-EXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SV52KPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 2038R Tractor w/Loader" src="https://m.media-amazon.com/images/I/41z2c2T-EXL._SL500_.jpg"/></a>
 
 
 Ideal for collectors and enthusiasts of **farm equipment models**, the **John Deere 1/16 2038R Tractor w/Loader** is perfect for those who appreciate detailed replicas with authentic features. Whether you're a hobbyist looking to expand your collection or a fan of **John Deere's iconic green tractors**, this model offers both realism and quality craftsmanship.
@@ -296,7 +296,7 @@ The **John Deere 1/16 2038R Tractor w/Loader** stands out for its exceptional at
 
 Crafted by **John Deere**, a trusted name in agricultural machinery, this model balances aesthetic appeal with durability. Despite its lightweight nature at just 1.7 pounds, it offers a sturdy build that ensures longevity. For collectors who value authenticity and quality, this tractor model is a valuable addition that celebrates the legacy of **John Deere's** agricultural innovation.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07SV52KPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07SV52KPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -62,8 +62,8 @@ Several factors matter when choosing a boomerang. These include the materials, s
 Good materials help a boomerang last longer. Plastic and wood are common choices. Plastic is light and resists water. Wood feels natural and can be very strong.
 
 * Plastic boomerangs are easy to clean and durable.
-* [Wooden boomerangs](https://www.amazon.com/s?k=wooden+boomerang+for+kids&tag=gearcookware-20) offer a classic look and sturdy feel.
-* [Foam boomerangs](https://www.amazon.com/s?k=foam+boomerang+for+kids&tag=gearcookware-20) are soft and safe for beginners.
+* [Wooden boomerangs](https://www.amazon.com/s?k=wooden+boomerang+for+kids&tag=mofb05-20) offer a classic look and sturdy feel.
+* [Foam boomerangs](https://www.amazon.com/s?k=foam+boomerang+for+kids&tag=mofb05-20) are soft and safe for beginners.
 
 ### Size And Weight Considerations
 
@@ -139,7 +139,7 @@ Playing with boomerangs builds focus, hand-eye coordination, and friendly compet
 
 Set up targets at different distances. Try to hit or get close to the target with the boomerang.
 
-* Use [cones](https://www.amazon.com/s?k=sports+cones+for+kids+outdoor+play&tag=gearcookware-20), buckets, or painted circles as targets.
+* Use [cones](https://www.amazon.com/s?k=sports+cones+for+kids+outdoor+play&tag=mofb05-20), buckets, or painted circles as targets.
 * Start with easy distances and move farther away.
 * Keep score to see who hits the target most times.
 
@@ -203,7 +203,7 @@ Small scratches or cracks can be fixed with simple tools. Repairing early stops 
 Use sandpaper to smooth rough edges. For cracks, apply a safe adhesive and let it dry fully before use.
 
 * Sand rough or sharp edges gently
-* Use [non-toxic glue](https://www.amazon.com/s?k=non-toxic+glue+for+plastic+and+wood&tag=gearcookware-20) for cracks
+* Use [non-toxic glue](https://www.amazon.com/s?k=non-toxic+glue+for+plastic+and+wood&tag=mofb05-20) for cracks
 * Allow glue to dry completely
 * Inspect regularly for new damage
 
@@ -215,7 +215,7 @@ Use sandpaper to smooth rough edges. For cracks, apply a safe adhesive and let i
 
 
 
-[Kids boomerang toys](https://www.amazon.com/s?k=kids+boomerang+outdoor+toy&tag=gearcookware-20) are ideal for children aged 5 and above. They are safe and easy to use, promoting outdoor play and physical activity.
+[Kids boomerang toys](https://www.amazon.com/s?k=kids+boomerang+outdoor+toy&tag=mofb05-20) are ideal for children aged 5 and above. They are safe and easy to use, promoting outdoor play and physical activity.
 
 
 

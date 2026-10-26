@@ -71,7 +71,7 @@ Play domes are made from strong materials that last long outside. They resist we
 
 Safety is key. Materials are smooth with no sharp edges. They meet safety standards for children’s toys.
 
-* [Heavy-duty plastic or metal frames](https://www.amazon.com/s?k=metal+play+dome+climber&tag=gearcookware-20)
+* [Heavy-duty plastic or metal frames](https://www.amazon.com/s?k=metal+play+dome+climber&tag=mofb05-20)
 * Non-toxic, weather-resistant paint
 * Rounded edges to prevent injuries
 * Stable base to avoid tipping
@@ -124,7 +124,7 @@ Choose a dome that fits your child's age and abilities. Younger kids need smalle
 
 Look for domes with clear age recommendations. Features like slide height and climbing difficulty matter.
 
-* [For toddlers, choose low slides and wide steps](https://www.amazon.com/s?k=toddler+play+dome+with+slide&tag=gearcookware-20)
+* [For toddlers, choose low slides and wide steps](https://www.amazon.com/s?k=toddler+play+dome+with+slide&tag=mofb05-20)
 * Older kids can use higher slides and more climbing options
 * Check weight limits to keep play safe
 
@@ -151,7 +151,7 @@ This guide covers tools needed, safety checks, and ways to add accessories for m
 Gather all tools before you start. Lay out parts in an open space. Read instructions carefully to avoid mistakes.
 
 1. Use a screwdriver to secure screws tightly.
-2. Have a [rubber mallet](https://www.amazon.com/s?k=rubber+mallet&tag=gearcookware-20) to fit parts without damage.
+2. Have a [rubber mallet](https://www.amazon.com/s?k=rubber+mallet&tag=mofb05-20) to fit parts without damage.
 3. Keep pliers handy for bending or holding small pieces.
 4. Check that all pieces are included before assembly.
 5. Work with a helper to hold parts steady.
@@ -173,7 +173,7 @@ Check the play dome fully once assembled. Look for loose bolts or sharp edges.
 Add accessories to make the play dome more fun. Choose safe and age-appropriate items.
 
 * Attach climbing ropes or ladders for extra exercise.
-* Use [soft mats](https://www.amazon.com/s?k=outdoor+play+mats&tag=gearcookware-20) around the slide for safer landings.
+* Use [soft mats](https://www.amazon.com/s?k=outdoor+play+mats&tag=mofb05-20) around the slide for safer landings.
 * Add flags or banners for decoration and imagination.
 * Place small storage bins nearby for toys and gear.
 
@@ -254,7 +254,7 @@ Proper storage extends the life of your play dome. Store it safely when not in u
 
 Disassemble the dome if possible. Store in a dry, cool place to prevent damage.
 
-* Cover with a [tarp](https://www.amazon.com/s?k=heavy+duty+tarp&tag=gearcookware-20) to protect from dust
+* Cover with a [tarp](https://www.amazon.com/s?k=heavy+duty+tarp&tag=mofb05-20) to protect from dust
 * Label parts for easy reassembly
 * Check stored parts for pests
 

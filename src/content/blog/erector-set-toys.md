@@ -23,10 +23,10 @@ Brands like MECCANO and MALUVRIAN provide motorized and metal kits for all skill
 
 
 
-## <a href="https://www.amazon.com/dp/B000GOF5S2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meccano Erector Super Construction Motorized Building Set</a>
+## <a href="https://www.amazon.com/dp/B000GOF5S2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meccano Erector Super Construction Motorized Building Set</a>
 
 
-<a href="https://www.amazon.com/dp/B000GOF5S2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MECCANO Erector Super Construction 25-in-1 Motorized Building Set, Steam Education Toy, 638 Parts, for Ages 10+" src="https://m.media-amazon.com/images/I/51BPyBbJGML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GOF5S2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MECCANO Erector Super Construction 25-in-1 Motorized Building Set, Steam Education Toy, 638 Parts, for Ages 10+" src="https://m.media-amazon.com/images/I/51BPyBbJGML._SL500_.jpg"/></a>
 
 
 The **MECCANO Erector Super Construction 25-in-1 Motorized Building Set** is ideal for young enthusiasts aged 10 and above who have a passion for building, engineering, and hands-on learning. Perfect for children and teens interested in **STEAM education**, this toy encourages creativity and problem-solving skills through interactive construction projects. Parents and educators looking for an engaging and educational toy that blends fun with learning will find this set especially valuable.
@@ -49,10 +49,10 @@ The **MECCANO Erector Super Construction Set** stands out for its extensive coll
 
 Designed with durability in mind, the multicolor parts are crafted to withstand repeated assembly and disassembly, promoting long-term use and creativity. The detailed instruction manual ensures that users of different skill levels can successfully build each model, boosting confidence and fostering a sense of accomplishment. Overall, this building set is a compelling choice for anyone eager to explore the exciting world of construction and STEM learning.
 
-## <a href="https://www.amazon.com/dp/B088QPL9R6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maluvrian Erector Set Stem Educational Kit</a>
+## <a href="https://www.amazon.com/dp/B088QPL9R6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maluvrian Erector Set Stem Educational Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B088QPL9R6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MALUVRIAN Erector Set STEM Educational Kit | Construction Set for Boys &amp; Girls | Metal Erector Set | Building Kit for Boys Age 8–12 | 236-Piece Engineering Toy" src="https://m.media-amazon.com/images/I/51N4wvUvvVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B088QPL9R6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MALUVRIAN Erector Set STEM Educational Kit | Construction Set for Boys &amp; Girls | Metal Erector Set | Building Kit for Boys Age 8–12 | 236-Piece Engineering Toy" src="https://m.media-amazon.com/images/I/51N4wvUvvVL._SL500_.jpg"/></a>
 
 
 The **MALUVRIAN Erector Set STEM Educational Kit** is ideal for young builders aged 8 to 12 who are eager to explore the basics of engineering and construction. This kit is perfect for both boys and girls who enjoy hands-on learning and want to develop their problem-solving and creativity skills through play. Parents and educators looking for an engaging and educational toy that combines fun with STEM principles will find this set particularly beneficial.
@@ -75,10 +75,10 @@ The **MALUVRIAN Erector Set** is thoughtfully designed to foster creativity and 
 
 Additionally, the kit’s colorful and sturdy components keep children interested and motivated to complete projects, promoting patience and perseverance. The manageable size and lightweight nature make it easy to use at home or in educational settings. Overall, this construction set combines learning with fun, making it a valuable tool for developing future innovators and problem solvers.
 
-## <a href="https://www.amazon.com/dp/B0CDBX5HY1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Erector Set</a>
+## <a href="https://www.amazon.com/dp/B0CDBX5HY1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Erector Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDBX5HY1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Erector Set for Boys Age 8-12,4 Mini Metal Model Set for Kids,Engineering Metal Building Kit,Learning Construction Truck Building Toys for Boys Age 8-12 DIY STEM Educational Gifts (330pcs)" src="https://m.media-amazon.com/images/I/51xsQCW+jbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDBX5HY1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Erector Set for Boys Age 8-12,4 Mini Metal Model Set for Kids,Engineering Metal Building Kit,Learning Construction Truck Building Toys for Boys Age 8-12 DIY STEM Educational Gifts (330pcs)" src="https://m.media-amazon.com/images/I/51xsQCW+jbL._SL500_.jpg"/></a>
 
 
 The **Erector Set for Boys Age 8-12** is an ideal educational toy for young boys interested in **engineering**, **construction**, and **STEM learning**. Perfect for kids aged 8 to 12, this **DIY metal building kit** encourages creativity, problem-solving skills, and hands-on learning through assembling **mini metal model trucks**. Parents and educators looking to inspire a passion for science and engineering in children will find this set highly beneficial.
@@ -102,10 +102,10 @@ The **Ferthor Fun Erector Set** offers a unique hands-on experience with its 330
 
 Beyond just building toys, this set serves as an excellent educational tool, integrating the principles of **STEM learning** into playtime. By manipulating metal parts and tools, kids develop coordination and problem-solving skills that translate into real-world capabilities. The durable metal components ensure that this set will endure repeated use, making it a valuable gift that combines fun with learning for boys aged 8-12.
 
-## <a href="https://www.amazon.com/dp/B0BYS9YV5R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ulanlan Erector Set Stem Toys</a>
+## <a href="https://www.amazon.com/dp/B0BYS9YV5R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ulanlan Erector Set Stem Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYS9YV5R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ulanlan Erector Set Stem Toys,6 Different Shapes in Total Construction Toys,Educational Construction Learning Toys for Boys &amp; Girls,with Electric Power Motor Children's Toys,307PCS" src="https://m.media-amazon.com/images/I/61ym6KbSncL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYS9YV5R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ulanlan Erector Set Stem Toys,6 Different Shapes in Total Construction Toys,Educational Construction Learning Toys for Boys &amp; Girls,with Electric Power Motor Children's Toys,307PCS" src="https://m.media-amazon.com/images/I/61ym6KbSncL._SL500_.jpg"/></a>
 
 
 The **Ulanlan Erector Set Stem Toys** is ideal for young learners and creative minds who are eager to explore the world of engineering and construction. Perfect for both **boys and girls**, this educational toy set is designed for children who enjoy hands-on building activities and want to develop their STEM (Science, Technology, Engineering, and Mathematics) skills in a fun and interactive way. Parents and educators looking to encourage problem-solving and creativity will find this set particularly beneficial.
@@ -129,10 +129,10 @@ The **Ulanlan Erector Set Stem Toys** offers an engaging experience with its wid
 
 Designed by GUANGDONG KAIYU SCIENCE & EDUCATION CULTURE CO., LTD, this set ensures quality and safety, making it a reliable educational tool. The upgraded version with 6 styles provides versatility, catering to different skill levels and project ideas. By engaging with this construction set, children develop critical thinking, fine motor skills, and patience, all while having fun building their own creations.
 
-## <a href="https://www.amazon.com/dp/B0B849LZR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lecpop 5 In 1 Building Toys Stem Robotics Kit</a>
+## <a href="https://www.amazon.com/dp/B0B849LZR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lecpop 5 In 1 Building Toys Stem Robotics Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B849LZR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LECPOP 5 in 1 Building Toys STEM Robotics Kit, 430 PCS Blocks RC Robot Erector Sets, APP &amp; Remote Control Excavator Science Kits for Kids Age 6 7 8 9 10 11 12-14, DIY Educational Gift for Boys &amp; Girls" src="https://m.media-amazon.com/images/I/61VpsJmoVML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B849LZR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LECPOP 5 in 1 Building Toys STEM Robotics Kit, 430 PCS Blocks RC Robot Erector Sets, APP &amp; Remote Control Excavator Science Kits for Kids Age 6 7 8 9 10 11 12-14, DIY Educational Gift for Boys &amp; Girls" src="https://m.media-amazon.com/images/I/61VpsJmoVML._SL500_.jpg"/></a>
 
 
 The **LECPOP 5 in 1 Building Toys STEM Robotics Kit** is ideal for children aged 6 to 14 who have a keen interest in **science, technology, engineering, and mathematics (STEM)DIY projects** and want to develop critical thinking and creativity.
@@ -156,10 +156,10 @@ The **LECPOP 5 in 1 Building Toys STEM Robotics Kit** offers a rich learning exp
 
 Designed by **SHANTOU QIHUI TOYS INDUSTRIAL CO., LTD**, this kit emphasizes educational value by promoting **critical thinking, creativity, and fine motor skills**. Its compact size and manageable weight make it easy for children to handle and store. By working through the step-by-step building process, kids gain confidence and a deeper understanding of how mechanical parts interact. Ultimately, this kit is a fantastic gift that combines fun with learning, making STEM concepts accessible and exciting for young minds.
 
-## <a href="https://www.amazon.com/dp/B08PSLSFS4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Building Toys Kits 152 Piece Stem Toys Erector Set</a>
+## <a href="https://www.amazon.com/dp/B08PSLSFS4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Building Toys Kits 152 Piece Stem Toys Erector Set</a>
 
 
-<a href="https://www.amazon.com/dp/B08PSLSFS4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Building Toys Kits 152 Piece STEM Toys Erector Set for Boys Creative Construction Engineering Fun Educational Building Blocks Set for Boys and Girls Ages 6 7 8 9 10 11 12 Year Old, Best Toy Gift" src="https://m.media-amazon.com/images/I/51DfMwv9auL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PSLSFS4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Building Toys Kits 152 Piece STEM Toys Erector Set for Boys Creative Construction Engineering Fun Educational Building Blocks Set for Boys and Girls Ages 6 7 8 9 10 11 12 Year Old, Best Toy Gift" src="https://m.media-amazon.com/images/I/51DfMwv9auL._SL500_.jpg"/></a>
 
 
 The **Building Toys Kits 152 Piece STEM Toys Erector Set** is ideal for children aged 6 to 12 years who have a keen interest in **creative construction** and **engineering concepts**. This set is perfect for both boys and girls who enjoy hands-on learning and want to develop their **problem-solving** and **critical thinking skills** through play. Parents and educators looking for an **educational building blocks set** that encourages STEM learning will find this kit an excellent choice.
@@ -182,10 +182,10 @@ The **152-piece STEM Toys Erector Set** by **pynogeez** is designed to provide c
 
 Additionally, this building block set supports the development of **critical thinking** by challenging kids to follow instructions or create their own designs. The compact and portable dimensions make it easy to store and transport, making it a perfect gift for birthdays or educational purposes. Overall, the set combines fun with learning, making it an excellent tool for nurturing a child’s interest in STEM fields.
 
-## <a href="https://www.amazon.com/dp/B08XPW6H3X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maluvrian Erector Set</a>
+## <a href="https://www.amazon.com/dp/B08XPW6H3X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maluvrian Erector Set</a>
 
 
-<a href="https://www.amazon.com/dp/B08XPW6H3X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MALUVRIAN Erector Set for Boys &amp; Girls - Metal Model Kits for Adults, Teens &amp; Advanced Kids - Stem Toys - Build A Robot or Excavator - Educational &amp; Engineering Toys - Building Kit | 389 pcs" src="https://m.media-amazon.com/images/I/61OOf2HW9IL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08XPW6H3X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MALUVRIAN Erector Set for Boys &amp; Girls - Metal Model Kits for Adults, Teens &amp; Advanced Kids - Stem Toys - Build A Robot or Excavator - Educational &amp; Engineering Toys - Building Kit | 389 pcs" src="https://m.media-amazon.com/images/I/61OOf2HW9IL._SL500_.jpg"/></a>
 
 
 The **MALUVRIAN Erector Set for Boys & Girls** is an ideal choice for **advanced kids, teens, and adults** who have a keen interest in **STEM toys, engineering, and model building**. This **educational and engaging building kit** is perfect for those who enjoy hands-on projects and want to develop skills in **mechanical construction** and **problem-solving**. Whether you want to build a **robot** or an **excavator**, this set provides a comprehensive experience for aspiring engineers and creative minds.
@@ -208,10 +208,10 @@ The **MALUVRIAN Erector Set** stands out with its high-quality **metal model kit
 
 Additionally, this **building kit** promotes creativity and perseverance, making it an excellent gift for anyone interested in **engineering toys** and hands-on learning. Its compact dimensions make it portable, allowing users to enjoy building projects anywhere. Overall, the MALUVRIAN Erector Set combines fun and education, making STEM concepts accessible and enjoyable for a wide age range.
 
-## <a href="https://www.amazon.com/dp/B0D2HLGB6L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jxj Excavator Erector Set Toy</a>
+## <a href="https://www.amazon.com/dp/B0D2HLGB6L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jxj Excavator Erector Set Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2HLGB6L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JXJ Excavator Erector Set Toy- Construction Toys for Boys Age 8-12-Construction Vehicle Series STEM Toys-Adult Stress-Relief Building Toy" src="https://m.media-amazon.com/images/I/41TmzkS4uiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2HLGB6L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JXJ Excavator Erector Set Toy- Construction Toys for Boys Age 8-12-Construction Vehicle Series STEM Toys-Adult Stress-Relief Building Toy" src="https://m.media-amazon.com/images/I/41TmzkS4uiL._SL500_.jpg"/></a>
 
 
 The **JXJ Excavator Erector Set Toy** is ideal for **boys aged 8-12** who have a keen interest in **construction vehicles** and enjoy hands-on, educational play. It also suits adults looking for a **stress-relief building toy** that combines creativity with a sense of accomplishment. This **STEM toy** encourages learning in engineering and mechanics while providing hours of engaging entertainment.
@@ -234,10 +234,10 @@ The **JXJ Excavator Erector Set Toy** features a detailed design that mimics rea
 
 Beyond its appeal to children, this toy also serves as an excellent **stress-relief** tool for adults who enjoy building and crafting. The compact dimensions make it easy to handle and store, while the bright green color adds a lively touch to any collection or play area. Overall, the **JXJ Excavator Erector Set** is a versatile toy that blends education, creativity, and relaxation in one engaging package.
 
-## <a href="https://www.amazon.com/dp/B0DY76MFHX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">199pcs Building Blocks Stem Toys</a>
+## <a href="https://www.amazon.com/dp/B0DY76MFHX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">199pcs Building Blocks Stem Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY76MFHX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="199PCS Building Blocks STEM Toys for 3 4 5 6 7 8+ Year Old Boy Girl Birthday Gifts Preschool Educational Building Toys for Kids Ages 3-5 4-8 5-7 6-8 Erector Sets Stem Kits Activities Creative Games" src="https://m.media-amazon.com/images/I/51mKB+bgsgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY76MFHX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="199PCS Building Blocks STEM Toys for 3 4 5 6 7 8+ Year Old Boy Girl Birthday Gifts Preschool Educational Building Toys for Kids Ages 3-5 4-8 5-7 6-8 Erector Sets Stem Kits Activities Creative Games" src="https://m.media-amazon.com/images/I/51mKB+bgsgL._SL500_.jpg"/></a>
 
 
 The **199PCS Building Blocks STEM Toys** are perfect for parents and educators looking to enhance the creativity and problem-solving skills of children aged **3 to 8 years**. Ideal for both boys and girls, these educational building toys serve as excellent birthday gifts or preschool learning tools, encouraging young minds to explore the fundamentals of engineering and design through hands-on play.
@@ -259,10 +259,10 @@ The **Basytodio 199PCS Building Blocks STEM Toys** offer a rich variety of compo
 
 Additionally, the STEM-focused design supports early education in critical fields such as engineering and technology, providing a fun and interactive way for children to grasp complex concepts. The compact dimensions make this set easy to handle, store, and transport, while the colorful and engaging pieces keep children interested and motivated to learn. Overall, this building blocks kit is a valuable investment for nurturing young imaginations and promoting educational growth through play.
 
-## <a href="https://www.amazon.com/dp/B0D4QQLR13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jansfuren Car Model Building Toys Stem Erector Set</a>
+## <a href="https://www.amazon.com/dp/B0D4QQLR13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jansfuren Car Model Building Toys Stem Erector Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4QQLR13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jansfuren Car Model Building Toys STEM Erector Set for Back to School Assembly Metal Jeep, Building Car DIY Interactive Construction Toy for Kids, Boys, and Girls Age 6-14" src="https://m.media-amazon.com/images/I/51eL5ccYnIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4QQLR13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jansfuren Car Model Building Toys STEM Erector Set for Back to School Assembly Metal Jeep, Building Car DIY Interactive Construction Toy for Kids, Boys, and Girls Age 6-14" src="https://m.media-amazon.com/images/I/51eL5ccYnIL._SL500_.jpg"/></a>
 
 
 The **Jansfuren Car Model Building Toys STEM Erector Set** is perfect for children aged **6-14** who have a passion for **building, engineering, and hands-on learning**. Ideal for both **boys and girls**, this set encourages young minds to explore the fundamentals of **STEM (Science, Technology, Engineering, and Mathematics)** through an interactive and engaging **car assembly experience**. It is especially suitable for students returning to school who want to develop critical thinking and fine motor skills while having fun.

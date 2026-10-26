@@ -23,10 +23,10 @@ From the classic 12-inch Captain America to the detailed Teenage Mutant Ninja Tu
 
 
 
-## <a href="https://www.amazon.com/dp/B0F1WL9SD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Naofumi Iwatani - Rising Of The Shield Hero</a>
+## <a href="https://www.amazon.com/dp/B0F1WL9SD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Naofumi Iwatani - Rising Of The Shield Hero</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1WL9SD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Naofumi Iwatani - Rising of The Shield Hero for Lovers &amp; Collectors - with Unmatched Quality That Lasts Long for" src="https://m.media-amazon.com/images/I/51d1DgM1htL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1WL9SD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Naofumi Iwatani - Rising of The Shield Hero for Lovers &amp; Collectors - with Unmatched Quality That Lasts Long for" src="https://m.media-amazon.com/images/I/51d1DgM1htL._SL500_.jpg"/></a>
 
 
 The **Naofumi Iwatani - Rising of The Shield Hero** collectible is perfect for **anime lovers** and **dedicated collectors** who appreciate high-quality merchandise that stands the test of time. If you're someone who values detailed craftsmanship and wants to own a piece representing a beloved character from the acclaimed series, this item is an ideal choice. Whether for display or as a treasured addition to your collection, this figure meets the needs of enthusiasts seeking both aesthetics and durability.
@@ -48,10 +48,10 @@ The **Naofumi Iwatani** figure by **AURUS** boasts a detailed and vibrant multic
 
 Constructed with unmatched quality materials, this collectible ensures longevity and maintains its striking appearance over time. Fans of the series will appreciate the faithful representation of Naofumi, making it not only a decorative piece but also a meaningful tribute to the beloved "Rising of The Shield Hero" universe. This figure is an excellent investment for those seeking durability combined with aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B000BRPAR0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Last Action Hero Dynamite Jack Slater Stunt Figure</a>
+## <a href="https://www.amazon.com/dp/B000BRPAR0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Last Action Hero Dynamite Jack Slater Stunt Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B000BRPAR0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Last Action Hero Dynamite Jack Slater Stunt Figure by Mattel" src="https://m.media-amazon.com/images/I/516zlvcZJeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BRPAR0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Last Action Hero Dynamite Jack Slater Stunt Figure by Mattel" src="https://m.media-amazon.com/images/I/516zlvcZJeL._SL500_.jpg"/></a>
 
 
 The **Last Action Hero Dynamite Jack Slater Stunt Figure by Mattel** is perfect for collectors and fans of action movies who appreciate detailed and dynamic memorabilia. Ideal for those who enjoy recreating iconic stunt scenes or adding a unique piece to their **action figure collection**, this figure offers both aesthetic appeal and playability.
@@ -73,10 +73,10 @@ The **Last Action Hero Dynamite Jack Slater Stunt Figure** stands out due to its
 
 Collectors and enthusiasts will appreciate the authentic representation of the iconic Jack Slater character, which adds a nostalgic touch to any collection. Whether used for imaginative play or as a decorative piece, this stunt figure embodies the thrill of action movies, offering fans a tangible connection to their favorite cinematic moments.
 
-## <a href="https://www.amazon.com/dp/B09PYKMD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poiuyt Super Hero Series Exclusive Figure Set</a>
+## <a href="https://www.amazon.com/dp/B09PYKMD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poiuyt Super Hero Series Exclusive Figure Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09PYKMD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POIUYT Super Hero Series Exclusive Figure Set, 10 Collectible 6.7-Inch Action Figures" src="https://m.media-amazon.com/images/I/51XppJbefQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PYKMD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POIUYT Super Hero Series Exclusive Figure Set, 10 Collectible 6.7-Inch Action Figures" src="https://m.media-amazon.com/images/I/51XppJbefQL._SL500_.jpg"/></a>
 
 
 The **POIUYT Super Hero Series Exclusive Figure Set** is perfect for **collectors**, **superhero enthusiasts**, and **gift buyers** looking for a high-quality, detailed set of action figures. Ideal for those who appreciate intricately designed collectibles, this set offers a diverse range of characters in a compact size, making it suitable for display or play.
@@ -98,10 +98,10 @@ The **POIUYT Super Hero Series Exclusive Figure Set** stands out with its impres
 
 Additionally, the set's weight and build quality provide a satisfying tactile experience, enhancing playability while maintaining collector value. Whether you are a seasoned enthusiast or a casual fan, this exclusive set enriches your collection with iconic figures that celebrate the superhero genre in a compact yet impactful way.
 
-## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
+## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Ultimate Protectors Pack** is ideal for young fans of the Marvel universe, especially boys and girls aged 4 and up who love engaging in imaginative play. This set is perfect for collectors and children who want to bring their favorite superheroes to life with detailed, 6-inch-scale action figures, making it a great choice for birthdays, holidays, or any special occasion.
@@ -124,10 +124,10 @@ The **Marvel Avengers Ultimate Protectors Pack** features eight iconic superhero
 
 Beyond entertainment, this action figure pack helps develop fine motor skills and imaginative thinking in young users. The sturdy build ensures the figures withstand rough handling, making them a long-lasting addition to any toy collection. With the backing of **Marvel** and **Hasbro**, buyers can trust in the quality and authenticity of this superhero toy set.
 
-## <a href="https://www.amazon.com/dp/B0CT8NBQF7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playstation The Last Of Us 2-pack Joel &amp; Ellie Action Figures</a>
+## <a href="https://www.amazon.com/dp/B0CT8NBQF7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playstation The Last Of Us 2-pack Joel &amp; Ellie Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0CT8NBQF7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PlayStation The Last of US, 2-Pack 6” Joel &amp; Ellie Action Figures with 19 Accessories, The Shapes Collection, for PS5 Fans &amp; Collectors Ages 17+" src="https://m.media-amazon.com/images/I/41azOuXWu6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT8NBQF7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PlayStation The Last of US, 2-Pack 6” Joel &amp; Ellie Action Figures with 19 Accessories, The Shapes Collection, for PS5 Fans &amp; Collectors Ages 17+" src="https://m.media-amazon.com/images/I/41azOuXWu6L._SL500_.jpg"/></a>
 
 
 Ideal for avid **PlayStation** enthusiasts and dedicated fans of **The Last of Us** series, the **PlayStation The Last of US, 2-Pack 6” Joel & Ellie Action Figures** is perfect for collectors aged **17+** who appreciate detailed memorabilia. This set appeals especially to those who want to showcase their passion for the iconic characters **Joel** and **Ellie** with finely crafted figures and a range of accessories that enhance display possibilities.
@@ -150,10 +150,10 @@ The **PlayStation The Last of US, 2-Pack** stands out due to its meticulous atte
 
 Beyond aesthetics, the figures are designed with durability and articulation in mind, enabling fans to pose them in various stances while maintaining stability. The compact size fits comfortably on shelves or display cases without overwhelming space, making it ideal for both casual collectors and dedicated fans. Manufactured by **Spin Master** under the **PlayStation** brand, this set guarantees quality and authenticity, making it a must-have for any serious **PS5 fan** or memorabilia enthusiast.
 
-## <a href="https://www.amazon.com/dp/B076JPRXKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Deadpool 12-inch Action Figure</a>
+## <a href="https://www.amazon.com/dp/B076JPRXKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Deadpool 12-inch Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B076JPRXKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Deadpool 12-Inch Action Figure with Accessory, Super Hero Toys for Fans Ages 14 and Up" src="https://m.media-amazon.com/images/I/41h4SiZ2dtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076JPRXKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Deadpool 12-Inch Action Figure with Accessory, Super Hero Toys for Fans Ages 14 and Up" src="https://m.media-amazon.com/images/I/41h4SiZ2dtL._SL500_.jpg"/></a>
 
 
 The **Marvel Deadpool 12-Inch Action Figure with Accessory** is ideal for avid **Marvel fans** and collectors aged 14 and up who appreciate detailed **superhero toys**. Whether you're a long-time enthusiast of the **Deadpool** character or looking for a unique addition to your action figure collection, this item offers both display value and interactive play options.
@@ -176,10 +176,10 @@ The **Marvel Deadpool 12-Inch Action Figure** stands out with its impressive siz
 
 This action figure’s dimensions (12.0 inches height, 4.0 inches width, and 2.0 inches length) provide a balanced profile for both posing and storage. Its lightweight design makes it easy to handle while maintaining a sturdy feel. As a **standard edition**, it offers great value for fans seeking a collectible that fits well within a broader **Marvel** collection without the premium price tag of limited editions. Overall, it’s an excellent choice for enthusiasts looking to celebrate one of Marvel's most popular antiheroes.
 
-## <a href="https://www.amazon.com/dp/B08PHZJJ62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Endgame Titan Hero Series 12" Action Figures</a>
+## <a href="https://www.amazon.com/dp/B08PHZJJ62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Endgame Titan Hero Series 12" Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B08PHZJJ62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (4="" action="" alt="Avengers Marvel Endgame Titan Hero Series 12" america,="" and="" black="" captain="" figures="" figures)"="" iron="" man="" panther,="" spider,="" src="https://m.media-amazon.com/images/I/51OUqFChNxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PHZJJ62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (4="" action="" alt="Avengers Marvel Endgame Titan Hero Series 12" america,="" and="" black="" captain="" figures="" figures)"="" iron="" man="" panther,="" spider,="" src="https://m.media-amazon.com/images/I/51OUqFChNxL._SL500_.jpg"/></a>
 
 
 The **Avengers Marvel Endgame Titan Hero Series 12" Action Figures** are perfect for fans of the Marvel universe, especially collectors and children who enjoy imaginative play with their favorite superheroes. Ideal for those who want to bring iconic characters like **Captain America**, **Iron Spider**, **Black Panther**, and **Iron Man** to life, this set appeals to both young enthusiasts and adult Marvel aficionados seeking detailed and durable action figures.
@@ -202,10 +202,10 @@ Each figure in the **Avengers Marvel Endgame Titan Hero Series** stands at an im
 
 Beyond aesthetics, these action figures provide tangible benefits for users by encouraging creativity and storytelling through imaginative play. The size and detail level make them ideal for display, enhancing any Marvel collection. Whether used for interactive play or as collectible items, these figures bring the thrill of the Avengers directly into the hands of fans, making them a valuable addition to any Marvel merchandise lineup.
 
-## <a href="https://www.amazon.com/dp/B0CXN1VRXC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neca Teenage Mutant Ninja Turtles Ultimate Leonardo</a>
+## <a href="https://www.amazon.com/dp/B0CXN1VRXC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neca Teenage Mutant Ninja Turtles Ultimate Leonardo</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXN1VRXC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NECA Teenage Mutant Ninja Turtles (The Last Ronin) - 1:7 Scale Collectible Action Figure, Ultimate Leonardo" src="https://m.media-amazon.com/images/I/41kDSwzAy5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXN1VRXC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NECA Teenage Mutant Ninja Turtles (The Last Ronin) - 1:7 Scale Collectible Action Figure, Ultimate Leonardo" src="https://m.media-amazon.com/images/I/41kDSwzAy5L._SL500_.jpg"/></a>
 
 
 The **NECA Teenage Mutant Ninja Turtles (The Last Ronin) - 1:7 Scale Collectible Action Figure, Ultimate Leonardo** is ideal for avid collectors and fans of the Teenage Mutant Ninja Turtles franchise who appreciate high-quality, detailed action figures. This item is perfect for those who want to add a unique and authentic piece from the iconic series to their collection, especially fans of the darker, more mature storyline presented in The Last Ronin.
@@ -228,10 +228,10 @@ This **Ultimate Leonardo** action figure stands out due to its meticulous attent
 
 Manufactured by **NECA**, a trusted name in collectibles, this figure promises durability and quality craftsmanship. Fans will appreciate the balance between aesthetic appeal and practical size, making it a great addition for both seasoned collectors and those looking to start their Teenage Mutant Ninja Turtles memorabilia. Overall, this figure offers a blend of style, authenticity, and collectible value that enhances any collection.
 
-## <a href="https://www.amazon.com/dp/B0CBKQK284?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Studios Captain America Brave New World Titan Hero Series 12-inch Captain America Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0CBKQK284?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Studios Captain America Brave New World Titan Hero Series 12-inch Captain America Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBKQK284?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Studios Captain America Brave New World, Titan Hero Series, 12-Inch Captain America Action Figure, Super Hero Toys for Kids 4 and Up" src="https://m.media-amazon.com/images/I/41VbWf+CF-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBKQK284?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Studios Captain America Brave New World, Titan Hero Series, 12-Inch Captain America Action Figure, Super Hero Toys for Kids 4 and Up" src="https://m.media-amazon.com/images/I/41VbWf+CF-L._SL500_.jpg"/></a>
 
 
 Ideal for young **Marvel fans** and collectors alike, the **Marvel Studios Captain America Brave New World, Titan Hero Series, 12-Inch Captain America Action Figure** is perfect for kids aged 4 and up who love superhero play and imaginative adventures. This action figure offers a great way to bring the excitement of Captain America's heroic journeys into everyday playtime.
@@ -254,10 +254,10 @@ The **Captain America action figure** stands out with its impressive **12.008-in
 
 Crafted by **Marvel** and produced by **Hasbro**, this figure guarantees quality and durability suitable for active play. While it is a **standard edition**, its compatibility with other figures in the **Titan Hero Series** allows users to build a larger superhero universe. This makes it an excellent choice for both solo play and group adventures, inspiring kids to create their own heroic narratives with Captain America at the center.
 
-## <a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Ninja Strike 12" Batman Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Ninja Strike 12" Batman Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3="" action="" ages="" alt="DC Comics, Batman™ Ninja Strike 12" and="" batman="" boys="" collectible="" figure,="" for="" girls="" hero="" kids="" src="https://m.media-amazon.com/images/I/41Syx3cbzqL._SL500_.jpg" super="" toys="" up"=""/></a>
+<a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3="" action="" ages="" alt="DC Comics, Batman™ Ninja Strike 12" and="" batman="" boys="" collectible="" figure,="" for="" girls="" hero="" kids="" src="https://m.media-amazon.com/images/I/41Syx3cbzqL._SL500_.jpg" super="" toys="" up"=""/></a>
 
 
 The **DC Comics, Batman™ Ninja Strike 12" Batman Action Figure** is perfect for young fans of superheroes, especially those who admire the iconic **Batman** character. Designed for **boys and girls ages 3 & up**, this collectible toy is ideal for children who enjoy imaginative play and collectors who appreciate detailed superhero figures. It’s also a great gift for anyone who loves the DC Comics universe and wants to add a dynamic figure to their collection.

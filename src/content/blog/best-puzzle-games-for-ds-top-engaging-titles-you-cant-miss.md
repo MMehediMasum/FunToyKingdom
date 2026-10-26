@@ -23,10 +23,10 @@ Fans of cartoons enjoy Looney Tunes: Duck Amuck, which mixes humor with puzzles.
 
 
 
-## <a href="https://www.amazon.com/dp/B002TDIENG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzler World</a>
+## <a href="https://www.amazon.com/dp/B002TDIENG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzler World</a>
 
 
-<a href="https://www.amazon.com/dp/B002TDIENG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzler World - Nintendo DS" src="https://m.media-amazon.com/images/I/61isM5jwq7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002TDIENG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzler World - Nintendo DS" src="https://m.media-amazon.com/images/I/61isM5jwq7L._SL500_.jpg"/></a>
 
 
 The **Puzzler World - Nintendo DS** is an excellent choice for puzzle enthusiasts and gamers who enjoy brain-teasing challenges on the go. Ideal for both casual players and dedicated puzzle lovers, this game offers a variety of engaging puzzles that cater to different skill levels and preferences. If you're looking for a portable gaming experience that sharpens your mind and provides endless entertainment, this title is perfect for you.
@@ -48,10 +48,10 @@ Featuring a compact size with dimensions of **0.6 inches height, 4.9 inches widt
 
 Developed by **Atari**, a trusted name in the gaming industry, this puzzle collection guarantees reliable gameplay and engaging content. Users benefit from the intuitive controls and the versatility of the Nintendo DS platform, allowing for a smooth and enjoyable gaming experience. Whether you're commuting, traveling, or simply relaxing at home, **Puzzler World** provides an excellent way to keep your mind sharp and entertained.
 
-## <a href="https://www.amazon.com/dp/B0019C6KC0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzler Collection</a>
+## <a href="https://www.amazon.com/dp/B0019C6KC0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzler Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B0019C6KC0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzler Collection - Nintendo DS" src="https://m.media-amazon.com/images/I/515T7ZlI-OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0019C6KC0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzler Collection - Nintendo DS" src="https://m.media-amazon.com/images/I/515T7ZlI-OL._SL500_.jpg"/></a>
 
 
 The **Puzzler Collection - Nintendo DS** is perfect for puzzle enthusiasts and casual gamers looking for a variety of brain-teasing challenges on the go. Ideal for players who enjoy stimulating their mind with diverse puzzle games, this collection offers engaging gameplay suitable for all ages and skill levels. Whether you're a student, professional, or retiree, this game provides an entertaining way to sharpen your problem-solving skills.
@@ -74,10 +74,10 @@ The **Puzzler Collection** for **Nintendo DS** combines multiple puzzle games in
 
 Developed by **Destination Software** and **Zoo Games**, this standard edition delivers consistent quality and a user-friendly interface tailored to the Nintendo DS system. Its diverse puzzle types ensure that users experience different gameplay styles, preventing monotony and encouraging prolonged engagement. Overall, the Puzzler Collection is a valuable addition for anyone looking to enhance cognitive skills while enjoying portable entertainment.
 
-## <a href="https://www.amazon.com/dp/B000UCMI4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzle Games Sudoku Edition</a>
+## <a href="https://www.amazon.com/dp/B000UCMI4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzle Games Sudoku Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B000UCMI4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzle Games Sudoku Edition - Nintendo DS" src="https://m.media-amazon.com/images/I/51Mv4RBN-oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000UCMI4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzle Games Sudoku Edition - Nintendo DS" src="https://m.media-amazon.com/images/I/51Mv4RBN-oL._SL500_.jpg"/></a>
 
 
 The **Puzzle Games Sudoku Edition - Nintendo DS** is ideal for puzzle enthusiasts and casual gamers who enjoy challenging their logical thinking and problem-solving skills. This game suits players of all ages who appreciate classic number puzzles and want a portable, engaging experience on their **Nintendo DS** device. Whether you're a beginner or an expert in **Sudoku**, this edition offers a variety of difficulty levels to keep you entertained.
@@ -100,10 +100,10 @@ The **Puzzle Games Sudoku Edition** leverages the portability of the **Nintendo 
 
 With its focus on classic **Sudoku** gameplay, this edition helps users sharpen their mind and improve logical thinking, which can translate to better cognitive function in daily activities. While it may lack some modern features and additional puzzle variations, its straightforward design and engaging puzzles make it a reliable and enjoyable addition to any **Nintendo DS** game collection. Overall, it is a solid choice for anyone looking to dive into the world of Sudoku puzzles.
 
-## <a href="https://www.amazon.com/dp/B0028Q7JEY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safecracker: The Ultimate Puzzle Adventure</a>
+## <a href="https://www.amazon.com/dp/B0028Q7JEY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safecracker: The Ultimate Puzzle Adventure</a>
 
 
-<a href="https://www.amazon.com/dp/B0028Q7JEY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Safecracker: The Ultimate Puzzle Adventure - Nintendo DS" src="https://m.media-amazon.com/images/I/51FL4rk+-mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0028Q7JEY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Safecracker: The Ultimate Puzzle Adventure - Nintendo DS" src="https://m.media-amazon.com/images/I/51FL4rk+-mL._SL500_.jpg"/></a>
 
 
 **Safecracker: The Ultimate Puzzle Adventure - Nintendo DS** is perfect for puzzle enthusiasts and gamers who enjoy challenging brain teasers and interactive problem-solving experiences. Ideal for players looking for a mentally stimulating game that combines mystery and strategy, this game appeals to both casual and dedicated puzzle solvers.
@@ -126,10 +126,10 @@ The game’s design leverages the **Nintendo DS**’s dual-screen and touchscree
 
 Additionally, the compact dimensions and lightweight nature of the cartridge (only 0.28 pounds) make it highly portable, enabling users to enjoy this ultimate puzzle adventure wherever they go. With its blend of intricate puzzles and a clear, user-friendly interface, **Safecracker: The Ultimate Puzzle Adventure** offers a rewarding challenge that sharpens critical thinking and problem-solving skills.
 
-## <a href="https://www.amazon.com/dp/B000UZRP7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Looney Tunes: Duck Amuck</a>
+## <a href="https://www.amazon.com/dp/B000UZRP7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Looney Tunes: Duck Amuck</a>
 
 
-<a href="https://www.amazon.com/dp/B000UZRP7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Looney Tunes: Duck Amuck - Nintendo DS" src="https://m.media-amazon.com/images/I/51GP6GnmrRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000UZRP7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Looney Tunes: Duck Amuck - Nintendo DS" src="https://m.media-amazon.com/images/I/51GP6GnmrRL._SL500_.jpg"/></a>
 
 
 The **Looney Tunes: Duck Amuck - Nintendo DS** is ideal for fans of classic cartoons and gamers who enjoy interactive and humorous gameplay. If you appreciate the antics of **Daffy Duck** and want a unique gaming experience that combines creativity with fun challenges, this game is a perfect choice. It is especially suited for players looking for a light-hearted game with nostalgic appeal and innovative mechanics.
@@ -152,10 +152,10 @@ The **Looney Tunes: Duck Amuck - Nintendo DS** leverages the unique capabilities
 
 Moreover, the game’s compact size, with dimensions of approximately 5.25 inches by 4.75 inches and a weight of just 0.2 pounds, makes it highly portable. Players can enjoy their favorite Looney Tunes character anytime and anywhere, making it an excellent companion for travel or short gaming sessions. Backed by **WB Games** and **Warner Bros**, the title maintains a faithful representation of the beloved cartoon series, ensuring fans receive an authentic and quality experience.
 
-## <a href="https://www.amazon.com/dp/B0045EI7IE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Touchmaster: Connect</a>
+## <a href="https://www.amazon.com/dp/B0045EI7IE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Touchmaster: Connect</a>
 
 
-<a href="https://www.amazon.com/dp/B0045EI7IE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Touchmaster: Connect - Nintendo DS" src="https://m.media-amazon.com/images/I/51ncFVACwRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0045EI7IE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Touchmaster: Connect - Nintendo DS" src="https://m.media-amazon.com/images/I/51ncFVACwRL._SL500_.jpg"/></a>
 
 
 The **Touchmaster: Connect - Nintendo DS** is ideal for gamers who enjoy casual and puzzle-based gameplay on the go. Perfect for both beginners and seasoned players looking for a fun and engaging way to sharpen their mind, this game offers accessible challenges suited for all ages. If you appreciate a mix of classic and modern puzzle games with the convenience of the **Nintendo DS** platform, this title is a great addition to your collection.
@@ -177,10 +177,10 @@ The **Touchmaster: Connect** on **Nintendo DS** boasts a streamlined design by *
 
 Additionally, the game's standard edition focuses on delivering core gameplay without overwhelming players with unnecessary features. This ensures a smooth, distraction-free experience that emphasizes mental agility and casual entertainment. Overall, **Touchmaster: Connect** offers a well-rounded puzzle collection tailored to those who value fun and cognitive challenge in a portable package.
 
-## <a href="https://www.amazon.com/dp/B000C4088S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Monkey Ball Touch &amp; Roll</a>
+## <a href="https://www.amazon.com/dp/B000C4088S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Monkey Ball Touch &amp; Roll</a>
 
 
-<a href="https://www.amazon.com/dp/B000C4088S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Monkey Ball Touch &amp; Roll - Nintendo DS" src="https://m.media-amazon.com/images/I/61hmmMYxJAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000C4088S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Monkey Ball Touch &amp; Roll - Nintendo DS" src="https://m.media-amazon.com/images/I/61hmmMYxJAL._SL500_.jpg"/></a>
 
 
 The **Super Monkey Ball Touch & Roll - Nintendo DS** is perfect for gamers who enjoy fast-paced, skill-based puzzle games with a fun and challenging twist. Ideal for players of all ages who appreciate vibrant graphics, intuitive touch controls, and engaging gameplay, this game offers hours of entertainment for both casual and dedicated Nintendo DS users. If you’re looking for a unique gaming experience that combines strategy, precision, and fun, this title is a great choice.
@@ -203,10 +203,10 @@ The **Super Monkey Ball Touch & Roll** takes full advantage of the Nintendo DS�
 
 Additionally, the game’s compact size and lightweight nature make it an excellent option for gaming on the go. Developed by the trusted brand **SEGA** and manufactured by **Sega of America, Inc.**, it guarantees quality in both design and functionality. Whether you’re a casual gamer looking for a fun challenge or a seasoned player seeking precision and skill-based gameplay, Super Monkey Ball Touch & Roll offers a satisfying and entertaining experience that fits perfectly within the portable Nintendo DS platform.
 
-## <a href="https://www.amazon.com/dp/B003S2L66Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wheel Of Fortune</a>
+## <a href="https://www.amazon.com/dp/B003S2L66Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wheel Of Fortune</a>
 
 
-<a href="https://www.amazon.com/dp/B003S2L66Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wheel Of Fortune - Nintendo DS" src="https://m.media-amazon.com/images/I/61EMpfVKFCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003S2L66Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wheel Of Fortune - Nintendo DS" src="https://m.media-amazon.com/images/I/61EMpfVKFCL._SL500_.jpg"/></a>
 
 
 The **Wheel Of Fortune - Nintendo DS** is ideal for fans of classic game shows and puzzle enthusiasts who enjoy interactive and engaging gameplay on the go. If you love testing your word-solving skills and crave a fun, competitive experience, this game is perfect for players of all ages looking for entertainment on their **Nintendo DS** handheld console.
@@ -229,10 +229,10 @@ The **Wheel Of Fortune - Nintendo DS** brings the excitement of the beloved TV g
 
 Developed and manufactured by **THQ**, this game offers a reliable and fun experience that stays true to the original show's format. The portability combined with classic gameplay makes it an excellent choice for casual gamers and puzzle lovers seeking a nostalgic yet fresh challenge. Overall, it’s an entertaining title that brings hours of fun to the **Nintendo DS** community.
 
-## <a href="https://www.amazon.com/dp/B001OHWQAA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">7 Wonders 2</a>
+## <a href="https://www.amazon.com/dp/B001OHWQAA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">7 Wonders 2</a>
 
 
-<a href="https://www.amazon.com/dp/B001OHWQAA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="7 Wonders 2 - Nintendo DS" src="https://m.media-amazon.com/images/I/61OWMNIG2xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001OHWQAA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="7 Wonders 2 - Nintendo DS" src="https://m.media-amazon.com/images/I/61OWMNIG2xL._SL500_.jpg"/></a>
 
 
 The **7 Wonders 2 - Nintendo DS** is ideal for gamers who enjoy immersive puzzle and strategy games on the go. Perfect for both casual players and dedicated Nintendo DS enthusiasts, this game offers engaging gameplay that combines historical themes with challenging levels, making it a great choice for those looking to expand their handheld gaming collection.
@@ -255,10 +255,10 @@ The **7 Wonders 2 - Nintendo DS** features a compact size with dimensions of app
 
 This edition offers a compelling blend of strategic puzzle gameplay and historical themes, immersing players in the fascinating world of ancient wonders. Users can experience a diverse range of challenges that not only entertain but also encourage critical thinking and problem-solving skills. The game's intuitive controls and thoughtfully designed levels provide a rewarding experience for both novice and seasoned Nintendo DS players alike.
 
-## <a href="https://www.amazon.com/dp/B000U5TVGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nintendo Crossword Nds</a>
+## <a href="https://www.amazon.com/dp/B000U5TVGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nintendo Crossword Nds</a>
 
 
-<a href="https://www.amazon.com/dp/B000U5TVGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nintendo Crossword NDS - Nintendo DS - Nintendo DS" src="https://m.media-amazon.com/images/I/41G3vmY8yYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000U5TVGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nintendo Crossword NDS - Nintendo DS - Nintendo DS" src="https://m.media-amazon.com/images/I/41G3vmY8yYL._SL500_.jpg"/></a>
 
 
 The **Nintendo Crossword NDS** is perfect for puzzle enthusiasts and Nintendo DS owners looking to enhance their gaming experience with a mentally stimulating challenge. Ideal for individuals who enjoy word games and want a portable, engaging way to sharpen their vocabulary and problem-solving skills on the go.

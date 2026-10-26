@@ -23,10 +23,10 @@ Many crafts also make great gifts, helping kids share their art with family and 
 
 
 
-## <a href="https://www.amazon.com/dp/B07M6CDS77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coo&amp;koo Charm Bracelet Making Kit</a>
+## <a href="https://www.amazon.com/dp/B07M6CDS77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coo&amp;koo Charm Bracelet Making Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07M6CDS77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COO&amp;KOO Charm Bracelet Making Kit, A Unicorn Girls Toy That Inspires Creativity and Imagination, Crafts for Girls Ages 8-12 with Jewelry Making Kit Perfect Gifts for 6 7 8 9 10 Girl Self-Expression!" src="https://m.media-amazon.com/images/I/51rRZdpKguL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07M6CDS77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="COO&amp;KOO Charm Bracelet Making Kit, A Unicorn Girls Toy That Inspires Creativity and Imagination, Crafts for Girls Ages 8-12 with Jewelry Making Kit Perfect Gifts for 6 7 8 9 10 Girl Self-Expression!" src="https://m.media-amazon.com/images/I/51rRZdpKguL._SL500_.jpg"/></a>
 
 
 The **COO&KOO Charm Bracelet Making Kit** is ideal for young girls aged **8-12** who love to express their creativity and imagination through arts and crafts. This kit is perfect for parents or gift-givers looking for a fun and engaging activity that encourages self-expression and fine motor skills development in children. It’s especially suitable for girls who are fascinated by unicorns and enjoy making personalized jewelry.
@@ -49,10 +49,10 @@ The **COO&KOO Charm Bracelet Making Kit** features a delightful **unicorn design
 
 Beyond the fun, this kit supports the development of fine motor skills, hand-eye coordination, and patience as children carefully assemble their bracelets. It also fosters confidence and a sense of accomplishment as they proudly wear or gift their handmade creations. Overall, the **COO&KOO Charm Bracelet Making Kit** is a wonderful blend of creativity, learning, and play, making it a standout choice for girls who love crafts and self-expression.
 
-## <a href="https://www.amazon.com/dp/B0F9WHCL19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skillmatics 3d Art Kit - Aqua Puffs Animals</a>
+## <a href="https://www.amazon.com/dp/B0F9WHCL19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skillmatics 3d Art Kit - Aqua Puffs Animals</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9WHCL19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skillmatics 3D Art Kit - Aqua Puffs Animals, Mess-Free Paint by Number Craft for Kids, DIY Color &amp; Inflate Activity, Travel &amp; Creative Gift for Girls &amp; Boys Ages 4, 5, 6, 7, 8, 9, 10" src="https://m.media-amazon.com/images/I/51pvNiYpkzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9WHCL19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skillmatics 3D Art Kit - Aqua Puffs Animals, Mess-Free Paint by Number Craft for Kids, DIY Color &amp; Inflate Activity, Travel &amp; Creative Gift for Girls &amp; Boys Ages 4, 5, 6, 7, 8, 9, 10" src="https://m.media-amazon.com/images/I/51pvNiYpkzL._SL500_.jpg"/></a>
 
 
 The **Skillmatics 3D Art Kit - Aqua Puffs Animals** is perfect for young children aged 4 to 10 who enjoy hands-on, creative activities. This kit is ideal for parents, teachers, or caregivers looking for a **mess-free, engaging art project** that encourages kids to explore their artistic talents while developing fine motor skills and creativity. It’s especially suited for children who love DIY crafts and want a fun way to create colorful, inflatable 3D art pieces.
@@ -74,10 +74,10 @@ The **Skillmatics 3D Art Kit** features a unique combination of paint-by-number 
 
 Moreover, this kit boosts key developmental skills such as hand-eye coordination, patience, and color recognition. The step-by-step instructions help young artists feel a sense of accomplishment as they see their creations come to life. With the **multicolor palette** and interactive inflating feature, children stay engaged and excited throughout the activity, turning a simple craft into a memorable, fun-filled experience.
 
-## <a href="https://www.amazon.com/dp/B0BWMPGFVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dowsabel Clay Beads Bracelet Making Kit</a>
+## <a href="https://www.amazon.com/dp/B0BWMPGFVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dowsabel Clay Beads Bracelet Making Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWMPGFVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dowsabel Clay Beads Bracelet Making Kit for Beginner, 5000 Pcs Preppy Polymer Clay Beads with Charms Kit for Jewelry Making, DIY Arts and Crafts Birthday Gifts Toys for Kids Age 6-13" src="https://m.media-amazon.com/images/I/51Qo93pvGAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWMPGFVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dowsabel Clay Beads Bracelet Making Kit for Beginner, 5000 Pcs Preppy Polymer Clay Beads with Charms Kit for Jewelry Making, DIY Arts and Crafts Birthday Gifts Toys for Kids Age 6-13" src="https://m.media-amazon.com/images/I/51Qo93pvGAL._SL500_.jpg"/></a>
 
 
 The **Dowsabel Clay Beads Bracelet Making Kit** is perfect for **children aged 6-13** who are interested in arts and crafts, as well as beginners eager to explore jewelry making. This kit provides a fun and creative outlet for kids to develop their fine motor skills and artistic expression while making colorful, personalized accessories.
@@ -100,10 +100,10 @@ The **Dowsabel Clay Beads Bracelet Making Kit** comes with an ample quantity of 
 
 Designed with beginners in mind, the kit encourages young users to develop their dexterity and design skills. The variety of beads and charms included offers a hands-on learning experience in crafting, promoting patience and creativity. Additionally, the kit makes for an excellent birthday gift or a fun activity that keeps children engaged in a screen-free hobby, enhancing their artistic abilities while having fun.
 
-## <a href="https://www.amazon.com/dp/B0C6Q78489?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diamond Painting Kits Wind Chimes Crystal Window Suncatcher</a>
+## <a href="https://www.amazon.com/dp/B0C6Q78489?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diamond Painting Kits Wind Chimes Crystal Window Suncatcher</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6Q78489?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crafts for Kids Ages 8-12, Birthday Gifts Presents for 6 7 8 9 10 11 Year Old Girls Diamond Painting Kits for Girl Toys Age 5-11 Teen Adults Wind Chimes Crystal Window Suncatcher for Home Garden Decor" src="https://m.media-amazon.com/images/I/51dtfHN71PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6Q78489?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crafts for Kids Ages 8-12, Birthday Gifts Presents for 6 7 8 9 10 11 Year Old Girls Diamond Painting Kits for Girl Toys Age 5-11 Teen Adults Wind Chimes Crystal Window Suncatcher for Home Garden Decor" src="https://m.media-amazon.com/images/I/51dtfHN71PL._SL500_.jpg"/></a>
 
 
 The **Crafts for Kids Ages 8-12** diamond painting kits are perfect for children and teens who enjoy creative and hands-on activities. Ideal for girls aged 6 to 11, as well as older kids and adults who appreciate arts and crafts, this kit offers a fun and engaging way to develop fine motor skills and artistic expression. It also makes an excellent birthday gift or present for young craft enthusiasts looking to create beautiful home or garden decor.
@@ -125,10 +125,10 @@ This diamond painting kit by **Anofty** combines artistic fun with practical dec
 
 Beyond its entertainment value, the finished crafts serve as charming decorations for any home or garden, allowing kids to proudly display their handiwork. This kit is also versatile enough to be enjoyed by older children and even adults, making it a great activity for family bonding or solo creative time. Overall, the **Crafts for Kids Ages 8-12 diamond painting kit** offers both educational benefits and decorative appeal.
 
-## <a href="https://www.amazon.com/dp/B0CMH9HN74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skillmatics Storybook Art Kit</a>
+## <a href="https://www.amazon.com/dp/B0CMH9HN74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skillmatics Storybook Art Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMH9HN74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skillmatics Storybook Art Kit - Create Fairytale Stories, DIY Craft &amp; Writing Kit with 300+ Stickers, Scrapbooking &amp; Journal Activity, Gifts for Kids Ages 5, 6, 7, 8, 9, 10" src="https://m.media-amazon.com/images/I/51a-mAU5PKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMH9HN74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skillmatics Storybook Art Kit - Create Fairytale Stories, DIY Craft &amp; Writing Kit with 300+ Stickers, Scrapbooking &amp; Journal Activity, Gifts for Kids Ages 5, 6, 7, 8, 9, 10" src="https://m.media-amazon.com/images/I/51a-mAU5PKL._SL500_.jpg"/></a>
 
 
 The **Skillmatics Storybook Art Kit** is ideal for young creative minds aged 5 to 10 who love storytelling, crafting, and imaginative play. This kit is perfect for parents and educators seeking an engaging activity that combines art, writing, and interactive learning to enhance children's creativity and literacy skills. If you're looking for a fun, educational gift that encourages kids to create their own fairytale stories, this kit is an excellent choice.
@@ -151,10 +151,10 @@ The **Skillmatics Storybook Art Kit** features a vibrant, multicolor design that
 
 Additionally, the kit's compact size and lightweight build make it convenient for both home use and travel. It encourages children to spend quality screen-free time, fostering creativity and imagination. Whether used in classrooms or at home, this kit offers a versatile and educational experience that supports early literacy and artistic expression.
 
-## <a href="https://www.amazon.com/dp/B0DXQ5Q8BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Make Your Own Gem Art Keychains</a>
+## <a href="https://www.amazon.com/dp/B0DXQ5Q8BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Make Your Own Gem Art Keychains</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXQ5Q8BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crafts for Girls 8-12 - 6Pcs Make Your Own GEM Art Keychains - Arts and Crafts for Kids Ages 8-12 - Diamond Art Kits for Kids - 5D Dimond Art Paintings by Numbers - Art &amp; Craft Gifts for 6 10 Year Old" src="https://m.media-amazon.com/images/I/517lttHW+wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXQ5Q8BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crafts for Girls 8-12 - 6Pcs Make Your Own GEM Art Keychains - Arts and Crafts for Kids Ages 8-12 - Diamond Art Kits for Kids - 5D Dimond Art Paintings by Numbers - Art &amp; Craft Gifts for 6 10 Year Old" src="https://m.media-amazon.com/images/I/517lttHW+wL._SL500_.jpg"/></a>
 
 
 The **Crafts for Girls 8-12 - 6Pcs Make Your Own GEM Art Keychains** is an ideal choice for young creative minds aged 8 to 12 who enjoy hands-on activities and want to explore the world of arts and crafts. Perfect for kids who love to personalize their belongings or gift unique handmade items, this kit offers a fun and engaging way to develop fine motor skills and artistic expression. Parents seeking educational yet entertaining activities for their children will find this set especially valuable.
@@ -177,10 +177,10 @@ This **diamond art kit** by **Nardoll** features precise dimensions (Height: 0.6
 
 Beyond entertainment, the **Crafts for Girls 8-12** kit encourages patience, focus, and hand-eye coordination. The step-by-step paint-by-numbers approach helps children learn color recognition and pattern following in an enjoyable manner. Additionally, the finished GEM art keychains make for delightful accessories or gifts, fostering pride in creative achievements and inspiring further artistic pursuits. This kit is a thoughtful and engaging gift that blends fun with developmental benefits for kids aged 8 to 12.
 
-## <a href="https://www.amazon.com/dp/B0CZF266QH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iqkidz Weaving Loom Kit Toys</a>
+## <a href="https://www.amazon.com/dp/B0CZF266QH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iqkidz Weaving Loom Kit Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZF266QH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IQKidz Weaving Loom Kit Toys, DIY Arts and Crafts for Kids and Adults, Ideal Gifts for Girls Ages 5 6 7 8-12 13, Easy Potholder Loom Knitting Activity for Beginners, 224 Craft Loops" src="https://m.media-amazon.com/images/I/510bCQKXPmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZF266QH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IQKidz Weaving Loom Kit Toys, DIY Arts and Crafts for Kids and Adults, Ideal Gifts for Girls Ages 5 6 7 8-12 13, Easy Potholder Loom Knitting Activity for Beginners, 224 Craft Loops" src="https://m.media-amazon.com/images/I/510bCQKXPmL._SL500_.jpg"/></a>
 
 
 The **IQKidz Weaving Loom Kit Toys** is perfect for both **kids and adults** who enjoy creative **DIY arts and crafts**. Ideal for children aged **5 to 13 years**, especially girls, this kit provides an engaging and easy introduction to **knitting and weaving**. It is designed for **beginners** and anyone looking for a fun and educational activity that enhances **fine motor skills** and **creativity**.
@@ -204,10 +204,10 @@ The **IQKidz Weaving Loom Kit** features a user-friendly design that makes it ea
 
 By engaging with this kit, users not only produce fun and functional woven crafts but also develop important skills such as hand-eye coordination and attention to detail. The activity encourages patience and creativity, making it an excellent choice for parents looking to provide their children with an enriching pastime. Overall, the **IQKidz Weaving Loom Kit Toys** is a valuable and entertaining crafting solution suitable for a wide age range and skill level.
 
-## <a href="https://www.amazon.com/dp/B09X1YX59W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hula Home Stained Glass Mandala Art Kit</a>
+## <a href="https://www.amazon.com/dp/B09X1YX59W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hula Home Stained Glass Mandala Art Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09X1YX59W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hula Home Stained Glass Mandala Art Kit - DIY Window Clings with Markers, 10 Suncatchers - Perfect Hobby for Adults, Kids, Teens &amp; Seniors - Ideal Gift for Beginners, Women &amp; Elderly" src="https://m.media-amazon.com/images/I/61Cr68venIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09X1YX59W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hula Home Stained Glass Mandala Art Kit - DIY Window Clings with Markers, 10 Suncatchers - Perfect Hobby for Adults, Kids, Teens &amp; Seniors - Ideal Gift for Beginners, Women &amp; Elderly" src="https://m.media-amazon.com/images/I/61Cr68venIL._SL500_.jpg"/></a>
 
 
 The **Hula Home Stained Glass Mandala Art Kit** is perfect for anyone looking to explore a creative and relaxing hobby. Whether you are an **adult, teen, kid, beginner, woman, or senior**, this kit offers an engaging DIY project that brings color and artistry to your living space. Ideal for those who enjoy hands-on crafts and want to create beautiful **window clings** that brighten up any room.
@@ -230,10 +230,10 @@ The **Hula Home Stained Glass Mandala Art Kit** features a thoughtfully curated 
 
 This DIY kit not only offers a fun and rewarding hobby but also enhances your environment by transforming plain windows into stunning displays of light and color. The ease of use makes it accessible to **beginners and experienced crafters alike**, and the finished suncatchers can be proudly showcased or gifted. Overall, it’s a wonderful way to nurture creativity, relieve stress, and add a splash of beauty to everyday life.
 
-## <a href="https://www.amazon.com/dp/B08CVSB189?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prebox Weaving Loom Kit Toys</a>
+## <a href="https://www.amazon.com/dp/B08CVSB189?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prebox Weaving Loom Kit Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B08CVSB189?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 6="" alt="PREBOX Weaving Loom Kit Toys for Kids and Adults, Potholder Loops Crafts for Girls Ages 6 7 8 9 10 11 12, 7" and="" beginners,="" for="" gifts="" holder="" kids="" kits="" knitting="" loom="" make="" masterpieces"="" pot="" src="https://m.media-amazon.com/images/I/51ruz3k0I-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08CVSB189?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 6="" alt="PREBOX Weaving Loom Kit Toys for Kids and Adults, Potholder Loops Crafts for Girls Ages 6 7 8 9 10 11 12, 7" and="" beginners,="" for="" gifts="" holder="" kids="" kits="" knitting="" loom="" make="" masterpieces"="" pot="" src="https://m.media-amazon.com/images/I/51ruz3k0I-L._SL500_.jpg"/></a>
 
 
 The **PREBOX Weaving Loom Kit** is ideal for both **kids and adults** who are interested in exploring creative crafts, especially beginners looking to learn the art of weaving. Perfect for children ages **6 to 12**, this kit is designed to engage young minds in a fun and educational activity while providing adults with a relaxing and rewarding hobby. If you want a hands-on experience that combines creativity with skill-building, this weaving loom kit is a great choice.
@@ -255,10 +255,10 @@ The **PREBOX Weaving Loom Kit** stands out with its user-friendly design and com
 
 In addition to being an enjoyable pastime, the kit fosters important developmental skills such as concentration, patience, and creativity. The ability to produce tangible results also provides a sense of accomplishment. Whether you're looking for a new hobby or a thoughtful gift, the PREBOX kit combines fun, education, and practicality in one compact package.
 
-## <a href="https://www.amazon.com/dp/B0B2L933Y4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Caliart Art Supplies 153-pack Deluxe Wooden Art Set</a>
+## <a href="https://www.amazon.com/dp/B0B2L933Y4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Caliart Art Supplies 153-pack Deluxe Wooden Art Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2L933Y4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Caliart Art Supplies, 153-Pack Deluxe Wooden Art Set Crafts Drawing Painting Coloring Supplies Kit with 2 A4 Sketch Pads, Halloween Creative Gift Box for Adults Artist Beginners Kids Girls Boys" src="https://m.media-amazon.com/images/I/61KeKow6AgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2L933Y4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Caliart Art Supplies, 153-Pack Deluxe Wooden Art Set Crafts Drawing Painting Coloring Supplies Kit with 2 A4 Sketch Pads, Halloween Creative Gift Box for Adults Artist Beginners Kids Girls Boys" src="https://m.media-amazon.com/images/I/61KeKow6AgL._SL500_.jpg"/></a>
 
 
 The **Caliart Art Supplies, 153-Pack Deluxe Wooden Art Set** is perfect for anyone passionate about drawing, painting, and coloring. Whether you are an **adult artist**, a **beginner**, or looking for a creative gift for **kids, girls, or boys**, this comprehensive kit offers everything needed to unleash your creativity. It is especially ideal for those who want a high-quality, all-in-one set with a variety of tools and materials to explore different artistic techniques.

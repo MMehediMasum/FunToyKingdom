@@ -23,10 +23,10 @@ Outdoor-themed items like the dimidium Beach Sun Straw Hat bring seasonal joy. D
 
 
 
-## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection Baby Starter Set</a>
+## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection Baby Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
 
 
 The **Dream Collection, Baby Starter Set** is ideal for young children who love engaging in **realistic pretend play**. This set is perfect for parents and gift-givers looking to provide a lifelike, soft, and posable **baby doll** that encourages nurturing skills and imaginative interaction. It suits toddlers and preschoolers eager to mimic caregiving in a safe and entertaining way.
@@ -49,10 +49,10 @@ The **Dream Collection, Baby Starter Set** features a meticulously crafted **lif
 
 Additionally, the included accessories complement the doll perfectly, offering a more immersive playtime experience. Whether feeding, dressing, or cuddling, these features help children develop fine motor skills and social-emotional intelligence. Manufactured by **Dream Collection**, this starter set combines quality craftsmanship with child-friendly materials, making it a reliable choice for parents and gift buyers alike.
 
-## <a href="https://www.amazon.com/dp/B0FHB931HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For Doll, 5-piece 17cm Clothes For Doll Set With Accessories</a>
+## <a href="https://www.amazon.com/dp/B0FHB931HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For Doll, 5-piece 17cm Clothes For Doll Set With Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHB931HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for Doll, 5-Piece 17cm Clothes for Doll Set with Accessories – Includes Light Pink Velvet Heart Hat, Mini Camera, Glasses &amp; Canvas Shoes (Doll Not Included)(A)" src="https://m.media-amazon.com/images/I/41fwMtp1tUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHB931HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for Doll, 5-Piece 17cm Clothes for Doll Set with Accessories – Includes Light Pink Velvet Heart Hat, Mini Camera, Glasses &amp; Canvas Shoes (Doll Not Included)(A)" src="https://m.media-amazon.com/images/I/41fwMtp1tUL._SL500_.jpg"/></a>
 
 
 Ideal for **doll enthusiasts** and collectors looking to enhance their 17cm dolls with stylish and detailed outfits, the **Clothes for Doll, 5-Piece 17cm Clothes for Doll Set with Accessories** offers a charming addition. This set is perfect for those who enjoy customizing dolls with unique apparel and accessories, providing a complete look without the need for the doll itself.
@@ -74,10 +74,10 @@ This **5-piece doll clothing set** features a delightful combination of accessor
 
 Crafted with attention to detail, each piece in this set is designed to fit snugly and comfortably on dolls, enhancing their overall appearance without compromising mobility. The compact dimensions (Height: 0.1 inches, Width: 0.5 inches, Length: 0.5 inches) ensure the accessories are lightweight and easy to handle, making them ideal for both display and interactive play. This set is a great choice for anyone looking to add a personalized touch to their doll collection.
 
-## <a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sophia's Mini Dress Form Mannequin For 18-inch Doll Clothes</a>
+## <a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sophia's Mini Dress Form Mannequin For 18-inch Doll Clothes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sophia's Mini Dress Form Mannequin for 18-inch Doll Clothes with Pink Doll Hairbrush &amp; 10 Clothing Hangers, 18” Girl Doll Dressmaker Mannequin Playset, White/Cherry" src="https://m.media-amazon.com/images/I/312wa8yfPNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sophia's Mini Dress Form Mannequin for 18-inch Doll Clothes with Pink Doll Hairbrush &amp; 10 Clothing Hangers, 18” Girl Doll Dressmaker Mannequin Playset, White/Cherry" src="https://m.media-amazon.com/images/I/312wa8yfPNL._SL500_.jpg"/></a>
 
 
 The **Sophia's Mini Dress Form Mannequin** is ideal for creative young designers and collectors who enjoy dressing up 18-inch dolls. This playset is perfect for those who want to enhance their doll customization experience with a stylish and functional mannequin, complete with accessories like a pink doll hairbrush and 10 clothing hangers. If you are looking to develop fashion design skills or simply want to organize your doll wardrobe neatly, this product is an excellent choice.
@@ -100,10 +100,10 @@ The **Sophia's Mini Dress Form Mannequin** provides an excellent platform for im
 
 Constructed with quality materials by **Sophia's**, this dressmaker mannequin is sturdy and designed to last through many play sessions. Its compact dimensions make it easy to fit on a desk or shelf without taking up too much space, making it convenient for both play and display purposes. Overall, this dress form playset is a versatile tool that blends creativity, organization, and style, making it a must-have for doll enthusiasts and budding fashion designers alike.
 
-## <a href="https://www.amazon.com/dp/B09PNTFF8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Heart Mary Janes</a>
+## <a href="https://www.amazon.com/dp/B09PNTFF8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Heart Mary Janes</a>
 
 
-<a href="https://www.amazon.com/dp/B09PNTFF8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Heart Mary Janes Fits 18 Inch Kennedy and Friends Girl Dolls- 18 Inch Doll Shoes" src="https://m.media-amazon.com/images/I/319MeChWS0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PNTFF8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Heart Mary Janes Fits 18 Inch Kennedy and Friends Girl Dolls- 18 Inch Doll Shoes" src="https://m.media-amazon.com/images/I/319MeChWS0L._SL500_.jpg"/></a>
 
 
 Ideal for collectors and children who own 18-inch dolls like the **Kennedy and Friends Girl Dolls**, the **Black Heart Mary Janes** are perfect for those looking to enhance their doll's wardrobe with stylish and well-fitted shoes. These shoes are designed to complement a variety of 18-inch dolls, making them an excellent choice for anyone seeking durable and attractive footwear accessories.
@@ -125,10 +125,10 @@ The **Black Heart Mary Janes** offer a perfect balance of style and functionalit
 
 Crafted by **MBD**, these shoes ensure reliable quality and durability, which means they can withstand regular use without losing their appeal. The charming heart detail on the Mary Jane style adds a unique touch, making these shoes a standout accessory for any doll collection or playtime wardrobe.
 
-## <a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimidium Beach Sun Straw Hat For La Boo-boo Plush Dolls</a>
+## <a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimidium Beach Sun Straw Hat For La Boo-boo Plush Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="dimidium Beach Sun Straw Hat for La Boo-Boo Plush Dolls, Summer Doll Hat, Removable Doll Dress-Up Accessory (Collector Outfit Age 12+), Cute Plush Outfit,Cream" src="https://m.media-amazon.com/images/I/41HJiFx3B9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="dimidium Beach Sun Straw Hat for La Boo-Boo Plush Dolls, Summer Doll Hat, Removable Doll Dress-Up Accessory (Collector Outfit Age 12+), Cute Plush Outfit,Cream" src="https://m.media-amazon.com/images/I/41HJiFx3B9L._SL500_.jpg"/></a>
 
 
 The **dimidium Beach Sun Straw Hat** is perfect for collectors and enthusiasts of **La Boo-Boo Plush Dolls** aged 12 and above who want to enhance their dolls' summer wardrobe. This **removable doll dress-up accessory** in a charming **cream** color adds a delightful touch of style and sun protection to your plush doll's outfit, making it ideal for those who enjoy detailed and cute doll customization.
@@ -151,10 +151,10 @@ The **dimidium Beach Sun Straw Hat** stands out for its delicate design tailored
 
 Beyond its visual appeal, this accessory is designed for easy use, allowing owners to quickly put on or remove the hat to match different outfits or display preferences. Its lightweight build means it won’t weigh down the doll or interfere with posing, ensuring the doll remains both adorable and functional in displays. For collectors aiming to create themed summer scenes or simply add a touch of sun-ready charm, this hat is a practical and delightful choice.
 
-## <a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doll House For Girls</a>
+## <a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doll House For Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doll House for Girls,6 Rooms Blue Doll House with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8 9 10 Year Old Girls Toys" src="https://m.media-amazon.com/images/I/51g1i1SWZvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doll House for Girls,6 Rooms Blue Doll House with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8 9 10 Year Old Girls Toys" src="https://m.media-amazon.com/images/I/51g1i1SWZvL._SL500_.jpg"/></a>
 
 
 The **Doll House for Girls** by **OCTERIC** is perfect for young children aged 3 to 10 years who enjoy imaginative play and storytelling. This **6-room blue doll house**, complete with **dolls figures, puppies, furniture, accessories, and LED lights**, is ideal for toddlers and young girls looking to develop creativity, social skills, and fine motor abilities through interactive play.
@@ -176,10 +176,10 @@ This **blue doll house** features six well-designed rooms that stimulate creativ
 
 The built-in **LED lighting** enhances the overall play experience by adding a cozy and enchanting atmosphere, making playtime more engaging. Additionally, the sturdy construction from **OCTERIC** ensures that the doll house can withstand active play, providing a safe and reliable toy that parents can trust.
 
-## <a href="https://www.amazon.com/dp/B07DHZBQN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fun World Paper Doll Costume</a>
+## <a href="https://www.amazon.com/dp/B07DHZBQN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fun World Paper Doll Costume</a>
 
 
-<a href="https://www.amazon.com/dp/B07DHZBQN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fun World Paper Doll Costume, Medium 8-10, Multicolor" src="https://m.media-amazon.com/images/I/41cyX0GL8VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DHZBQN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fun World Paper Doll Costume, Medium 8-10, Multicolor" src="https://m.media-amazon.com/images/I/41cyX0GL8VL._SL500_.jpg"/></a>
 
 
 The **Fun World Paper Doll Costume, Medium 8-10, Multicolor** is ideal for children aged 8 to 10 who enjoy creative and playful dress-up activities. Perfect for parents looking to encourage imaginative play or for kids attending costume parties, school events, or Halloween, this costume offers a unique and colorful option that stands out from typical outfits.
@@ -202,10 +202,10 @@ The **Fun World Paper Doll Costume** combines vibrant colors with a fun paper do
 
 Additionally, the costume’s multicolor design adds a lively and cheerful touch, making it visually appealing and fun for children. While it is made of paper, which requires careful handling, the overall benefits of easy storage, portability, and unique style make this costume a great choice for parents seeking an engaging and playful outfit for their children.
 
-## <a href="https://www.amazon.com/dp/B0FDR7T5JW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jhos Swimming Doll</a>
+## <a href="https://www.amazon.com/dp/B0FDR7T5JW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jhos Swimming Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDR7T5JW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JHOS Swimming Doll, 2026 New Packaging Waterproof Swimmer Doll, Battery-Powered for Realistic Swimming Action, Swimming Dolls for Pool, Bathtub, Beach &amp; Gift for Kids (1 PCS)" src="https://m.media-amazon.com/images/I/51wfrK3AIXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDR7T5JW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JHOS Swimming Doll, 2026 New Packaging Waterproof Swimmer Doll, Battery-Powered for Realistic Swimming Action, Swimming Dolls for Pool, Bathtub, Beach &amp; Gift for Kids (1 PCS)" src="https://m.media-amazon.com/images/I/51wfrK3AIXL._SL500_.jpg"/></a>
 
 
 The **JHOS Swimming Doll** is perfect for parents and gift-givers looking to delight children who love water play. Ideal for kids who enjoy spending time in the **pool**, **bathtub**, or at the **beach**, this battery-powered doll provides a fun and interactive experience that mimics real swimming action, making it a great gift for young swimmers and water enthusiasts.
@@ -227,10 +227,10 @@ The **JHOS Swimming Doll** features a compact and waterproof design that allows 
 
 Additionally, the doll's 2026 new packaging makes it an appealing gift choice, combining both style and functionality. The trusted **JHOS brand** ensures quality manufacturing standards, providing parents with confidence in the product’s safety and durability. Though it requires batteries, the overall design prioritizes fun and convenience, making it a standout option for any child who loves swimming and water play.
 
-## <a href="https://www.amazon.com/dp/B0824ZNBGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sxfse Dollhouse Decoration Accessories</a>
+## <a href="https://www.amazon.com/dp/B0824ZNBGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sxfse Dollhouse Decoration Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0824ZNBGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SXFSE Dollhouse Decoration Accessories, 1:12 Dollhouse Miniature Scene Model Articles Paint Palette Tool Pretend Play Toy" src="https://m.media-amazon.com/images/I/41PXJpBKXbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0824ZNBGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SXFSE Dollhouse Decoration Accessories, 1:12 Dollhouse Miniature Scene Model Articles Paint Palette Tool Pretend Play Toy" src="https://m.media-amazon.com/images/I/41PXJpBKXbL._SL500_.jpg"/></a>
 
 
 Ideal for **dollhouse enthusiasts** and collectors who enjoy adding intricate details to their miniature scenes, the **SXFSE Dollhouse Decoration Accessories** offer a perfect touch of realism. This item is especially suited for hobbyists who appreciate **1:12 scale miniature models** and want to enhance their dollhouse environments with authentic-looking tools and accessories.
@@ -253,10 +253,10 @@ The **SXFSE Dollhouse Decoration Accessories** are crafted with attention to det
 
 Constructed by **SXFSE**, a trusted manufacturer in the miniature accessories market, this item promises both quality and longevity. The subtle **beige color** allows it to blend naturally into different room themes, while its durable build ensures it remains a lasting piece in your collection. Whether for display or imaginative play, this accessory adds charm and realism to your miniature world.
 
-## <a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xunwa Doll Bassinet</a>
+## <a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xunwa Doll Bassinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xunwa 2 Pieces Doll Bassinet for 5-6-7-8-9 Inch Mini and Small Newborn Reborn Baby Dolls" src="https://m.media-amazon.com/images/I/41txgUIEaCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xunwa 2 Pieces Doll Bassinet for 5-6-7-8-9 Inch Mini and Small Newborn Reborn Baby Dolls" src="https://m.media-amazon.com/images/I/41txgUIEaCL._SL500_.jpg"/></a>
 
 
 The **Xunwa 2 Pieces Doll Bassinet** is perfect for collectors and parents who own **5-6-7-8-9 inch mini and small newborn reborn baby dolls**. Ideal for those looking to provide a cozy and realistic resting place for their dolls, this product suits doll enthusiasts who value both functionality and aesthetic appeal in their doll accessories.

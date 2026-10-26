@@ -23,10 +23,10 @@ Others, like Wildcard Games Arithmanix, help improve math skills in a playful wa
 
 
 
-## <a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Basketball Fast-paced Card Game</a>
+## <a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Basketball Fast-paced Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Basketball Fast-Paced Card Game for Kids &amp; Adults – 128 Cards &amp; Easy Rules – Quick &amp; Fun Matching Game – 2-8 Players – Ages 8+ – Perfect for Family Games Night, Travel &amp; Parties" src="https://m.media-amazon.com/images/I/51rMk+kQdaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Basketball Fast-Paced Card Game for Kids &amp; Adults – 128 Cards &amp; Easy Rules – Quick &amp; Fun Matching Game – 2-8 Players – Ages 8+ – Perfect for Family Games Night, Travel &amp; Parties" src="https://m.media-amazon.com/images/I/51rMk+kQdaL._SL500_.jpg"/></a>
 
 
 Ideal for **kids and adults** who love fast-paced, interactive games, the **Basketball Fast-Paced Card Game** by **QUOKKA** is perfect for families, friends, and party enthusiasts looking for a quick and fun way to engage. Designed for **2-8 players** aged **8 and up**, this game suits those seeking a lively, competitive experience that’s easy to learn and play anywhere, from family game nights to travel adventures.
@@ -49,10 +49,10 @@ The **Basketball Fast-Paced Card Game** stands out with its easy rules and dynam
 
 Additionally, the game promotes social interaction and quick decision-making through its fast matching mechanics. Whether played at home or during parties, the game's energetic pace and basketball theme provide an entertaining challenge that brings people together, enhancing both fun and friendly competition.
 
-## <a href="https://www.amazon.com/dp/B0DMP3WHS7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quokka Culture Literature Trivia</a>
+## <a href="https://www.amazon.com/dp/B0DMP3WHS7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quokka Culture Literature Trivia</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMP3WHS7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUOKKA Culture Literature Trivia - Card Board Game for Kids Ages 8-12 &amp; Adults - Educational Questions | Easy to Learn | Fast Paced - Fun Learning Quiz for Road Trips" src="https://m.media-amazon.com/images/I/61EhNvHZLBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMP3WHS7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUOKKA Culture Literature Trivia - Card Board Game for Kids Ages 8-12 &amp; Adults - Educational Questions | Easy to Learn | Fast Paced - Fun Learning Quiz for Road Trips" src="https://m.media-amazon.com/images/I/61EhNvHZLBL._SL500_.jpg"/></a>
 
 
 The **QUOKKA Culture Literature Trivia** card board game is ideal for families and educators looking to engage children aged 8-12, as well as adults, in an entertaining and educational activity. This game is perfect for those who enjoy fast-paced quizzes and want to enhance their knowledge of culture and literature in a fun and interactive way, making it an excellent choice for road trips, classroom settings, or family game nights.
@@ -74,10 +74,10 @@ The **QUOKKA Culture Literature Trivia** game features a well-designed set of ed
 
 Additionally, the game's fast-paced nature maintains excitement and encourages quick thinking, which can improve cognitive skills such as memory recall and decision-making. Manufactured by **Adducate Ukraine LLC** under the trusted **QUOKKA** brand, this card game ensures quality materials and thoughtful design, making it a reliable educational tool that is both fun and practical for families on the go.
 
-## <a href="https://www.amazon.com/dp/B0C5JW52Q7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outset Media Puke</a>
+## <a href="https://www.amazon.com/dp/B0C5JW52Q7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outset Media Puke</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5JW52Q7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outset Media Puke - The Totally Sick Card Game - for 3 or More Players Ages 8 and up" src="https://m.media-amazon.com/images/I/619TCY8Xn7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5JW52Q7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outset Media Puke - The Totally Sick Card Game - for 3 or More Players Ages 8 and up" src="https://m.media-amazon.com/images/I/619TCY8Xn7L._SL500_.jpg"/></a>
 
 
 The **Outset Media Puke - The Totally Sick Card Game** is ideal for families, friends, and casual gamers looking for a fun and lighthearted party game. Designed for **3 or more players ages 8 and up**, it suits groups who enjoy fast-paced, silly gameplay that encourages laughter and interaction. This game is perfect for those seeking an engaging activity that is easy to learn and entertaining for both kids and adults.
@@ -100,10 +100,10 @@ The **Outset Media Puke** card game offers an entertaining experience through it
 
 Beyond just fun, this game promotes quick decision-making and social interaction, making it a perfect icebreaker for parties or family game nights. The straightforward rules allow players to jump into the action quickly, reducing downtime and maintaining a lively atmosphere. Overall, the game combines portability, accessibility, and engaging gameplay, creating a memorable and enjoyable experience for groups of all ages.
 
-## <a href="https://www.amazon.com/dp/B086FLN1FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outset Media Up A Bit Drawing Card Game</a>
+## <a href="https://www.amazon.com/dp/B086FLN1FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outset Media Up A Bit Drawing Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B086FLN1FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outset Media Up a Bit Drawing Card Game - Describe an Object to Draw and Guess - Family Guessing Game Ages 8+ - Contains 100 Objects Cards, 250 Double Sided Grid Sheets" src="https://m.media-amazon.com/images/I/51uoT7b-VNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086FLN1FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outset Media Up a Bit Drawing Card Game - Describe an Object to Draw and Guess - Family Guessing Game Ages 8+ - Contains 100 Objects Cards, 250 Double Sided Grid Sheets" src="https://m.media-amazon.com/images/I/51uoT7b-VNL._SL500_.jpg"/></a>
 
 
 The **Outset Media Up a Bit Drawing Card Game** is perfect for families and friends looking to engage in a fun and interactive guessing game. Ideal for players aged 8 and above, this game encourages creativity, communication, and quick thinking, making it a great choice for family game nights or social gatherings where participants enjoy drawing and guessing challenges.
@@ -126,10 +126,10 @@ The **Outset Media Up a Bit Drawing Card Game** features a well-thought-out set 
 
 Its compact size and appealing **blue and white color** scheme make it easy to carry along for trips or gatherings, while the game’s simple rules allow players of all skill levels to join in quickly. By promoting teamwork and laughter, this game is not only entertaining but also builds important social skills. The combination of descriptive challenges and drawing exercises makes it an excellent tool for developing creativity and communication among players, ensuring hours of fun for families and friends alike.
 
-## <a href="https://www.amazon.com/dp/B086FKZ6QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Ninja Adventure</a>
+## <a href="https://www.amazon.com/dp/B086FKZ6QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Ninja Adventure</a>
 
 
-<a href="https://www.amazon.com/dp/B086FKZ6QD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Ninja Adventure - Card and Dice Game for Kids and Adults. This Delightful, Funny Board Games The Perfect Addition to Your Family Games Night!" src="https://m.media-amazon.com/images/I/41WS2mpIq+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086FKZ6QD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Ninja Adventure - Card and Dice Game for Kids and Adults. This Delightful, Funny Board Games The Perfect Addition to Your Family Games Night!" src="https://m.media-amazon.com/images/I/41WS2mpIq+L._SL500_.jpg"/></a>
 
 
 The **Taco Ninja Adventure - Card and Dice Game for Kids and Adults** is ideal for families and groups looking to add a fun, interactive element to their game nights. Perfect for both **children and adults**, this game combines humor and strategy, making it suitable for players of various ages and skill levels who enjoy engaging and fast-paced board games.
@@ -151,10 +151,10 @@ The **Taco Ninja Adventure** game features a unique combination of **card and di
 
 Beyond the entertaining gameplay, this game fosters social interaction and teamwork, perfect for family nights or friendly competitions. The humorous theme centered around ninja tacos adds a lighthearted and memorable twist, ensuring that players remain engaged and entertained throughout. Overall, the **Taco Ninja Adventure - Card and Dice Game** is a fantastic addition to any game collection, promising hours of laughter and enjoyment.
 
-## <a href="https://www.amazon.com/dp/B0796W61CK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ginger Fox Maki Staki Sushi Themed Card Game</a>
+## <a href="https://www.amazon.com/dp/B0796W61CK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ginger Fox Maki Staki Sushi Themed Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0796W61CK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ginger Fox Maki Staki Sushi Themed Card Game -Collect The Cards to Make Your Maki Perfect Party Game for Up to 6 Players" src="https://m.media-amazon.com/images/I/415ZOyNAxcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0796W61CK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ginger Fox Maki Staki Sushi Themed Card Game -Collect The Cards to Make Your Maki Perfect Party Game for Up to 6 Players" src="https://m.media-amazon.com/images/I/415ZOyNAxcL._SL500_.jpg"/></a>
 
 
 The **Ginger Fox Maki Staki Sushi Themed Card Game** is perfect for anyone who loves fun, interactive party games with a unique twist. Ideal for groups of friends or family members who enjoy light strategy and collecting games, this game is designed for up to 6 players, making it an excellent choice for social gatherings, game nights, or sushi enthusiasts looking for a playful way to engage with their favorite cuisine theme.
@@ -177,10 +177,10 @@ The **Ginger Fox Maki Staki Sushi Themed Card Game** features a vibrant and colo
 
 Beyond its attractive theme and design, this card game promotes social interaction and strategic planning. Players must think ahead and carefully choose their cards to outsmart opponents while aiming to complete their sushi rolls. This mix of luck and strategy keeps the gameplay exciting and unpredictable. Whether you're hosting a party or looking for a casual game night option, the **Ginger Fox Maki Staki** offers an enjoyable experience that can bring people together over friendly competition and shared laughter.
 
-## <a href="https://www.amazon.com/dp/B0CN9RS6H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bad Milk</a>
+## <a href="https://www.amazon.com/dp/B0CN9RS6H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bad Milk</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN9RS6H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mojo Games, Bad Milk - A Rotten Game for Spoiled Kids and Sour Adults, Fun and Hilarious Card Game for Kids, Teens and Adults, Family Game Night…" src="https://m.media-amazon.com/images/I/41PG6U6NS9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN9RS6H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mojo Games, Bad Milk - A Rotten Game for Spoiled Kids and Sour Adults, Fun and Hilarious Card Game for Kids, Teens and Adults, Family Game Night…" src="https://m.media-amazon.com/images/I/41PG6U6NS9L._SL500_.jpg"/></a>
 
 
 The **Mojo Games, Bad Milk** card game is perfect for families and groups looking to inject some laughter and light-hearted competition into their **family game night**. Ideal for **kids, teens, and adults** alike, this game appeals to those who enjoy fun, silly challenges and want to create memorable moments with loved ones. If you’re searching for a game that is both entertaining and easy to learn, this card game is a fantastic choice.
@@ -203,10 +203,10 @@ The **Mojo Games, Bad Milk** card game is perfect for families and groups lookin
 
 The game’s compact size and portability allow families and friends to take it along on trips, to parties, or simply keep it handy for spontaneous entertainment. By encouraging creativity and laughter, **Bad Milk** helps foster bonding and social interaction across generations, making it a must-have addition to any game collection aiming for fun, inclusivity, and memorable moments.
 
-## <a href="https://www.amazon.com/dp/B0047HR7NU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wildcard Games Arithmanix</a>
+## <a href="https://www.amazon.com/dp/B0047HR7NU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wildcard Games Arithmanix</a>
 
 
-<a href="https://www.amazon.com/dp/B0047HR7NU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wildcard Games Arithmanix The Ultimate Maths Game – Multi Award Winning, Fun, Family Game and Educational STEM Learning Resource for Mental Arithmetic and Times Tables." src="https://m.media-amazon.com/images/I/51JU3vYZYuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0047HR7NU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wildcard Games Arithmanix The Ultimate Maths Game – Multi Award Winning, Fun, Family Game and Educational STEM Learning Resource for Mental Arithmetic and Times Tables." src="https://m.media-amazon.com/images/I/51JU3vYZYuL._SL500_.jpg"/></a>
 
 
 The **Wildcard Games Arithmanix The Ultimate Maths Game** is ideal for families, educators, and children who want to enhance their **mental arithmetic** and **times tables** skills in a fun and engaging way. This **multi award-winning** game is perfect for anyone looking to combine **STEM learning** with interactive gameplay that encourages both competition and collaboration.
@@ -229,10 +229,10 @@ The **Wildcard Games Arithmanix** features a thoughtfully designed format that p
 
 By integrating gameplay with educational content, this game helps users build confidence in mathematics while enjoying quality time with family or friends. The **multicolor** elements and intuitive layout keep players engaged, making learning less of a chore and more of an exciting challenge. Overall, it serves as a valuable tool for both entertainment and skill development.
 
-## <a href="https://www.amazon.com/dp/B093DL9431?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Trust Me I'm A Superhero</a>
+## <a href="https://www.amazon.com/dp/B093DL9431?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Trust Me I'm A Superhero</a>
 
 
-<a href="https://www.amazon.com/dp/B093DL9431?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HALF-MONSTER GAMES Trust Me I'm A Superhero - Fun Debating Card Game. Age 8+, 3-8 Players, 30-60 Min Game Play, Multicolor" src="https://m.media-amazon.com/images/I/41PRxCfIuRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093DL9431?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HALF-MONSTER GAMES Trust Me I'm A Superhero - Fun Debating Card Game. Age 8+, 3-8 Players, 30-60 Min Game Play, Multicolor" src="https://m.media-amazon.com/images/I/41PRxCfIuRL._SL500_.jpg"/></a>
 
 
 The **HALF-MONSTER GAMES Trust Me I'm A Superhero** card game is ideal for families, friends, and social groups looking for an engaging and entertaining way to spark lively debates and creative thinking. Designed for players aged **8 and up**, and accommodating **3 to 8 players**, this game is perfect for game nights, classrooms, or casual gatherings where fun and interaction are the main goals. If you enjoy games that challenge your imagination and communication skills, this game is a great choice.
@@ -255,10 +255,10 @@ The **HALF-MONSTER GAMES Trust Me I'm A Superhero** card game features a compact
 
 Designed by **Half-Monster Games**, the game ensures quality and thoughtful design that appeals to both children and adults. The balance between fun and challenge creates an inclusive environment where everyone can participate and enjoy. Whether you are looking to improve your debating skills, foster creativity, or simply have a good time with friends, this card game offers an excellent combination of educational and entertainment value.
 
-## <a href="https://www.amazon.com/dp/B0CLZ13SDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colors And Shapes</a>
+## <a href="https://www.amazon.com/dp/B0CLZ13SDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Colors And Shapes</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLZ13SDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colors and Shapes-A Fun Card Game to Play with Family and Friends-Ages 8 and Above-Four Ways to Win" src="https://m.media-amazon.com/images/I/41IaqyhnKmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLZ13SDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Colors and Shapes-A Fun Card Game to Play with Family and Friends-Ages 8 and Above-Four Ways to Win" src="https://m.media-amazon.com/images/I/41IaqyhnKmL._SL500_.jpg"/></a>
 
 
 The **Colors and Shapes** card game by **The BS Game Co.** is perfect for families and groups of friends looking for an engaging, interactive game suitable for players aged **8 and above**. Ideal for those who enjoy light-hearted competition and social play, this game offers multiple ways to win, making it a versatile choice for game nights and gatherings. If you want a compact, colorful game that sparks fun and challenges your observation skills, this is the perfect pick.

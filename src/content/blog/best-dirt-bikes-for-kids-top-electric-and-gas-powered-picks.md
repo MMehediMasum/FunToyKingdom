@@ -20,10 +20,10 @@ This guide covers top dirt bikes for kids aged 3 to 14. It highlights key featur
 
 
 
-## <a href="https://www.amazon.com/dp/B0007MZV3C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Razor Mx350 Dirt Rocket Electric Motocross Bike</a>
+## <a href="https://www.amazon.com/dp/B0007MZV3C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Razor Mx350 Dirt Rocket Electric Motocross Bike</a>
 
 
-<a href="https://www.amazon.com/dp/B0007MZV3C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Razor MX350 Dirt Rocket Electric Motocross Bike, Blue, 10-12 inches" src="https://m.media-amazon.com/images/I/41WjAtpVuXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0007MZV3C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Razor MX350 Dirt Rocket Electric Motocross Bike, Blue, 10-12 inches" src="https://m.media-amazon.com/images/I/41WjAtpVuXL._SL500_.jpg"/></a>
 
 
 The **Razor MX350 Dirt Rocket Electric Motocross Bike** in **blue** is ideal for young riders aged **10 to 12 years** who are eager to experience the thrill of motocross riding in a safe and controlled environment. This electric bike is perfect for beginners and intermediate riders looking for an exciting outdoor activity that combines fun and skill development.
@@ -46,10 +46,10 @@ The Razor MX350 features a powerful yet quiet electric motor that allows young r
 
 With easy-to-handle dimensions and a visually appealing **blue finish**, the MX350 not only looks great but is also built to suit the ergonomic needs of its target age group. This bike provides an excellent balance of performance, safety, and style, making it a fantastic choice for kids starting their motocross journey or looking to improve their riding skills.
 
-## <a href="https://www.amazon.com/dp/B0BSP2864L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Razor Mx125 Dirt Rocket Electric-powered Bike</a>
+## <a href="https://www.amazon.com/dp/B0BSP2864L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Razor Mx125 Dirt Rocket Electric-powered Bike</a>
 
 
-<a href="https://www.amazon.com/dp/B0BSP2864L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Razor MX125 Dirt Rocket Electric-Powered Bike with Authentic Motocross Geometry, Rear-Wheel Drive,100-watt, high-Torque, Chain-Driven Motor, for Kids 7+, Blue" src="https://m.media-amazon.com/images/I/41-tXts-qoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BSP2864L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Razor MX125 Dirt Rocket Electric-Powered Bike with Authentic Motocross Geometry, Rear-Wheel Drive,100-watt, high-Torque, Chain-Driven Motor, for Kids 7+, Blue" src="https://m.media-amazon.com/images/I/41-tXts-qoL._SL500_.jpg"/></a>
 
 
 The **Razor MX125 Dirt Rocket Electric-Powered Bike** is perfect for kids aged 7 and above who are eager to experience the thrill of motocross riding in a safe and controlled environment. Ideal for young riders looking to develop their riding skills, this bike combines authentic motocross design with electric power, making it a great choice for beginners and intermediate riders alike.
@@ -72,10 +72,10 @@ The **Razor MX125 Dirt Rocket** features an impressive **100-watt high-torque mo
 
 Constructed with durable materials and a compact design, the bike weighs only 29.7 pounds, making it manageable for children while maintaining stability. The **rear-wheel drive system** improves control and safety, especially when navigating dirt trails and uneven surfaces. Available in a vibrant blue color, the Razor MX125 not only performs well but also looks appealing to young riders eager to stand out.
 
-## <a href="https://www.amazon.com/dp/B0DZYTZPMM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yoxier 50cc Kids Dirt Bike</a>
+## <a href="https://www.amazon.com/dp/B0DZYTZPMM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yoxier 50cc Kids Dirt Bike</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZYTZPMM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOXIER 50cc Kids Dirt Bike,2-Stroke Gas Mini Bike, Dirt Bike for Kids 8-14,Gas Power Pocket Rocket Bike,Gas Motorcycle with Front Rear Disc Brakes, Off Road Mini Motorcycle Max Load 330Lbs Green" src="https://m.media-amazon.com/images/I/51VzSu3vKzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZYTZPMM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOXIER 50cc Kids Dirt Bike,2-Stroke Gas Mini Bike, Dirt Bike for Kids 8-14,Gas Power Pocket Rocket Bike,Gas Motorcycle with Front Rear Disc Brakes, Off Road Mini Motorcycle Max Load 330Lbs Green" src="https://m.media-amazon.com/images/I/51VzSu3vKzL._SL500_.jpg"/></a>
 
 
 The **YOXIER 50cc Kids Dirt Bike** is ideal for adventurous children aged **8 to 14 years** who are eager to experience the thrill of off-road riding. This mini bike is perfect for young riders looking for a reliable, gas-powered dirt bike that offers both fun and safety. Parents seeking a durable, easy-to-handle, and well-built bike for their kids will find this model a great choice.
@@ -99,10 +99,10 @@ The **YOXIER 50cc Kids Dirt Bike** features a robust **2-stroke gas engine** tha
 
 Equipped with **front and rear disc brakes**, this mini motorcycle prioritizes safety by delivering responsive stopping power in diverse conditions. Its impressive **maximum load capacity of 330 lbs** ensures that it can grow with your child, accommodating their increasing size and weight. The vibrant **green color** adds a cool and sporty look that young riders will love, making the YOXIER dirt bike a standout choice for both performance and style.
 
-## <a href="https://www.amazon.com/dp/B0D7Y41JN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aiii 36v Electric Dirt Bike For Kids</a>
+## <a href="https://www.amazon.com/dp/B0D7Y41JN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aiii 36v Electric Dirt Bike For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7Y41JN1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AIII 36V Electric Dirt Bike for Kids 4-8, High Performance 350W Racing Grade Motorcycle, Up to 18.6MPH, 3 Speed Settings, 14-Inch Off-Road Tires, Dual Disc Brakes &amp; Advanced Shock Absorption, Red" src="https://m.media-amazon.com/images/I/51rsHTp6g+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7Y41JN1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AIII 36V Electric Dirt Bike for Kids 4-8, High Performance 350W Racing Grade Motorcycle, Up to 18.6MPH, 3 Speed Settings, 14-Inch Off-Road Tires, Dual Disc Brakes &amp; Advanced Shock Absorption, Red" src="https://m.media-amazon.com/images/I/51rsHTp6g+L._SL500_.jpg"/></a>
 
 
 The **AIII 36V Electric Dirt Bike for Kids 4-8** is perfect for young riders who are ready to experience the thrill of off-road biking in a safe and controlled manner. Ideal for children aged between 4 and 8 years old, this electric dirt bike offers an excellent introduction to motorcycling with its manageable speed settings and durable design. Parents seeking a high-performance yet child-friendly motorcycle will find this bike an outstanding choice.
@@ -126,10 +126,10 @@ The **AIII 36V Electric Dirt Bike** boasts a robust **350W motor** that powers t
 
 Safety is a top priority with this electric dirt bike, featuring **dual disc brakes** that deliver reliable stopping power, ensuring that children can halt quickly when needed. The advanced **shock absorption system** minimizes bumps and vibrations, allowing for a smooth ride even on rough terrain. Together, these features make the bike both fun and secure, giving parents peace of mind while their kids enjoy outdoor adventures.
 
-## <a href="https://www.amazon.com/dp/B0D56HG4J7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gogogomoto 49cc Dirt Bike For Kids</a>
+## <a href="https://www.amazon.com/dp/B0D56HG4J7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gogogomoto 49cc Dirt Bike For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0D56HG4J7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="gogogomoto 49cc Dirt Bike for Kids, 4-Stroke Mini Dirt Bike Pit Bike for Kid Off Road Gas Motorcycle for Child 8-14 Green" src="https://m.media-amazon.com/images/I/51-+Xic3dUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D56HG4J7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="gogogomoto 49cc Dirt Bike for Kids, 4-Stroke Mini Dirt Bike Pit Bike for Kid Off Road Gas Motorcycle for Child 8-14 Green" src="https://m.media-amazon.com/images/I/51-+Xic3dUL._SL500_.jpg"/></a>
 
 
 The **gogogomoto 49cc Dirt Bike for Kids** is perfect for young riders aged **8-14** who are eager to experience the thrill of off-road motorcycling. This **4-Stroke Mini Dirt Bike** offers a safe and manageable introduction to dirt biking, making it an ideal choice for parents looking to encourage outdoor activity and build confidence in their children.
@@ -152,10 +152,10 @@ The **gogogomoto 49cc Dirt Bike** features a **powerful yet manageable 4-stroke 
 
 In addition to performance, this **mini dirt bike** boasts a kid-friendly design with a comfortable seat height and responsive controls tailored to young riders. The gas-powered engine offers a realistic riding experience, encouraging kids to build confidence and enjoy outdoor adventures. Overall, the **gogogomoto 49cc Dirt Bike** combines fun, safety, and durability, making it a top choice for parents seeking a quality off-road motorcycle for their children.
 
-## <a href="https://www.amazon.com/dp/B0D7YL5ZH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olala 36v Electric Dirt Bike For Kids</a>
+## <a href="https://www.amazon.com/dp/B0D7YL5ZH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Olala 36v Electric Dirt Bike For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7YL5ZH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLALA 36V Electric Dirt Bike for Kids Aged 4-8, Brushless 350W Racing Grade Electric Motorcycle, Up to 18.6MPH &amp; 3 Speed Settings, Dual Disc Brakes, 14'' Off-Road Knobby Tires, Blue" src="https://m.media-amazon.com/images/I/51aTWmTbsuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7YL5ZH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OLALA 36V Electric Dirt Bike for Kids Aged 4-8, Brushless 350W Racing Grade Electric Motorcycle, Up to 18.6MPH &amp; 3 Speed Settings, Dual Disc Brakes, 14'' Off-Road Knobby Tires, Blue" src="https://m.media-amazon.com/images/I/51aTWmTbsuL._SL500_.jpg"/></a>
 
 
 The **OLALA 36V Electric Dirt Bike** is ideal for children aged **4-8** who are eager to explore off-road adventures safely and with confidence. Parents looking for a reliable, easy-to-use, and fun electric motorcycle that encourages outdoor activity and develops motor skills will find this bike a perfect choice. It suits young riders ready for their first electric dirt bike experience with adjustable speed settings to match their growing abilities.
@@ -177,10 +177,10 @@ Equipped with a **brushless 350W racing grade motor**, the OLALA Electric Dirt B
 
 The bike’s **14-inch knobby tires** are specifically designed for off-road use, offering superior grip and stability on dirt paths and rough surfaces. The compact size and lightweight design make it easy for children to handle and maneuver, promoting independence and fun outdoor activity. With its appealing **blue color** and durable construction by **APOLLO E-MOTO INNOVATORS INC.**, this electric dirt bike blends style, safety, and performance for a thrilling riding experience.
 
-## <a href="https://www.amazon.com/dp/B0B98XFXCN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hiboy Dk1 Electric Dirt Bike</a>
+## <a href="https://www.amazon.com/dp/B0B98XFXCN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hiboy Dk1 Electric Dirt Bike</a>
 
 
-<a href="https://www.amazon.com/dp/B0B98XFXCN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hiboy DK1 36V Electric Dirt Bike,300W Electric Motorcycle - Up to 15.5MPH &amp; 13.7 Miles Long-Range,3-Speed Modes Motorcycle for Kids Ages 3-10" src="https://m.media-amazon.com/images/I/51dFtTi67AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B98XFXCN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hiboy DK1 36V Electric Dirt Bike,300W Electric Motorcycle - Up to 15.5MPH &amp; 13.7 Miles Long-Range,3-Speed Modes Motorcycle for Kids Ages 3-10" src="https://m.media-amazon.com/images/I/51dFtTi67AL._SL500_.jpg"/></a>
 
 
 The **Hiboy DK1 36V Electric Dirt Bike** is an ideal choice for parents looking to introduce their children, ages **3 to 10**, to the exciting world of electric motorcycles. Designed specifically for young riders, this bike offers a safe, fun, and engaging experience with adjustable speed settings to match different skill levels. If you're seeking a durable and easy-to-use electric dirt bike for your child, this model is a perfect fit.
@@ -204,10 +204,10 @@ The **Hiboy DK1** features a robust **36V electric motor** that provides ample p
 
 Additionally, the bike boasts an impressive **long-range battery** that can last up to **13.7 miles**, giving children plenty of ride time before needing a recharge. This extended battery life combined with the bike’s durable construction from **Freeman IT Limited** guarantees a reliable and enjoyable experience for both kids and parents alike. Overall, the Hiboy DK1 is a fantastic electric dirt bike that balances safety, performance, and fun for young riders.
 
-## <a href="https://www.amazon.com/dp/B09NLC5V3W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Supercross Authentic 5-pack Of 1:24 Scale Die-cast Motorcycles</a>
+## <a href="https://www.amazon.com/dp/B09NLC5V3W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Supercross Authentic 5-pack Of 1:24 Scale Die-cast Motorcycles</a>
 
 
-<a href="https://www.amazon.com/dp/B09NLC5V3W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Supercross, Authentic 5-Pack of 1:24 Scale Die-Cast Motorcycles with Rider Figure, Toy Moto Bike for Kids and Collectors Ages 3 and up" src="https://m.media-amazon.com/images/I/512Qt54bWGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NLC5V3W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Supercross, Authentic 5-Pack of 1:24 Scale Die-Cast Motorcycles with Rider Figure, Toy Moto Bike for Kids and Collectors Ages 3 and up" src="https://m.media-amazon.com/images/I/512Qt54bWGL._SL500_.jpg"/></a>
 
 
 The **Supercross Authentic 5-Pack of 1:24 Scale Die-Cast Motorcycles with Rider Figure** is perfect for both **kids ages 3 and up** who love playing with detailed toy motorcycles and **collectors** seeking high-quality, realistic models to add to their collection. This set appeals to anyone passionate about **motorbike racing** or looking for durable, engaging toys that inspire imaginative play.
@@ -231,10 +231,10 @@ The **Supercross 5-Pack** offers an impressive set of mini motorcycles that accu
 
 Designed with quality and durability in mind, the motorcycles are built to withstand active play by children while maintaining their collectible appeal. The compact size makes them easy to store or transport, perfect for on-the-go fun or showcasing on a shelf. Overall, this set combines fun, realism, and quality craftsmanship, making it a valuable addition for anyone who enjoys die-cast models or action-packed toys.
 
-## <a href="https://www.amazon.com/dp/B0FBR1PR4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blazego 49cc Kids Dirt Bike</a>
+## <a href="https://www.amazon.com/dp/B0FBR1PR4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blazego 49cc Kids Dirt Bike</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBR1PR4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLAZEGO 49cc Kids Dirt Bike, 2-Stroke Gas Powered Dirt Bike, Motorcycle with Off-Road Tires, Front/Rear Disc Brakes, Shock Absorption, Soft Seat Cushion, Mini Dirtbike for Kids 8-14, Black-White" src="https://m.media-amazon.com/images/I/41R7pH-xqdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBR1PR4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLAZEGO 49cc Kids Dirt Bike, 2-Stroke Gas Powered Dirt Bike, Motorcycle with Off-Road Tires, Front/Rear Disc Brakes, Shock Absorption, Soft Seat Cushion, Mini Dirtbike for Kids 8-14, Black-White" src="https://m.media-amazon.com/images/I/41R7pH-xqdL._SL500_.jpg"/></a>
 
 
 The **BLAZEGO 49cc Kids Dirt Bike** is ideal for young riders aged **8-14** who are eager to experience off-road adventure safely and confidently. This **2-stroke gas powered dirt bike** offers a perfect balance of power and control, making it an excellent choice for beginners and intermediate riders looking to develop their riding skills on various terrains.
@@ -258,10 +258,10 @@ The **BLAZEGO 49cc Kids Dirt Bike** features a robust **2-stroke gas engine** th
 
 Comfort is a key highlight of this mini dirt bike, with a **soft seat cushion** that ensures riders stay comfortable even during longer rides. Additionally, the **shock absorption system** minimizes the impact of bumps and rough trails, making the ride smoother and more enjoyable. With its lightweight design and compact dimensions, the BLAZEGO dirt bike is easy to handle for children, boosting their confidence and encouraging outdoor activity.
 
-## <a href="https://www.amazon.com/dp/B0CW9MCV6D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightweight Electric Dirt Bike For Kids</a>
+## <a href="https://www.amazon.com/dp/B0CW9MCV6D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightweight Electric Dirt Bike For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW9MCV6D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightweight Electric Dirt Bike for Kids, 170/340W Electric Motorcycle Up to 10/12MPH, 24V Detachable Battery, Hand-Operated Dual Brakes Electric Balance Bike for Ages 3-6/5-12" src="https://m.media-amazon.com/images/I/41vfQ7dr4GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW9MCV6D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightweight Electric Dirt Bike for Kids, 170/340W Electric Motorcycle Up to 10/12MPH, 24V Detachable Battery, Hand-Operated Dual Brakes Electric Balance Bike for Ages 3-6/5-12" src="https://m.media-amazon.com/images/I/41vfQ7dr4GL._SL500_.jpg"/></a>
 
 
 The **Lightweight Electric Dirt Bike for Kids** is perfect for young riders aged **3-6** and **5-12** who are ready to experience the thrill of riding their very own electric motorcycle. This bike is ideal for parents seeking a safe, easy-to-handle, and fun outdoor activity for their children, combining both excitement and skill development.

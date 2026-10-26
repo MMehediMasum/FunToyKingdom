@@ -23,10 +23,10 @@ Lifelike dolls help develop empathy and social skills. Diverse dolls, including 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Adfo Lifelike Reborn Baby Dolls 20 Inches Girl </a>
+## <a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Adfo Lifelike Reborn Baby Dolls 20 Inches Girl </a>
 
 
-<a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ADFO Lifelike Reborn Baby Dolls 20 Inches Girl Realistic Baby Doll with Soft Cloth Body Sleeping Lifelike Baby Doll with Feeding Accessories Gift for Kids Ages 3 4 5 6 7+" src="https://m.media-amazon.com/images/I/41hXKLWSq7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ADFO Lifelike Reborn Baby Dolls 20 Inches Girl Realistic Baby Doll with Soft Cloth Body Sleeping Lifelike Baby Doll with Feeding Accessories Gift for Kids Ages 3 4 5 6 7+" src="https://m.media-amazon.com/images/I/41hXKLWSq7L._SL500_.jpg"/></a>
 
 
 The **ADFO Lifelike Reborn Baby Dolls 20 Inches Girl** is an ideal choice for parents and gift-givers looking for a realistic and engaging toy for children aged **3 to 7 years and above**. This doll is perfect for kids who enjoy nurturing play, as well as collectors who appreciate lifelike design and craftsmanship. Its soft cloth body and realistic features make it a comforting companion for young children.
@@ -49,10 +49,10 @@ The **ADFO Lifelike Reborn Baby Doll** features a beautifully crafted soft cloth
 
 Additionally, the inclusion of feeding accessories adds a layer of interactive play, allowing children to simulate caregiving activities such as feeding and soothing their doll. This enhances the overall play experience and supports cognitive and emotional development. The doll’s durable construction by the trusted **ADFO** brand ensures it withstands regular use, making it a long-lasting gift that children will cherish for years.
 
-## <a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vacosheart Lifelike Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vacosheart Lifelike Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VacosHeart Lifelike Reborn Baby Dolls- 20 inch Handmade Realistic Newborn Girl w/Long Hair &amp; Poseable Vinyl Limbs &amp; Soft Cloth Body &amp; Feeding Kit Toy Birth Certificate Accessories Gift for Kid Age 3+" src="https://m.media-amazon.com/images/I/41iu6l++F9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VacosHeart Lifelike Reborn Baby Dolls- 20 inch Handmade Realistic Newborn Girl w/Long Hair &amp; Poseable Vinyl Limbs &amp; Soft Cloth Body &amp; Feeding Kit Toy Birth Certificate Accessories Gift for Kid Age 3+" src="https://m.media-amazon.com/images/I/41iu6l++F9L._SL500_.jpg"/></a>
 
 
 The **VacosHeart Lifelike Reborn Baby Dolls** are perfect for children aged 3 and above who have a passion for nurturing and imaginative play. Ideal for parents seeking a realistic and interactive doll, as well as collectors who appreciate finely crafted, handmade dolls, this product offers an authentic newborn experience with its lifelike features and accessories.
@@ -75,10 +75,10 @@ The **VacosHeart Lifelike Reborn Baby Doll** stands out with its exceptional cra
 
 Additionally, the doll’s size and weight contribute to a realistic handling experience, helping children develop nurturing skills and empathy. Its durable construction ensures that it can withstand hours of play, while the soft fabric body makes it comfortable to hold and cuddle. Overall, the **VacosHeart Lifelike Reborn Baby Doll** is a thoughtful and high-quality gift that supports imaginative play and emotional development for kids aged 3 and up.
 
-## <a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Lifelike Baby Doll Mia</a>
+## <a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Lifelike Baby Doll Mia</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Lifelike Baby Doll Mia -17 inch Cute Soft Body Realistic Baby Dolls Girl Real Life Baby Doll with Unicorn Clothes &amp; Accessories for Kids 3+ Girls Gift,Collection" src="https://m.media-amazon.com/images/I/515laTpZ7YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Lifelike Baby Doll Mia -17 inch Cute Soft Body Realistic Baby Dolls Girl Real Life Baby Doll with Unicorn Clothes &amp; Accessories for Kids 3+ Girls Gift,Collection" src="https://m.media-amazon.com/images/I/515laTpZ7YL._SL500_.jpg"/></a>
 
 
 The **BABESIDE Lifelike Baby Doll Mia** is perfect for parents and gift-givers looking for a realistic and soft baby doll for children aged 3 and above. Ideal for young girls who enjoy imaginative play, this doll combines lifelike features with a cuddly, soft body, making it a wonderful companion for both playtime and collection.
@@ -100,10 +100,10 @@ The **BABESIDE Lifelike Baby Doll Mia** stands out with its soft body and detail
 
 Crafted by **BABESIDE**, a trusted manufacturer known for quality children's toys, this doll is designed to be both durable and safe. Its soft, cuddly body not only offers comfort but also promotes nurturing skills among young kids. Whether used as a gift or a collectible, the **BABESIDE Baby Doll Mia** provides hours of engaging and imaginative play for girls aged 3 and above.
 
-## <a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaydora Lifelike Reborn Black Girl Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaydora Lifelike Reborn Black Girl Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaydora Lifelike Reborn Black Girl, 20 Inch Realistic Newborn Baby Dolls That Look Real, Vinyl African American Reborn Baby Doll with Soft Body Best Gift for Kids Age 3+" src="https://m.media-amazon.com/images/I/414ETd-ewpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaydora Lifelike Reborn Black Girl, 20 Inch Realistic Newborn Baby Dolls That Look Real, Vinyl African American Reborn Baby Doll with Soft Body Best Gift for Kids Age 3+" src="https://m.media-amazon.com/images/I/414ETd-ewpL._SL500_.jpg"/></a>
 
 
 The **Kaydora Lifelike Reborn Black Girl Doll** is an ideal choice for parents and collectors seeking a highly realistic and beautifully crafted **newborn baby doll**. Perfect for children aged 3 and above, this doll is designed for those who appreciate detailed craftsmanship and want to provide a comforting, lifelike companion for their little ones or add to their doll collection.
@@ -126,10 +126,10 @@ The **Kaydora Lifelike Reborn Black Girl Doll** features exquisite attention to 
 
 Additionally, this doll serves as a wonderful educational tool by helping children understand diversity through its authentic representation. The lightweight design and manageable size make it convenient for kids to carry around, encouraging interactive play and emotional bonding. As a product of **Kaydora**, this doll guarantees quality and safety, making it a cherished gift that supports both fun and developmental growth for young children.
 
-## <a href="https://www.amazon.com/dp/B0F1N99Z9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mother Love Dolls 9 Inches</a>
+## <a href="https://www.amazon.com/dp/B0F1N99Z9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mother Love Dolls 9 Inches</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1N99Z9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mother Love Dolls 9 Inches,Giggle &amp; Wiggle – Interactive Baby Dolls Sounds &amp; Movements with Sonic Control Rattle, for 3+ Year Old Girls Gifts, Pretend Play" src="https://m.media-amazon.com/images/I/41mIXFd856L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1N99Z9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mother Love Dolls 9 Inches,Giggle &amp; Wiggle – Interactive Baby Dolls Sounds &amp; Movements with Sonic Control Rattle, for 3+ Year Old Girls Gifts, Pretend Play" src="https://m.media-amazon.com/images/I/41mIXFd856L._SL500_.jpg"/></a>
 
 
 The **Mother Love Dolls 9 Inches** is ideal for young children, especially girls aged **3 years and above**, who enjoy **interactive pretend play**. This doll is perfect for parents seeking a **safe, engaging, and educational toy** that encourages creativity and nurtures emotional development through play.
@@ -152,10 +152,10 @@ The **Mother Love Dolls 9 Inches** features a compact and lightweight design mea
 
 Beyond entertainment, this doll promotes **emotional intelligence** and **social development** as children engage in nurturing role-play scenarios. The **durable construction** ensures the doll withstands active play, while the appealing **blue color** makes it visually attractive. Overall, this doll is a delightful gift choice that blends fun, education, and imaginative play for young children.
 
-## <a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bddoll Black Doll And 14.5 Inch Baby Girl Doll Clothes Set Gift For Girl</a>
+## <a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bddoll Black Doll And 14.5 Inch Baby Girl Doll Clothes Set Gift For Girl</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BDDOLL Black Doll and 14.5 Inch Baby Girl Doll Clothes Set Gift for Girl - African Realstic Silicone Dolls with Rose Skirt Dress and Shoes" src="https://m.media-amazon.com/images/I/41qUbRkVL3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BDDOLL Black Doll and 14.5 Inch Baby Girl Doll Clothes Set Gift for Girl - African Realstic Silicone Dolls with Rose Skirt Dress and Shoes" src="https://m.media-amazon.com/images/I/41qUbRkVL3L._SL500_.jpg"/></a>
 
 
 The **BDDOLL Black Doll and 14.5 Inch Baby Girl Doll Clothes Set Gift** is perfect for parents, caregivers, or collectors looking for a high-quality, realistic doll that offers both play and educational value. Ideal for young girls who enjoy nurturing play, this **African realistic silicone doll** appeals to those seeking a lifelike baby doll with beautiful accessories like a **rose skirt dress and shoes**. It is also a thoughtful gift for birthdays and special occasions.
@@ -178,10 +178,10 @@ The **BDDOLL Black Doll** stands out due to its lifelike silicone construction, 
 
 Beyond aesthetics, this doll promotes emotional development by allowing children to engage in nurturing role-play, helping them build empathy and responsibility. Its durable design by **BDDOLL** ensures it can withstand regular play, making it a valuable addition to any child's toy collection or a meaningful gift that combines fun and developmental benefits.
 
-## <a href="https://www.amazon.com/dp/B0BYYX99C6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guessbelly Baby Reborn Doll</a>
+## <a href="https://www.amazon.com/dp/B0BYYX99C6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guessbelly Baby Reborn Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYYX99C6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GUESSBELLY 60CM 3D-Paint Skin Baby Reborn Doll (Fabric Body, Soft Vinyl Limb) with Blood Vessels, 24inch Realistic Bebe Handmade Smiling Princess Toddler Girl Toy Alive" src="https://m.media-amazon.com/images/I/41l7Ho1E2FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYYX99C6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GUESSBELLY 60CM 3D-Paint Skin Baby Reborn Doll (Fabric Body, Soft Vinyl Limb) with Blood Vessels, 24inch Realistic Bebe Handmade Smiling Princess Toddler Girl Toy Alive" src="https://m.media-amazon.com/images/I/41l7Ho1E2FL._SL500_.jpg"/></a>
 
 
 The **GUESSBELLY 60CM 3D-Paint Skin Baby Reborn Doll** is perfect for collectors, parents looking for a lifelike toddler doll, and gift buyers seeking a unique and realistic toy. This doll appeals especially to those who appreciate intricate craftsmanship and want a doll that feels almost alive with its detailed features and soft materials.
@@ -204,10 +204,10 @@ The **GUESSBELLY 3D-Paint Skin Baby Reborn Doll** features an expertly crafted c
 
 Measuring 24 inches and weighing just under 4 pounds, this doll is sized perfectly for children to cuddle and carry around comfortably. The handmade smiling expression adds a charming, lifelike personality that engages users emotionally. Whether used for play, display, or therapeutic purposes, this doll’s realistic craftsmanship brings joy and a sense of connection to its owner.
 
-## <a href="https://www.amazon.com/dp/B07KMFG394?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Forest &amp; Twelfth Kids 3 Piece Mermaid Doll Play Set</a>
+## <a href="https://www.amazon.com/dp/B07KMFG394?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Forest &amp; Twelfth Kids 3 Piece Mermaid Doll Play Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07KMFG394?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Forest &amp; Twelfth Kids 3 Piece Mermaid Doll Play Set Princess Play Dolls for Girls Aged 3 and Above – Premium Quality, Vivid Colors, Guaranteed Safety" src="https://m.media-amazon.com/images/I/41CPZ6j+iOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KMFG394?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Forest &amp; Twelfth Kids 3 Piece Mermaid Doll Play Set Princess Play Dolls for Girls Aged 3 and Above – Premium Quality, Vivid Colors, Guaranteed Safety" src="https://m.media-amazon.com/images/I/41CPZ6j+iOL._SL500_.jpg"/></a>
 
 
 The **Forest & Twelfth Kids 3 Piece Mermaid Doll Play Set** is ideal for young children, especially girls aged 3 and above who love imaginative play and fantasy themes. This play set is perfect for parents and gift-givers looking for a high-quality, safe, and colorful toy that inspires creativity and storytelling in little ones.
@@ -229,10 +229,10 @@ The **Forest & Twelfth Kids Mermaid Doll Play Set** stands out for its vibrant a
 
 Beyond looks, the set promotes creativity and social skills by encouraging children to invent stories and scenarios involving the mermaid princesses. The safety guarantee from the manufacturer RI gives parents peace of mind, knowing that the materials and design comply with strict safety regulations. Overall, this play set combines fun, safety, and quality, making it a wonderful gift for young imaginative minds.
 
-## <a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doll House For Girls</a>
+## <a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doll House For Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doll House for Girls,6 Rooms Blue Doll House with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8 9 10 Year Old Girls Toys" src="https://m.media-amazon.com/images/I/51g1i1SWZvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doll House for Girls,6 Rooms Blue Doll House with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8 9 10 Year Old Girls Toys" src="https://m.media-amazon.com/images/I/51g1i1SWZvL._SL500_.jpg"/></a>
 
 
 The **Doll House for Girls, 6 Rooms Blue Doll House with Dolls Figure, Puppies, Furnitures, Accessories, LED Light** is an ideal gift for young girls aged **3 to 10 years** who enjoy imaginative play and storytelling. It is perfect for toddlers and children who love interactive toys that encourage creativity and role-playing, making it a wonderful addition to any playroom or toy collection.
@@ -254,10 +254,10 @@ This **blue doll house** features six distinct rooms, providing ample space for 
 
 Additionally, the **LED light feature** adds a magical touch to the doll house, making playtime more immersive and enjoyable. The detailed accessories and figures are designed to stimulate imagination while providing hours of entertainment. Overall, this doll house is a thoughtfully designed toy that combines fun with developmental benefits, making it an excellent gift for young girls who love creative and interactive play.
 
-## <a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onest 2 Sets 5 Inch Dolls Cute Girl Doll</a>
+## <a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onest 2 Sets 5 Inch Dolls Cute Girl Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONEST 2 Sets 5 Inch Dolls Cute Girl Doll Include 2 Pieces Girl Mini Dolls, 2 Sets Handmade Doll Clothes and Accessories" src="https://m.media-amazon.com/images/I/417QedHJmmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONEST 2 Sets 5 Inch Dolls Cute Girl Doll Include 2 Pieces Girl Mini Dolls, 2 Sets Handmade Doll Clothes and Accessories" src="https://m.media-amazon.com/images/I/417QedHJmmL._SL500_.jpg"/></a>
 
 
 The **ONEST 2 Sets 5 Inch Dolls Cute Girl Doll** is ideal for collectors and children who enjoy imaginative play with miniature dolls. This product is perfect for those looking for detailed, handcrafted dolls with accessories that enhance creativity and storytelling. If you appreciate finely made toys that come with customizable clothing, these dolls are a great choice.

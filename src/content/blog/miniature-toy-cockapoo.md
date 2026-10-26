@@ -23,10 +23,10 @@ Collectors appreciate the variety, from white to black Cockapoos, and other smal
 
 
 
-## <a href="https://www.amazon.com/dp/B00GI9VP7O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Cockapoo White Tiny One Figurine</a>
+## <a href="https://www.amazon.com/dp/B00GI9VP7O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Cockapoo White Tiny One Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B00GI9VP7O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Cockapoo White Tiny One Figurine (White)" src="https://m.media-amazon.com/images/I/3127P4cURlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00GI9VP7O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Cockapoo White Tiny One Figurine (White)" src="https://m.media-amazon.com/images/I/3127P4cURlL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Cockapoo White Tiny One Figurine** is perfect for collectors, dog lovers, and anyone looking to add a charming decorative piece to their home or office. Its compact size and detailed craftsmanship make it an ideal gift for those who appreciate miniature art or want a subtle yet adorable accent in their space.
@@ -48,10 +48,10 @@ This **Conversation Concepts Cockapoo White Tiny One Figurine** stands out due t
 
 Beyond its visual charm, this figurine offers a sentimental value for dog enthusiasts, especially fans of the Cockapoo breed. The craftsmanship highlights the breed’s distinct features, providing an emotional connection and a conversation starter. Whether displayed alone or as part of a larger collection, this figurine brings warmth and personality to any environment.
 
-## <a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muchfun Dog Toy Figures</a>
+## <a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muchfun Dog Toy Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muchfun 20Pcs Dog Toy Figures for Kids, Toy Animals Figurine for Cake Toppers" src="https://m.media-amazon.com/images/I/51xnS0RIz+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muchfun 20Pcs Dog Toy Figures for Kids, Toy Animals Figurine for Cake Toppers" src="https://m.media-amazon.com/images/I/51xnS0RIz+L._SL500_.jpg"/></a>
 
 
 The **Muchfun 20Pcs Dog Toy Figures for Kids** are ideal for parents, educators, and party planners looking for engaging, colorful, and durable **toy animal figurines**. These figures are perfect for children who love animals, as well as for those who enjoy creative play or need unique **cake toppers** for themed celebrations. If you want to encourage imaginative play and provide a hands-on learning experience, this set is an excellent choice.
@@ -73,10 +73,10 @@ The **Muchfun 20Pcs Dog Toy Figures** boast vibrant colors and well-crafted desi
 
 Crafted by **Muchfun**, a reputable manufacturer, these figurines meet high standards for safety and durability, ensuring they withstand active play and last through many uses. Their versatility extends beyond playtime, as they can be used in educational settings to teach children about different dog breeds and animal characteristics, enhancing both learning and enjoyment.
 
-## <a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onest Mini Dog Figurines Playset</a>
+## <a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onest Mini Dog Figurines Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONEST 20 Pieces Mini Dog Figurines Playset Hand Painted Tiny Dogs Realistic Detailed Plastic Puppy Figures Toys Small Dog Figurines for Kids Adults" src="https://m.media-amazon.com/images/I/512Wayh+chL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONEST 20 Pieces Mini Dog Figurines Playset Hand Painted Tiny Dogs Realistic Detailed Plastic Puppy Figures Toys Small Dog Figurines for Kids Adults" src="https://m.media-amazon.com/images/I/512Wayh+chL._SL500_.jpg"/></a>
 
 
 The **ONEST 20 Pieces Mini Dog Figurines Playset** is perfect for both **kids and adults** who love collecting detailed, realistic dog models. Ideal for **dog enthusiasts, collectors, and educators**, this set offers a fun and interactive way to explore different dog breeds through hand-painted, tiny figures. Whether used for play, display, or educational purposes, these miniature puppies provide a charming addition to any collection.
@@ -98,10 +98,10 @@ Each figurine in the **ONEST Mini Dog Figurines Playset** is meticulously hand-p
 
 Additionally, the set’s durable plastic material ensures longevity, even with regular handling by children. This makes it an excellent educational tool for teaching kids about different dog breeds, promoting recognition and appreciation of canine diversity. Overall, this playset blends fun, learning, and collecting into a compact, high-quality package that dog lovers of all ages can enjoy.
 
-## <a href="https://www.amazon.com/dp/B07B8PVQSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany 12pcs Mini Dog Figurines Playset</a>
+## <a href="https://www.amazon.com/dp/B07B8PVQSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany 12pcs Mini Dog Figurines Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B07B8PVQSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 12PCS Mini Dog Figurines Playset, Realistic Detailed Plastic Puppy Figures, Hand Painted Emulational Tiny Dogs Animals Toy Set, Cake Toppers Christmas Birthday Gift for Kids Toddlers" src="https://m.media-amazon.com/images/I/41M62OryrzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07B8PVQSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 12PCS Mini Dog Figurines Playset, Realistic Detailed Plastic Puppy Figures, Hand Painted Emulational Tiny Dogs Animals Toy Set, Cake Toppers Christmas Birthday Gift for Kids Toddlers" src="https://m.media-amazon.com/images/I/41M62OryrzL._SL500_.jpg"/></a>
 
 
 The **Toymany 12PCS Mini Dog Figurines Playset** is perfect for **children**, **toddlers**, and anyone who loves **realistic animal toys**. Ideal for parents looking to encourage imaginative play or for collectors who appreciate **hand-painted miniature dog figures**, this set offers a delightful blend of education and entertainment. It's also a wonderful choice for those seeking unique **cake toppers** or themed decorations for **birthdays** and **Christmas** celebrations.
@@ -125,10 +125,10 @@ The **Toymany 12PCS Mini Dog Figurines Playset** boasts **realistic details** an
 
 Beyond play, these miniature dogs serve as charming **decorative elements** or **cake toppers** for special occasions like **birthdays** and **Christmas**. Their durable plastic construction ensures they withstand regular use, making them a lasting addition to any toy collection. Overall, this set provides a delightful combination of educational value, entertainment, and aesthetic appeal for kids and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Eyscota Dog Figurines </a>
+## <a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Eyscota Dog Figurines </a>
 
 
-<a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Dog Figurines, Realistic Plastic Puppy Figurines, Hand Painted Emulational Tiny Dogs Animals Toy, Dog Cake Topper Easter Egg Birthday Gift for Kids and Toddlers" src="https://m.media-amazon.com/images/I/51ejvg3itML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Dog Figurines, Realistic Plastic Puppy Figurines, Hand Painted Emulational Tiny Dogs Animals Toy, Dog Cake Topper Easter Egg Birthday Gift for Kids and Toddlers" src="https://m.media-amazon.com/images/I/51ejvg3itML._SL500_.jpg"/></a>
 
 
 These **EYSCOTA 12PCS Dog Figurines** are perfect for **kids and toddlers** who love animals and enjoy imaginative play. Ideal for parents looking to provide their children with safe, **hand-painted** and **realistic plastic puppy figurines**, these tiny dog toys also serve as charming **cake toppers** or delightful **birthday gifts**. If you want to encourage creativity and animal appreciation in young children, this set is a great choice.
@@ -150,10 +150,10 @@ The **EYSCOTA 12PCS Dog Figurines** boast meticulous **hand-painted emulation** 
 
 These figurines not only entertain children but also stimulate their imagination and love for animals. Whether used as **birthday gifts**, part of an Easter egg surprise, or as cute **cake toppers**, they add a special touch to celebrations. Parents can feel confident gifting these to toddlers who are developing fine motor skills, as the figurines encourage hands-on learning and exploration of the animal world.
 
-## <a href="https://www.amazon.com/dp/B012HG02XE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poodle White Mini Dog Collectible Pet Figurine</a>
+## <a href="https://www.amazon.com/dp/B012HG02XE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poodle White Mini Dog Collectible Pet Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B012HG02XE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Poodle White Mini Dog Collectible Pet Figurine" src="https://m.media-amazon.com/images/I/21sWTkcB9TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B012HG02XE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Poodle White Mini Dog Collectible Pet Figurine" src="https://m.media-amazon.com/images/I/21sWTkcB9TL._SL500_.jpg"/></a>
 
 
 Ideal for **dog lovers**, **collectors of miniature figurines**, and those seeking a charming decorative piece, the **Poodle White Mini Dog Collectible Pet Figurine** is perfect for anyone who appreciates detailed craftsmanship in a compact form. This item suits individuals looking to add a touch of elegance and cuteness to their collection or home decor.
@@ -174,10 +174,10 @@ The **Poodle White Mini Dog Collectible Pet Figurine** stands out with its finel
 
 Beyond its visual appeal, this collectible figurine offers the benefit of being a meaningful gift for dog enthusiasts and collectors alike. The trusted **Champion brand** guarantees a high standard of quality, making this figurine a lasting keepsake. Whether enhancing your personal space or gifting to a loved one, this miniature poodle figurine combines charm, quality, and versatility in one delightful package.
 
-## <a href="https://www.amazon.com/dp/B00GHLNO0E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Miniature Cockapoo Black Tiny One Figurine</a>
+## <a href="https://www.amazon.com/dp/B00GHLNO0E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Miniature Cockapoo Black Tiny One Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B00GHLNO0E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Miniature Cockapoo Black Tiny One Figurine" src="https://m.media-amazon.com/images/I/310SvWNGZuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00GHLNO0E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Miniature Cockapoo Black Tiny One Figurine" src="https://m.media-amazon.com/images/I/310SvWNGZuL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Miniature Cockapoo Black Tiny One Figurine** is perfect for **dog lovers**, collectors of **miniature figurines**, and anyone looking to add a charming decorative piece to their home or office. Ideal for those who appreciate detailed craftsmanship and enjoy showcasing adorable, realistic representations of their favorite dog breeds, this figurine is a great gift or personal keepsake.
@@ -198,10 +198,10 @@ Crafted by **Conversation Concepts**, this miniature figurine features meticulou
 
 Beyond its visual appeal, this figurine serves as a meaningful collectible for enthusiasts who appreciate fine craftsmanship and animal representation. Whether displayed alone or as part of a collection, it brings warmth and personality to any environment. Its durability ensures that it remains a cherished piece for years to come, making it a valuable addition to your décor or a thoughtful gift for loved ones.
 
-## <a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Totsmile 36pcs Realistic Dog Figurines Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Totsmile 36pcs Realistic Dog Figurines Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Totsmile 36PCS Realistic Dog Figurines Toy Set, Hand Painted Emulational Mini Plastic Dogs Animal Puppy Figures Toys for Kids Ages 3-5 5-7, Cake Topper Easter Eggs Birthday Gift for Boys Girls" src="https://m.media-amazon.com/images/I/51ttc52gkML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Totsmile 36PCS Realistic Dog Figurines Toy Set, Hand Painted Emulational Mini Plastic Dogs Animal Puppy Figures Toys for Kids Ages 3-5 5-7, Cake Topper Easter Eggs Birthday Gift for Boys Girls" src="https://m.media-amazon.com/images/I/51ttc52gkML._SL500_.jpg"/></a>
 
 
 The **Totsmile 36PCS Realistic Dog Figurines Toy Set** is perfect for young children aged **3-7 years** who have a keen interest in animals, especially dogs. This set is ideal for parents and gift-givers looking to provide a creative and educational toy that encourages imaginative play and helps develop fine motor skills. It is also a great choice for collectors of miniature animal figures or anyone seeking a charming cake topper or decorative item.
@@ -224,10 +224,10 @@ The **Totsmile 36PCS Realistic Dog Figurines Toy Set** boasts a collection of in
 
 Beyond simple play, these figurines support developmental growth by fostering imaginative scenarios and storytelling, which are crucial for cognitive and social skills. Additionally, their manageable size allows kids to easily carry and arrange them, whether at home or on the go. For parents and gift shoppers, this set provides a thoughtful and versatile present that combines fun, learning, and decoration all in one.
 
-## <a href="https://www.amazon.com/dp/B0CH1J269R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Golden Retriever Puppy Toy Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B0CH1J269R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Golden Retriever Puppy Toy Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B0CH1J269R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World - Realistic Animal Toys for Kids - Golden Retriever Puppy Toy Dog Figurine - Ages 3+" src="https://m.media-amazon.com/images/I/413djL-z4OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CH1J269R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World - Realistic Animal Toys for Kids - Golden Retriever Puppy Toy Dog Figurine - Ages 3+" src="https://m.media-amazon.com/images/I/413djL-z4OL._SL500_.jpg"/></a>
 
 
 The **Schleich Farm World - Realistic Animal Toys for Kids - Golden Retriever Puppy Toy Dog Figurine** is ideal for young children aged **3 and above** who have a love for animals and imaginative play. Parents and gift buyers looking for a high-quality, **durable toy** that encourages creativity and learning about animals will find this figurine perfect. It is especially suitable for kids who enjoy collecting realistic animal models or role-playing farmyard scenes.
@@ -250,10 +250,10 @@ The **Schleich Golden Retriever Puppy Toy Dog Figurine** stands out for its exce
 
 Beyond aesthetics, this figurine promotes creativity and role-playing, which are essential for early childhood development. Kids can create their own farm stories or animal adventures, enhancing their social and cognitive skills. Additionally, being produced by **Schleich**, the toy assures parents of safety and durability, making it a reliable choice for young kids who love animals.
 
-## <a href="https://www.amazon.com/dp/B07HMZJ86X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Terra By Battat – Toy Golden Retriever Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B07HMZJ86X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Terra By Battat – Toy Golden Retriever Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B07HMZJ86X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Terra by Battat – Toy Golden Retriever Dog Figurine – Small Puppy for Farm Animal Playsets – Realistic Pet Toy for Toddlers &amp; Kids – Collectible Animal Figures 3+ Years" src="https://m.media-amazon.com/images/I/412VFQCyioL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07HMZJ86X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Terra by Battat – Toy Golden Retriever Dog Figurine – Small Puppy for Farm Animal Playsets – Realistic Pet Toy for Toddlers &amp; Kids – Collectible Animal Figures 3+ Years" src="https://m.media-amazon.com/images/I/412VFQCyioL._SL500_.jpg"/></a>
 
 
 The **Terra by Battat Toy Golden Retriever Dog Figurine** is perfect for parents and caregivers looking to provide their **toddlers and kids aged 3 years and above** with a **realistic and durable pet toy**. Ideal for children who enjoy **farm animal playsets** and **collectible animal figures**, this small puppy figurine encourages imaginative play and helps develop fine motor skills and creativity.

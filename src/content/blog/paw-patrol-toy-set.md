@@ -23,10 +23,10 @@ Sets like the 10th Anniversary All Paws On Deck and Mighty Lookout Tower include
 
 
 
-## <a href="https://www.amazon.com/dp/B0B4Y639SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol All Paws On Deck Toy Figures Gift Pack</a>
+## <a href="https://www.amazon.com/dp/B0B4Y639SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol All Paws On Deck Toy Figures Gift Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0B4Y639SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol, 10th Anniversary, All Paws On Deck Toy Figures Gift Pack with 10 Collectible Action Figures, Kids Toys for Ages 3 and up" src="https://m.media-amazon.com/images/I/41dQ9JRC4oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B4Y639SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol, 10th Anniversary, All Paws On Deck Toy Figures Gift Pack with 10 Collectible Action Figures, Kids Toys for Ages 3 and up" src="https://m.media-amazon.com/images/I/41dQ9JRC4oL._SL500_.jpg"/></a>
 
 
 The **Paw Patrol, 10th Anniversary, All Paws On Deck Toy Figures Gift Pack** is ideal for young children aged 3 and up who are fans of the popular **Paw Patrol** series. This set is perfect for parents and gift-givers looking to provide engaging and imaginative playtime with a collection of beloved characters. It’s especially suited for kids who enjoy action figures and creative storytelling.
@@ -49,12 +49,12 @@ This **Paw Patrol 10th Anniversary Toy Figures Gift Pack** offers a comprehensiv
 
 Additionally, this set supports social play when children share and engage with friends or siblings, enhancing communication skills and teamwork. The durable construction by **Spin Master** guarantees that these toys can withstand active play sessions. Overall, this gift pack provides excellent value and lasting entertainment for any young **Paw Patrol** enthusiast.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B4Y639SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B4Y639SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CSPFYG26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: Pup Squad Racers</a>
+## <a href="https://www.amazon.com/dp/B0CSPFYG26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: Pup Squad Racers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSPFYG26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: Pup Squad Racers, 6-Piece Vehicle Gift Set, Kids Toys for Boys &amp; Girls Ages 3 and Up" src="https://m.media-amazon.com/images/I/51bY6lDJcHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSPFYG26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: Pup Squad Racers, 6-Piece Vehicle Gift Set, Kids Toys for Boys &amp; Girls Ages 3 and Up" src="https://m.media-amazon.com/images/I/51bY6lDJcHL._SL500_.jpg"/></a>
 
 
 Ideal for young fans of the hit show **Paw Patrol**, the **Paw Patrol: Pup Squad Racers, 6-Piece Vehicle Gift Set** is perfect for boys and girls ages **3 and up** who love imaginative play and action-packed adventures. This set is designed for children who enjoy collecting and racing their favorite pup vehicles, encouraging creativity and motor skills development.
@@ -76,12 +76,12 @@ The **Paw Patrol: Pup Squad Racers, 6-Piece Vehicle Gift Set** offers a vibrant 
 
 Constructed with durable materials by **Spin Master**, these vehicles are built to withstand energetic play while remaining safe for young children. The compact and lightweight design makes them easy to carry, store, and share, making this gift set an excellent choice for birthdays, holidays, or everyday fun. Overall, this set supports creativity, fine motor skills, and social interaction, making it a valuable addition to any child's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CSPFYG26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CSPFYG26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DBLQXQP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: Air Rescue Toy Figures Gift Pack</a>
+## <a href="https://www.amazon.com/dp/B0DBLQXQP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: Air Rescue Toy Figures Gift Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBLQXQP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: Air Rescue Toy Figures Gift Pack, with 7 Collectible Action Figures, Kids Toys for Boys &amp; Girls Ages 3 and up" src="https://m.media-amazon.com/images/I/51rUsn9pwdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBLQXQP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: Air Rescue Toy Figures Gift Pack, with 7 Collectible Action Figures, Kids Toys for Boys &amp; Girls Ages 3 and up" src="https://m.media-amazon.com/images/I/51rUsn9pwdL._SL500_.jpg"/></a>
 
 
 The **Paw Patrol: Air Rescue Toy Figures Gift Pack** is perfect for young fans of the popular Paw Patrol series, especially children aged **3 and up**. Ideal for both boys and girls, this set appeals to kids who love imaginative play and collecting action figures. Parents looking to encourage creativity and role-playing will find this gift pack a great choice.
@@ -103,12 +103,12 @@ The **Paw Patrol: Air Rescue Toy Figures Gift Pack** features detailed miniature
 
 Thanks to the high-quality manufacturing by **Spin Master**, these figures are durable and safe for young children. The collection encourages kids to engage in creative storytelling and cooperative play, helping develop social and cognitive skills. Overall, this set offers a fun and engaging way for children to bring their favorite Paw Patrol adventures to life.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DBLQXQP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DBLQXQP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CSPCFJRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Rescue Wheels Toy Figures Gift Pack</a>
+## <a href="https://www.amazon.com/dp/B0CSPCFJRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Rescue Wheels Toy Figures Gift Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSPCFJRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: Rescue Wheels, Toy Figures Gift Pack, with 7 Collectible Action Figures, Kids Toys for Boys and Girls Ages 3 and up" src="https://m.media-amazon.com/images/I/41djYClhZAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSPCFJRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: Rescue Wheels, Toy Figures Gift Pack, with 7 Collectible Action Figures, Kids Toys for Boys and Girls Ages 3 and up" src="https://m.media-amazon.com/images/I/41djYClhZAL._SL500_.jpg"/></a>
 
 
 The **Paw Patrol: Rescue Wheels, Toy Figures Gift Pack** is ideal for young children, especially boys and girls aged 3 and up, who love imaginative play and are fans of the popular **Paw Patrol** series. This set is perfect for parents and gift-givers looking to encourage creativity and role-playing through engaging and collectible action figures.
@@ -130,12 +130,12 @@ The **Paw Patrol: Rescue Wheels, Toy Figures Gift Pack** features seven detailed
 
 Made by **Spin Master**, the pack guarantees high quality and safety, providing parents peace of mind. The set not only offers fun but also promotes developmental skills such as storytelling, problem-solving, and cooperative play. Overall, this gift pack is a fantastic addition to any child's toy collection, combining entertainment with educational value.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CSPCFJRS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CSPCFJRS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BBPYTFG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Lookout Tower Playset</a>
+## <a href="https://www.amazon.com/dp/B0BBPYTFG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Lookout Tower Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBPYTFG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol Lookout Tower Playset with Toy Car Launcher, 2 Chase Action Figures, Chase’s Police Cruiser and Accessories, Kids Toys for Ages 3 and up" src="https://m.media-amazon.com/images/I/51Ht8FnYmOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBPYTFG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol Lookout Tower Playset with Toy Car Launcher, 2 Chase Action Figures, Chase’s Police Cruiser and Accessories, Kids Toys for Ages 3 and up" src="https://m.media-amazon.com/images/I/51Ht8FnYmOL._SL500_.jpg"/></a>
 
 
 The **Paw Patrol Lookout Tower Playset with Toy Car Launcher** is perfect for young fans of the popular animated series, especially kids aged **3 and up**. This playset is ideal for parents seeking an engaging and interactive toy that encourages imaginative play and role-playing. If your child loves **adventure, rescue missions,** and **action-packed fun**, this set offers a fantastic way to bring their favorite characters and stories to life.
@@ -158,12 +158,12 @@ The **Paw Patrol Lookout Tower Playset** offers an immersive play experience by 
 
 Designed with young children in mind, this playset balances fun and safety, backed by the trusted quality of **Spin Master**. Its manageable size ensures it fits comfortably in playrooms or bedrooms without overwhelming the space. Overall, this set is a wonderful choice for parents looking to delight their **Paw Patrol** fans with a durable, engaging, and action-packed toy.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BBPYTFG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BBPYTFG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08W5DGL1V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol, Mighty Lookout Tower</a>
+## <a href="https://www.amazon.com/dp/B08W5DGL1V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol, Mighty Lookout Tower</a>
 
 
-<a href="https://www.amazon.com/dp/B08W5DGL1V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol, Mighty Lookout Tower with 4 Exclusive Bonus Action Figures, Toy Car, Lights and Sounds (Amazon Exclusive), Kids Toys for Ages 3 and up" src="https://m.media-amazon.com/images/I/51jLQrv3DFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08W5DGL1V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol, Mighty Lookout Tower with 4 Exclusive Bonus Action Figures, Toy Car, Lights and Sounds (Amazon Exclusive), Kids Toys for Ages 3 and up" src="https://m.media-amazon.com/images/I/51jLQrv3DFL._SL500_.jpg"/></a>
 
 
 The **Paw Patrol Mighty Lookout Tower** with 4 Exclusive Bonus Action Figures, Toy Car, Lights and Sounds is perfect for children aged **3 and up** who are fans of the popular **Paw Patrol** series. This toy is ideal for young kids who enjoy imaginative play and interactive adventures with their favorite heroic pups. Parents looking for a durable, engaging, and feature-rich playset to keep their children entertained will find this product an excellent choice.
@@ -186,12 +186,12 @@ The **Mighty Lookout Tower** playset is designed to stimulate creativity and rol
 
 Crafted by **Spin Master**, this toy is built with quality materials to ensure durability and safety for young users. The tower’s size and weight make it a substantial centerpiece for any child’s toy collection, while still being manageable for kids to access and use during play. This set is particularly beneficial for developing fine motor skills, social interaction, and imaginative thinking, making it a valuable addition to any child’s playtime routine.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08W5DGL1V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08W5DGL1V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CM8DCG7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Team Cruiser</a>
+## <a href="https://www.amazon.com/dp/B0CM8DCG7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Team Cruiser</a>
 
 
-<a href="https://www.amazon.com/dp/B0CM8DCG7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PAW Patrol Team Cruiser, Large Scale Vehicle with Exclusive Chase, Marshall, Skye, Rubble, Rocky &amp; Zuma Action Figures, Toys for Boys &amp; Girls Ages 3+" src="https://m.media-amazon.com/images/I/51enih+6NIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CM8DCG7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PAW Patrol Team Cruiser, Large Scale Vehicle with Exclusive Chase, Marshall, Skye, Rubble, Rocky &amp; Zuma Action Figures, Toys for Boys &amp; Girls Ages 3+" src="https://m.media-amazon.com/images/I/51enih+6NIL._SL500_.jpg"/></a>
 
 
 The **PAW Patrol Team Cruiser** is perfect for young fans of the hit animated series who love engaging in imaginative play. Ideal for children aged **3 and up**, this large-scale vehicle comes with exclusive action figures, making it a great choice for boys and girls eager to recreate their favorite rescue missions with **Chase, Marshall, Skye, Rubble, Rocky, and Zuma**. Parents looking for a durable and interactive toy that encourages creativity will find this set especially appealing.
@@ -213,12 +213,12 @@ The **PAW Patrol Team Cruiser** is thoughtfully designed to bring the excitement
 
 Beyond its engaging design, the cruiser’s manageable size makes it easy for small hands to maneuver while still being substantial enough to feel like a real vehicle. The vibrant **Chase Team Cruiser color** and authentic detailing capture the spirit of the show, making it a standout addition to any child’s toy collection. Overall, this set offers both entertainment and developmental benefits, making it an excellent gift choice for young **PAW Patrol fans**.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CM8DCG7G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CM8DCG7G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07PDMSP68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Launch’n Haul Paw Patroller</a>
+## <a href="https://www.amazon.com/dp/B07PDMSP68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol Launch’n Haul Paw Patroller</a>
 
 
-<a href="https://www.amazon.com/dp/B07PDMSP68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PAW Patrol, Launch’N Haul PAW Patroller, Transforming 2-in-1 Track Set for True Metal Die-Cast Vehicles, Kids Toys for Boys &amp; Girls Ages 3 and Up" src="https://m.media-amazon.com/images/I/51UHATV3ZmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PDMSP68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PAW Patrol, Launch’N Haul PAW Patroller, Transforming 2-in-1 Track Set for True Metal Die-Cast Vehicles, Kids Toys for Boys &amp; Girls Ages 3 and Up" src="https://m.media-amazon.com/images/I/51UHATV3ZmL._SL500_.jpg"/></a>
 
 
 The **PAW Patrol Launch’N Haul PAW Patroller** is perfect for young fans of the popular animated series, especially children aged **3 and up** who love imaginative play. This transforming **2-in-1 track set** is ideal for boys and girls eager to bring their favorite **die-cast vehicles** to life with interactive features and exciting adventures. Parents looking for a durable, engaging toy that encourages creativity and motor skills will find this product a great choice.
@@ -241,12 +241,12 @@ The **PAW Patrol Launch’N Haul PAW Patroller** by **Spin Master** stands out w
 
 Additionally, the set’s thoughtful size and design make it easy to fit into various play areas without occupying excessive space. The sturdy construction supports repeated transformations and launches, promoting hand-eye coordination and fine motor development. Overall, this track set delivers a fun, immersive experience that captures the adventurous spirit of **PAW Patrol** and delights young fans.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07PDMSP68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07PDMSP68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DBLRWR8M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: Air Rescue, 6-piece Pup Squad Racers</a>
+## <a href="https://www.amazon.com/dp/B0DBLRWR8M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: Air Rescue, 6-piece Pup Squad Racers</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBLRWR8M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PAW Patrol: Air Rescue, 6-Piece Pup Squad Racers, Toy Cars Gift Set with Chase, Marshall, Skye, Rubble, Rocky &amp; Zuma, Kids Toys for Boys &amp; Girls 3+" src="https://m.media-amazon.com/images/I/51w3oQu2zzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBLRWR8M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PAW Patrol: Air Rescue, 6-Piece Pup Squad Racers, Toy Cars Gift Set with Chase, Marshall, Skye, Rubble, Rocky &amp; Zuma, Kids Toys for Boys &amp; Girls 3+" src="https://m.media-amazon.com/images/I/51w3oQu2zzL._SL500_.jpg"/></a>
 
 
 Ideal for young fans of the popular **PAW Patrol** series, the **PAW Patrol: Air Rescue, 6-Piece Pup Squad Racers Toy Cars Gift Set** is perfect for **boys and girls aged 3 and above** who love imaginative play and action-packed adventures. This set features six detailed toy cars representing beloved characters like **Chase, Marshall, Skye, Rubble, Rocky, and Zuma**, making it an excellent choice for children who enjoy role-playing and collecting themed toys.
@@ -269,12 +269,12 @@ This **PAW Patrol 6-Piece Pup Squad Racers Set** stands out for its vibrant and 
 
 Crafted by **Spin Master**, a reputable name in children's toys, this set assures quality and durability, making it suitable for energetic play sessions. The collective inclusion of six pups encourages social interaction, as kids can role-play rescue missions together or build a collection. Overall, the **Air Rescue Pup Squad Racers** offer both entertainment and developmental benefits, making it a thoughtful gift for any young **PAW Patrol** enthusiast.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DBLRWR8M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DBLRWR8M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BRT8MRRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: The Mighty Movie Toy Figures Gift Pack</a>
+## <a href="https://www.amazon.com/dp/B0BRT8MRRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Paw Patrol: The Mighty Movie Toy Figures Gift Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRT8MRRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: The Mighty Movie, Toy Figures Gift Pack, with 6 Collectible Action Figures, Kids Toys for Boys and Girls Ages 3 and up" src="https://m.media-amazon.com/images/I/517xX88WCjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRT8MRRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Paw Patrol: The Mighty Movie, Toy Figures Gift Pack, with 6 Collectible Action Figures, Kids Toys for Boys and Girls Ages 3 and up" src="https://m.media-amazon.com/images/I/517xX88WCjL._SL500_.jpg"/></a>
 
 
 The **Paw Patrol: The Mighty Movie, Toy Figures Gift Pack** is perfect for young fans of the popular Paw Patrol series, especially children ages **3 and up**. This set is ideal for parents looking to encourage imaginative play and collectors who want to add to their Paw Patrol memorabilia. Boys and girls who love action figures and storytelling will find this **6 collectible action figures** set engaging and fun.
@@ -296,7 +296,7 @@ This **toy figures gift pack** brings beloved Paw Patrol characters to life with
 
 Beyond just being fun, these figures promote **developmental skills** such as imagination, role-playing, and social interaction. The set's high-quality build ensures it withstands active play, making it a valuable addition to any child's toy collection. Whether for solo play or sharing adventures with friends, this gift pack offers endless entertainment and learning opportunities.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BRT8MRRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BRT8MRRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

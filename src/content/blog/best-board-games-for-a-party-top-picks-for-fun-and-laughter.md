@@ -23,10 +23,10 @@ Word games such as The Original TAPPLE or Ransom Notes challenge your thinking a
 
 
 
-## <a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
+## <a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
 
 
 The **Wavelength Party Game – A Mind Reading Party Game** is ideal for groups looking to enhance their social gatherings with a fun and interactive experience. Perfect for friends, families, and party enthusiasts who enjoy games that challenge communication and intuition, this game encourages players to connect on a deeper level through clever guessing and teamwork. If you want to add a unique twist to your game nights, this is the perfect choice.
@@ -48,10 +48,10 @@ The **Wavelength Party Game** by **CMYK** and manufactured by **Palm Court** fea
 
 Thanks to its lightweight design of approximately 2.47 pounds, the game is highly portable, allowing you to bring it to various social settings effortlessly. Whether it’s a casual get-together or a larger party, this game offers dynamic entertainment that brings people closer, sharpens communication skills, and guarantees hours of fun. Its inclusive nature makes it a versatile option for diverse groups, ensuring everyone can participate and enjoy.
 
-## <a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jenga Game</a>
+## <a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jenga Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jenga Game" src="https://m.media-amazon.com/images/I/519Sfo0ES7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jenga Game" src="https://m.media-amazon.com/images/I/519Sfo0ES7L._SL500_.jpg"/></a>
 
 
 The **Jenga Game** by **Hasbro Gaming** is perfect for individuals and families who enjoy interactive and strategic games. It’s ideal for those looking to enhance their concentration, hand-eye coordination, and fine motor skills while having fun. Whether you’re hosting a game night or seeking a portable activity for gatherings, this classic game suits players of all ages.
@@ -74,10 +74,10 @@ The **Jenga Game** features a set of sturdy wooden blocks stacked into a tower, 
 
 Beyond entertainment, the **Classic Edition** Jenga encourages players to develop strategic thinking and fine motor skills as they carefully plan each move. Its lightweight design, weighing just under 2 pounds, ensures it can be easily carried to different locations, making it a versatile choice for both home and travel. Manufactured by **Hasbro**, a trusted name in gaming, this game guarantees quality and durability, enhancing the overall user experience.
 
-## <a href="https://www.amazon.com/dp/B07G2VHPRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blank Slate</a>
+## <a href="https://www.amazon.com/dp/B07G2VHPRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blank Slate</a>
 
 
-<a href="https://www.amazon.com/dp/B07G2VHPRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blank Slate - The Game Where Great Minds Think Alike | Fun Family Friendly Word Association Party Game | The Best Choice for Game Night! | Great Family Board Game &amp; Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51T8zbzUu2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G2VHPRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blank Slate - The Game Where Great Minds Think Alike | Fun Family Friendly Word Association Party Game | The Best Choice for Game Night! | Great Family Board Game &amp; Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51T8zbzUu2L._SL500_.jpg"/></a>
 
 
 Ideal for families and friends looking to enhance their game night with a fun and engaging activity, **Blank Slate - The Game Where Great Minds Think Alike** is perfect for those who enjoy word association and party games. This **family-friendly board game** is designed for players who want to connect, laugh, and challenge their minds in a lighthearted and entertaining way.
@@ -100,10 +100,10 @@ Ideal for families and friends looking to enhance their game night with a fun an
 
 Players benefit from quick rounds that keep the energy high, allowing everyone to participate without long wait times. The game also fosters creativity and quick thinking, helping improve vocabulary and associative skills in a fun environment. With its reliable brand backing and family-friendly appeal, **Blank Slate** is a must-have for anyone wanting to add a lively, thoughtful twist to their game night.
 
-## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
+## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
 
 
 **The Original TAPPLE** is ideal for families, friends, and anyone looking for a fast-paced, engaging word game that boosts quick thinking and vocabulary skills. Perfect for players aged 8 and up, this game works well for groups of 2 to 8 people who enjoy lively competition and want a fun way to learn and connect in just 15-20 minutes of playtime.
@@ -126,10 +126,10 @@ Players benefit from quick rounds that keep the energy high, allowing everyone t
 
 Designed by **USAOPOLY**, the game boasts a durable and compact build with an attractive blue finish, making it easy to bring to any social occasion. The simple setup and quick rounds cater to busy families or groups who want to enjoy quality time without lengthy preparation. Overall, it’s a versatile and educational board game that combines fun with learning, suitable for both casual players and word game enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B07QSCQMXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Incohearent</a>
+## <a href="https://www.amazon.com/dp/B07QSCQMXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Incohearent</a>
 
 
-<a href="https://www.amazon.com/dp/B07QSCQMXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Incohearent, The Guess The Gibberish Party Game by Relatable, A Funny Card Game for Adults, Great for Game Night Games, Includes 400 Cards, Instructions, and 1 Sand Timer" src="https://m.media-amazon.com/images/I/41rGFJdfOIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QSCQMXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Incohearent, The Guess The Gibberish Party Game by Relatable, A Funny Card Game for Adults, Great for Game Night Games, Includes 400 Cards, Instructions, and 1 Sand Timer" src="https://m.media-amazon.com/images/I/41rGFJdfOIL._SL500_.jpg"/></a>
 
 
 The **WHAT DO YOU MEME? Incohearent** party game is ideal for adults who enjoy lively social gatherings and love a good laugh. If you're looking for a **funny card game** that challenges your creativity and quick thinking, this game is perfect for **game night enthusiasts** and groups of friends or family seeking an entertaining and interactive experience.
@@ -152,10 +152,10 @@ The **WHAT DO YOU MEME? Incohearent** game features an innovative twist on tradi
 
 Designed by **What Do You Meme LLC**, the game boasts high-quality, colorful cards that are visually appealing and durable for repeated use. Its compact size means it can easily be taken to parties, gatherings, or even vacations. Beyond entertainment, this game promotes **social interaction** and **creative thinking**, making it not just a source of fun but also a way to enhance communication and bonding among players. Whether you’re looking to break the ice or spice up your game night, this card game delivers an engaging and humorous experience.
 
-## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
+## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
 
 
-<a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
 
 
 The **Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game** is perfect for anyone looking to add excitement to their **family or group game night**. Ideal for **kids, teens, adults, and families**, this game is designed for 2-8 players who want a quick, easy-to-learn, and highly engaging game that keeps everyone entertained in short 10-15 minute rounds. If you enjoy fast-paced, interactive games that bring people together, this is an excellent choice.
@@ -177,10 +177,10 @@ The **Taco Cat Goat Cheese Pizza** card game features a simple yet captivating g
 
 Manufactured by **Dolphin Hat Games**, the game boasts vibrant multi-color cards that appeal to all age groups, making it an inclusive choice for family gatherings or friendly competitions. Its ability to accommodate 2-8 players ensures flexibility for different group sizes, and the short 10-15 minute rounds mean it fits easily into busy schedules while still delivering plenty of laughs and excitement.
 
-## <a href="https://www.amazon.com/dp/B0D2JG7873?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Horrible Therapist: Extra Horrible Edition</a>
+## <a href="https://www.amazon.com/dp/B0D2JG7873?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Horrible Therapist: Extra Horrible Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2JG7873?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Horrible Therapist: Extra Horrible Edition by Exploding Kittens - A Card Game for 3-8 Players, Ages 17+ - Adult Party Game for Family Night" src="https://m.media-amazon.com/images/I/51zd82uittL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2JG7873?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Horrible Therapist: Extra Horrible Edition by Exploding Kittens - A Card Game for 3-8 Players, Ages 17+ - Adult Party Game for Family Night" src="https://m.media-amazon.com/images/I/51zd82uittL._SL500_.jpg"/></a>
 
 
 The **Horrible Therapist: Extra Horrible Edition** by **Exploding Kittens** is perfect for adults looking for a fun and engaging way to spice up their **family night** or parties. Designed for **3-8 players** aged **17+**, this card game is ideal for those who enjoy witty, interactive, and slightly edgy gameplay that encourages laughter and social interaction. If you’re seeking an entertaining adult party game that combines humor with strategy, this is the game for you.
@@ -203,10 +203,10 @@ The **Horrible Therapist: Extra Horrible Edition** features a unique set of card
 
 Beyond just entertainment, the game fosters social bonding and communication among players by encouraging them to engage in playful banter and creative problem-solving. Its adult-oriented content makes it stand out from typical family games, ensuring that it remains fresh and exciting for mature audiences. Overall, the game offers a perfect blend of humor, strategy, and social interaction, making it a must-have for anyone who enjoys lively and memorable game nights.
 
-## <a href="https://www.amazon.com/dp/B0CWVMNNFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lucky Egg Official Grab The Mic</a>
+## <a href="https://www.amazon.com/dp/B0CWVMNNFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lucky Egg Official Grab The Mic</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWVMNNFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lucky Egg Official Grab The Mic – Family Karaoke Board Game, 8+ Year Olds, 2-10 Players - Games for Bad Singers with 250 Lyrics (125 Cards) for Hilarious Game Nights &amp; Birthday Party, Kids Gift" src="https://m.media-amazon.com/images/I/51Mjxwf-iRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWVMNNFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lucky Egg Official Grab The Mic – Family Karaoke Board Game, 8+ Year Olds, 2-10 Players - Games for Bad Singers with 250 Lyrics (125 Cards) for Hilarious Game Nights &amp; Birthday Party, Kids Gift" src="https://m.media-amazon.com/images/I/51Mjxwf-iRL._SL500_.jpg"/></a>
 
 
 The **Lucky Egg Official Grab The Mic – Family Karaoke Board Game** is perfect for families and friends looking to spice up their game nights with a fun and interactive activity. Ideal for players aged **8 years and older**, this game accommodates **2 to 10 players**, making it suitable for both small gatherings and larger parties. If you enjoy singing, laughter, and friendly competition, or if you want a game that encourages even the worst singers to join in, this is the perfect choice for you.
@@ -229,10 +229,10 @@ The **Lucky Egg Official Grab The Mic – Family Karaoke Board Game** boasts an 
 
 Beyond just singing, this game promotes social interaction and laughter, making it a fantastic addition to any family gathering or birthday party. Its compact size and lightweight nature mean you can easily bring it along to any event, turning any occasion into a memorable game night. Whether you're looking for a gift for kids or a fun activity for adults, this karaoke board game offers a versatile and enjoyable experience for everyone involved.
 
-## <a href="https://www.amazon.com/dp/B09F9XMRG5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ransom Notes</a>
+## <a href="https://www.amazon.com/dp/B09F9XMRG5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ransom Notes</a>
 
 
-<a href="https://www.amazon.com/dp/B09F9XMRG5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ransom Notes - The Ridiculous Word Magnet Party Game, 3+ Players" src="https://m.media-amazon.com/images/I/51vNKwmPQLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09F9XMRG5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ransom Notes - The Ridiculous Word Magnet Party Game, 3+ Players" src="https://m.media-amazon.com/images/I/51vNKwmPQLL._SL500_.jpg"/></a>
 
 
 The **Ransom Notes - The Ridiculous Word Magnet Party Game** is perfect for groups of friends or family members looking for a fun and interactive way to spice up their gatherings. Ideal for players aged 3 and above, this game is designed for anyone who enjoys wordplay, creativity, and a bit of friendly competition. Whether you’re hosting a party or just want to engage in a lighthearted activity, this game offers endless entertainment for 3 or more players.
@@ -254,10 +254,10 @@ The **Ransom Notes game** features a collection of colorful word magnets that pl
 
 Additionally, the game promotes language development and quick thinking as players scramble to form the most creative or hilarious combinations. The engaging nature of the gameplay makes it a perfect icebreaker and a memorable addition to any party or casual get-together. By combining fun with cognitive benefits, **Ransom Notes** provides an enjoyable and educational experience for all ages.
 
-## <a href="https://www.amazon.com/dp/B07P6MZPK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Card Game</a>
+## <a href="https://www.amazon.com/dp/B07P6MZPK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07P6MZPK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Card Game in a Collectible Storage Tin for Kids, Adults, Families, Parties &amp; Travel, 2 to 10 Players (Amazon Exclusive) (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51+cH30VCOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P6MZPK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Card Game in a Collectible Storage Tin for Kids, Adults, Families, Parties &amp; Travel, 2 to 10 Players (Amazon Exclusive) (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51+cH30VCOL._SL500_.jpg"/></a>
 
 
 The **Mattel Games UNO Card Game in a Collectible Storage Tin** is perfect for **kids, adults, families, parties, and travelers** who enjoy a fun and engaging card game that is easy to learn and suitable for **2 to 10 players**. This game is ideal for those looking to bring people together for quality time, whether at home or on the go. Its compact design and collectible tin make it especially appealing for anyone who values portability and stylish storage.

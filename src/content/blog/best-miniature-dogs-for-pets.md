@@ -20,10 +20,10 @@ Some breeds need regular brushing and special diets, while others are low mainte
 
 
 
-## <a href="https://www.amazon.com/dp/B0C1CFVY5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Dog And Cat Figurines For Kids</a>
+## <a href="https://www.amazon.com/dp/B0C1CFVY5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Dog And Cat Figurines For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1CFVY5T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Dog and Cat Figurines for Kids - Small Animals Toys in Bulk - Little Pet Toys - Tiny Plastic Toys for Kids Classroom Prizes - 25 Pcs - Easter Gifts for Kids" src="https://m.media-amazon.com/images/I/51hmuJvrf3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1CFVY5T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Dog and Cat Figurines for Kids - Small Animals Toys in Bulk - Little Pet Toys - Tiny Plastic Toys for Kids Classroom Prizes - 25 Pcs - Easter Gifts for Kids" src="https://m.media-amazon.com/images/I/51hmuJvrf3L._SL500_.jpg"/></a>
 
 
 The **Tiny Dog and Cat Figurines for Kids** are perfect for parents, teachers, and caregivers looking for small, engaging toys that encourage imaginative play. Ideal for young children who love animals, these **small plastic toys** serve as excellent classroom prizes, party favors, or Easter gifts. They are especially suitable for kids who enjoy collecting miniature items and creating playful scenarios with tiny pets.
@@ -46,10 +46,10 @@ These **tiny dog and cat figurines** are thoughtfully designed to spark imaginat
 
 Moreover, the lightweight and sturdy plastic construction ensures that these toys can withstand rough handling, making them a practical choice for everyday use. Their compact dimensions mean they can easily fit in pockets, lunchboxes, or craft kits, making them versatile for both indoor and outdoor play. Whether used as educational tools, rewards, or simple fun collectibles, these little pet toys provide a delightful experience that encourages social interaction and imaginative exploration among kids.
 
-## <a href="https://www.amazon.com/dp/B003CL3PTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hill's Science Diet Small &amp; Mini Adult 1-6 Small &amp; Mini Breeds Premium Nutrition Dry Dog Food Chicken &amp; Brown Rice</a>
+## <a href="https://www.amazon.com/dp/B003CL3PTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hill's Science Diet Small &amp; Mini Adult 1-6 Small &amp; Mini Breeds Premium Nutrition Dry Dog Food Chicken &amp; Brown Rice</a>
 
 
-<a href="https://www.amazon.com/dp/B003CL3PTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hill's Science Diet Small &amp; Mini, Adult 1-6, Small &amp; Mini Breeds Premium Nutrition, Dry Dog Food, Chicken &amp; Brown Rice, 4.5 lb Bag" src="https://m.media-amazon.com/images/I/41T3dj5I1wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003CL3PTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hill's Science Diet Small &amp; Mini, Adult 1-6, Small &amp; Mini Breeds Premium Nutrition, Dry Dog Food, Chicken &amp; Brown Rice, 4.5 lb Bag" src="https://m.media-amazon.com/images/I/41T3dj5I1wL._SL500_.jpg"/></a>
 
 
 Ideal for owners of small and mini dog breeds aged 1 to 6 years, **Hill's Science Diet Small & Mini, Adult 1-6** is specially formulated to meet the unique nutritional needs of smaller dogs. This premium dry dog food provides balanced nutrition with high-quality ingredients, making it perfect for those seeking to support their pet’s overall health, energy levels, and longevity.
@@ -72,10 +72,10 @@ The **Hill's Science Diet Small & Mini Adult 1-6** formula is designed with prec
 
 Beyond nutrition, this dry dog food supports vital health aspects like a shiny coat and robust immune function. The blend of antioxidants and essential fatty acids nurtures skin health and strengthens defenses against common illnesses. With a perfect kibble size suited for smaller jaws, feeding time becomes enjoyable and safe, promoting better chewing and digestion for your beloved small or mini dog.
 
-## <a href="https://www.amazon.com/dp/B0CMW7B893?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pet Republique Small Breed Toothbrush Kit For Dogs &amp; Cats</a>
+## <a href="https://www.amazon.com/dp/B0CMW7B893?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pet Republique Small Breed Toothbrush Kit For Dogs &amp; Cats</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMW7B893?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pet Republique Small Breed Toothbrush Kit for Dogs &amp; Cats 1/4' Pointed, 1/4' Flat, 3/8' Regular Brushes (3-Piece) - Suitable for Yorkie, Chihuahua &amp; Miniature Breeds" src="https://m.media-amazon.com/images/I/31acu3bCcqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMW7B893?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pet Republique Small Breed Toothbrush Kit for Dogs &amp; Cats 1/4' Pointed, 1/4' Flat, 3/8' Regular Brushes (3-Piece) - Suitable for Yorkie, Chihuahua &amp; Miniature Breeds" src="https://m.media-amazon.com/images/I/31acu3bCcqL._SL500_.jpg"/></a>
 
 
 The **Pet Republique Small Breed Toothbrush Kit** is ideal for pet owners who have small dog or cat breeds such as **Yorkies, Chihuahuas, and Miniature breeds**. If you are looking for a specialized dental care solution that caters specifically to the delicate mouths of smaller pets, this toothbrush kit is designed to meet those needs effectively. It is perfect for those committed to maintaining their pet’s oral hygiene and preventing common dental issues like plaque buildup and gum disease.
@@ -97,10 +97,10 @@ The **Pet Republique Small Breed Toothbrush Kit** offers a versatile range of br
 
 Additionally, the kit’s lightweight and compact design enhances ease of use, especially for pet owners who may struggle with larger, bulkier toothbrushes. The bright colors not only add a fun element but also help keep brushes organized for multiple pets or purposes. Overall, this kit supports maintaining your pet’s oral health with gentle but effective brushing tailored to the unique size and needs of small breed dogs and cats.
 
-## <a href="https://www.amazon.com/dp/B003M5ZDGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B003M5ZDGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B003M5ZDGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food, 10 lb Bag" src="https://m.media-amazon.com/images/I/41MbcO8v+WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003M5ZDGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food, 10 lb Bag" src="https://m.media-amazon.com/images/I/41MbcO8v+WL._SL500_.jpg"/></a>
 
 
 The **Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food** is ideal for owners of **Miniature Schnauzers** seeking a tailored nutritional solution that supports their dog's unique health needs. This specialized formula is perfect for those who want to provide their pets with a balanced diet designed to maintain coat health, digestive comfort, and overall vitality in adult Miniature Schnauzers.
@@ -123,10 +123,10 @@ This **Royal Canin** product is designed with precision, catering exclusively to
 
 Additionally, the food includes specific fibers and prebiotics that support a balanced digestive system, which helps maintain optimal stool quality and nutrient absorption. With no artificial colors and a focus on natural ingredients, this dry dog food ensures your Miniature Schnauzer receives high-quality nutrition that supports their unique physiology and lifestyle needs.
 
-## <a href="https://www.amazon.com/dp/B00JN9LR9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B00JN9LR9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B00JN9LR9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food, 2.5 lb bag" src="https://m.media-amazon.com/images/I/41WA3Y+HTrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00JN9LR9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food, 2.5 lb bag" src="https://m.media-amazon.com/images/I/41WA3Y+HTrL._SL500_.jpg"/></a>
 
 
 The **Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food** is ideal for owners of **Miniature Schnauzer puppies** who want to provide tailored nutrition that supports their breed's unique health needs. This product is perfect for those seeking a high-quality, vet-recommended diet specifically formulated to promote optimal growth, digestive health, and coat condition in their young Schnauzers.
@@ -149,10 +149,10 @@ This **breed-specific dry dog food** is tailored to meet the precise nutritional
 
 Beyond growth support, this dog food focuses on maintaining a healthy **skin and coat**, which is particularly important for Miniature Schnauzers known for their distinctive fur. The balanced combination of essential fatty acids ensures the coat remains lustrous and the skin resilient against irritations. By feeding this specialized diet, owners can feel confident they are meeting the breed’s unique needs, contributing to a happy, healthy puppy with a strong foundation for adult life.
 
-## <a href="https://www.amazon.com/dp/B0CNM8915H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Petite Paws Balls For Aggressive Chewers</a>
+## <a href="https://www.amazon.com/dp/B0CNM8915H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Petite Paws Balls For Aggressive Chewers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNM8915H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Petite Paws Balls for Aggressive Chewers - Small Dogs and Puppies - 1.5 Inch - 4 Pack - Indestructible Rubber Dog Chew Toys Bulk for Miniature Toy Breeds" src="https://m.media-amazon.com/images/I/41z+6q-B7nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNM8915H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Petite Paws Balls for Aggressive Chewers - Small Dogs and Puppies - 1.5 Inch - 4 Pack - Indestructible Rubber Dog Chew Toys Bulk for Miniature Toy Breeds" src="https://m.media-amazon.com/images/I/41z+6q-B7nL._SL500_.jpg"/></a>
 
 
 The **Petite Paws Balls for Aggressive Chewers** are ideal for owners of **small dogs and puppies** who require durable and safe chew toys. If you have a **miniature or toy breed** that tends to chew aggressively, these **1.5 inch indestructible rubber balls** provide the perfect solution to keep your pet entertained while protecting your belongings.
@@ -174,10 +174,10 @@ These **Petite Paws Balls** feature a sturdy rubber construction that withstands
 
 Beyond durability, these balls serve as interactive toys that can help reduce anxiety and boredom in small dogs and puppies. Offering a pack of four ensures you always have a spare toy on hand, which is perfect for households with multiple pets or for rotating toys to maintain your dog’s interest. The combination of toughness, size, and quantity makes this product an excellent choice for pet owners seeking reliable chew toys tailored to smaller breeds.
 
-## <a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jgocot Small Dog Toothbrush</a>
+## <a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jgocot Small Dog Toothbrush</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JGocot Small Dog Toothbrush,|Micro Brush Head|Nano Bristle|Soft Pet Toothbrush for Sensitive Gum&amp;Teeth, Dog Teeth Cleaning Kit for Puppy, Kitten, Cats&amp;Miniature Toy Size Dogs" src="https://m.media-amazon.com/images/I/41gibRcouDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JGocot Small Dog Toothbrush,|Micro Brush Head|Nano Bristle|Soft Pet Toothbrush for Sensitive Gum&amp;Teeth, Dog Teeth Cleaning Kit for Puppy, Kitten, Cats&amp;Miniature Toy Size Dogs" src="https://m.media-amazon.com/images/I/41gibRcouDL._SL500_.jpg"/></a>
 
 
 The **JGocot Small Dog Toothbrush** is ideal for pet owners who have **small dogs, puppies, kittens, or miniature toy size dogs** with sensitive gums and teeth. If you want a gentle yet effective solution to maintain your pet’s oral hygiene, this toothbrush kit is designed specifically to meet the needs of pets with delicate mouths.
@@ -199,10 +199,10 @@ The **JGocot Small Dog Toothbrush** features a uniquely designed **micro brush h
 
 Additionally, this toothbrush's compact size and gentle bristles help reduce anxiety in pets that are sensitive to oral care, encouraging consistent use. Its versatility across multiple small pet types, including puppies, kittens, and miniature dogs, makes it a valuable tool for maintaining overall oral health, preventing plaque buildup, and ensuring fresh breath in your furry companions.
 
-## <a href="https://www.amazon.com/dp/B000O39TE6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coastal Pet Li'l Pals Dog Slicker Brush</a>
+## <a href="https://www.amazon.com/dp/B000O39TE6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coastal Pet Li'l Pals Dog Slicker Brush</a>
 
 
-<a href="https://www.amazon.com/dp/B000O39TE6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coastal Pet Li'l Pals Dog Slicker Brush with Coated Tips - Dog Grooming Brush for Small Breeds &amp; Puppies - One Size" src="https://m.media-amazon.com/images/I/31-j6gLQGiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000O39TE6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coastal Pet Li'l Pals Dog Slicker Brush with Coated Tips - Dog Grooming Brush for Small Breeds &amp; Puppies - One Size" src="https://m.media-amazon.com/images/I/31-j6gLQGiL._SL500_.jpg"/></a>
 
 
 The **Coastal Pet Li'l Pals Dog Slicker Brush with Coated Tips** is ideal for pet owners who have **small dog breeds** or **puppies** and are looking for an effective yet gentle grooming tool. If you want to maintain your pet's coat health with minimal discomfort, this **dog grooming brush** is designed specifically to meet the needs of delicate fur and sensitive skin.
@@ -224,10 +224,10 @@ The **Coastal Pet Li'l Pals Dog Slicker Brush** features fine, closely spaced wi
 
 Using this **dog grooming brush** regularly can lead to a shinier, healthier coat while also helping to reduce shedding around your home. The lightweight and ergonomic design ensure that grooming remains a comfortable experience for both the pet and owner. Manufactured by **Coastal Pet Products**, this brush combines quality and functionality, making it an excellent grooming accessory for small breed dogs and puppies.
 
-## <a href="https://www.amazon.com/dp/B006HEIOP6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Pets Bulk Bag</a>
+## <a href="https://www.amazon.com/dp/B006HEIOP6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Pets Bulk Bag</a>
 
 
-<a href="https://www.amazon.com/dp/B006HEIOP6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Safari Ltd. Pets Bulk Bag - Set of Miniature Toy Pet Figurines - 48 Piece Collection for Boys, Girls &amp; Kids Age 3+" src="https://m.media-amazon.com/images/I/51-IPZ28sZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B006HEIOP6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Safari Ltd. Pets Bulk Bag - Set of Miniature Toy Pet Figurines - 48 Piece Collection for Boys, Girls &amp; Kids Age 3+" src="https://m.media-amazon.com/images/I/51-IPZ28sZL._SL500_.jpg"/></a>
 
 
 The **Safari Ltd. Pets Bulk Bag - Set of Miniature Toy Pet Figurines** is ideal for **boys, girls, and kids aged 3 and above** who love animals and imaginative play. This collection is perfect for parents and educators looking to provide children with a fun, educational, and hands-on toy that encourages creativity and learning about different pet animals.
@@ -249,10 +249,10 @@ The **Safari Ltd. Pets Bulk Bag** offers an extensive collection of miniature pe
 
 Additionally, the compact and lightweight nature of this collection makes it convenient for both storage and transportation, allowing kids to enjoy their favorite pet figurines anywhere. The high-quality materials and craftsmanship ensure durability, so the toys can withstand active play. Overall, this set is a valuable tool for fostering creativity, developing fine motor skills, and sparking an interest in animals among young children.
 
-## <a href="https://www.amazon.com/dp/B0CSDWNJXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Pet Urns For Dogs Ashes Mini Urn Dog Ashes Cremation Keepsake Pet Memorial Urns Gift</a>
+## <a href="https://www.amazon.com/dp/B0CSDWNJXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Pet Urns For Dogs Ashes Mini Urn Dog Ashes Cremation Keepsake Pet Memorial Urns Gift</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSDWNJXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Pet Urns for Dogs Ashes Mini Urn Dog Ashes Cremation Keepsake Pet Memorial Urns Gift，Pink" src="https://m.media-amazon.com/images/I/41pypemlUtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSDWNJXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Small Pet Urns for Dogs Ashes Mini Urn Dog Ashes Cremation Keepsake Pet Memorial Urns Gift，Pink" src="https://m.media-amazon.com/images/I/41pypemlUtL._SL500_.jpg"/></a>
 
 
 Ideal for pet owners seeking a heartfelt way to honor their beloved dogs, the **Small Pet Urns for Dogs Ashes Mini Urn** offers a delicate and personal memorial solution. This item is perfect for those who want to keep their pet's ashes close in a tasteful and compact urn, serving as a lasting tribute to their furry friend.

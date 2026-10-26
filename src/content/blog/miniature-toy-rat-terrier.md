@@ -23,10 +23,10 @@ Each piece is crafted with attention to detail, showcasing the breed's distincti
 
 
 
-## <a href="https://www.amazon.com/dp/B000GBMHU4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rat Terrier Miniature Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B000GBMHU4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rat Terrier Miniature Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B000GBMHU4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rat Terrier Miniature Dog Figurine" src="https://m.media-amazon.com/images/I/21uTBR0QfzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GBMHU4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rat Terrier Miniature Dog Figurine" src="https://m.media-amazon.com/images/I/21uTBR0QfzL._SL500_.jpg"/></a>
 
 
 Ideal for **dog lovers**, collectors of **miniature figurines**, and fans of the charming **Rat Terrier breed**, the **Rat Terrier Miniature Dog Figurine** by **Conversation Concepts** is a perfect decorative piece. Those looking to add a touch of whimsy and color to their home or office space will appreciate this **multicolored**, finely detailed figurine that captures the essence of the beloved dog breed.
@@ -47,10 +47,10 @@ The **Rat Terrier Miniature Dog Figurine** showcases meticulous attention to det
 
 Beyond aesthetics, this figurine offers versatility in placement, fitting seamlessly into various home décor styles. Whether placed on a bookshelf, desk, or mantel, it adds a personalized touch that reflects the owner's love for this spirited breed. Its durable construction ensures it can be enjoyed for years, making it a valuable addition to both new and seasoned collectors.
 
-## <a href="https://www.amazon.com/dp/B005LYAIRA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Rat Terrier Figurine</a>
+## <a href="https://www.amazon.com/dp/B005LYAIRA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Rat Terrier Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B005LYAIRA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Rat Terrier Figurine" src="https://m.media-amazon.com/images/I/315C-n8C0tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005LYAIRA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Rat Terrier Figurine" src="https://m.media-amazon.com/images/I/315C-n8C0tL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Rat Terrier Figurine** is perfect for dog lovers, collectors of animal-themed décor, and anyone looking to add a charming and detailed piece to their home or office. Ideal for those who appreciate craftsmanship and want to celebrate the spirited personality of the **Rat Terrier** breed, this figurine makes an excellent gift or a special keepsake for enthusiasts.
@@ -71,10 +71,10 @@ The **Conversation Concepts Rat Terrier Figurine** showcases exceptional attenti
 
 Beyond its visual appeal, the figurine offers versatility in placement, fitting seamlessly into various interior settings. Whether positioned on a bookshelf or a workstation, it adds a touch of personality and warmth. Moreover, owning this figurine can foster a deeper connection with the breed, serving as a daily reminder of the Rat Terrier’s spirited charm and companionship.
 
-## <a href="https://www.amazon.com/dp/B000ETCDX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Rat Terrier Figurine</a>
+## <a href="https://www.amazon.com/dp/B000ETCDX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Rat Terrier Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B000ETCDX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Rat Terrier Figurine - MyDog" src="https://m.media-amazon.com/images/I/512o03wjVqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000ETCDX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Rat Terrier Figurine - MyDog" src="https://m.media-amazon.com/images/I/512o03wjVqL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Rat Terrier Figurine - MyDog** is ideal for **dog lovers** and collectors who appreciate detailed and charming representations of their favorite breeds. This figurine is perfect for those who want to add a touch of personality and warmth to their home décor or gift a meaningful item to a Rat Terrier enthusiast.
@@ -96,10 +96,10 @@ The **Conversation Concepts Rat Terrier Figurine - MyDog** features exquisite de
 
 Beyond aesthetics, this figurine offers practical benefits as a compact decorative item that fits easily on shelves, desks, or mantelpieces. It serves as a constant reminder of the joy that Rat Terriers bring, making it a thoughtful gift or a personal keepsake. Manufactured by **Conversation Concepts**, a brand known for quality and attention to detail, this figurine combines both charm and durability to enhance any collection or living space.
 
-## <a href="https://www.amazon.com/dp/B000GCI7MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Wire Haired Fox Terrier Miniature Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B000GCI7MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Wire Haired Fox Terrier Miniature Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B000GCI7MK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Wire Haired Fox Terrier Miniature Dog Figurine" src="https://m.media-amazon.com/images/I/41FE5nemRTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GCI7MK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Wire Haired Fox Terrier Miniature Dog Figurine" src="https://m.media-amazon.com/images/I/41FE5nemRTL._SL500_.jpg"/></a>
 
 
 Ideal for **dog lovers** and collectors of **miniature figurines**, the **Conversation Concepts Wire Haired Fox Terrier Miniature Dog Figurine** is perfect for those who appreciate detailed craftsmanship in a compact form. Whether you want to add a charming piece to your collection or gift it to a friend who adores the **Wire Haired Fox Terrier** breed, this figurine fits perfectly into any space with its small size.
@@ -120,10 +120,10 @@ The **Conversation Concepts Wire Haired Fox Terrier Miniature Dog Figurine** sta
 
 In addition to its aesthetic appeal, the figurine offers durable craftsmanship from **Conversation Concepts**, a brand known for quality collectibles. This ensures that the figurine not only looks great but also withstands the test of time, providing lasting enjoyment for enthusiasts. Whether displayed solo or as part of a larger collection, this miniature dog figurine brings charm and personality to any setting.
 
-## <a href="https://www.amazon.com/dp/B00BU1EY2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Miniature Yorkshire Terrier Puppy Cut Tiny One Figurine</a>
+## <a href="https://www.amazon.com/dp/B00BU1EY2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Miniature Yorkshire Terrier Puppy Cut Tiny One Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B00BU1EY2S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Miniature Yorkshire Terrier Puppy Cut Tiny One Figurine" src="https://m.media-amazon.com/images/I/31YcbW3zBaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00BU1EY2S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Miniature Yorkshire Terrier Puppy Cut Tiny One Figurine" src="https://m.media-amazon.com/images/I/31YcbW3zBaL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Miniature Yorkshire Terrier Puppy Cut Tiny One Figurine** is ideal for collectors of miniatures, dog lovers, and anyone looking to add a charming decorative piece to their home or office. Its compact size makes it perfect for those with limited space who still want to enjoy the beauty of a detailed figurine. This item also appeals to gift buyers seeking a unique and adorable present for Yorkshire Terrier enthusiasts.
@@ -145,10 +145,10 @@ This **miniature Yorkshire Terrier figurine** showcases exceptional attention to
 
 Crafted by **Conversation Concepts**, a brand recognized for producing finely made collectibles, this figurine offers both aesthetic appeal and durable construction. Its charming design captures the playful essence of a Yorkshire Terrier puppy, bringing warmth and personality to any setting. Whether as part of a collection or a standalone decorative piece, it delivers a delightful visual experience for dog enthusiasts and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B0BJFKD12M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Jack Russell Terrier</a>
+## <a href="https://www.amazon.com/dp/B0BJFKD12M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Jack Russell Terrier</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJFKD12M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World - Jack Russell Terrier- Realistic Dog Figurines - Dog Figure - Kids Ages 3+ | 13916" src="https://m.media-amazon.com/images/I/41kZ2Ld48pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJFKD12M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World - Jack Russell Terrier- Realistic Dog Figurines - Dog Figure - Kids Ages 3+ | 13916" src="https://m.media-amazon.com/images/I/41kZ2Ld48pL._SL500_.jpg"/></a>
 
 
 The **Schleich Farm World - Jack Russell Terrier** is ideal for young children aged 3 and above who have a passion for animals and imaginative play. It is perfect for parents and gift-givers looking to provide a durable, realistic, and educational toy that encourages creativity and animal recognition. Kids who love collecting figurines or enjoy farm-themed playsets will especially benefit from this detailed dog figure.
@@ -171,10 +171,10 @@ The **Schleich Farm World Jack Russell Terrier figurine** stands out with its me
 
 Beyond aesthetics, the figurine supports the development of creativity and storytelling skills in children. It seamlessly integrates into farm or animal collections, fostering a deeper appreciation for animals and nature. While it does not feature interactive elements, its quality and realism provide lasting value as a collectible and educational toy.
 
-## <a href="https://www.amazon.com/dp/B08F4CFYV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funny Dog Rat Terrier T-shirt</a>
+## <a href="https://www.amazon.com/dp/B08F4CFYV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funny Dog Rat Terrier T-shirt</a>
 
 
-<a href="https://www.amazon.com/dp/B08F4CFYV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funny Dog Rat Terrier T-Shirt for Men Women Girls Kids" src="https://m.media-amazon.com/images/I/31NzW3xMFBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F4CFYV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funny Dog Rat Terrier T-Shirt for Men Women Girls Kids" src="https://m.media-amazon.com/images/I/31NzW3xMFBL._SL500_.jpg"/></a>
 
 
 The **Funny Dog Rat Terrier T-Shirt for Men Women Girls Kids** is perfect for anyone who loves their Rat Terrier or enjoys showcasing their passion for this charming breed in a fun and stylish way. Ideal for dog lovers of all ages, this T-shirt is a great choice for casual wear, dog meet-ups, or as a unique gift for family and friends who appreciate humor and canine companionship.
@@ -195,10 +195,10 @@ Crafted by **Rat Terrier Dog Gifts**, this T-shirt combines comfort with a humor
 
 Beyond its visual appeal, the shirt's inclusive sizing and unisex design make it accessible for everyone, from young children to adults. Wearing this T-shirt not only expresses your affection for Rat Terriers but also sparks conversations with fellow dog lovers, enhancing social connections. Its easy-care material means it retains shape and color even after multiple washes, making it a practical and enjoyable addition to your casual wardrobe.
 
-## <a href="https://www.amazon.com/dp/B0767H9134?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Poodle Figurine</a>
+## <a href="https://www.amazon.com/dp/B0767H9134?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Poodle Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B0767H9134?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Poodle Figurine - 3.5" and="" boys,="" dog="" educational="" figure="" for="" girls,="" kids="" model="" src="https://m.media-amazon.com/images/I/41scg1+RL3L._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B0767H9134?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Poodle Figurine - 3.5" and="" boys,="" dog="" educational="" figure="" for="" girls,="" kids="" model="" src="https://m.media-amazon.com/images/I/41scg1+RL3L._SL500_.jpg" toy=""/></a>
 
 
 The **Safari Ltd. Poodle Figurine** is perfect for young children, especially boys and girls aged 3 and above, who are curious about animals and enjoy educational toys. This detailed **dog model figure** is ideal for parents and educators looking to introduce kids to different dog breeds through play. It also suits collectors and animal enthusiasts seeking a realistic and colorful representation of a poodle.
@@ -221,10 +221,10 @@ The **Safari Ltd. Poodle Figurine** stands out for its intricate details and vib
 
 Beyond being just a toy, this figurine serves as an excellent educational tool. It aids in developing children's knowledge of animals, specifically dog breeds, fostering curiosity and imagination. The lightweight design allows kids to bring it along on trips or outdoor play, extending learning opportunities beyond the home or classroom. Overall, the Safari Ltd. Poodle Figurine offers a fun, safe, and informative experience for kids aged 3 and up.
 
-## <a href="https://www.amazon.com/dp/B000GBMHSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Poodle Sport Cut Miniature Dog Figurine - Gray</a>
+## <a href="https://www.amazon.com/dp/B000GBMHSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Poodle Sport Cut Miniature Dog Figurine - Gray</a>
 
 
-<a href="https://www.amazon.com/dp/B000GBMHSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Poodle Sport Cut Miniature Dog Figurine - Gray" src="https://m.media-amazon.com/images/I/31zhMO5oILL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GBMHSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Poodle Sport Cut Miniature Dog Figurine - Gray" src="https://m.media-amazon.com/images/I/31zhMO5oILL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Poodle Sport Cut Miniature Dog Figurine - Gray** is perfect for dog lovers, collectors of animal figurines, and anyone looking to add a charming decorative piece to their home or office. Ideal customers are those who appreciate detailed craftsmanship and enjoy displaying miniature art pieces that celebrate beloved pet breeds. This figurine makes a thoughtful gift for poodle enthusiasts or anyone who loves unique, high-quality collectibles.
@@ -247,10 +247,10 @@ This **Miniature Dog Figurine** embodies fine craftsmanship with its detailed sp
 
 Beyond aesthetics, the figurine serves as a heartfelt tribute to poodle lovers, evoking fond memories and admiration for the breed. It is also a durable collectible produced by **Convenience Concepts**, ensuring long-lasting enjoyment. Whether displayed individually or as part of a larger collection, this figurine adds personality and warmth to any setting.
 
-## <a href="https://www.amazon.com/dp/B000GCI7KM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soft Coated Wheaten Miniature Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B000GCI7KM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soft Coated Wheaten Miniature Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B000GCI7KM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soft Coated Wheaten Miniature Dog Figurine" src="https://m.media-amazon.com/images/I/31TAWnFkfoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000GCI7KM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soft Coated Wheaten Miniature Dog Figurine" src="https://m.media-amazon.com/images/I/31TAWnFkfoL._SL500_.jpg"/></a>
 
 
 The **Soft Coated Wheaten Miniature Dog Figurine** is perfect for dog lovers, collectors of unique animal figurines, and anyone who appreciates finely crafted home décor. Ideal customers include those who want to add a touch of charm to their living space or gift a meaningful item to friends and family who adore the **Soft Coated Wheaten Terrier** breed. This figurine captures the essence of the breed in a compact, aesthetically pleasing form.

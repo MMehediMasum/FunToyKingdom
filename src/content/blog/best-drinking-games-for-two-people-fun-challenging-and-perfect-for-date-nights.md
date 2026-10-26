@@ -20,10 +20,10 @@ Some games focus on humor, while others test your skills or knowledge. Choosing 
 
 
 
-## <a href="https://www.amazon.com/dp/B0FL2FKWDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kheper Games Drink If... Taboo Version</a>
+## <a href="https://www.amazon.com/dp/B0FL2FKWDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kheper Games Drink If... Taboo Version</a>
 
 
-<a href="https://www.amazon.com/dp/B0FL2FKWDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kheper Games Drink If... Taboo Version | Party Game | 1200 Reasons to Drink | Drinking Game | 2+ Players" src="https://m.media-amazon.com/images/I/31T1ogNpp7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FL2FKWDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kheper Games Drink If... Taboo Version | Party Game | 1200 Reasons to Drink | Drinking Game | 2+ Players" src="https://m.media-amazon.com/images/I/31T1ogNpp7L._SL500_.jpg"/></a>
 
 
 The **Kheper Games Drink If... Taboo Version** is perfect for those who enjoy lively social gatherings and want to spice up their parties with a fun and engaging **drinking game**. Ideal for groups of friends, college students, or anyone looking to break the ice and add excitement to their get-togethers, this game is designed for **2+ players** and guarantees hours of entertainment with its unique twist on the classic taboo style gameplay.
@@ -46,10 +46,10 @@ The **Kheper Games Drink If... Taboo Version** combines the classic elements of 
 
 Thanks to its versatile nature, this party game suits a wide range of occasions, from casual house parties to more structured game nights. The quality manufacturing by **Kheper Games** guarantees durable cards and a well-thought-out game structure, ensuring that this game will be a staple in your party arsenal for a long time. Whether you are looking to break the ice or add a hilarious element to your gathering, this game delivers on both fun and functionality.
 
-## <a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Date Night</a>
+## <a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Date Night</a>
 
 
-<a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Date Night - Couples Drinking Card Game for Adults, Fun Romantic Game for Two, Perfect for Game Night, Parties, or Gifts for Boyfriend, Girlfriend, or Wife and Husband, 250 Cards" src="https://m.media-amazon.com/images/I/41SOap3zhQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Date Night - Couples Drinking Card Game for Adults, Fun Romantic Game for Two, Perfect for Game Night, Parties, or Gifts for Boyfriend, Girlfriend, or Wife and Husband, 250 Cards" src="https://m.media-amazon.com/images/I/41SOap3zhQL._SL500_.jpg"/></a>
 
 
 The **Do or Drink Date Night** card game is ideal for couples looking to spice up their evenings with a fun and interactive activity. Perfect for adults in romantic relationships, this game is best suited for those who enjoy playful challenges, drinking games, and want to add excitement to their **date nights**, **parties**, or special occasions. Whether you’re newly dating or married, this game offers a unique way to connect and create memorable moments with your partner.
@@ -72,10 +72,10 @@ The **Do or Drink Date Night** game features a thoughtfully curated set of 250 c
 
 Beyond just a drinking game, it fosters communication, laughter, and deeper connection between partners. Each card prompts an engaging activity that can reveal new sides of each person, strengthening bonds in a playful manner. Whether you’re celebrating an anniversary or simply want to add some excitement to your routine, this **romantic game for two** offers countless hours of enjoyment and memorable experiences.
 
-## <a href="https://www.amazon.com/dp/B0F22Y8HMY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Duel: A Drinking Game</a>
+## <a href="https://www.amazon.com/dp/B0F22Y8HMY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Duel: A Drinking Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0F22Y8HMY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Duel: A Drinking Game [Duel Your Friends &amp; Complete Challenges | Funny Party Card Game for Adults | Great for Pregames, Parties, 21st Birthday Gifts, Bachelorettes, College and Big Groups]" src="https://m.media-amazon.com/images/I/41Imwd4JLxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F22Y8HMY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Duel: A Drinking Game [Duel Your Friends &amp; Complete Challenges | Funny Party Card Game for Adults | Great for Pregames, Parties, 21st Birthday Gifts, Bachelorettes, College and Big Groups]" src="https://m.media-amazon.com/images/I/41Imwd4JLxL._SL500_.jpg"/></a>
 
 
 **Duel: A Drinking Game** is perfect for adults who love socializing and want to spice up their gatherings. If you enjoy lively parties, pregames, or celebrations like 21st birthdays and bachelorette events, this game is designed for you. It's especially great for college students and large groups looking for a fun and interactive way to break the ice and create memorable moments.
@@ -98,10 +98,10 @@ Beyond just a drinking game, it fosters communication, laughter, and deeper conn
 
 By incorporating this game into your social events, you not only guarantee laughter and excitement but also promote a friendly competitive spirit. Each challenge is crafted to be fun yet simple, ensuring players of all experience levels can join in without feeling overwhelmed. Whether you're celebrating a milestone or just looking to add some energy to your night, **Duel: A Drinking Game** offers a perfect blend of fun, challenge, and social bonding.
 
-## <a href="https://www.amazon.com/dp/B0F4876M15?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Broytain Whodrink-drinking Card Games For Adults</a>
+## <a href="https://www.amazon.com/dp/B0F4876M15?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Broytain Whodrink-drinking Card Games For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4876M15?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Broytain WHODRINK-Drinking Card Games for Adults,Bachelorette Party Games, Drunk Couple Games for Date Night, Family Girls Night 136 Flashcards, Age 21+" src="https://m.media-amazon.com/images/I/417J7CQ7E7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4876M15?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Broytain WHODRINK-Drinking Card Games for Adults,Bachelorette Party Games, Drunk Couple Games for Date Night, Family Girls Night 136 Flashcards, Age 21+" src="https://m.media-amazon.com/images/I/417J7CQ7E7L._SL500_.jpg"/></a>
 
 
 The **Broytain WHODRINK-Drinking Card Games for Adults** are perfect for those looking to add excitement to their social gatherings. Ideal for **bachelorette parties**, **date nights**, **family girls' nights**, or any adult group looking for fun and interactive entertainment. If you enjoy engaging and playful activities that encourage socializing and laughter, this game is designed for you.
@@ -124,10 +124,10 @@ The **Broytain WHODRINK-Drinking Card Games** provide a unique blend of entertai
 
 With its compact size and durable build, this card game can easily accompany you to any party or gathering. The variety in the 136 cards keeps the gameplay fresh and engaging, preventing repetition and keeping players interested. Whether you're looking to strengthen bonds with your partner or have a memorable night with friends, this game offers a perfect balance of fun, challenge, and social connection.
 
-## <a href="https://www.amazon.com/dp/B0CY51VDY5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Queka Kanbai Udrink! - The Drinking Game Cards For Adults</a>
+## <a href="https://www.amazon.com/dp/B0CY51VDY5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Queka Kanbai Udrink! - The Drinking Game Cards For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY51VDY5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUEKA KANBAI UDRINK! - The Drinking Game Cards for Adults, Fun &amp; Easy Games for Adult Game Nights - Couple Games, Bachelorette Party Games to Get Buzzed Easily - 2024 New Edition -" src="https://m.media-amazon.com/images/I/51XW4XwfwGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY51VDY5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUEKA KANBAI UDRINK! - The Drinking Game Cards for Adults, Fun &amp; Easy Games for Adult Game Nights - Couple Games, Bachelorette Party Games to Get Buzzed Easily - 2024 New Edition -" src="https://m.media-amazon.com/images/I/51XW4XwfwGL._SL500_.jpg"/></a>
 
 
 The **QUEKA KANBAI UDRINK!** is perfect for adults who enjoy social gatherings and want to add a fun twist to their game nights. Ideal for couples, bachelorette parties, or any group looking to get buzzed easily while sharing laughs, this drinking game card set caters to those who appreciate easy-to-learn, entertaining party games.
@@ -150,10 +150,10 @@ The **QUEKA KANBAI UDRINK!** drinking game cards boast a compact design, making 
 
 Featuring straightforward and engaging gameplay, these cards facilitate a lively and entertaining experience. The updated 2024 edition includes fresh challenges and prompts, enhancing replay value and keeping the party atmosphere energized. Whether you're looking to bond with your partner or energize a bachelorette party, these cards provide a dynamic way to socialize, laugh, and enjoy the moment responsibly.
 
-## <a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Naughty Edition</a>
+## <a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Naughty Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Naughty Edition - The Adult Drinking Game for Spicy Situations - Fun Party Games for Adults with 250 Cards - Great for Game Night, Pre Games, After Parties, and More" src="https://m.media-amazon.com/images/I/413+em2ffpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Naughty Edition - The Adult Drinking Game for Spicy Situations - Fun Party Games for Adults with 250 Cards - Great for Game Night, Pre Games, After Parties, and More" src="https://m.media-amazon.com/images/I/413+em2ffpL._SL500_.jpg"/></a>
 
 
 The **Do or Drink Naughty Edition** is perfect for adults who enjoy lively, interactive games that spice up social gatherings. If you're looking for a way to break the ice at parties, pre-games, or after-parties, this game is designed for those who want to add a playful and daring twist to their night. Ideal for groups seeking fun, laughter, and a bit of cheeky excitement, this game is best suited for open-minded adults ready to embrace bold challenges and entertaining dares.
@@ -176,10 +176,10 @@ The **Do or Drink Naughty Edition** features a well-crafted set of 250 cards tha
 
 With its naughty theme and adult-oriented challenges, this game creates an exciting atmosphere that encourages laughter and connection among players. The quality production by the trusted **Do or Drink** brand means you can expect durable cards and smooth gameplay. Whether it’s a pre-game warm-up or an after-party highlight, this game adds a lively edge to your social occasions.
 
-## <a href="https://www.amazon.com/dp/B09J6LJWSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Charge It 2 The Game Drinking Cards</a>
+## <a href="https://www.amazon.com/dp/B09J6LJWSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Charge It 2 The Game Drinking Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B09J6LJWSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Charge It 2 The Game Drinking Cards – 90-Card Adult Party Game for Bachelorette Parties, 21st Birthdays, and Game Night Fun" src="https://m.media-amazon.com/images/I/41jy5CMo0TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09J6LJWSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Charge It 2 The Game Drinking Cards – 90-Card Adult Party Game for Bachelorette Parties, 21st Birthdays, and Game Night Fun" src="https://m.media-amazon.com/images/I/41jy5CMo0TL._SL500_.jpg"/></a>
 
 
 The **Charge It 2 The Game Drinking Cards** are perfect for adults looking to add excitement to social gatherings such as **bachelorette parties**, **21st birthdays**, or lively **game nights**. If you enjoy fun, interactive drinking games that spark laughter and engagement among friends, this 90-card deck is an ideal choice for you.
@@ -202,10 +202,10 @@ The **Charge It 2 The Game Drinking Cards** feature a thoughtfully curated deck 
 
 Designed specifically for adult party settings, the cards encourage social interaction and create a lively atmosphere. Whether you're celebrating a special occasion or just looking to spice up your regular game night, these cards offer a perfect blend of fun and challenge. The sleek black design complements any party vibe, making it a stylish addition to your entertainment arsenal.
 
-## <a href="https://www.amazon.com/dp/B0F7K88ZLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Broytain Drinking Board Game For Adults</a>
+## <a href="https://www.amazon.com/dp/B0F7K88ZLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Broytain Drinking Board Game For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7K88ZLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Broytain Drinking Board Game for Adults with Non-Slip Rubber Mat, Interactive Drinking Party Games for Game Night, Bachelorette, Girls Night, Birthday, Couples, Family Game Night, 2-8 Players Age 21+" src="https://m.media-amazon.com/images/I/615-OtSMgTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7K88ZLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Broytain Drinking Board Game for Adults with Non-Slip Rubber Mat, Interactive Drinking Party Games for Game Night, Bachelorette, Girls Night, Birthday, Couples, Family Game Night, 2-8 Players Age 21+" src="https://m.media-amazon.com/images/I/615-OtSMgTL._SL500_.jpg"/></a>
 
 
 The **Broytain Drinking Board Game for Adults** is perfect for those who enjoy lively social gatherings and interactive entertainment. Ideal for **game nights, bachelorette parties, girls' nights, birthdays, couples, and family game nights**, this game suits groups of **2-8 players aged 21 and above** looking to add excitement and fun to their events.
@@ -228,10 +228,10 @@ The **Broytain Drinking Board Game** features a thoughtfully designed **non-slip
 
 In addition to its practical design, the game is tailored for adults seeking a fun and responsible way to incorporate drinking into social games. The well-balanced player range of **2 to 8 participants** allows for intimate gatherings as well as slightly larger parties, making it versatile for various occasions. Overall, this board game combines entertainment with convenience, making it a valuable addition to any adult party game collection.
 
-## <a href="https://www.amazon.com/dp/B07WTFL5QL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">True Drinking Dice</a>
+## <a href="https://www.amazon.com/dp/B07WTFL5QL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">True Drinking Dice</a>
 
 
-<a href="https://www.amazon.com/dp/B07WTFL5QL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="True Drinking Dice - Adult Party Games Drinking - Fun Drinking Games for Parties - Includes 2 Dice with Instructions - 2+ Players Dice Drinking Game" src="https://m.media-amazon.com/images/I/31GEaMBBbnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WTFL5QL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="True Drinking Dice - Adult Party Games Drinking - Fun Drinking Games for Parties - Includes 2 Dice with Instructions - 2+ Players Dice Drinking Game" src="https://m.media-amazon.com/images/I/31GEaMBBbnL._SL500_.jpg"/></a>
 
 
 The **True Drinking Dice** game is perfect for adults who enjoy socializing and want to add a fun, interactive element to their parties or gatherings. If you’re looking for a simple yet entertaining way to engage 2 or more players in a lighthearted drinking game, this item is designed for you. Ideal customers include party hosts, bar enthusiasts, or anyone seeking to break the ice and boost the energy at social events.
@@ -253,10 +253,10 @@ The **True Drinking Dice** set includes two compact dice, each measuring just un
 
 Beyond the convenience, the game promotes a lively atmosphere by encouraging players to interact and engage in amusing challenges dictated by the dice rolls. The high-quality craftsmanship of the dice not only enhances durability but also adds a stylish touch to your party supplies. Overall, the **True Drinking Dice** offers both entertainment and social benefits, making it a must-have for any adult party setting.
 
-## <a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fofeadm Drinking Board Games For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fofeadm Drinking Board Games For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fofeadm Drinking Board Games for Adults, Rubber Mat Drinking Board Game, Funny Party Interactive Drinking Games for Game Night, Birthday, Family Play or Any Occasion, Age 21+, 2-8 Players" src="https://m.media-amazon.com/images/I/51GzRT9YAjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fofeadm Drinking Board Games for Adults, Rubber Mat Drinking Board Game, Funny Party Interactive Drinking Games for Game Night, Birthday, Family Play or Any Occasion, Age 21+, 2-8 Players" src="https://m.media-amazon.com/images/I/51GzRT9YAjL._SL500_.jpg"/></a>
 
 
 The **Fofeadm Drinking Board Games for Adults** is perfect for those looking to add a fun and interactive twist to their social gatherings. Ideal for adults aged **21+**, this game suits groups of **2-8 players** who enjoy lively party activities. Whether you're hosting a birthday, game night, or family play session, this game is designed to bring laughter and excitement to any occasion.

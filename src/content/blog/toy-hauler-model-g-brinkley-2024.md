@@ -20,10 +20,10 @@ The sturdy build handles rough roads and long trips. Inside, the layout supports
 
 
 
-## <a href="https://www.amazon.com/dp/B084RHJCZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newray Replica Dodge Ram Dually Truck</a>
+## <a href="https://www.amazon.com/dp/B084RHJCZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newray Replica Dodge Ram Dually Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B084RHJCZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NewRay Replica Dodge Ram Dually Truck w/Toy Hauler &amp; Polaris UTV Set" src="https://m.media-amazon.com/images/I/31AqYHHhmHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084RHJCZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NewRay Replica Dodge Ram Dually Truck w/Toy Hauler &amp; Polaris UTV Set" src="https://m.media-amazon.com/images/I/31AqYHHhmHL._SL500_.jpg"/></a>
 
 
 The **NewRay Replica Dodge Ram Dually Truck w/Toy Hauler & Polaris UTV Set** is ideal for collectors and children who love detailed miniature vehicles. If you are someone who appreciates realistic replicas or a parent looking for a durable and engaging toy for your child, this set offers both visual appeal and interactive play features. Its compact size and detailed design make it perfect for display or imaginative play.

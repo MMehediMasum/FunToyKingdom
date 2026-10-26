@@ -23,10 +23,10 @@ These toys suit both collectors and children aged 3 to 12. Models include vintag
 
 
 
-## <a href="https://www.amazon.com/dp/B0911RN7KT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Mercedes-benz Sprinter Ups Edition Cargo Van</a>
+## <a href="https://www.amazon.com/dp/B0911RN7KT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Mercedes-benz Sprinter Ups Edition Cargo Van</a>
 
 
-<a href="https://www.amazon.com/dp/B0911RN7KT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART - Mercedes-Benz Sprinter UPS Edition Cargo Van, 1:48 O Scale Die Cast Metal Model Toy Van, Pull-Back Action" src="https://m.media-amazon.com/images/I/414AplC3HgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0911RN7KT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART - Mercedes-Benz Sprinter UPS Edition Cargo Van, 1:48 O Scale Die Cast Metal Model Toy Van, Pull-Back Action" src="https://m.media-amazon.com/images/I/414AplC3HgL._SL500_.jpg"/></a>
 
 
 The **KiNSMART - Mercedes-Benz Sprinter UPS Edition Cargo Van** is ideal for collectors of **die-cast model toys**, automotive enthusiasts, and children who enjoy realistic and durable toy vehicles. Those who appreciate detailed replicas of iconic commercial vehicles, particularly fans of the **UPS brand**, will find this model van a valuable addition to their collection or playtime.
@@ -49,12 +49,12 @@ The **KiNSMART Mercedes-Benz Sprinter UPS Edition Cargo Van** stands out due to 
 
 The inclusion of a **pull-back action** feature enhances user engagement by enabling the van to move forward on its own, providing interactive entertainment especially for younger users. This model’s authentic **UPS color scheme** and branding make it an excellent educational tool to introduce children to logistics and delivery services. Overall, this toy balances quality, realism, and playability, making it an excellent purchase for enthusiasts and kids alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0911RN7KT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0911RN7KT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1957 Chevy Bel Air Coupe</a>
+## <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1957 Chevy Bel Air Coupe</a>
 
 
-<a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (rescue="" alt="KiNSMART 1957 Chevy Bel Air Coupe 1:40 Scale 5" car="" cast="" classic="" die="" metal="" police)"="" src="https://m.media-amazon.com/images/I/31OKfZ4SODL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (rescue="" alt="KiNSMART 1957 Chevy Bel Air Coupe 1:40 Scale 5" car="" cast="" classic="" die="" metal="" police)"="" src="https://m.media-amazon.com/images/I/31OKfZ4SODL._SL500_.jpg" toy=""/></a>
 
 
 The **KiNSMART 1957 Chevy Bel Air Coupe 1:40 Scale 5" Die Cast Metal Classic Toy Car (Rescue Police)** is ideal for collectors, car enthusiasts, and children who appreciate classic vehicle models with a vintage flair. Those looking for a detailed, durable, and visually appealing die-cast car that captures the essence of the iconic 1957 Chevy Bel Air will find this model particularly appealing.
@@ -77,12 +77,12 @@ The **KiNSMART 1957 Chevy Bel Air Coupe** stands out with its precise detailing 
 
 Measuring 5 inches in length and weighing just over 0.2 pounds, this toy car balances portability with display appeal, making it suitable for both children and adults. The compact size allows for easy storage, while the robust construction ensures it can withstand regular handling. Overall, this model offers a blend of nostalgia, quality, and practicality for those seeking a classic die-cast car.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1955 Chevrolet Stepside Pickup Truck</a>
+## <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1955 Chevrolet Stepside Pickup Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (Black)" src="https://m.media-amazon.com/images/I/41AEUWJmnkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (Black)" src="https://m.media-amazon.com/images/I/41AEUWJmnkL._SL500_.jpg"/></a>
 
 
 The **KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (Black)** is ideal for collectors, car enthusiasts, and children who enjoy detailed model vehicles. This **die cast metal** replica offers an authentic miniature version of the classic 1955 Chevrolet Stepside Pickup, making it a perfect addition to any collection or a fun, durable toy for imaginative play.
@@ -105,12 +105,12 @@ The **KiNSMART 1955 Chevrolet Stepside Pickup Truck** stands out with its precis
 
 Beyond its aesthetic appeal, this model provides a tactile experience that kids and collectors alike can enjoy. The durable metal body withstands handling, while the iconic black finish ensures it fits well within a diverse collection. Whether displayed as a nostalgic collectible or used for imaginative play, the **KiNSMART Chevrolet Stepside Pickup Truck** delivers both quality and style in a compact package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08WX8LNHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - Mercedes-benz Sprinter Cargo Van</a>
+## <a href="https://www.amazon.com/dp/B08WX8LNHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - Mercedes-benz Sprinter Cargo Van</a>
 
 
-<a href="https://www.amazon.com/dp/B08WX8LNHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART - Mercedes-Benz Sprinter Cargo Van, 1:48 O Scale Die Cast Metal Model Toy Van, Pull-Back Action, Set of 4" src="https://m.media-amazon.com/images/I/4127SolGJrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08WX8LNHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART - Mercedes-Benz Sprinter Cargo Van, 1:48 O Scale Die Cast Metal Model Toy Van, Pull-Back Action, Set of 4" src="https://m.media-amazon.com/images/I/4127SolGJrL._SL500_.jpg"/></a>
 
 
 The **KiNSMART - Mercedes-Benz Sprinter Cargo Van** is an ideal choice for collectors, children, and enthusiasts who appreciate detailed **die cast metal model toys**. This set of 4 vans, featuring a realistic 1:48 O scale and vibrant **blue and white colors**, is perfect for those who want to add a touch of authenticity to their model vehicle collection or enjoy engaging playtime with pull-back action features.
@@ -133,12 +133,12 @@ The **KiNSMART Mercedes-Benz Sprinter Cargo Van** stands out with its precise de
 
 Beyond aesthetics, the **pull-back action** feature offers an engaging experience for younger users, allowing them to simulate motion without batteries. This combination of realistic design and interactive playability creates a versatile product that caters to both collectors and children. Moreover, being a set of four vans, it provides ample opportunities for imaginative scenarios or expanding existing model displays.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08WX8LNHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08WX8LNHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07YMNC3LC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Matchbox Silver Jeepster Jeep Diecast Car</a>
+## <a href="https://www.amazon.com/dp/B07YMNC3LC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Matchbox Silver Jeepster Jeep Diecast Car</a>
 
 
-<a href="https://www.amazon.com/dp/B07YMNC3LC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Matchbox 1:48 Scale Silver Jeepster Jeep Diecast Car, Kid, Children (Aged 3-12), Unisex" src="https://m.media-amazon.com/images/I/51U+99ynoBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YMNC3LC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Matchbox 1:48 Scale Silver Jeepster Jeep Diecast Car, Kid, Children (Aged 3-12), Unisex" src="https://m.media-amazon.com/images/I/51U+99ynoBL._SL500_.jpg"/></a>
 
 
 The **Matchbox 1:48 Scale Silver Jeepster Jeep Diecast Car** is ideal for **children aged 3-12** who have a passion for toy cars and enjoy imaginative play. This **unisex** collectible is perfect for young enthusiasts looking to expand their collection with a detailed and durable model, as well as parents seeking a safe and engaging gift for their kids.
@@ -162,12 +162,12 @@ The **Matchbox Silver Jeepster Jeep** stands out with its precise **1:48 scale d
 
 Additionally, the toy's sleek **silver finish** is visually striking and gender-neutral, appealing to a wide range of young users. Manufactured by **MATTEL**, a trusted name in toys, this diecast car promises quality and safety. Its lightweight design makes it convenient for children to carry around, whether playing at home or taking it on the go. Overall, this Matchbox model offers a blend of realism, durability, and child-friendly features that make it a valuable addition to any young car enthusiast’s collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07YMNC3LC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07YMNC3LC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00BJB0YVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1957 Chevy Bel Air Coupe Classic Taxi Cab Model Toy Car</a>
+## <a href="https://www.amazon.com/dp/B00BJB0YVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1957 Chevy Bel Air Coupe Classic Taxi Cab Model Toy Car</a>
 
 
-<a href="https://www.amazon.com/dp/B00BJB0YVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 1:40="" alt="KiNSMART 1957 Chevy Bel Air Coupe Classic Taxi Cab 5" car"="" cast="" die="" metal="" model="" scale="" src="https://m.media-amazon.com/images/I/41-49uLCmzL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B00BJB0YVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 1:40="" alt="KiNSMART 1957 Chevy Bel Air Coupe Classic Taxi Cab 5" car"="" cast="" die="" metal="" model="" scale="" src="https://m.media-amazon.com/images/I/41-49uLCmzL._SL500_.jpg" toy=""/></a>
 
 
 The **KiNSMART 1957 Chevy Bel Air Coupe Classic Taxi Cab** is an ideal choice for collectors, vintage car enthusiasts, and children who love detailed die-cast model toys. This **5" 1:40 scale model** is perfect for those who appreciate classic American car designs and want a high-quality miniature replica that combines nostalgia with playability.
@@ -190,12 +190,12 @@ The **KiNSMART 1957 Chevy Bel Air Coupe Classic Taxi Cab** boasts impressive cra
 
 Beyond its visual appeal, this model offers a tangible connection to automotive history, making it a wonderful educational tool for enthusiasts who want to learn more about classic cars. The bright yellow paint job pays homage to classic taxi cabs, adding character and charm that captures attention. Whether for play or display, this KiNSMART model blends authenticity and durability, creating a timeless piece for any car lover.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00BJB0YVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00BJB0YVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01AHI80ZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1953 Cadillac Series 62</a>
+## <a href="https://www.amazon.com/dp/B01AHI80ZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1953 Cadillac Series 62</a>
 
 
-<a href="https://www.amazon.com/dp/B01AHI80ZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1953 Cadillac Series 62 1:43 O Scale 5 Inch Die Cast Metal Model Classic Ventage Toy Car (Eggshell White)" src="https://m.media-amazon.com/images/I/316B1q+-ixL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01AHI80ZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1953 Cadillac Series 62 1:43 O Scale 5 Inch Die Cast Metal Model Classic Ventage Toy Car (Eggshell White)" src="https://m.media-amazon.com/images/I/316B1q+-ixL._SL500_.jpg"/></a>
 
 
 The **KiNSMART 1953 Cadillac Series 62 1:43 O Scale 5 Inch Die Cast Metal Model Classic Vintage Toy Car** is an ideal purchase for collectors of classic cars, vintage toy enthusiasts, and anyone who appreciates detailed scale models. This beautifully crafted model is perfect for display in home offices, living rooms, or as a gift for those passionate about automotive history. If you value precision and nostalgia, this model car is designed specifically for you.
@@ -217,12 +217,12 @@ The **KiNSMART 1953 Cadillac Series 62 model** boasts a meticulously crafted des
 
 Beyond its visual appeal, this model car serves as a tangible connection to automotive history, making it a meaningful addition for enthusiasts who appreciate classic cars. The quality manufacturing by **KiNSMART** guarantees that each piece is crafted to exacting standards, ensuring that collectors receive a high-quality product. Whether displayed on a shelf or used as an educational tool, this die cast model combines charm, durability, and collectible value in one elegant package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01AHI80ZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01AHI80ZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B59WW7JZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jada Toys Big Time Muscle 1969 Chevy Corvette Stingray Zl-1 Die-cast Car</a>
+## <a href="https://www.amazon.com/dp/B0B59WW7JZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jada Toys Big Time Muscle 1969 Chevy Corvette Stingray Zl-1 Die-cast Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0B59WW7JZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jada Toys Big Time Muscle 1:24 1969 Chevy Corvette Stingray ZL-1 Die-cast Car Gold, Toys for Kids and Adults" src="https://m.media-amazon.com/images/I/41C09PSEsrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B59WW7JZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jada Toys Big Time Muscle 1:24 1969 Chevy Corvette Stingray ZL-1 Die-cast Car Gold, Toys for Kids and Adults" src="https://m.media-amazon.com/images/I/41C09PSEsrL._SL500_.jpg"/></a>
 
 
 The **Jada Toys Big Time Muscle 1:24 1969 Chevy Corvette Stingray ZL-1 Die-cast Car Gold** is perfect for both **car enthusiasts** and **collectors** who appreciate detailed replicas of classic vehicles. Whether you are a **kid fascinated by muscle cars** or an **adult collector** looking to add an iconic model to your display, this die-cast car combines nostalgia with impressive craftsmanship.
@@ -245,12 +245,12 @@ The **Jada Toys Big Time Muscle 1:24 1969 Chevy Corvette Stingray ZL-1** stands 
 
 Beyond aesthetics, this model offers an immersive experience for users who appreciate classic American muscle cars. The precise replication of the Corvette’s iconic features allows enthusiasts to connect with the vehicle’s heritage. Whether as a gift or a personal treasure, this die-cast car delivers both visual appeal and a tangible connection to automotive history.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B59WW7JZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B59WW7JZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07JVPQF2V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tianmei 1:32 Scale Supercar Styling Alloy Die-cast Car Model</a>
+## <a href="https://www.amazon.com/dp/B07JVPQF2V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tianmei 1:32 Scale Supercar Styling Alloy Die-cast Car Model</a>
 
 
-<a href="https://www.amazon.com/dp/B07JVPQF2V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tianmei 1:32 Scale Supercar Styling Alloy Die-Cast Car Model Collection Decoration Ornaments, Kids Play Vehicle Toys with Pull Back Action and Open Doors (Camaro 1969 - Black)" src="https://m.media-amazon.com/images/I/41q8EtMH8bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JVPQF2V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tianmei 1:32 Scale Supercar Styling Alloy Die-Cast Car Model Collection Decoration Ornaments, Kids Play Vehicle Toys with Pull Back Action and Open Doors (Camaro 1969 - Black)" src="https://m.media-amazon.com/images/I/41q8EtMH8bL._SL500_.jpg"/></a>
 
 
 The **Tianmei 1:32 Scale Supercar Styling Alloy Die-Cast Car Model** is perfect for collectors, car enthusiasts, and kids who love detailed and realistic toy vehicles. Those looking for a high-quality **Camaro 1969 - Black** replica with functional features like **pull back action** and **open doors** will find this model ideal for both display and play. It suits anyone wanting a durable, stylish, and accurate miniature car model.
@@ -273,12 +273,12 @@ This **Tianmei alloy die-cast car model** stands out with its meticulous attenti
 
 Its sturdy **die-cast metal build** ensures durability, while the compact dimensions make it suitable for both play and shelf display. The black color scheme captures the timeless style of the Camaro, appealing to fans of vintage cars and supercars alike. Overall, this model delivers a balance of quality, functionality, and aesthetic appeal.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07JVPQF2V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07JVPQF2V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0006JNS3Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Revell Spitfire Mkii</a>
+## <a href="https://www.amazon.com/dp/B0006JNS3Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Revell Spitfire Mkii</a>
 
 
-<a href="https://www.amazon.com/dp/B0006JNS3Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Revell 1:48 Spitfire MKII, Multi-Colored" src="https://m.media-amazon.com/images/I/41Cm7NFLllL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0006JNS3Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Revell 1:48 Spitfire MKII, Multi-Colored" src="https://m.media-amazon.com/images/I/41Cm7NFLllL._SL500_.jpg"/></a>
 
 
 The **Revell 1:48 Spitfire MKII, Multi-Colored** model kit is ideal for **hobbyists** and **model enthusiasts** who appreciate detailed scale replicas of iconic aircraft. Whether you are a beginner looking to develop your modeling skills or an experienced builder seeking a high-quality addition to your collection, this kit offers an engaging and rewarding build experience. Its vibrant **camo color scheme** also makes it perfect for those who want a visually striking model.
@@ -301,7 +301,7 @@ The **Revell 1:48 Spitfire MKII** kit features a meticulously designed model tha
 
 Manufactured by **Revell**, a trusted name in the modeling community, this kit ensures quality materials and precise molding. The lightweight and compact dimensions make it easy to showcase your finished model on shelves or desks without taking up excessive space. Overall, this kit offers both a challenging build and a rewarding final product for aviation enthusiasts and scale model collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0006JNS3Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0006JNS3Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

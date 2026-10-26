@@ -23,10 +23,10 @@ These cars appeal to collectors and kids alike, providing both display value and
 
 
 
-## <a href="https://www.amazon.com/dp/B0FH2X949H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari Sf90 Stradale</a>
+## <a href="https://www.amazon.com/dp/B0FH2X949H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari Sf90 Stradale</a>
 
 
-<a href="https://www.amazon.com/dp/B0FH2X949H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari SF90 Stradale [Red], Factory Fresh 5/5, 191/250, 1:64 Scale Diecast Vehicle" src="https://m.media-amazon.com/images/I/51j3i6cCMcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FH2X949H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari SF90 Stradale [Red], Factory Fresh 5/5, 191/250, 1:64 Scale Diecast Vehicle" src="https://m.media-amazon.com/images/I/51j3i6cCMcL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Ferrari SF90 Stradale [Red]** is ideal for collectors and enthusiasts who appreciate detailed, high-quality diecast models. Whether you are a fan of **Ferrari** supercars or a passionate **Hot Wheels** collector, this 1:64 scale vehicle offers an authentic and visually striking addition to your collection. Its vibrant **red** finish and precise craftsmanship make it perfect for display or casual play.
@@ -48,12 +48,12 @@ The **Hot Wheels Ferrari SF90 Stradale [Red]** features precise dimensions measu
 
 Beyond its aesthetic appeal, this diecast vehicle offers a tangible connection to the world of luxury sports cars. Its compact scale allows enthusiasts to build extensive collections without requiring much space, while the 5/5 factory fresh rating ensures the model arrives in pristine condition. Whether for display or as a gift, this Hot Wheels Ferrari SF90 Stradale combines style, precision, and collectible value in one exceptional package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0FH2X949H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0FH2X949H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DB49GCXL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Toy Cars Formula 1 5-pack</a>
+## <a href="https://www.amazon.com/dp/B0DB49GCXL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Toy Cars Formula 1 5-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB49GCXL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Toy Cars Formula 1 5-Pack, Set of 5 1:64 Scale Die-Cast Vehicles Featuring F1 Racing Team Decos, Collectible Race Cars" src="https://m.media-amazon.com/images/I/416SuXxSUQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB49GCXL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Toy Cars Formula 1 5-Pack, Set of 5 1:64 Scale Die-Cast Vehicles Featuring F1 Racing Team Decos, Collectible Race Cars" src="https://m.media-amazon.com/images/I/416SuXxSUQL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Toy Cars Formula 1 5-Pack** is perfect for children and collectors who are passionate about **Formula 1 racing** and die-cast vehicles. Ideal for kids aged 3 and up, as well as enthusiasts who appreciate detailed miniature replicas, this set provides an exciting way to enjoy **high-speed race cars** on a smaller scale. Whether you're looking to spark a child's imagination or expand a collection of **1:64 scale** model cars, this set offers vibrant designs and authentic **F1 racing team decos** that captivate fans of the sport.
@@ -76,12 +76,12 @@ Each car in this **Hot Wheels Formula 1 5-Pack** is crafted with attention to de
 
 Beyond aesthetics, the design of these cars supports interactive play, encouraging children to engage in creative storytelling and develop fine motor skills. The vibrant **multicolor paint jobs** and detailed team logos enhance visual appeal, while the lightweight structure—just over **0.4 pounds** for the entire pack—makes handling effortless. Overall, this set combines the thrill of **Formula 1 racing** with the trusted quality of **Hot Wheels**, making it a valuable addition to any toy collection or racing fan’s memorabilia.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DB49GCXL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DB49GCXL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DFJH8HQX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Bugatti Bolide</a>
+## <a href="https://www.amazon.com/dp/B0DFJH8HQX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Bugatti Bolide</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFJH8HQX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Bugatti Bolide, Yellow/Black, HW Exotics 3/10" src="https://m.media-amazon.com/images/I/51NIWeNn+3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFJH8HQX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Bugatti Bolide, Yellow/Black, HW Exotics 3/10" src="https://m.media-amazon.com/images/I/51NIWeNn+3L._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Bugatti Bolide, Yellow/Black, HW Exotics 3/10** is perfect for collectors and kids who love high-performance sports cars and detailed miniature models. If you are a fan of the iconic **Bugatti brand** or enjoy adding exclusive and exotic cars to your collection, this item is an excellent choice. Its striking **yellow and black design** makes it a standout piece for display or play.
@@ -104,12 +104,12 @@ The **Hot Wheels Bugatti Bolide** combines the thrill of an exotic sports car wi
 
 Manufactured by **Mattel**, this model ensures quality and durability, ideal for both collectors and active children. Being part of the **HW Exotics 3/10** series adds an element of exclusivity, making it a prized addition to any Hot Wheels collection. Whether used for display or play, the vivid yellow and black colors provide a visually striking look that appeals to fans of exotic cars and racing alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DFJH8HQX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DFJH8HQX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09PKRHK7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Super Car Exotics Madness 5 Pack</a>
+## <a href="https://www.amazon.com/dp/B09PKRHK7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Super Car Exotics Madness 5 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B09PKRHK7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Super Car Exotics Madness 5 Pack Random Diecast Bundle Set with Various Lambos, Lotus, Porsches, Mclarens, Paganis and More" src="https://m.media-amazon.com/images/I/51brZdbVE7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PKRHK7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Super Car Exotics Madness 5 Pack Random Diecast Bundle Set with Various Lambos, Lotus, Porsches, Mclarens, Paganis and More" src="https://m.media-amazon.com/images/I/51brZdbVE7L._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Super Car Exotics Madness 5 Pack Random Diecast Bundle Set** is perfect for collectors and car enthusiasts who appreciate detailed miniature models of luxury and exotic vehicles. Ideal for kids and adults alike, this set is great for those who want to expand their collection with a variety of iconic brands like **Lamborghinis, Lotus, Porsches, McLarens, and Paganis** without having to pick each model individually.
@@ -132,12 +132,12 @@ The **Hot Wheels Super Car Exotics Madness 5 Pack** boasts an exciting mix of ex
 
 Beyond aesthetics, the high-quality materials used in manufacturing these cars provide durability, ensuring they withstand regular handling or play. The assortment’s compact size allows for easy storage or display on shelves or desks. Whether you are a passionate collector or a young enthusiast just starting out, this bundle offers both value and excitement through its unique combination of exotic models.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09PKRHK7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09PKRHK7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CNJFV6KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Toy Cars 10-pack</a>
+## <a href="https://www.amazon.com/dp/B0CNJFV6KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Toy Cars 10-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNJFV6KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Toy Cars, 10-Pack of Race Cars, Includes 1:64 Scale Corvette, Lamborghini, McLaren Originals" src="https://m.media-amazon.com/images/I/51BdhAfwtHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNJFV6KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Toy Cars, 10-Pack of Race Cars, Includes 1:64 Scale Corvette, Lamborghini, McLaren Originals" src="https://m.media-amazon.com/images/I/51BdhAfwtHL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Toy Cars 10-Pack** is perfect for children and collectors who have a passion for miniature race cars and iconic vehicle models. Ideal for kids who enjoy imaginative play with a variety of **1:64 scale** cars, as well as enthusiasts looking to expand their collection with detailed replicas like the **Corvette**, **Lamborghini**, and **McLaren Originals**. This set offers a colorful and diverse lineup, making it great for both playtime and display.
@@ -159,12 +159,12 @@ Each car in the **Hot Wheels Toy Cars 10-Pack** is designed with attention to de
 
 Beyond their aesthetic appeal, these cars are crafted to be durable and lightweight, allowing kids to easily maneuver them on tracks or racing setups. The **1:64 scale** size is ideal for collectors who want to display the vehicles without taking up too much space, as well as for children to use during playtime. Overall, this set is a versatile choice for anyone looking to add excitement, variety, and quality to their Hot Wheels collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CNJFV6KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CNJFV6KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0FLG2Z1RM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari F40 Competizione</a>
+## <a href="https://www.amazon.com/dp/B0FLG2Z1RM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari F40 Competizione</a>
 
 
-<a href="https://www.amazon.com/dp/B0FLG2Z1RM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari F40 Competizione, HW Exotics 4/5 [red] 198/250" src="https://m.media-amazon.com/images/I/51HFRv+pxrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FLG2Z1RM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari F40 Competizione, HW Exotics 4/5 [red] 198/250" src="https://m.media-amazon.com/images/I/51HFRv+pxrL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Ferrari F40 Competizione, HW Exotics 4/5 [red] 198/250** is ideal for collectors and enthusiasts who appreciate detailed miniature models of iconic sports cars. Perfect for those who want to expand their **Hot Wheels** collection with a rare and visually striking piece, this model is also suitable for fans of the legendary **Ferrari F40** and exotic car lovers seeking a high-quality collectible.
@@ -187,12 +187,12 @@ The **Hot Wheels Ferrari F40 Competizione** stands out with its exceptional atte
 
 Beyond its striking appearance, the limited edition status of this model, numbered **198 out of 250**, adds an element of rarity that appeals to serious collectors. The use of vibrant red paint not only reflects Ferrari’s iconic color but also ensures that the car stands out in any collection. Manufactured by **Mattel**, this Hot Wheels car balances collectible value with trusted quality, making it a worthwhile investment for enthusiasts looking to celebrate automotive excellence in miniature form.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0FLG2Z1RM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0FLG2Z1RM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0054LT51U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari F50</a>
+## <a href="https://www.amazon.com/dp/B0054LT51U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari F50</a>
 
 
-<a href="https://www.amazon.com/dp/B0054LT51U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari F50 - 1996 1st Editions #12 of 12 Cars Collector #377" src="https://m.media-amazon.com/images/I/51kfsXb3EgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0054LT51U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari F50 - 1996 1st Editions #12 of 12 Cars Collector #377" src="https://m.media-amazon.com/images/I/51kfsXb3EgL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Ferrari F50 - 1996 1st Editions #12 of 12 Cars Collector #377** is ideal for passionate collectors and enthusiasts of classic die-cast cars, especially those who appreciate iconic automotive history. This item is perfect for individuals looking to expand their collection with a rare and valuable piece from the renowned **Hot Wheels** lineup, or fans of the legendary **Ferrari F50** model seeking a detailed miniature replica.
@@ -215,12 +215,12 @@ The **Hot Wheels Ferrari F50 - 1996 1st Editions** stands out as a must-have for
 
 Crafted by **Mattel**, a leader in the die-cast toy industry, this model promises both quality and durability. The lightweight construction makes it easy to handle for display or occasional play, while its collectible number (#377) adds to its exclusivity. Overall, this Hot Wheels Ferrari F50 appeals to serious collectors and Ferrari fans alike, offering both nostalgia and a tangible connection to automotive history.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0054LT51U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0054LT51U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DDYHJGZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Mclaren P1 Light Blue Quarter Mile Heroes</a>
+## <a href="https://www.amazon.com/dp/B0DDYHJGZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Mclaren P1 Light Blue Quarter Mile Heroes</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDYHJGZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels McLaren P1 Light Blue Quarter Mile Heroes 1/5 Scale" src="https://m.media-amazon.com/images/I/51pfhLqJXyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDYHJGZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels McLaren P1 Light Blue Quarter Mile Heroes 1/5 Scale" src="https://m.media-amazon.com/images/I/51pfhLqJXyL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels McLaren P1 Light Blue Quarter Mile Heroes 1/5 Scale** is perfect for collectors and enthusiasts who appreciate detailed die-cast models of iconic supercars. Ideal customers include **Hot Wheels fans**, **car model collectors**, and anyone looking for a high-quality, visually striking replica of the legendary **McLaren P1**. This item blends scale accuracy with playful design, making it suitable for both display and light play.
@@ -243,12 +243,12 @@ The **Hot Wheels McLaren P1 Light Blue Quarter Mile Heroes** stands out with its
 
 Beyond aesthetics, this model benefits users by providing a tangible connection to automotive excellence. The black color with light blue highlights adds a modern, sporty edge that enhances its shelf presence. Manufactured by **Mattel**, it promises durability and quality craftsmanship, ensuring long-lasting enjoyment whether used for display or casual play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DDYHJGZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DDYHJGZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000K6QCYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari 550 Maranello</a>
+## <a href="https://www.amazon.com/dp/B000K6QCYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari 550 Maranello</a>
 
 
-<a href="https://www.amazon.com/dp/B000K6QCYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels 2000-062 First Editions RED Ferrari 550 Maranello 1:64 Scale" src="https://m.media-amazon.com/images/I/51EEvAWVGDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000K6QCYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels 2000-062 First Editions RED Ferrari 550 Maranello 1:64 Scale" src="https://m.media-amazon.com/images/I/51EEvAWVGDL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels 2000-062 First Editions RED Ferrari 550 Maranello 1:64 Scale** is perfect for collectors and enthusiasts who appreciate detailed miniature models of iconic cars. If you are a fan of **Ferrari** or enjoy adding high-quality die-cast cars to your collection, this item is an excellent choice. It is also suitable for those who enjoy nostalgic or vintage Hot Wheels editions with authentic design elements.
@@ -270,12 +270,12 @@ The **Hot Wheels 2000-062 First Editions RED Ferrari 550 Maranello** captures th
 
 Manufactured by **Mattel**, a trusted name in the toy and collectible industry, this die-cast model guarantees quality and durability. Its precise dimensions—**1 inch in height, 1.5 inches width, and 2.5 inches length**—make it an ideal collectible that is easy to store and transport. Whether you are adding it to a larger Hot Wheels collection or displaying it as a standalone piece, this model offers both aesthetic appeal and nostalgic value.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000K6QCYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000K6QCYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BNZHGNTF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari 512 M</a>
+## <a href="https://www.amazon.com/dp/B0BNZHGNTF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Ferrari 512 M</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNZHGNTF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari 512 M, 2006, 1:64 Scale, Red Sports Car, 3 Inches, Unisex, All Ages" src="https://m.media-amazon.com/images/I/51PXbh7gecL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNZHGNTF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Ferrari 512 M, 2006, 1:64 Scale, Red Sports Car, 3 Inches, Unisex, All Ages" src="https://m.media-amazon.com/images/I/51PXbh7gecL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Ferrari 512 M** is an ideal choice for collectors and enthusiasts who appreciate detailed miniature models of iconic sports cars. Perfect for both **kids and adults**, this **1:64 scale** replica offers a blend of playability and collectible value. Whether you’re a fan of **Ferrari** or looking for a vibrant addition to your **Hot Wheels** collection, this **red sports car** fits the bill.
@@ -298,7 +298,7 @@ The **Hot Wheels Ferrari 512 M** stands out with its precise scale and vibrant *
 
 Crafted by **Mattel**, a leader in toy manufacturing, this miniature car combines quality with authenticity. Its sturdy construction ensures longevity, making it suitable for all ages and occasions. Whether displayed on a shelf or raced across the floor, the Hot Wheels Ferrari 512 M offers a delightful experience that merges nostalgia with excitement.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BNZHGNTF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BNZHGNTF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

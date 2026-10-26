@@ -23,10 +23,10 @@ These figurines also work well as cake toppers or party favors for birthdays and
 
 
 
-## <a href="https://www.amazon.com/dp/B0D738BV9T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyscota Cat Figurines</a>
+## <a href="https://www.amazon.com/dp/B0D738BV9T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyscota Cat Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0D738BV9T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Realistic Cat Figurines, Plastic Cat Figure, Cat Cake Topper Kitten Toy Christmas Birthday Gift for Kids and Children" src="https://m.media-amazon.com/images/I/51-ZLeYxYjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D738BV9T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Realistic Cat Figurines, Plastic Cat Figure, Cat Cake Topper Kitten Toy Christmas Birthday Gift for Kids and Children" src="https://m.media-amazon.com/images/I/51-ZLeYxYjL._SL500_.jpg"/></a>
 
 
 The **EYSCOTA 12PCS Realistic Cat Figurines** are perfect for cat lovers, collectors, and parents looking for a charming and safe toy option for their children. Ideal for those who want to add a touch of whimsy to birthday celebrations or holiday decorations, these plastic cat figures also make excellent cake toppers and imaginative play companions for kids. If you appreciate detailed craftsmanship and playful design, this set is tailored for you.
@@ -49,12 +49,12 @@ The **EYSCOTA 12PCS Realistic Cat Figurines** offer an impressive blend of quali
 
 These figurines also serve as excellent educational tools, helping children learn about different cat postures and breeds in a fun and interactive way. Their versatility extends beyond playtime—they can be used as creative cake toppers for birthdays and Christmas celebrations, bringing a personalized and cute element to any event. Overall, the EYSCOTA cat figure set combines aesthetics, durability, and functionality, making it an appealing choice for both children and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D738BV9T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D738BV9T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CMT9G2LY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyscota Cat Figurines</a>
+## <a href="https://www.amazon.com/dp/B0CMT9G2LY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyscota Cat Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMT9G2LY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Cat Figurines, Plastic Cat Figures Realistic Kitten Toys, Cat Cake Toppers Easter Egg Birthday Gift for Kids &amp; Children" src="https://m.media-amazon.com/images/I/51wa7dbCL+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMT9G2LY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Cat Figurines, Plastic Cat Figures Realistic Kitten Toys, Cat Cake Toppers Easter Egg Birthday Gift for Kids &amp; Children" src="https://m.media-amazon.com/images/I/51wa7dbCL+L._SL500_.jpg"/></a>
 
 
 The **EYSCOTA 12PCS Cat Figurines** are ideal for cat lovers, collectors, and parents looking for a fun and realistic toy set for their children. These colorful, **plastic cat figures** are perfect as **cat cake toppers** or as charming gifts for birthdays, Easter eggs, and other celebrations. If you want a playful and decorative set that appeals to both kids and adults, this item is a great choice.
@@ -77,12 +77,12 @@ The **EYSCOTA 12PCS Cat Figurines** feature detailed and colorful designs that c
 
 Additionally, these cat figures are lightweight and easy to handle, making them suitable for kids to carry around or use during creative activities. The versatility of the set allows users to enjoy them not only as toys but also as collectibles or party accessories. Overall, the **EYSCOTA cat figurines** offer a delightful combination of fun, decoration, and gift potential that appeals to a wide audience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CMT9G2LY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CMT9G2LY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01M8JKDVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Just Plastic Cat Figures</a>
+## <a href="https://www.amazon.com/dp/B01M8JKDVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Just Plastic Cat Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B01M8JKDVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ust Plastic Cat Figures 24 Count - 2 Assorted Styles - 2 Packs of 12 Each" src="https://m.media-amazon.com/images/I/51-XPcbGF4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01M8JKDVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ust Plastic Cat Figures 24 Count - 2 Assorted Styles - 2 Packs of 12 Each" src="https://m.media-amazon.com/images/I/51-XPcbGF4L._SL500_.jpg"/></a>
 
 
 The **ust Plastic Cat Figures 24 Count** are perfect for cat lovers, educators, and collectors looking for affordable, colorful figurines. Ideal for children, hobbyists, or anyone seeking detailed miniature cats for crafts, educational displays, or playtime, these figures offer versatility and fun in two assorted styles.
@@ -105,12 +105,12 @@ The **ust Plastic Cat Figures** combine practicality with fun through their ligh
 
 Additionally, the compact dimensions make these figures easy to store and carry, perfect for on-the-go activities or for keeping organized at home. The multicolor finish brings each cat to life, enhancing the overall user experience whether for educational purposes or casual enjoyment. These plastic cat figures offer a budget-friendly way to enjoy detailed miniature animals without sacrificing quality.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01M8JKDVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01M8JKDVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09Q971VB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tqqfun Cat Figurine Playset</a>
+## <a href="https://www.amazon.com/dp/B09Q971VB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tqqfun Cat Figurine Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B09Q971VB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TQQFUN 43-Piece Cat Figurine Playset - Realistic Pet Care Center Role Play Toys for Kids, Toddlers, Boys and Girls" src="https://m.media-amazon.com/images/I/51hxAOvbWOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Q971VB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TQQFUN 43-Piece Cat Figurine Playset - Realistic Pet Care Center Role Play Toys for Kids, Toddlers, Boys and Girls" src="https://m.media-amazon.com/images/I/51hxAOvbWOL._SL500_.jpg"/></a>
 
 
 The **TQQFUN 43-Piece Cat Figurine Playset** is ideal for **kids, toddlers, boys, and girls** who love animals and enjoy imaginative play. This playset is perfect for parents and gift-givers looking to provide a fun, educational toy that encourages creativity and role-playing in young children.
@@ -132,12 +132,12 @@ The **TQQFUN 43-Piece Cat Figurine Playset** offers a highly detailed and realis
 
 Additionally, the size and weight of this playset make it convenient for children to carry and play with both at home and on the go. The brand's commitment to quality ensures that each piece is crafted with safety and longevity in mind, making it a valuable addition to any child’s toy collection. Overall, this playset supports developmental learning while providing endless entertainment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09Q971VB1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09Q971VB1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B087P86DWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany Cat Figurines Set</a>
+## <a href="https://www.amazon.com/dp/B087P86DWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany Cat Figurines Set</a>
 
 
-<a href="https://www.amazon.com/dp/B087P86DWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 8PCS Grey &amp; Orange Cat Figurines Set, Realistic Cat Figures Kitten Toys, Cat Cake Toppers Easter Eggs Birthday Gift for Kids Children" src="https://m.media-amazon.com/images/I/417TQc9AncL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087P86DWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 8PCS Grey &amp; Orange Cat Figurines Set, Realistic Cat Figures Kitten Toys, Cat Cake Toppers Easter Eggs Birthday Gift for Kids Children" src="https://m.media-amazon.com/images/I/417TQc9AncL._SL500_.jpg"/></a>
 
 
 The **Toymany 8PCS Grey & Orange Cat Figurines Set** is perfect for **cat lovers**, collectors of **miniature animal figures**, and parents looking for **safe, engaging toys** for their children. Whether you're seeking charming **decorative pieces** or unique **cake toppers** for birthdays and Easter celebrations, this set offers a delightful combination of realism and playfulness. Ideal for kids and adults alike, these figurines add a touch of whimsy to any collection or event.
@@ -160,12 +160,12 @@ The **Toymany 8PCS Grey & Orange Cat Figurines Set** features carefully crafted 
 
 Beyond their visual appeal, these figurines offer practical benefits. Their compact and lightweight dimensions, roughly **3.5 inches** in height and width, make them perfect for small hands and easy to place on cakes or shelves. The set’s versatility means it can be used as engaging toys for children, decorative accents for themed parties, or collectibles for enthusiasts. This multi-functionality ensures long-term enjoyment and value for buyers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B087P86DWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B087P86DWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4SZDQCP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scahow 12pcs Realistic Cat Figurines</a>
+## <a href="https://www.amazon.com/dp/B0C4SZDQCP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scahow 12pcs Realistic Cat Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4SZDQCP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCAHOW 12PCS Realistic Cat Figurines, Plastic Mini Cat Figures Toys, Kitten Miniature Toys Cake Topper Easter Eggs Christmas Birthday Gift for Kids Boys Girls" src="https://m.media-amazon.com/images/I/51MWM02AoML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4SZDQCP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCAHOW 12PCS Realistic Cat Figurines, Plastic Mini Cat Figures Toys, Kitten Miniature Toys Cake Topper Easter Eggs Christmas Birthday Gift for Kids Boys Girls" src="https://m.media-amazon.com/images/I/51MWM02AoML._SL500_.jpg"/></a>
 
 
 The **SCAHOW 12PCS Realistic Cat Figurines** are perfect for **cat lovers**, collectors of miniature toys, and parents looking for a unique **gift for kids**. These **plastic mini cat figures** are ideal for those who appreciate detailed, small-scale animal models or want to add a charming touch to birthday parties, Easter eggs, or Christmas celebrations. They are especially suitable for **boys and girls** who enjoy imaginative play and for anyone seeking decorative cake toppers.
@@ -188,12 +188,12 @@ Each **SCAHOW cat figurine** measures approximately **0.9 inches in height, 1.3 
 
 The set’s versatility is a standout feature. Not only do these figurines serve as delightful toys, but they also double as festive accessories for **Easter eggs, birthday gifts, and Christmas presents**. Their durable plastic build ensures they can withstand regular handling by children, making them both practical and charming. For collectors and enthusiasts, the **SCAHOW 12PCS Realistic Cat Figurines** provide a valuable addition to any miniature animal collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4SZDQCP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4SZDQCP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B078MLN7YN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Gray Tabby Cat</a>
+## <a href="https://www.amazon.com/dp/B078MLN7YN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Gray Tabby Cat</a>
 
 
-<a href="https://www.amazon.com/dp/B078MLN7YN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Gray Tabby Cat - Realistic 2" and="" boys,="" cat="" educational="" figurine="" for="" girls,="" kids="" src="https://m.media-amazon.com/images/I/4138LMi3+UL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B078MLN7YN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Gray Tabby Cat - Realistic 2" and="" boys,="" cat="" educational="" figurine="" for="" girls,="" kids="" src="https://m.media-amazon.com/images/I/4138LMi3+UL._SL500_.jpg" toy=""/></a>
 
 
 The **Safari Ltd. Gray Tabby Cat** figurine is ideal for parents and educators looking for a **realistic** and **educational toy** for children aged **3 and above**. This product is perfect for kids who love animals and enjoy hands-on learning through play. It also suits collectors of animal figurines who appreciate detailed craftsmanship.
@@ -215,12 +215,12 @@ The **Safari Ltd. Gray Tabby Cat** figurine features a meticulously crafted body
 
 Aside from being a fun toy, this figurine also serves as an effective learning aid, helping children develop their knowledge about different cat breeds and animal characteristics. Its realistic appearance stimulates curiosity and encourages children to engage in storytelling, role-playing, and creative exploration, enhancing both cognitive and social skills.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B078MLN7YN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B078MLN7YN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B079L4JMHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany 8pcs Realistic Cat Figurines</a>
+## <a href="https://www.amazon.com/dp/B079L4JMHS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany 8pcs Realistic Cat Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B079L4JMHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 8PCS Realistic Cat Figurines, Educational Cat Figures Toy Set, Kitten Easter Eggs Cat Cake Topper Easter Eggs Birthday Gift for Kids Boys Girls Children" src="https://m.media-amazon.com/images/I/51N0KZt401L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079L4JMHS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 8PCS Realistic Cat Figurines, Educational Cat Figures Toy Set, Kitten Easter Eggs Cat Cake Topper Easter Eggs Birthday Gift for Kids Boys Girls Children" src="https://m.media-amazon.com/images/I/51N0KZt401L._SL500_.jpg"/></a>
 
 
 The **Toymany 8PCS Realistic Cat Figurines** are perfect for **children, boys, and girls** who enjoy **educational toys** that stimulate creativity and learning. Ideal for parents and gift-givers looking for a unique **birthday gift** or fun **Easter eggs** surprise, this set encourages imaginative play and helps kids develop a love for animals.
@@ -242,12 +242,12 @@ The **Toymany 8PCS Realistic Cat Figurines** feature detailed craftsmanship that
 
 Beyond playtime, these figurines foster learning by enabling kids to explore different cat breeds and develop observational skills. The set’s versatility as both a toy and a decorative item makes it a thoughtful gift choice for birthdays and holidays. Overall, the **Toymany 8PCS Realistic Cat Figurines** combine education, creativity, and fun in a compact, safe, and engaging package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B079L4JMHS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B079L4JMHS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CS92GT8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Golray 66pcs Cat Toys For Kids Girls</a>
+## <a href="https://www.amazon.com/dp/B0CS92GT8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Golray 66pcs Cat Toys For Kids Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CS92GT8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Golray 66Pcs Cat Toys for Kids Girls, 3 In 1 Pet Pretend Play Toys with 9 Cat Figurine/DIY Cat Tree/Beauty House/Playground, Toddler Cat Figures Pet Care Birthday Preschool Girl Boy Gift Age 4 5 6 7 8" src="https://m.media-amazon.com/images/I/51ki6PeANbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CS92GT8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Golray 66Pcs Cat Toys for Kids Girls, 3 In 1 Pet Pretend Play Toys with 9 Cat Figurine/DIY Cat Tree/Beauty House/Playground, Toddler Cat Figures Pet Care Birthday Preschool Girl Boy Gift Age 4 5 6 7 8" src="https://m.media-amazon.com/images/I/51ki6PeANbL._SL500_.jpg"/></a>
 
 
 The **Golray 66Pcs Cat Toys for Kids Girls** is an ideal choice for young children aged 4 to 8 who love imaginative play and animals. Perfect for both boys and girls, this set is designed for toddlers and preschoolers who enjoy engaging in pretend play, developing creativity, and nurturing their love for pets through interactive and educational toys. It also serves as a thoughtful gift for birthdays or special occasions.
@@ -270,12 +270,12 @@ The **Golray 66Pcs Cat Toys** set offers a unique combination of fun and educati
 
 Additionally, the inclusion of **nine detailed cat figurines** invites children to practice empathy and responsibility as they care for their pretend pets. The vibrant **multicolored pieces** are visually stimulating and help maintain interest during extended play sessions. Overall, this versatile set combines entertainment with developmental benefits, making it a valuable addition to any young child's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CS92GT8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CS92GT8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DSXR2MM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Totsmile Realistic Cat Figurines Toy For Kids</a>
+## <a href="https://www.amazon.com/dp/B0DSXR2MM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Totsmile Realistic Cat Figurines Toy For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSXR2MM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Totsmile 18PCS Realistic Cat Figurines Toy for Kids, Plastic Mini Animal Figures for Toddlers 3-5, Cat Cake Topper Easter Eggs Birthday Gift for Boys Girls 3-5 5-7 4-8" src="https://m.media-amazon.com/images/I/51e9AltbRKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSXR2MM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Totsmile 18PCS Realistic Cat Figurines Toy for Kids, Plastic Mini Animal Figures for Toddlers 3-5, Cat Cake Topper Easter Eggs Birthday Gift for Boys Girls 3-5 5-7 4-8" src="https://m.media-amazon.com/images/I/51e9AltbRKL._SL500_.jpg"/></a>
 
 
 Ideal for parents and gift-givers looking for engaging and educational toys, the **Totsmile 18PCS Realistic Cat Figurines Toy for Kids** is perfect for toddlers aged 3-5 and young children up to 8 years old. This set appeals to those who want to nurture creativity and imaginative play through realistic, durable mini animal figures that also make delightful cake toppers or Easter gifts.
@@ -298,7 +298,7 @@ The **Totsmile 18PCS Realistic Cat Figurines Toy** offers an excellent opportuni
 
 Additionally, these figurines serve as delightful decorative accents for birthday cakes or Easter baskets, enhancing celebrations with a playful touch. The durable plastic construction ensures longevity, allowing repeated use during various activities and making it a practical investment for parents seeking versatile toys. Overall, this set encourages imaginative exploration while providing safe, engaging entertainment for young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DSXR2MM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DSXR2MM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

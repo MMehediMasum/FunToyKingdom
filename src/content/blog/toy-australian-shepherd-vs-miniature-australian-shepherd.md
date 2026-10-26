@@ -24,10 +24,10 @@ Both breeds share the Aussie’s friendly nature and beautiful coat patterns. Ch
 
 
 
-## <a href="https://www.amazon.com/dp/B000EI3OGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Sinclair Australian Shepherd Dog Plush Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B000EI3OGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Sinclair Australian Shepherd Dog Plush Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B000EI3OGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Sinclair Australian Shepherd Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/41OphFvHLRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000EI3OGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Sinclair Australian Shepherd Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/41OphFvHLRL._SL500_.jpg"/></a>
 
 
 The **Douglas Sinclair Australian Shepherd Dog Plush Stuffed Animal** is perfect for dog lovers, children, and collectors who appreciate realistic and high-quality plush toys. Ideal for those seeking a cuddly companion or a unique gift, this stuffed animal combines charm with meticulous craftsmanship.
@@ -48,10 +48,10 @@ This plush stuffed animal is crafted with attention to detail, showcasing the be
 
 Beyond its charming look, this Douglas plush offers durability thanks to quality materials from **Douglas Co., Inc.**. Its size makes it an excellent decorative item for shelves or beds, while also being safe and suitable for children. Whether as a gift or a personal keepsake, this Australian Shepherd stuffed animal merges aesthetic appeal with functional comfort, making it a delightful addition to any collection.
 
-## <a href="https://www.amazon.com/dp/B000FU99CK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Australian Shepherd Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B000FU99CK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Australian Shepherd Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B000FU99CK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Australian Shepherd, Blue, Docked Original Dog Figurine (4in-5in)" src="https://m.media-amazon.com/images/I/413QeTCiyaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000FU99CK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Australian Shepherd, Blue, Docked Original Dog Figurine (4in-5in)" src="https://m.media-amazon.com/images/I/413QeTCiyaL._SL500_.jpg"/></a>
 
 
 Ideal for **dog lovers** and **collectors of animal figurines**, the **Conversation Concepts Australian Shepherd, Blue, Docked Original Dog Figurine** is perfect for those who appreciate finely crafted, detailed miniatures. This item is especially suited for individuals who want to add a touch of charm to their home décor or office space with a unique representation of the beloved Australian Shepherd breed.
@@ -73,10 +73,10 @@ The **Conversation Concepts Australian Shepherd figurine** captures the essence 
 
 Beyond its aesthetic appeal, this figurine offers a meaningful way for enthusiasts to celebrate their love for dogs. It also serves as a thoughtful gift for dog owners and collectors alike, combining artistic detail with durable construction. The blend of size, color, and design makes it a standout piece that enhances any collection or décor setting.
 
-## <a href="https://www.amazon.com/dp/B097RWHZ1Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funny Miniature Australian Shepherd Kiss My Auss Mini Aussie T-shirt</a>
+## <a href="https://www.amazon.com/dp/B097RWHZ1Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funny Miniature Australian Shepherd Kiss My Auss Mini Aussie T-shirt</a>
 
 
-<a href="https://www.amazon.com/dp/B097RWHZ1Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funny Miniature Australian Shepherd Kiss My Auss Mini Aussie T-Shirt" src="https://m.media-amazon.com/images/I/31UDC4uKMFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097RWHZ1Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funny Miniature Australian Shepherd Kiss My Auss Mini Aussie T-Shirt" src="https://m.media-amazon.com/images/I/31UDC4uKMFL._SL500_.jpg"/></a>
 
 
 Ideal for **Aussie dog enthusiasts** and those who appreciate humorous, casual wear, the **Funny Miniature Australian Shepherd Kiss My Auss Mini Aussie T-Shirt** is perfect for anyone wanting to showcase their love for their furry friend with a playful twist. Whether you're attending dog meetups, casual outings, or simply lounging at home, this tee is designed for people who value comfort and style while expressing their passion for the **Miniature Australian Shepherd** breed.
@@ -97,10 +97,10 @@ This t-shirt stands out due to its clever combination of humor and breed pride, 
 
 The quality manufacturing ensures durability, so the print and fabric maintain their charm even after multiple washes. The shirt’s playful message, “Kiss My Auss,” adds a lighthearted and affectionate touch, making it an excellent gift for yourself or a fellow **Australian Shepherd** fan. Overall, this t-shirt blends style, comfort, and personality, meeting the needs of dedicated dog lovers who want to wear their passion proudly.
 
-## <a href="https://www.amazon.com/dp/B01B6B8UNA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Australian Shepherd Figure</a>
+## <a href="https://www.amazon.com/dp/B01B6B8UNA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Australian Shepherd Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B01B6B8UNA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Papo " australian="" figure"="" shepherd="" src="https://m.media-amazon.com/images/I/41t6LjhFVhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01B6B8UNA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Papo " australian="" figure"="" shepherd="" src="https://m.media-amazon.com/images/I/41t6LjhFVhL._SL500_.jpg"/></a>
 
 
 The **Papo "Australian Shepherd Figure"** is ideal for collectors, animal enthusiasts, and children who love detailed and realistic animal figurines. If you are looking for a high-quality, beautifully crafted model to add to your collection or to inspire imaginative play, this figure is a perfect choice. It also appeals to educators and pet lovers who want a tangible representation of the **Australian Shepherd** breed.
@@ -123,10 +123,10 @@ The **Papo "Australian Shepherd Figure"** stands out with its intricate sculptin
 
 Crafted by **C & J Direct GmbH & Co. KG**, the manufacturer ensures quality and durability, making the figure a lasting addition to any collection. Its manageable size and weight make it easy to carry, display, or use in imaginative play scenarios. Overall, this figure offers a blend of aesthetic appeal and practical usability that makes it a versatile choice for various users.
 
-## <a href="https://www.amazon.com/dp/B09RQ8RCJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Australian Shepherd Stuffed Animal </a>
+## <a href="https://www.amazon.com/dp/B09RQ8RCJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Australian Shepherd Stuffed Animal </a>
 
 
-<a href="https://www.amazon.com/dp/B09RQ8RCJL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Australian Shepherd Stuffed Animal - Playful Ease - Timeless Companions - Multicolor 8 Inches" src="https://m.media-amazon.com/images/I/41FigfO1z-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09RQ8RCJL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Australian Shepherd Stuffed Animal - Playful Ease - Timeless Companions - Multicolor 8 Inches" src="https://m.media-amazon.com/images/I/41FigfO1z-L._SL500_.jpg"/></a>
 
 
 The **Aurora® Adorable Mini Flopsie™ Australian Shepherd Stuffed Animal** is perfect for children and collectors who appreciate lifelike, cuddly companions. Ideal for young kids looking for a playful and comforting toy, as well as adults who enjoy adding realistic plush animals to their collections, this **8-inch multicolor stuffed animal** offers a delightful blend of charm and quality.
@@ -149,10 +149,10 @@ This **Mini Flopsie™ Australian Shepherd Stuffed Animal** stands out for its d
 
 Beyond its cute appearance, this stuffed animal is designed for durability and lasting enjoyment. The lightweight nature ensures it is easy to handle, while the vibrant multicolor fur mimics the genuine coat patterns of an Australian Shepherd, fostering a connection with pet lovers and enthusiasts alike. Whether used as a comforting bedtime companion or a decorative piece, the Aurora® Mini Flopsie™ brings timeless joy and playful ease to its owner.
 
-## <a href="https://www.amazon.com/dp/B08T66LPKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Maizie Australian Shepherd Dog Plush</a>
+## <a href="https://www.amazon.com/dp/B08T66LPKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Maizie Australian Shepherd Dog Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B08T66LPKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Maizie Australian Shepherd Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/41PXuu+p9LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08T66LPKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Maizie Australian Shepherd Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/41PXuu+p9LL._SL500_.jpg"/></a>
 
 
 The **Douglas Maizie Australian Shepherd Dog Plush Stuffed Animal** is ideal for dog lovers, children, and collectors who appreciate lifelike, high-quality plush toys. This stuffed animal is perfect for those seeking a cuddly companion that mimics the appearance of an Australian Shepherd, making it a great gift for kids, pet enthusiasts, or anyone looking to add a charming and realistic plush to their collection.
@@ -174,10 +174,10 @@ The **Douglas Maizie Australian Shepherd Dog Plush** stands out for its incredib
 
 Beyond its visual appeal, this plush stuffed animal offers significant emotional benefits by providing comfort and companionship. Whether used as a playtime buddy or a calming presence at bedtime, the **Douglas Maizie Australian Shepherd** is crafted to deliver joy and affection, making it a wonderful addition to any plush collection or a thoughtful gift for dog lovers of all ages.
 
-## <a href="https://www.amazon.com/dp/B092L7MSGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Australian-shepherd Shirt Mini Aussie Mom T-shirt</a>
+## <a href="https://www.amazon.com/dp/B092L7MSGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Australian-shepherd Shirt Mini Aussie Mom T-shirt</a>
 
 
-<a href="https://www.amazon.com/dp/B092L7MSGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Australian-Shepherd Shirt Mini Aussie Mom T-Shirt" src="https://m.media-amazon.com/images/I/31hV6iK0GfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092L7MSGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Australian-Shepherd Shirt Mini Aussie Mom T-Shirt" src="https://m.media-amazon.com/images/I/31hV6iK0GfL._SL500_.jpg"/></a>
 
 
 The **Australian-Shepherd Shirt Mini Aussie Mom T-Shirt** is perfect for proud owners and lovers of the Miniature Australian Shepherd breed. If you want to showcase your affection for your furry companion in a stylish and comfortable way, this shirt is an ideal choice. It’s designed specifically for those who identify as “Mini Aussie Moms” and want to celebrate their bond with their unique pets.
@@ -198,10 +198,10 @@ This **Mini Aussie Mom T-Shirt** features a design that highlights your connecti
 
 The shirt’s material and cut focus on comfort and durability, which means you can wear it often without worrying about wear and tear. Its thoughtful design makes it an excellent gift for dog lovers who want to celebrate their role as a Mini Aussie mom. With this shirt, users not only enjoy a stylish garment but also strengthen their sense of community with other Australian Shepherd enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B00GAGRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament</a>
+## <a href="https://www.amazon.com/dp/B00GAGRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament</a>
 
 
-<a href="https://www.amazon.com/dp/B00GAGRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament Blue Docked Tail - Delightful!" src="https://m.media-amazon.com/images/I/413XCQ11sOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00GAGRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament Blue Docked Tail - Delightful!" src="https://m.media-amazon.com/images/I/413XCQ11sOL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament** with a **Blue Docked Tail** is perfect for dog lovers, especially those who adore the **Australian Shepherd** breed. Ideal for individuals seeking a charming and collectible holiday decoration, this ornament is also great for gift-givers looking to delight family and friends who appreciate unique, breed-specific Christmas décor.
@@ -223,10 +223,10 @@ This **Christmas ornament** showcases a beautifully detailed Australian Shepherd
 
 Additionally, the ornament’s craftsmanship by **Conversation Concepts** guarantees durability and a high-quality finish, ensuring that it can be treasured for many holiday seasons. Whether displayed on a tree or gifted to a fellow dog enthusiast, this ornament combines charm and breed pride in a delightful package that enhances any festive atmosphere.
 
-## <a href="https://www.amazon.com/dp/B004FL05IW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament</a>
+## <a href="https://www.amazon.com/dp/B004FL05IW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament</a>
 
 
-<a href="https://www.amazon.com/dp/B004FL05IW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament Brown - Delightful!" src="https://m.media-amazon.com/images/I/41HqOTdnzkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004FL05IW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament Brown - Delightful!" src="https://m.media-amazon.com/images/I/41HqOTdnzkL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Australian Shepherd Tiny Miniature One Christmas Ornament Brown** is perfect for dog lovers, especially those who adore the **Australian Shepherd** breed. If you are looking to add a charming and festive touch to your holiday décor or searching for a thoughtful gift for a pet enthusiast, this ornament is an ideal choice. Its compact size and detailed design make it suitable for collectors and anyone who appreciates unique Christmas decorations.
@@ -248,10 +248,10 @@ This **Conversation Concepts** ornament features exquisite detailing that captur
 
 Crafted by the reputable **Conversation Concepts** manufacturer, this ornament ensures durability and aesthetic appeal. The compact dimensions make it versatile, fitting well in various decorating styles without overwhelming other ornaments. Whether you are a dog enthusiast or simply want a unique and delightful Christmas ornament, this piece provides both sentimental value and decorative charm.
 
-## <a href="https://www.amazon.com/dp/B0C3J72FRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wild Republic Rescue Dog</a>
+## <a href="https://www.amazon.com/dp/B0C3J72FRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wild Republic Rescue Dog</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3J72FRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wild Republic Rescue Dog, Australian Shepherd, Stuffed Animal, with Sound, 5.5 inches, Gift for Kids, Plush Toy, Fill is Spun Recycled Water Bottles" src="https://m.media-amazon.com/images/I/41s5gj-CzkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3J72FRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wild Republic Rescue Dog, Australian Shepherd, Stuffed Animal, with Sound, 5.5 inches, Gift for Kids, Plush Toy, Fill is Spun Recycled Water Bottles" src="https://m.media-amazon.com/images/I/41s5gj-CzkL._SL500_.jpg"/></a>
 
 
 The **Wild Republic Rescue Dog, Australian Shepherd Stuffed Animal** is ideal for children and animal lovers who appreciate eco-friendly toys with a realistic touch. This plush toy is perfect for kids who enjoy imaginative play, as well as parents looking for a safe, sustainable gift option that supports environmental responsibility.

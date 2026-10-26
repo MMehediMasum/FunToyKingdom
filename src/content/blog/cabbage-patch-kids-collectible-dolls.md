@@ -53,7 +53,7 @@ Cabbage Patch Kids changed a lot since the 1980s. Different materials and design
 | 1990s | Introduced new facial expressions and more diverse dolls. |
 | 2000s | Added themed dolls and special edition collections. |
 | 2010s | Used new materials and launched digital apps. |
-| 2020s | Continued updates and focused on [collector editions](https://www.amazon.com/s?k=Cabbage+Patch+Kids+collector+edition&tag=gearcookware-20). |
+| 2020s | Continued updates and focused on [collector editions](https://www.amazon.com/s?k=Cabbage+Patch+Kids+collector+edition&tag=mofb05-20). |
 
 ## Identifying Rare Cabbage Patch Kids
 
@@ -133,7 +133,7 @@ Some dolls were released for special events or holidays. These limited editions 
 
 Examples include holiday themes or charity editions. These dolls often come with special packaging or tags.
 
-* [Holiday-themed dolls](https://www.amazon.com/s?k=holiday+cabbage+patch+kids&tag=gearcookware-20) like Christmas or Halloween
+* [Holiday-themed dolls](https://www.amazon.com/s?k=holiday+cabbage+patch+kids&tag=mofb05-20) like Christmas or Halloween
 * Charity or fundraiser edition dolls
 * Limited edition tags and certificates
 * Special packaging or unique features
@@ -175,7 +175,7 @@ Price guides offer a helpful starting point to value your Cabbage Patch Kids dol
 
 Collectors use websites, books, and forums to find reliable prices. Checking multiple sources gives a better estimate.
 
-* [Printed price guides](https://www.amazon.com/s?k=vintage+doll+price+guide+book&tag=gearcookware-20) for vintage dolls
+* [Printed price guides](https://www.amazon.com/s?k=vintage+doll+price+guide+book&tag=mofb05-20) for vintage dolls
 * Online databases with recent sale prices
 * Collector forums for advice and opinions
 * Auction sites to see real-time bids
@@ -205,9 +205,9 @@ For plastic parts, mild soap and water can be used carefully. Do not soak the do
 
 Store your dolls in a cool, dry place. Avoid areas with high heat or moisture to prevent mold or damage.
 
-Keep dolls out of direct sunlight to stop colors from fading. Use [acid-free tissue paper](https://www.amazon.com/s?k=acid-free+tissue+paper+for+storage&tag=gearcookware-20) to wrap dolls for extra protection.
+Keep dolls out of direct sunlight to stop colors from fading. Use [acid-free tissue paper](https://www.amazon.com/s?k=acid-free+tissue+paper+for+storage&tag=mofb05-20) to wrap dolls for extra protection.
 
-* Use [breathable storage boxes](https://www.amazon.com/s?k=breathable+storage+boxes+for+collectibles&tag=gearcookware-20)
+* Use [breathable storage boxes](https://www.amazon.com/s?k=breathable+storage+boxes+for+collectibles&tag=mofb05-20)
 * Keep dolls upright to avoid deforming
 * Separate dolls to prevent paint transfer
 * Check dolls regularly for dust or damage

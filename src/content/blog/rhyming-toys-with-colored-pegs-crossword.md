@@ -20,10 +20,10 @@ Children match pegs to the correct words, making learning hands-on and easy. Thi
 
 
 
-## <a href="https://www.amazon.com/dp/B01A5YM3X2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Learning Resources Snap-n-learn Rhyming Pups Toy</a>
+## <a href="https://www.amazon.com/dp/B01A5YM3X2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Learning Resources Snap-n-learn Rhyming Pups Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B01A5YM3X2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Learning Resources Snap-N-Learn Rhyming Pups Toy, Fine Motor Toys, Develops Color Recognition Skills, 20 Pieces, Ages 3+" src="https://m.media-amazon.com/images/I/41djcLYq1NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01A5YM3X2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Learning Resources Snap-N-Learn Rhyming Pups Toy, Fine Motor Toys, Develops Color Recognition Skills, 20 Pieces, Ages 3+" src="https://m.media-amazon.com/images/I/41djcLYq1NL._SL500_.jpg"/></a>
 
 
 The **Learning Resources Snap-N-Learn Rhyming Pups Toy** is ideal for parents, educators, and caregivers looking to enhance early childhood development through engaging play. Designed specifically for children aged 3 and above, this toy is perfect for young learners who are beginning to explore language skills, color recognition, and fine motor coordination.
@@ -46,12 +46,12 @@ The **Learning Resources Snap-N-Learn Rhyming Pups Toy** features vibrant, multi
 
 With its compact and lightweight design, this toy is easy to handle and transport, making it a great option for both home and classroom use. The 20 durable pieces are crafted to withstand rough handling, ensuring long-lasting play. By combining color recognition with language learning, this educational toy offers a multi-sensory approach that benefits young children’s cognitive growth and keeps them engaged in meaningful play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01A5YM3X2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01A5YM3X2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08L98FB9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Words</a>
+## <a href="https://www.amazon.com/dp/B08L98FB9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Words</a>
 
 
-<a href="https://www.amazon.com/dp/B08L98FB9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Words - CVC Word Builders, Phonics Games, Rhyming Words Game for Kids, Kindergarten Learning Games, Match it Puzzles for Toddlers, Learn to Read Game, CVC Words for Kindergarten Activities" src="https://m.media-amazon.com/images/I/51OBkyQGvRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L98FB9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Words - CVC Word Builders, Phonics Games, Rhyming Words Game for Kids, Kindergarten Learning Games, Match it Puzzles for Toddlers, Learn to Read Game, CVC Words for Kindergarten Activities" src="https://m.media-amazon.com/images/I/51OBkyQGvRL._SL500_.jpg"/></a>
 
 
 The **Super Words - CVC Word Builders** is perfect for parents and educators looking to enhance early literacy skills in young children, especially those in **kindergarten** or toddlers just beginning to explore reading. This game is ideal for kids who are ready to engage with **phonics**, **rhyming words**, and **CVC (consonant-vowel-consonant)** word building activities in a fun and interactive way.
@@ -74,7 +74,7 @@ The **Super Words - CVC Word Builders** combines educational content with playfu
 
 Additionally, the inclusion of **match it puzzles** promotes fine motor skills and cognitive reasoning, allowing children to connect visual and verbal learning. Being manufactured by **Barnacle Toys** and branded under **Melby Toys** ensures a quality product designed with child development principles in mind, making it a reliable choice for early education.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08L98FB9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08L98FB9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -23,10 +23,10 @@ It makes a great desk or room decoration. For kids and collectors, the Funko POP
 
 
 
-## <a href="https://www.amazon.com/dp/B0DRW73TRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lego Ideas Disney Pixar Luxo Jr.</a>
+## <a href="https://www.amazon.com/dp/B0DRW73TRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lego Ideas Disney Pixar Luxo Jr.</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRW73TRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEGO Ideas Disney Pixar Luxo Jr. - Room Decor and Building Set for Adults - Office and Desk Decor - Birthday Gifts for Women &amp; Men - Brick-Built Lamp DIY Kit - 21357" src="https://m.media-amazon.com/images/I/41urd7WPaDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRW73TRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEGO Ideas Disney Pixar Luxo Jr. - Room Decor and Building Set for Adults - Office and Desk Decor - Birthday Gifts for Women &amp; Men - Brick-Built Lamp DIY Kit - 21357" src="https://m.media-amazon.com/images/I/41urd7WPaDL._SL500_.jpg"/></a>
 
 
 The **LEGO Ideas Disney Pixar Luxo Jr.** is perfect for **adults** who appreciate both **creative building** and **unique room decor**. Ideal for those who love **Disney Pixar memorabilia** or are looking for a stylish **office or desk accessory**, this set appeals to hobbyists, collectors, and anyone seeking a thoughtful **birthday gift** for men or women.
@@ -49,10 +49,10 @@ The **LEGO Ideas Disney Pixar Luxo Jr.** set stands out due to its faithful recr
 
 Beyond aesthetics, this set provides a unique benefit as both a collectible and a functional art piece. Fans of Disney Pixar will appreciate the nostalgic connection, while LEGO enthusiasts can enjoy the high-quality materials and detailed instructions that make assembly both enjoyable and fulfilling. Overall, this kit serves as a perfect blend of entertainment, decoration, and fandom expression.
 
-## <a href="https://www.amazon.com/dp/B0B82RGVV7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Trains: Disney 100 - Woody On Luxo Ball</a>
+## <a href="https://www.amazon.com/dp/B0B82RGVV7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Trains: Disney 100 - Woody On Luxo Ball</a>
 
 
-<a href="https://www.amazon.com/dp/B0B82RGVV7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Trains: Disney 100 - Woody on Luxo Ball - Disney Pixar: Toy Story - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Movies Fans" src="https://m.media-amazon.com/images/I/41jFNUE8IEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B82RGVV7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Trains: Disney 100 - Woody on Luxo Ball - Disney Pixar: Toy Story - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Movies Fans" src="https://m.media-amazon.com/images/I/41jFNUE8IEL._SL500_.jpg"/></a>
 
 
 The **Funko POP! Trains: Disney 100 - Woody on Luxo Ball** is perfect for both **Disney Pixar Toy Story fans** and **collectors of unique vinyl figures**. Whether you're a **kid** who loves playful, colorful memorabilia or an **adult** seeking an official **Disney collectible** to enhance your display, this figure offers a charming addition to your collection. It also makes a great **gift idea** for movie enthusiasts and collectors alike.

@@ -20,10 +20,10 @@ Kids can personalize a large plush kitty with markers, creating unique spray art
 
 
 
-## <a href="https://www.amazon.com/dp/B0BWHBVXSX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Canal Toys Personalize Airbrush Plush Large Kitty</a>
+## <a href="https://www.amazon.com/dp/B0BWHBVXSX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Canal Toys Personalize Airbrush Plush Large Kitty</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWHBVXSX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Canal Toys Personalize Airbrush Plush Large Kitty! Decorate, wash, Repeat! Customize Your own Spray Art Plush with Markers, Battery Powered Airbrush and 100+ Stencils. Ages 6+" src="https://m.media-amazon.com/images/I/412zMMxWb5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWHBVXSX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Canal Toys Personalize Airbrush Plush Large Kitty! Decorate, wash, Repeat! Customize Your own Spray Art Plush with Markers, Battery Powered Airbrush and 100+ Stencils. Ages 6+" src="https://m.media-amazon.com/images/I/412zMMxWb5L._SL500_.jpg"/></a>
 
 
 The **Canal Toys Personalize Airbrush Plush Large Kitty** is perfect for creative children aged **6 and above** who love to engage in hands-on art projects. This interactive toy is ideal for kids who enjoy customizing their belongings and expressing their creativity in a fun, mess-free way. Parents looking for an educational and entertaining gift that encourages artistic skills will also find this product a great choice.

@@ -23,10 +23,10 @@ Many yo-yos include extra strings, cases, and accessories to enhance your experi
 
 
 
-## <a href="https://www.amazon.com/dp/B082N5J6KJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Duncan Toys Yo-yo Scout Survivor Pack</a>
+## <a href="https://www.amazon.com/dp/B082N5J6KJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Duncan Toys Yo-yo Scout Survivor Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B082N5J6KJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Duncan Toys Yo-Yo Scout Survivor Pack, Yo-Yo Gift Set with [2] Yo-Yos, Accessories, Trick Book and More" src="https://m.media-amazon.com/images/I/51ZggRMQTgS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082N5J6KJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Duncan Toys Yo-Yo Scout Survivor Pack, Yo-Yo Gift Set with [2] Yo-Yos, Accessories, Trick Book and More" src="https://m.media-amazon.com/images/I/51ZggRMQTgS._SL500_.jpg"/></a>
 
 
 The **Duncan Toys Yo-Yo Scout Survivor Pack** is perfect for both beginners and intermediate yo-yo enthusiasts looking for a comprehensive starter kit. Ideal for kids, teens, and adults who want to improve their yo-yo skills, this gift set offers everything needed to learn new tricks and enjoy hours of fun. Whether you are purchasing it as a gift or for personal use, this pack is designed to support skill development and creative play.
@@ -49,10 +49,10 @@ The **Duncan Toys Yo-Yo Scout Survivor Pack** stands out with its thoughtful com
 
 Designed by the reputable **Duncan brand**, this yo-yo set delivers quality and reliability. The variety of colors available adds a personal touch, making it an appealing gift option. Overall, this pack provides excellent value by combining essential tools for yo-yo enthusiasts to grow their skills and enjoy creative play.
 
-## <a href="https://www.amazon.com/dp/B0DRC427VW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo K2 Yoyo</a>
+## <a href="https://www.amazon.com/dp/B0DRC427VW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo K2 Yoyo</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRC427VW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO K2 Yoyo for Kids 8-12, Responsive Yo yo Glow in The Dark, Unresponsive Yo yos for Adults, Plastic Yo-yo Professional for Finger Spin Trick, 12 Yoyo Strings + Accessory kit (Glow Orange)" src="https://m.media-amazon.com/images/I/41nXKVAC6KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRC427VW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO K2 Yoyo for Kids 8-12, Responsive Yo yo Glow in The Dark, Unresponsive Yo yos for Adults, Plastic Yo-yo Professional for Finger Spin Trick, 12 Yoyo Strings + Accessory kit (Glow Orange)" src="https://m.media-amazon.com/images/I/41nXKVAC6KL._SL500_.jpg"/></a>
 
 
 The **MAGICYOYO K2 Yoyo** is ideal for both **kids aged 8-12** who are beginning to explore yoyo tricks and **adults** looking for a **professional-grade yoyo** that supports advanced finger spin techniques. Its dual nature as a **responsive and unresponsive yoyo** makes it versatile for learners and experienced players alike, while the **glow-in-the-dark feature** adds an exciting visual element, perfect for indoor and nighttime play.
@@ -75,10 +75,10 @@ The **MAGICYOYO K2 Yoyo** stands out with its **glow in the dark** capability, w
 
 Designed with **versatility** in mind, this yoyo caters to both beginners and advanced players by supporting **responsive** (for easy returns) and **unresponsive play** (for complex tricks). Its lightweight yet durable **plastic construction** makes it easy to handle for extended periods while maintaining resilience against impacts. The compact size enhances portability, allowing users to practice tricks on the go or share the fun with friends anywhere.
 
-## <a href="https://www.amazon.com/dp/B0CKX3XPKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watieoboo Yoyo Professional Responsive Yo-yos Bearing For Kids Beginner Unresponsive Yo Yo Bearing For Fingerspin Yoyos Tricks</a>
+## <a href="https://www.amazon.com/dp/B0CKX3XPKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watieoboo Yoyo Professional Responsive Yo-yos Bearing For Kids Beginner Unresponsive Yo Yo Bearing For Fingerspin Yoyos Tricks</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKX3XPKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATIEOBOO yoyo Professional Responsive yo-yos Bearing for Kids Beginner Unresponsive Yo yo Bearing for Fingerspin Yoyos Tricks with Yo-yo Accessories-Black and Blue Finger-Spinning YoYo" src="https://m.media-amazon.com/images/I/51uNkkv6TfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKX3XPKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATIEOBOO yoyo Professional Responsive yo-yos Bearing for Kids Beginner Unresponsive Yo yo Bearing for Fingerspin Yoyos Tricks with Yo-yo Accessories-Black and Blue Finger-Spinning YoYo" src="https://m.media-amazon.com/images/I/51uNkkv6TfL._SL500_.jpg"/></a>
 
 
 The **WATIEOBOO yoyo Professional Responsive yo-yos Bearing** is ideal for **kids** and **beginners** looking to master the art of yo-yo tricks. If you want a reliable and easy-to-use yo-yo that supports both **responsive** and **unresponsive play**, this yo-yo is perfect for enhancing your skills and enjoying finger-spinning techniques.
@@ -100,10 +100,10 @@ The **WATIEOBOO yoyo** features a compact and lightweight design, measuring appr
 
 Crafted with durable materials and a sleek black and blue finish, this yo-yo not only performs well but also looks great in action. Additionally, the inclusion of yo-yo accessories provides added value, helping users customize their yo-yo and improve their control. Whether you're just starting out or looking to refine your skills, the **WATIEOBOO yoyo** offers a versatile and enjoyable experience for all skill levels.
 
-## <a href="https://www.amazon.com/dp/B0C5DQPHJ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo K2 Crystal Responsive Yoyo</a>
+## <a href="https://www.amazon.com/dp/B0C5DQPHJ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo K2 Crystal Responsive Yoyo</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5DQPHJ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO K2 Crystal Responsive Yoyo for Kids 8-12, Professional Fingerspin Trick YoYo for Advanced, Dual Purpose Mode with Unresponsive Bearing+12 Yo yo Strings+Yo-yo Case Bag (Pink Purple Gradient)" src="https://m.media-amazon.com/images/I/51aiey+uFjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5DQPHJ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO K2 Crystal Responsive Yoyo for Kids 8-12, Professional Fingerspin Trick YoYo for Advanced, Dual Purpose Mode with Unresponsive Bearing+12 Yo yo Strings+Yo-yo Case Bag (Pink Purple Gradient)" src="https://m.media-amazon.com/images/I/51aiey+uFjL._SL500_.jpg"/></a>
 
 
 The **MAGICYOYO K2 Crystal Responsive Yoyo** is ideal for **kids aged 8-12** who are looking to advance their yoyo skills with a professional-grade toy. It is perfect for young enthusiasts who want to master both basic and advanced **fingerspin tricks** and enjoy a dual-purpose yoyo experience with both responsive and unresponsive modes. Whether a beginner aiming to improve or a more advanced player seeking versatility, this yoyo offers a great balance of performance and style.
@@ -125,10 +125,10 @@ The **MAGICYOYO K2 Crystal Responsive Yoyo** stands out due to its innovative du
 
 Crafted with precise dimensions and a lightweight design, the yoyo offers exceptional control and comfort, which is essential for executing advanced tricks. The eye-catching **purple pink gradient** finish not only enhances the aesthetic appeal but also motivates young players to practice regularly. Overall, this yoyo provides both functionality and style, making it a valuable choice for any child eager to elevate their yoyo skills.
 
-## <a href="https://www.amazon.com/dp/B0DCZCH66L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watieoboo Yoyo Responsive Yoyo For Kids</a>
+## <a href="https://www.amazon.com/dp/B0DCZCH66L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watieoboo Yoyo Responsive Yoyo For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCZCH66L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATIEOBOO Yoyo Responsive Yoyo for Kids,Professional Unresponsive Yo yo for Adults Pro Metal Trick Yoyos with Yo-Yos Bearing Kit 10 Strings, Case &amp; Gloves" src="https://m.media-amazon.com/images/I/51cRGsUmJNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCZCH66L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATIEOBOO Yoyo Responsive Yoyo for Kids,Professional Unresponsive Yo yo for Adults Pro Metal Trick Yoyos with Yo-Yos Bearing Kit 10 Strings, Case &amp; Gloves" src="https://m.media-amazon.com/images/I/51cRGsUmJNL._SL500_.jpg"/></a>
 
 
 The **WATIEOBOO Yoyo Responsive Yoyo for Kids** and **Professional Unresponsive Yo yo for Adults** is ideal for both beginners and experienced players looking to master **yo-yo tricks**. This versatile set caters to **kids** eager to learn and **adults** seeking a durable and high-performance **pro metal trick yoyo** complete with all necessary accessories.
@@ -150,10 +150,10 @@ The **WATIEOBOO Yoyo** boasts a **professional unresponsive design** that allows
 
 Constructed from high-quality metal, this yo-yo delivers excellent balance and stability, which enhances trick execution and overall control. The inclusion of a **case and gloves** not only protects the yo-yo but also ensures comfortable handling, preventing blisters during extended practice sessions. Its stylish color options and compact size make it a great choice for players of all ages who value both aesthetics and functionality.
 
-## <a href="https://www.amazon.com/dp/B0CJVLYBVT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yoyostudio Yoyo Professional Unresponsive Yoyos</a>
+## <a href="https://www.amazon.com/dp/B0CJVLYBVT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yoyostudio Yoyo Professional Unresponsive Yoyos</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJVLYBVT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOYOSTUDIO Yoyo Professional Unresponsive Yoyos with Dual Aluminum Alloy Rings, Pro Tricks Yo yos for Adults, Metal Yoyo for Kids 8-12 or Above with Strings, Gloves &amp; Case Black and Red (Black Ring)" src="https://m.media-amazon.com/images/I/41LBvELhw+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJVLYBVT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOYOSTUDIO Yoyo Professional Unresponsive Yoyos with Dual Aluminum Alloy Rings, Pro Tricks Yo yos for Adults, Metal Yoyo for Kids 8-12 or Above with Strings, Gloves &amp; Case Black and Red (Black Ring)" src="https://m.media-amazon.com/images/I/41LBvELhw+L._SL500_.jpg"/></a>
 
 
 The **YOYOSTUDIO Yoyo Professional Unresponsive Yoyos** are ideal for both adults and children aged 8-12 and above who are eager to master advanced yoyo tricks and improve their skills. Whether you're a beginner looking to transition into unresponsive play or an experienced yoyo enthusiast seeking high-quality equipment, this metal yoyo set with dual aluminum alloy rings offers precision and durability for professional-level performance.
@@ -175,10 +175,10 @@ The **YOYOSTUDIO Yoyo Professional Unresponsive Yoyo** is engineered with **dual
 
 With its sleek **black and red color** and professional build, this yoyo is not only a functional tool but also visually appealing, making it suitable for both casual play and competitive settings. Its lightweight yet sturdy construction ensures comfortable handling during prolonged use, while the compact size fits easily into pockets or bags. This combination of features provides a balanced experience, ensuring users can enjoy a smooth and controlled yoyo performance every time.
 
-## <a href="https://www.amazon.com/dp/B09ZH6T222?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo Locus V6 Responsive Yoyo</a>
+## <a href="https://www.amazon.com/dp/B09ZH6T222?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo Locus V6 Responsive Yoyo</a>
 
 
-<a href="https://www.amazon.com/dp/B09ZH6T222?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO Locus V6 Responsive Yoyo for Kids, Dual Function Yo Yo Professional Yo yos for Adults, Trick Yo-yo with Unresponsive Bearing, Bearing Puller, Bag, 12 Yoyo Strings（Golden Red Gradient）" src="https://m.media-amazon.com/images/I/51CBHKWUVtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09ZH6T222?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO Locus V6 Responsive Yoyo for Kids, Dual Function Yo Yo Professional Yo yos for Adults, Trick Yo-yo with Unresponsive Bearing, Bearing Puller, Bag, 12 Yoyo Strings（Golden Red Gradient）" src="https://m.media-amazon.com/images/I/51CBHKWUVtL._SL500_.jpg"/></a>
 
 
 The **MAGICYOYO Locus V6 Responsive Yoyo** is ideal for both **kids** and **adults** who are passionate about mastering yoyo tricks or looking for a versatile yoyo that suits beginners and professionals alike. Its dual-function design makes it perfect for those who want to experiment with both responsive and unresponsive play styles, offering a seamless transition as skills improve.
@@ -200,10 +200,10 @@ The **MAGICYOYO Locus V6** features a well-balanced design that enhances stabili
 
 Crafted by **TND**, this yoyo’s **red golden gradient** finish is not only visually appealing but also durable, providing a premium look and feel. Its compact dimensions and lightweight design make it comfortable to hold and maneuver, reducing hand fatigue during extended sessions. Whether you are a young enthusiast or a seasoned player, the **MAGICYOYO Locus V6** offers excellent value with professional-grade performance and versatility.
 
-## <a href="https://www.amazon.com/dp/B0DFB22481?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watieobooyoyo Tc4 Aviation Titanium Alloy Yoyo</a>
+## <a href="https://www.amazon.com/dp/B0DFB22481?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watieobooyoyo Tc4 Aviation Titanium Alloy Yoyo</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFB22481?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATIEOBOOyoyo TC4 Aviation Titanium Alloy yoyo Professional Non-Reactive Yo-yo, Suitable for Children and Adults Trick yo yo, Party Performance Yo-yos and Competition Yo yos" src="https://m.media-amazon.com/images/I/41Pm4DLQv2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFB22481?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATIEOBOOyoyo TC4 Aviation Titanium Alloy yoyo Professional Non-Reactive Yo-yo, Suitable for Children and Adults Trick yo yo, Party Performance Yo-yos and Competition Yo yos" src="https://m.media-amazon.com/images/I/41Pm4DLQv2L._SL500_.jpg"/></a>
 
 
 The **WATIEOBOOyoyo TC4 Aviation Titanium Alloy yoyo** is ideal for both **children and adults** who are passionate about mastering yo-yo tricks, participating in **party performances**, or competing in **professional yo-yo competitions**. This **professional-grade yo-yo** suits users looking for durability, precision, and style in their yo-yoing experience.
@@ -225,10 +225,10 @@ Crafted with **TC4 aviation titanium alloy**, this yo-yo offers superior durabil
 
 The yo-yo’s dimensions and weight are optimized to provide excellent balance, making it suitable for intricate tricks and rapid maneuvers, whether in casual play or competitive environments. Additionally, the sleek **silver finish** adds a professional touch, making it an eye-catching accessory during performances and competitions alike. Overall, the **WATIEOBOOyoyo TC4 Aviation Titanium Alloy yoyo** delivers a blend of style, performance, and durability that appeals to yo-yo enthusiasts of all skill levels.
 
-## <a href="https://www.amazon.com/dp/B0CR7CYQRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Spintek R1 Pro </a>
+## <a href="https://www.amazon.com/dp/B0CR7CYQRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Spintek R1 Pro </a>
 
 
-<a href="https://www.amazon.com/dp/B0CR7CYQRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SPINTEK R1 PRO - High End Professional YoYo - Yo for Adults &amp; Kids 8-12 - Dual &amp; Non Responsive - Trick YoYo - Beginner Friendly" src="https://m.media-amazon.com/images/I/51FM7VipbEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR7CYQRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SPINTEK R1 PRO - High End Professional YoYo - Yo for Adults &amp; Kids 8-12 - Dual &amp; Non Responsive - Trick YoYo - Beginner Friendly" src="https://m.media-amazon.com/images/I/51FM7VipbEL._SL500_.jpg"/></a>
 
 
 The **SPINTEK R1 PRO** is perfect for both **adults and kids aged 8-12** who are eager to explore the exciting world of yo-yo tricks. Whether you're a beginner looking for a **beginner-friendly** yo-yo or a more experienced player seeking a **dual & non-responsive** yo-yo that supports advanced tricks, this high-end professional yo-yo is designed to meet your needs.
@@ -250,10 +250,10 @@ The **SPINTEK R1 PRO** boasts a carefully engineered design that balances weight
 
 Constructed by the trusted **SPINTEK** brand, the yo-yo combines durability and performance. Its lightweight build and ergonomic dimensions allow for comfortable long play sessions without fatigue. Whether you're practicing at home or performing in front of friends, the SPINTEK R1 PRO delivers smooth spins and reliable control that enhance the overall yo-yo experience.
 
-## <a href="https://www.amazon.com/dp/B0C6TD5PHD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo Reponsive Yoyos For Kids Beginners, Pro Yoyo 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0C6TD5PHD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magicyoyo Reponsive Yoyos For Kids Beginners, Pro Yoyo 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6TD5PHD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO Reponsive Yoyos for Kids Beginners, Pro Yoyo 2 Pack Aluminum Yo yo V3 + Plastic Yo-yo K2 Crystal, Dual Yo-yos with 12 Yoyo Strings, Case Bag, Yo-Yo Accessory Kit (V3 Black + K2 Gradient)" src="https://m.media-amazon.com/images/I/51IB7r1byhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6TD5PHD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAGICYOYO Reponsive Yoyos for Kids Beginners, Pro Yoyo 2 Pack Aluminum Yo yo V3 + Plastic Yo-yo K2 Crystal, Dual Yo-yos with 12 Yoyo Strings, Case Bag, Yo-Yo Accessory Kit (V3 Black + K2 Gradient)" src="https://m.media-amazon.com/images/I/51IB7r1byhL._SL500_.jpg"/></a>
 
 
 The **MAGICYOYO Reponsive Yoyos for Kids Beginners** are perfect for young enthusiasts and beginners looking to develop their skills with a reliable and versatile yoyo set. Ideal for children, teens, and even adults new to the yoyo hobby, this 2-pack set offers both a professional-grade aluminum yoyo and a colorful plastic yoyo, making it a great choice for those eager to learn and progress in yoyo tricks.

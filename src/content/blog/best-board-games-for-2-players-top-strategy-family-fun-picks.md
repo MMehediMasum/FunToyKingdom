@@ -23,10 +23,10 @@ Azul offers beautiful tile-placement fun, while Forbidden Island invites teamwor
 
 
 
-## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
+## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
 
 
 The **Battleship Classic Board Game** is ideal for those who enjoy strategic thinking and friendly competition. Perfect for both **kids aged 7 and up** and adults, this game offers an engaging way to develop critical thinking skills while having fun. It’s a great choice for families looking to spend quality time together or for friends seeking a challenging two-player game experience.
@@ -49,10 +49,10 @@ The **Battleship Classic Board Game** features a sturdy, multicolor design that 
 
 Playing this game benefits users by sharpening their strategic thinking and decision-making skills. It encourages players to anticipate their opponent’s moves and plan their attacks carefully. Additionally, it fosters social interaction and friendly competition, making it an excellent choice for family bonding or casual playdates. Overall, the **Battleship Classic Board Game** stands out as a timeless and enjoyable strategy game for kids and adults alike.
 
-## <a href="https://www.amazon.com/dp/B00TLEMRKM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yahtzee Game</a>
+## <a href="https://www.amazon.com/dp/B00TLEMRKM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yahtzee Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00TLEMRKM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yahtzee Game, Fast-Playing Dice Games for Kids, Teens, and Adults, Strategy Games, Family Games for Kids, 2 or More Players, Ages 8 and Up" src="https://m.media-amazon.com/images/I/51z-dYxge5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TLEMRKM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yahtzee Game, Fast-Playing Dice Games for Kids, Teens, and Adults, Strategy Games, Family Games for Kids, 2 or More Players, Ages 8 and Up" src="https://m.media-amazon.com/images/I/51z-dYxge5L._SL500_.jpg"/></a>
 
 
 The **Yahtzee Game** is perfect for families, friends, and game enthusiasts looking for a fast-paced and engaging dice game. Ideal for **kids, teens, and adults aged 8 and up**, this game suits those who enjoy a mix of luck and strategy. Whether you're seeking a fun activity for family game night or a competitive challenge among friends, **Yahtzee** offers exciting gameplay for 2 or more players.
@@ -75,10 +75,10 @@ The **Yahtzee Game** features a compact design measuring 10.51 inches in height,
 
 With its simple rules but engaging gameplay, **Yahtzee** is an excellent way to bring family and friends together. It helps develop critical thinking and probability skills in a fun environment. Additionally, the game’s fast-paced rounds ensure everyone stays involved, making it a fantastic choice for both casual play and competitive game nights.
 
-## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
+## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
 
 
 The **Original TAPPLE** is perfect for families and groups looking to enjoy a fast-paced, engaging word game that encourages quick thinking and creativity. Ideal for children aged 8 and up, as well as adults, this game suits 2 to 8 players, making it a great choice for family game nights, classroom activities, or casual gatherings with friends.
@@ -101,10 +101,10 @@ The **Original TAPPLE** stands out with its unique timer mechanism that keeps th
 
 Designed by **USAOPOLY**, this game combines educational value with entertainment, making it an excellent tool for both learning and bonding. The compact size and lightweight build mean it’s easy to bring along for trips or family outings. Whether you're a parent looking to engage your kids in a stimulating activity or a teacher seeking an interactive classroom game, the **Original TAPPLE** offers a dynamic and enjoyable experience that keeps everyone involved and thinking fast.
 
-## <a href="https://www.amazon.com/dp/B077MZ2MPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Azul Board Game</a>
+## <a href="https://www.amazon.com/dp/B077MZ2MPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Azul Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B077MZ2MPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Azul Board Game - Award-Winning Tile-Placement Strategy Game, Beautiful Mosaic Art, Family Fun for Kids &amp; Adults, Ages 8+, 2-4 Players, 30-45 Minute Playtime" src="https://m.media-amazon.com/images/I/61N5Hys8OaS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077MZ2MPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Azul Board Game - Award-Winning Tile-Placement Strategy Game, Beautiful Mosaic Art, Family Fun for Kids &amp; Adults, Ages 8+, 2-4 Players, 30-45 Minute Playtime" src="https://m.media-amazon.com/images/I/61N5Hys8OaS._SL500_.jpg"/></a>
 
 
 The **Asmodee Azul Board Game** is ideal for families and friends seeking a captivating and strategic game experience. Designed for players aged 8 and up, this game is perfect for those who enjoy thoughtful **tile-placement** challenges and beautiful, artistic gameplay. Whether you're a casual player or a seasoned board game enthusiast, Azul offers engaging fun for 2 to 4 players with an accessible 30-45 minute playtime.
@@ -127,10 +127,10 @@ The **Asmodee Azul Board Game** features beautifully crafted tiles that players 
 
 Additionally, the game's design emphasizes family-friendly interaction, making it a perfect choice for mixed-age groups. The compact dimensions and light weight ensure that it can be conveniently carried and played anywhere. Whether at home or on the go, Azul offers a rich, artistic experience that combines fun, strategy, and creativity in every session.
 
-## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Forbidden Island</a>
+## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Forbidden Island</a>
 
 
-<a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
 
 
 The **Gamewright - Forbidden Island** board game is perfect for families, friends, and strategy game enthusiasts who enjoy cooperative gameplay. Ideal for groups of **2-4 players**, this game encourages teamwork and problem-solving, making it a great choice for those who want an engaging and interactive gaming experience that challenges their strategic thinking skills.
@@ -153,10 +153,10 @@ The **Forbidden Island** game by **Gamewright** features a beautifully crafted m
 
 Its cooperative strategy encourages players to think critically and coordinate their moves to overcome obstacles, which not only enhances the fun but also develops valuable social skills. The 1st Edition of this classic game offers a timeless survival challenge that keeps every round fresh and exciting, making it a must-have for anyone looking to add a cooperative strategy game to their collection.
 
-## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
+## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
 
 
-<a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
 
 
 The **SCRABBLE CLASSIC REFRESH** is perfect for word game enthusiasts, families, and friends who enjoy a fun and educational challenge. Ideal for players aged 8 and up, this game encourages vocabulary building and strategic thinking, making it a great choice for both casual gamers and competitive players looking to sharpen their language skills.
@@ -179,10 +179,10 @@ The **SCRABBLE CLASSIC REFRESH** features a durable, compact board that is easy 
 
 Designed by **Hasbro**, a trusted name in gaming, this edition balances quality and playability. Weighing just 1.0 pounds, it’s lightweight yet sturdy, perfect for repeated use. Whether you’re looking to improve your vocabulary, enjoy friendly competition, or spend quality time with loved ones, the **SCRABBLE CLASSIC REFRESH** offers an engaging experience that combines education with entertainment.
 
-## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
+## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
 
 
-<a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
 
 
 Ideal for trivia enthusiasts and casual gamers alike, **"I should have known that! - A Trivia Game About Things You Oughta Know"** is perfect for those who enjoy testing their general knowledge in a fun and engaging way. Whether you're looking to entertain friends and family or challenge yourself to learn new facts, this game by **Kylskapspoesi** offers an exciting experience for players of all ages.
@@ -204,10 +204,10 @@ The trivia game features a thoughtfully designed set of questions that cover a w
 
 With its vibrant **green color** and sleek dimensions, this game adds a touch of fun and style to any game collection. Players benefit from an engaging format that promotes quick thinking and learning, making it not only entertaining but also educational. Overall, **"I should have known that!"** is a great addition for anyone seeking a light-hearted yet stimulating trivia experience.
 
-## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
+## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
 
 
 The **Monopoly Game, Family Board Games for 2 to 6 Players & Kids Ages 8 and Up**, is perfect for families, friends, and game night enthusiasts looking for an engaging and competitive board game. Ideal for players aged 8 and above, this game encourages strategic thinking, negotiation skills, and social interaction, making it a great choice for both kids and adults who enjoy classic board games.
@@ -230,10 +230,10 @@ The **Monopoly Game** features a classic board layout with well-known properties
 
 The game’s multi-color design and compact size make it visually appealing and easy to store after play. Manufactured by Hasbro, a trusted brand in board games, it guarantees quality and durability. Overall, this edition of Monopoly offers both entertainment and educational benefits, such as enhancing money management and critical thinking skills, making it an excellent addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B00D8STBHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Connect 4 Classic Grid</a>
+## <a href="https://www.amazon.com/dp/B00D8STBHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Connect 4 Classic Grid</a>
 
 
-<a href="https://www.amazon.com/dp/B00D8STBHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Connect 4 Classic Grid,4 in a Row Game,Strategy Board Games for Kids,2 Player .for Family and Kids,Ages 6 and Up" src="https://m.media-amazon.com/images/I/513au7sIz0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D8STBHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Connect 4 Classic Grid,4 in a Row Game,Strategy Board Games for Kids,2 Player .for Family and Kids,Ages 6 and Up" src="https://m.media-amazon.com/images/I/513au7sIz0L._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Connect 4 Classic Grid** is perfect for families and kids aged 6 and up who enjoy engaging in fun, strategic board games. It is ideal for parents looking to provide their children with a simple yet challenging game that promotes critical thinking and friendly competition between two players. This classic game appeals to anyone who loves classic strategy games that are easy to learn but hard to master.
@@ -256,10 +256,10 @@ The **Connect 4 Classic Grid** features a simple vertical grid where players dro
 
 Additionally, the game’s durable plastic construction ensures it withstands repeated use by energetic kids, while the vibrant colors keep the game visually engaging. The two-player setup fosters social interaction and friendly competition, making it a great tool for bonding between family members or friends. Overall, this game balances entertainment and educational value, making it an excellent addition to any family’s game collection.
 
-## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
+## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
 
 
 The **Scorpion Masqué Sky Team** is perfect for gamers aged **14 and above** who enjoy cooperative play and fast-paced challenges. Ideal for friends, couples, or family members looking for an engaging **two-player game** that combines teamwork and strategy to achieve a common goal. If you appreciate award-winning games, this **Game of The Year 2024** winner promises an exciting experience in just **20 minutes**.

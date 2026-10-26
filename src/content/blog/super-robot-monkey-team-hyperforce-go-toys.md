@@ -24,10 +24,10 @@ They are made from safe materials and designed for long-lasting fun. These toys 
 
 
 
-## <a href="https://www.amazon.com/dp/B001ACPEAS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Animaniacs</a>
+## <a href="https://www.amazon.com/dp/B001ACPEAS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Animaniacs</a>
 
 
-<a href="https://www.amazon.com/dp/B001ACPEAS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Animaniacs" src="https://m.media-amazon.com/images/I/51buZagfOhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001ACPEAS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Animaniacs" src="https://m.media-amazon.com/images/I/51buZagfOhL._SL500_.jpg"/></a>
 
 
 **Animaniacs** is ideal for fans of classic animated shows, families looking for entertaining and educational content, and anyone who enjoys witty, fast-paced humor with a nostalgic touch. Whether you grew up watching the original series or are discovering it for the first time, this show offers a perfect blend of comedy and clever storytelling that appeals to both kids and adults.
@@ -50,7 +50,7 @@ They are made from safe materials and designed for long-lasting fun. These toys 
 
 Moreover, the timeless quality of the animation and voice acting ensures that the series remains enjoyable even decades after its original release. Viewers benefit from a rich variety of sketches and musical numbers that showcase creativity and wit. Whether watching alone or with family, **Animaniacs** offers laughter, learning, and nostalgia all wrapped into one delightful package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001ACPEAS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001ACPEAS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

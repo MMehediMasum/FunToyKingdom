@@ -23,10 +23,10 @@ Math toys with beads and blocks build number sense. Reading blocks and literacy 
 
 
 
-## <a href="https://www.amazon.com/dp/B0F32DG4CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Spanish And English Talking Flash Cards For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0F32DG4CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Spanish And English Talking Flash Cards For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0F32DG4CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Spanish and English Talking Flash Cards for Toddlers with 510 Sight Words, Dinosaur Shaped Bilingual Pocket Speech Therapy and Autism Toys, Educational Learning Toys Gift for Kid Boys Girls" src="https://m.media-amazon.com/images/I/51bdMRU89tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F32DG4CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Spanish and English Talking Flash Cards for Toddlers with 510 Sight Words, Dinosaur Shaped Bilingual Pocket Speech Therapy and Autism Toys, Educational Learning Toys Gift for Kid Boys Girls" src="https://m.media-amazon.com/images/I/51bdMRU89tL._SL500_.jpg"/></a>
 
 
 These **Spanish and English Talking Flash Cards** are perfect for **toddlers** and young children who are beginning to learn **bilingual vocabulary** and sight words. Ideal for parents, speech therapists, and educators seeking an engaging and educational tool, these cards are especially beneficial for kids with **autism** or speech delays, providing a fun way to enhance language skills and cognitive development.
@@ -49,10 +49,10 @@ The **Spanish and English Talking Flash Cards** are thoughtfully designed to com
 
 Beyond vocabulary, these flash cards serve as an effective tool for **speech therapy** and developmental support, especially for children with **autism**. Their compact size allows easy handling and portability, enabling parents and educators to incorporate learning into daily routines effortlessly. With clear, durable printing and a dual-language approach, this educational toy fosters early literacy and language confidence in toddlers.
 
-## <a href="https://www.amazon.com/dp/B079J1BZZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genius Box Learning Stem Toy</a>
+## <a href="https://www.amazon.com/dp/B079J1BZZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Genius Box Learning Stem Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B079J1BZZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Genius Box Learning STEM Toy for 5+ Year Age: Light and Sound DIY,Activity Kit, Learning Kit, Educational Kit" src="https://m.media-amazon.com/images/I/51MZmpNMaML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079J1BZZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Genius Box Learning STEM Toy for 5+ Year Age: Light and Sound DIY,Activity Kit, Learning Kit, Educational Kit" src="https://m.media-amazon.com/images/I/51MZmpNMaML._SL500_.jpg"/></a>
 
 
 The **Genius Box Learning STEM Toy** is ideal for children aged **5 years and above** who are curious about how things work and enjoy hands-on activities. This **educational kit** is perfect for young learners and parents seeking an engaging way to introduce basic concepts of **light** and **sound** through interactive DIY projects. It encourages creativity, critical thinking, and early STEM skills development in a fun and accessible manner.
@@ -75,10 +75,10 @@ The **Genius Box Learning STEM Toy** features a thoughtfully designed **blue edu
 
 Additionally, the kit's modular design ensures that children can repeatedly experiment with different setups, fostering creativity and independent learning. Being the **1st edition** by Genius Box, it offers a high-quality learning experience backed by a reputable educational manufacturer. Overall, this STEM toy is an excellent investment for parents and educators aiming to nurture a child's scientific curiosity and foundational knowledge in an enjoyable way.
 
-## <a href="https://www.amazon.com/dp/B08W8TL6JS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Headu Observaction</a>
+## <a href="https://www.amazon.com/dp/B08W8TL6JS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Headu Observaction</a>
 
 
-<a href="https://www.amazon.com/dp/B08W8TL6JS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Headu ObservAction – Kids Learning Toys Ages 5-10, Educational Stem Toys for 5 6 7 8 9 10 Year Old Boys Girls, Observation Concentration Board Games for Kids and Families, Professional Teaching Games" src="https://m.media-amazon.com/images/I/51+oSzNNEOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08W8TL6JS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Headu ObservAction – Kids Learning Toys Ages 5-10, Educational Stem Toys for 5 6 7 8 9 10 Year Old Boys Girls, Observation Concentration Board Games for Kids and Families, Professional Teaching Games" src="https://m.media-amazon.com/images/I/51+oSzNNEOL._SL500_.jpg"/></a>
 
 
 The **Headu ObservAction** is an ideal educational toy for children aged **5 to 10 years** who are eager to enhance their **observation and concentration skills**. Perfect for both boys and girls, this **STEM learning toy** is designed for young learners who enjoy interactive and engaging **board games** that promote critical thinking and professional teaching methods. Families looking for a fun and educational activity to share together will find this toy especially beneficial.
@@ -102,10 +102,10 @@ The **Headu ObservAction** features a thoughtfully designed multi-colored board 
 
 Additionally, the toy's compact size and lightweight design make it easy to transport and store, allowing children to engage with the game both at home and on the go. By integrating **STEM principles**, it encourages logical thinking and problem-solving, providing a foundation for future learning in science, technology, engineering, and mathematics. This combination of fun and education makes the **Headu ObservAction** a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B07QR54BW3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smartivity Fantastic Optics Kaleidoscope</a>
+## <a href="https://www.amazon.com/dp/B07QR54BW3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Smartivity Fantastic Optics Kaleidoscope</a>
 
 
-<a href="https://www.amazon.com/dp/B07QR54BW3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smartivity Fantastic Optics Kaleidoscope for 6+ Years Boys and Girls, STEM, Learning, Educational and Construction Activity Toy Gift (Multi-Color) (Optics Kaleidoscope)" src="https://m.media-amazon.com/images/I/41WW4uT1yqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QR54BW3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Smartivity Fantastic Optics Kaleidoscope for 6+ Years Boys and Girls, STEM, Learning, Educational and Construction Activity Toy Gift (Multi-Color) (Optics Kaleidoscope)" src="https://m.media-amazon.com/images/I/41WW4uT1yqL._SL500_.jpg"/></a>
 
 
 The **Smartivity Fantastic Optics Kaleidoscope** is ideal for children aged 6 years and above who have a curiosity for science and creativity. Perfect for both boys and girls, this **STEM** based educational and construction activity toy is designed to engage young minds in learning about **optics** through hands-on play. Parents and educators looking for an interactive and colorful way to introduce children to scientific concepts will find this toy an excellent choice.
@@ -127,10 +127,10 @@ The **Smartivity Fantastic Optics Kaleidoscope** allows children to build their 
 
 Beyond entertainment, this educational toy fosters critical thinking and problem-solving skills as kids figure out how to assemble the parts correctly. By combining play with learning, it supports cognitive development and encourages a lifelong interest in **science** and **technology**. The product's quality and thoughtful design make it a valuable addition to any child’s educational toy collection.
 
-## <a href="https://www.amazon.com/dp/B0FCRTJDZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Montessori Arithmetic Math Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0FCRTJDZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Montessori Arithmetic Math Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCRTJDZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Montessori Arithmetic Math Toy Set, Silicone Digital Learning with Beads, Chopsticks &amp; Spoons, Number Crunching Clip Bead Matching, Number Blocks (Regular Version)" src="https://m.media-amazon.com/images/I/51DpQejn6xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCRTJDZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Montessori Arithmetic Math Toy Set, Silicone Digital Learning with Beads, Chopsticks &amp; Spoons, Number Crunching Clip Bead Matching, Number Blocks (Regular Version)" src="https://m.media-amazon.com/images/I/51DpQejn6xL._SL500_.jpg"/></a>
 
 
 The **Montessori Arithmetic Math Toy Set** is ideal for young children who are beginning to explore numbers and basic arithmetic concepts. Parents, educators, and caregivers seeking an engaging, hands-on educational tool to enhance early math skills will find this set particularly beneficial. It suits kids who enjoy tactile learning and need visual and physical aids to grasp numerical relationships and counting.
@@ -153,10 +153,10 @@ The **ZANWANXIN Montessori Arithmetic Math Toy Set** features a thoughtfully des
 
 Moreover, the set aligns with the Montessori educational philosophy by fostering independent exploration and problem-solving. Its safe and durable silicone components ensure that children can use the toy repeatedly without safety concerns, while its compact size makes it ideal for both classroom and home environments. Overall, this toy set offers a balanced mix of educational value and play, making it an excellent tool for early math learners.
 
-## <a href="https://www.amazon.com/dp/B0CYJCVFG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Montessori Reading Blocks By Kipod Wooden Literacy Game</a>
+## <a href="https://www.amazon.com/dp/B0CYJCVFG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Montessori Reading Blocks By Kipod Wooden Literacy Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CYJCVFG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Montessori Reading Blocks by Kipod Wooden Literacy Game for Boys and Girls Ages 5 and Up –Hands-On Cognitive and Social Development –Fun to Learn Through Play –Waldorf Inspired" src="https://m.media-amazon.com/images/I/51Z-eJf+7bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CYJCVFG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Montessori Reading Blocks by Kipod Wooden Literacy Game for Boys and Girls Ages 5 and Up –Hands-On Cognitive and Social Development –Fun to Learn Through Play –Waldorf Inspired" src="https://m.media-amazon.com/images/I/51Z-eJf+7bL._SL500_.jpg"/></a>
 
 
 The **Montessori Reading Blocks by Kipod** are perfect for parents and educators seeking an engaging and educational toy for children aged 5 and up. Ideal for both boys and girls, this wooden literacy game supports hands-on cognitive and social development, making it an excellent choice for those who want to foster early reading skills through interactive play. This product is especially suited for families who appreciate **Waldorf-inspired** learning methods and value natural, tactile learning tools.
@@ -179,10 +179,10 @@ The **Kipod Montessori Reading Blocks** feature a thoughtfully crafted wooden de
 
 Additionally, the **Waldorf-inspired** principles embedded in this game encourage imaginative play and social interaction. Children can work together to form words and sentences, which fosters collaborative learning and communication skills. This hands-on approach makes learning to read less intimidating and more fun, helping children develop a lifelong love for reading. Overall, these reading blocks offer a balanced combination of educational value and playful engagement, making them a valuable addition to any learning environment.
 
-## <a href="https://www.amazon.com/dp/B071F4LVD3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skillmatics Educational Game</a>
+## <a href="https://www.amazon.com/dp/B071F4LVD3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Skillmatics Educational Game</a>
 
 
-<a href="https://www.amazon.com/dp/B071F4LVD3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skillmatics Educational Game : Skill Games | Reusable Activity Mats with 2 Dry Erase Markers | Gifts &amp; Learning Tools for Ages 6 and Up" src="https://m.media-amazon.com/images/I/51mtJJoDfmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B071F4LVD3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Skillmatics Educational Game : Skill Games | Reusable Activity Mats with 2 Dry Erase Markers | Gifts &amp; Learning Tools for Ages 6 and Up" src="https://m.media-amazon.com/images/I/51mtJJoDfmL._SL500_.jpg"/></a>
 
 
 The **Skillmatics Educational Game** is an excellent choice for parents, teachers, and caregivers looking for engaging and effective learning tools for children aged **6 and up**. Ideal for young learners who enjoy interactive activities, this product supports skill-building in a fun and reusable format, making it perfect for both classroom and home environments.
@@ -205,10 +205,10 @@ The **Skillmatics Educational Game** features a set of **reusable activity mats*
 
 Designed by **Grasper Global Private Limited** under the Skillmatics brand, this product emphasizes both fun and education. Its lightweight and compact dimensions make it easy to take on the go, whether for travel or classroom use. By combining entertainment with learning, the game helps develop essential skills such as critical thinking, problem-solving, and fine motor coordination, making it a valuable addition to any child's educational toolkit.
 
-## <a href="https://www.amazon.com/dp/B08K4RVP42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Epicycle Designs Music Fractions Learning Aid</a>
+## <a href="https://www.amazon.com/dp/B08K4RVP42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Epicycle Designs Music Fractions Learning Aid</a>
 
 
-<a href="https://www.amazon.com/dp/B08K4RVP42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Epicycle Designs Music Fractions Learning Aid, Wooden Manipulatives" src="https://m.media-amazon.com/images/I/31WbDfxHScL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08K4RVP42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Epicycle Designs Music Fractions Learning Aid, Wooden Manipulatives" src="https://m.media-amazon.com/images/I/31WbDfxHScL._SL500_.jpg"/></a>
 
 
 The **Epicycle Designs Music Fractions Learning Aid** is perfect for music educators, students, and parents seeking an engaging way to teach and learn musical fractions. Ideal for those who want a hands-on, visual approach to understanding rhythm and note values, this wooden manipulative set helps simplify complex musical concepts for beginners and intermediate learners alike.
@@ -230,10 +230,10 @@ The **Epicycle Designs Music Fractions Learning Aid** features a thoughtfully cr
 
 Beyond its educational value, this learning aid encourages active participation and reinforces music theory through play. By engaging multiple senses, users can retain information more effectively and develop a deeper understanding of timing and rhythm. Whether used in a classroom or at home, this tool supports both individual practice and group instruction, making it a versatile addition to any music learning toolkit.
 
-## <a href="https://www.amazon.com/dp/B0CX87CGKQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jellyarch 20 Pcs Learning Toys</a>
+## <a href="https://www.amazon.com/dp/B0CX87CGKQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jellyarch 20 Pcs Learning Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CX87CGKQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JellyArch 20 Pcs Learning Toys for 1,2,3 Year Old Safari Animals Toys Toddler Learning Counting Sorting Gift for Birthday Christmas Boys Girls" src="https://m.media-amazon.com/images/I/51-BYQ8FY8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CX87CGKQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JellyArch 20 Pcs Learning Toys for 1,2,3 Year Old Safari Animals Toys Toddler Learning Counting Sorting Gift for Birthday Christmas Boys Girls" src="https://m.media-amazon.com/images/I/51-BYQ8FY8L._SL500_.jpg"/></a>
 
 
 The **JellyArch 20 Pcs Learning Toys** are perfect for parents and caregivers looking to engage toddlers aged 1 to 3 years old with educational and entertaining activities. Ideal for both boys and girls, this set combines the fun of **safari animals** with essential early learning concepts like **counting** and **sorting**, making it a wonderful gift for birthdays or Christmas.
@@ -256,10 +256,10 @@ The **JellyArch 20 Pcs Learning Toys** set features vibrant and sturdy **safari 
 
 In addition to educational benefits, these toys promote **fine motor skills** and hand-eye coordination as toddlers manipulate and arrange the pieces. The bright colors and friendly animal shapes keep children engaged, making learning fun and interactive. Whether used at home or in a preschool setting, this toy set offers a versatile and enjoyable way to support early learning milestones.
 
-## <a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oddy Inventions 92 Piece Creative Building Kit</a>
+## <a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Oddy Inventions 92 Piece Creative Building Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Oddy Inventions 92 Piece Creative Building Kit - Eco-Friendly STEM Toy Set for Kids 6+" src="https://m.media-amazon.com/images/I/41Yr8R9qOEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Oddy Inventions 92 Piece Creative Building Kit - Eco-Friendly STEM Toy Set for Kids 6+" src="https://m.media-amazon.com/images/I/41Yr8R9qOEL._SL500_.jpg"/></a>
 
 
 The **Oddy Inventions 92 Piece Creative Building Kit** is ideal for parents and educators looking to engage children aged 6 and above in a fun and educational activity. This **eco-friendly STEM toy set** is perfect for kids who enjoy hands-on learning and creative problem-solving, providing a safe and stimulating environment to develop critical thinking and motor skills.

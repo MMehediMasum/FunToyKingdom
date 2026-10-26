@@ -23,10 +23,10 @@ Some frisbees float on water, making them ideal for beach or pool play. They are
 
 
 
-## <a href="https://www.amazon.com/dp/B008ESY894?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Paraflight Flying Disc Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B008ESY894?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Paraflight Flying Disc Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B008ESY894?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 1"="" 9.75"="" alt="Chuckit! Paraflight Flying Disc Dog Toy - Water Floating Flyer - Durable Nylon Construction with Soft Rubber Edges - For Medium and Large Dogs - Size Large - 9.75" l="" of="" pack="" src="https://m.media-amazon.com/images/I/518HwHhh6FL._SL500_.jpg" w="" x=""/></a>
+<a href="https://www.amazon.com/dp/B008ESY894?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 1"="" 9.75"="" alt="Chuckit! Paraflight Flying Disc Dog Toy - Water Floating Flyer - Durable Nylon Construction with Soft Rubber Edges - For Medium and Large Dogs - Size Large - 9.75" l="" of="" pack="" src="https://m.media-amazon.com/images/I/518HwHhh6FL._SL500_.jpg" w="" x=""/></a>
 
 
 The **Chuckit! Paraflight Flying Disc Dog Toy** is ideal for owners of **medium and large dogs** who love outdoor play and water activities. If you're looking for a **durable**, **safe**, and **engaging toy** that can withstand active play sessions, this flying disc is designed to meet those needs perfectly. It’s especially suitable for dogs that enjoy fetching games both on land and in water.
@@ -48,10 +48,10 @@ The **Chuckit! Paraflight Flying Disc** combines a **lightweight** yet **sturdy 
 
 Additionally, the vibrant **blue and orange coloring** helps both owner and pet easily spot the disc in various environments, reducing the chances of losing it. The large size is tailored for medium and large dogs, ensuring a good grip for your pet and an enjoyable play experience that encourages physical activity, mental stimulation, and bonding between you and your furry friend.
 
-## <a href="https://www.amazon.com/dp/B000BRTADK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kong Flyer</a>
+## <a href="https://www.amazon.com/dp/B000BRTADK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kong Flyer</a>
 
 
-<a href="https://www.amazon.com/dp/B000BRTADK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KONG Flyer - Durable Dog Toy for Outdoor Playtime - Natural Rubber Flying Disc, Dog Toy for Fetch - Safer Disc for Healthy Activity - for Medium/Large Dogs" src="https://m.media-amazon.com/images/I/41vBdqvMaSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BRTADK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KONG Flyer - Durable Dog Toy for Outdoor Playtime - Natural Rubber Flying Disc, Dog Toy for Fetch - Safer Disc for Healthy Activity - for Medium/Large Dogs" src="https://m.media-amazon.com/images/I/41vBdqvMaSL._SL500_.jpg"/></a>
 
 
 The **KONG Flyer** is ideal for **medium to large dogs** who love outdoor activities like fetch. If you're looking for a durable, safe, and engaging toy to keep your dog active and healthy, this **natural rubber flying disc** is a perfect choice. It suits dog owners who want a reliable toy that can withstand vigorous play while promoting exercise and fun.
@@ -74,10 +74,10 @@ The **KONG Flyer** stands out with its **natural rubber construction**, which of
 
 With dimensions of 9.0 inches in height and width, and a lightweight feel of just over half a pound, the **KONG Flyer** is easy to throw and catch, encouraging active play sessions that improve your dog's physical fitness and coordination. The bright red color enhances visibility, so you can keep track of the toy even in grassy or wooded areas. Overall, this flying disc is a smart investment for dog owners seeking a fun, safe, and durable fetch toy for their active pets.
 
-## <a href="https://www.amazon.com/dp/B001AQZDSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Zipflight Flying Disc Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B001AQZDSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Zipflight Flying Disc Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B001AQZDSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img ),="" alt="Chuckit! Zipflight Flying Disc Dog Toy, Medium (8.5" and="" blue"="" orange="" src="https://m.media-amazon.com/images/I/51XJkkUIcBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001AQZDSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img ),="" alt="Chuckit! Zipflight Flying Disc Dog Toy, Medium (8.5" and="" blue"="" orange="" src="https://m.media-amazon.com/images/I/51XJkkUIcBL._SL500_.jpg"/></a>
 
 
 The **Chuckit! Zipflight Flying Disc Dog Toy, Medium (8.5")** is ideal for active dog owners looking to engage their pets in fun, high-energy play sessions. This toy is perfect for dogs who love to fetch, catch, and run, especially those who enjoy interactive outdoor activities with their owners. If you want a durable, easy-to-throw flying disc that your dog can safely chew and chase, this product is a great choice.
@@ -100,10 +100,10 @@ The **Chuckit! Zipflight Flying Disc** features a lightweight yet sturdy constru
 
 Made by **Canine Hardware**, the disc is crafted from durable, pet-safe materials that withstand regular chewing and rough play. Its medium size is thoughtfully designed to accommodate dogs that are neither too small nor too large, providing a perfect balance between ease of carrying and playability. Overall, this flying disc not only promotes physical activity but also strengthens the bond between you and your dog through interactive play.
 
-## <a href="https://www.amazon.com/dp/B098BJFF53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xigou Dog Flying Disc</a>
+## <a href="https://www.amazon.com/dp/B098BJFF53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xigou Dog Flying Disc</a>
 
 
-<a href="https://www.amazon.com/dp/B098BJFF53?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XIGOU Dog Flying Disc, 3 Pack Dog Flyer Toys, Soft Rubber Interactive Lightweight Flying Disc Dog Toy for Small Large Dogs - Floats in Water &amp; Safe on Teeth, 7 inch." src="https://m.media-amazon.com/images/I/41Jc+EYz7QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098BJFF53?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XIGOU Dog Flying Disc, 3 Pack Dog Flyer Toys, Soft Rubber Interactive Lightweight Flying Disc Dog Toy for Small Large Dogs - Floats in Water &amp; Safe on Teeth, 7 inch." src="https://m.media-amazon.com/images/I/41Jc+EYz7QL._SL500_.jpg"/></a>
 
 
 The **XIGOU Dog Flying Disc** is ideal for pet owners who are looking to engage their dogs in active play. Whether you have a small or large dog, this lightweight and durable flying disc is perfect for boosting your pet's exercise routine and providing hours of interactive fun. If you enjoy outdoor activities with your furry friend or want a safe toy that floats on water, this product is an excellent choice.
@@ -125,10 +125,10 @@ The **XIGOU Dog Flying Disc** features a 7-inch diameter that strikes a balance 
 
 Additionally, the disc’s ability to float adds versatility, allowing for fun water-based activities that can help keep your dog cool during hot days. The bright blue and green colors enhance visibility, ensuring your dog can easily spot the toy during playtime. Overall, this interactive toy encourages physical activity and strengthens the bond between you and your dog through engaging play.
 
-## <a href="https://www.amazon.com/dp/B00027467O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Flying Squirrel Fetch Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B00027467O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Flying Squirrel Fetch Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B00027467O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Flying Squirrel Fetch Dog Toy - Water Floating Flyer - Soft and Durable Polyester Canvas Construction - For Medium Dogs - Size Medium - 9.5-inch Diameter - Pack of 1 - Orange and Blue" src="https://m.media-amazon.com/images/I/31Buyub6nRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00027467O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Flying Squirrel Fetch Dog Toy - Water Floating Flyer - Soft and Durable Polyester Canvas Construction - For Medium Dogs - Size Medium - 9.5-inch Diameter - Pack of 1 - Orange and Blue" src="https://m.media-amazon.com/images/I/31Buyub6nRL._SL500_.jpg"/></a>
 
 
 The **Chuckit! Flying Squirrel Fetch Dog Toy** is ideal for active dog owners who want to engage their medium-sized dogs in outdoor play. If you have a dog that loves to fetch, swim, and stay active, this durable and water-friendly toy is perfect for keeping your pet entertained and exercised.
@@ -150,10 +150,10 @@ The **Chuckit! Flying Squirrel Fetch Dog Toy** is designed to enhance playtime w
 
 With its vibrant orange and blue color scheme, the toy is highly visible in various outdoor environments, reducing the chance of losing it during play. The lightweight design also means less fatigue for your dog, encouraging longer playtime and better exercise. Overall, this toy combines durability, functionality, and fun, making it a great choice for medium-sized dogs who love to fetch both on land and in water.
 
-## <a href="https://www.amazon.com/dp/B00486UC4G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hyper Pet Flippy Flopper Dog Frisbee</a>
+## <a href="https://www.amazon.com/dp/B00486UC4G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hyper Pet Flippy Flopper Dog Frisbee</a>
 
 
-<a href="https://www.amazon.com/dp/B00486UC4G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Hyper Pet Flippy Flopper Dog Frisbee Interactive Dog Toys [Flying Disc Fetch Toy Floats in Water &amp; Safe on Teeth] (Colors Will Vary), Multicolor, 9" src="https://m.media-amazon.com/images/I/31brk+gQhfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00486UC4G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Hyper Pet Flippy Flopper Dog Frisbee Interactive Dog Toys [Flying Disc Fetch Toy Floats in Water &amp; Safe on Teeth] (Colors Will Vary), Multicolor, 9" src="https://m.media-amazon.com/images/I/31brk+gQhfL._SL500_.jpg"/></a>
 
 
 The **Hyper Pet Flippy Flopper Dog Frisbee** is ideal for active dog owners who enjoy outdoor playtime with their pets. If you have a medium to large dog that loves to fetch and swim, this interactive flying disc is designed to provide hours of fun and exercise. It’s perfect for those looking for a durable, safe, and versatile toy that can be used on land and water.
@@ -177,10 +177,10 @@ The **Hyper Pet Flippy Flopper Dog Frisbee** features a lightweight yet sturdy c
 
 Additionally, the flying disc’s bright multicolor pattern enhances visibility, which helps both the owner and pet track it during fast-paced games. Its size and weight are optimized to allow comfortable throwing and fetching, encouraging active exercise that benefits your dog’s physical health and mental stimulation. Overall, this frisbee is a practical and fun choice for dog owners seeking a versatile and durable interactive toy.
 
-## <a href="https://www.amazon.com/dp/B0002AQYYO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Booda Tail-spin Flyer</a>
+## <a href="https://www.amazon.com/dp/B0002AQYYO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Booda Tail-spin Flyer</a>
 
 
-<a href="https://www.amazon.com/dp/B0002AQYYO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Booda Tail-Spin Flyer, 7-Inch, Multi" src="https://m.media-amazon.com/images/I/51234v7Og7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0002AQYYO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Booda Tail-Spin Flyer, 7-Inch, Multi" src="https://m.media-amazon.com/images/I/51234v7Og7L._SL500_.jpg"/></a>
 
 
 The **Booda Tail-Spin Flyer, 7-Inch, Multi** is ideal for dog owners who want a fun and engaging toy to keep their pets active and entertained. Perfect for dogs that love to chase and catch, this lightweight and durable flyer is designed to provide hours of outdoor play, making it an excellent choice for active dogs and their owners who enjoy spending quality time together.
@@ -203,10 +203,10 @@ The **Booda Tail-Spin Flyer** features a 7-inch diameter that is perfectly sized
 
 Constructed by **Booda**, a manufacturer known for pet safety and quality, this flyer is designed to withstand the enthusiastic bites and catches of playful dogs. Its durable material ensures it won't easily tear or break, providing long-lasting entertainment. Overall, this toy promotes physical activity, improves your dog's agility, and strengthens the bond between pet and owner through interactive play.
 
-## <a href="https://www.amazon.com/dp/B0168DPEOY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nerf Dog Trackshot Toss And Tug Ring Outdoor Dog Toy 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0168DPEOY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nerf Dog Trackshot Toss And Tug Ring Outdoor Dog Toy 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0168DPEOY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nerf Dog Trackshot Toss and Tug Ring Outdoor Dog Toy 2 Pack, 9 Inch Dog Tug and Fetch Toy, for Medium and Large Breeds, Blue/Orange/Green" src="https://m.media-amazon.com/images/I/41vVnt4KudL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0168DPEOY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nerf Dog Trackshot Toss and Tug Ring Outdoor Dog Toy 2 Pack, 9 Inch Dog Tug and Fetch Toy, for Medium and Large Breeds, Blue/Orange/Green" src="https://m.media-amazon.com/images/I/41vVnt4KudL._SL500_.jpg"/></a>
 
 
 The **Nerf Dog Trackshot Toss and Tug Ring Outdoor Dog Toy 2 Pack** is ideal for owners of **medium and large dog breeds** who are looking for a durable and engaging toy to enhance their pet's playtime. If you want to combine **fetch and tug-of-war** in one versatile toy, this set is perfect for active dogs that love outdoor exercise and interactive play.
@@ -229,10 +229,10 @@ The **Nerf Dog Trackshot Toss and Tug Ring** is designed with both functionality
 
 Crafted by **Gramercy Products, Inc.**, this toy strikes a balance between durability and lightweight design. Weighing only **0.27 pounds**, it ensures dogs can carry it comfortably without strain. The size and material are optimized for **medium and large breeds**, promoting active exercise and mental stimulation, which are essential for maintaining healthy energy levels and reducing destructive behaviors.
 
-## <a href="https://www.amazon.com/dp/B072M3TF9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nerf Dog Atomic Flyer Outdoor Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B072M3TF9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nerf Dog Atomic Flyer Outdoor Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B072M3TF9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nerf Dog Atomic Flyer Outdoor Dog Toy, 10 Inch Flying Disc Dog Fetch Toy, Rubber Dog Toy for Medium Dogs and Large Dogs, Orange" src="https://m.media-amazon.com/images/I/41c7QPRu9ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B072M3TF9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nerf Dog Atomic Flyer Outdoor Dog Toy, 10 Inch Flying Disc Dog Fetch Toy, Rubber Dog Toy for Medium Dogs and Large Dogs, Orange" src="https://m.media-amazon.com/images/I/41c7QPRu9ML._SL500_.jpg"/></a>
 
 
 The **Nerf Dog Atomic Flyer Outdoor Dog Toy** is ideal for pet owners who have medium to large dogs and enjoy engaging in active outdoor play. If you're looking for a durable and fun flying disc that can withstand rough play while keeping your dog entertained, this bright **orange rubber dog toy** is an excellent choice. It’s perfect for dogs that love to fetch and need a safe, non-toxic toy that is easy to spot during playtime.
@@ -254,10 +254,10 @@ The **Nerf Dog Atomic Flyer** features a 10-inch diameter and a slim 0.65-inch t
 
 Additionally, the vibrant **orange color** enhances visibility, reducing the chance of losing the toy outdoors. Its size is optimized for medium to large dogs, providing a comfortable grip for dogs during retrieval. Whether you want to strengthen your bond with your furry friend or keep them active and healthy, this flying disc offers a perfect balance of fun, durability, and practicality.
 
-## <a href="https://www.amazon.com/dp/B00EUV72MO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nerf Dog Nylon Flyer Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B00EUV72MO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nerf Dog Nylon Flyer Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B00EUV72MO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nerf Dog Nylon Flyer Dog Toy, Flying Disc, Lightweight, Durable and Water Resistant, Great for Beach and Pool, 9 inch diameter, for Medium/Large Breeds, Single Unit, Red" src="https://m.media-amazon.com/images/I/51px2EWzw5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00EUV72MO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nerf Dog Nylon Flyer Dog Toy, Flying Disc, Lightweight, Durable and Water Resistant, Great for Beach and Pool, 9 inch diameter, for Medium/Large Breeds, Single Unit, Red" src="https://m.media-amazon.com/images/I/51px2EWzw5L._SL500_.jpg"/></a>
 
 
 The **Nerf Dog Nylon Flyer Dog Toy** is ideal for pet owners with **medium to large breed dogs** who enjoy active play and outdoor activities. If you love spending time at the **beach, pool, or park** with your furry friend and want a durable, lightweight toy that can withstand water and rough play, this flying disc is a perfect choice. It’s especially suited for dogs that love to fetch and catch, providing both exercise and fun.

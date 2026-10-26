@@ -20,10 +20,10 @@ Some games focus on romantic or spicy dares, while others bring out your quick t
 
 
 
-## <a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Date Night</a>
+## <a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Date Night</a>
 
 
-<a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Date Night - Couples Drinking Card Game for Adults, Fun Romantic Game for Two, Perfect for Game Night, Parties, or Gifts for Boyfriend, Girlfriend, or Wife and Husband, 250 Cards" src="https://m.media-amazon.com/images/I/41SOap3zhQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BSR6GTRQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Date Night - Couples Drinking Card Game for Adults, Fun Romantic Game for Two, Perfect for Game Night, Parties, or Gifts for Boyfriend, Girlfriend, or Wife and Husband, 250 Cards" src="https://m.media-amazon.com/images/I/41SOap3zhQL._SL500_.jpg"/></a>
 
 
 The **Do or Drink Date Night** card game is perfect for couples looking to add excitement and fun to their evenings. Ideal for adults in romantic relationships, this game is designed to spark laughter, deepen connections, and create memorable moments. Whether you're planning a cozy night in or looking for a playful activity for parties, this game offers an engaging way for boyfriends, girlfriends, wives, and husbands to bond over 250 entertaining cards.
@@ -46,10 +46,10 @@ The **Do or Drink Date Night** game features a thoughtfully curated set of cards
 
 Beyond entertainment, this game fosters deeper emotional connections by encouraging open communication and shared laughter. The variety of cards ensures that no two game sessions are the same, keeping the experience fresh and exciting. Whether you're celebrating a special occasion or just want to spice up an ordinary evening, the **Do or Drink Date Night** card game offers a unique way for couples to strengthen their bond while having a great time.
 
-## <a href="https://www.amazon.com/dp/B0CTMBQ3PF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kawaii Koi Drunk Lovers</a>
+## <a href="https://www.amazon.com/dp/B0CTMBQ3PF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kawaii Koi Drunk Lovers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTMBQ3PF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KAWAII KOI Drunk Lovers - Couples Games Couples Card Game for Date Night, 54 Game Cards, Romantic Valentines, Card Game for Couple" src="https://m.media-amazon.com/images/I/41h+k5fw8eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTMBQ3PF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KAWAII KOI Drunk Lovers - Couples Games Couples Card Game for Date Night, 54 Game Cards, Romantic Valentines, Card Game for Couple" src="https://m.media-amazon.com/images/I/41h+k5fw8eL._SL500_.jpg"/></a>
 
 
 The **KAWAII KOI Drunk Lovers - Couples Games** is an ideal choice for couples looking to add excitement and intimacy to their **date nights**. Perfect for those who enjoy playful, romantic interactions, this **couples card game** is designed to strengthen bonds and create memorable moments. If you want a fun and engaging way to connect with your partner, especially around **Valentine's Day** or special occasions, this game is made for you.
@@ -72,10 +72,10 @@ The **KAWAII KOI Drunk Lovers Couples Card Game** stands out with its thoughtful
 
 Beyond just entertainment, this game offers real benefits in fostering communication and intimacy. By engaging in lighthearted challenges, couples can break the ice on topics they might otherwise avoid, enhancing emotional closeness. The **DRUNK LOVERS edition** adds a cheeky twist that can bring out playful sides of partners, perfect for breaking the routine of typical date nights. Overall, this card game is a charming tool to keep love fresh and exciting.
 
-## <a href="https://www.amazon.com/dp/B0CY51VDY5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Queka Kanbai Udrink!</a>
+## <a href="https://www.amazon.com/dp/B0CY51VDY5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Queka Kanbai Udrink!</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY51VDY5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUEKA KANBAI UDRINK! - The Drinking Game Cards for Adults, Fun &amp; Easy Games for Adult Game Nights - Couple Games, Bachelorette Party Games to Get Buzzed Easily - 2024 New Edition -" src="https://m.media-amazon.com/images/I/51XW4XwfwGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY51VDY5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUEKA KANBAI UDRINK! - The Drinking Game Cards for Adults, Fun &amp; Easy Games for Adult Game Nights - Couple Games, Bachelorette Party Games to Get Buzzed Easily - 2024 New Edition -" src="https://m.media-amazon.com/images/I/51XW4XwfwGL._SL500_.jpg"/></a>
 
 
 The **QUEKA KANBAI UDRINK!** drinking game cards are perfect for adults who enjoy lively social gatherings, such as couple game nights, bachelorette parties, or any event where fun and easy drinking games can enhance the atmosphere. If you're looking to break the ice, get everyone laughing, and create memorable moments with friends or partners, this game set is an ideal choice.
@@ -97,10 +97,10 @@ The **QUEKA KANBAI UDRINK!** game cards are thoughtfully designed to provide a s
 
 Beyond just entertainment, these cards foster social connection by encouraging players to interact openly and enjoy the moment together. Whether it's a cozy night with your significant other or a vibrant bachelorette party, the game’s easy-to-follow rules ensure that everyone can join in without confusion. Overall, the QUEKA KANBAI UDRINK! cards combine convenience, versatility, and excitement, making them a must-have for anyone looking to spice up their next adult game night.
 
-## <a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fofeadm Drinking Board Games For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fofeadm Drinking Board Games For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fofeadm Drinking Board Games for Adults, Rubber Mat Drinking Board Game, Funny Party Interactive Drinking Games for Game Night, Birthday, Family Play or Any Occasion, Age 21+, 2-8 Players" src="https://m.media-amazon.com/images/I/51GzRT9YAjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNMN6VXJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fofeadm Drinking Board Games for Adults, Rubber Mat Drinking Board Game, Funny Party Interactive Drinking Games for Game Night, Birthday, Family Play or Any Occasion, Age 21+, 2-8 Players" src="https://m.media-amazon.com/images/I/51GzRT9YAjL._SL500_.jpg"/></a>
 
 
 The **Fofeadm Drinking Board Games for Adults** is perfect for anyone looking to add a fun and interactive twist to their social gatherings. Ideal for groups of **2-8 players**, this game is designed for adults aged **21+** who enjoy lively party games, whether at a **birthday celebration**, **family play** session, or any casual occasion. If you want to bring excitement and laughter to game night, this rubber mat drinking board game is an excellent choice.
@@ -123,10 +123,10 @@ The **Fofeadm Drinking Board Game** features a sleek **rubber mat design** that 
 
 Beyond its physical attributes, the game offers an interactive and entertaining way to enjoy drinking responsibly. It supports a versatile player range from **2 to 8 participants**, making it adaptable for different group sizes. The **“Drink Up” edition** adds a playful challenge that encourages friendly competition, social bonding, and plenty of laughs. Whether you’re celebrating a birthday or just looking to spice up a casual get-together, this board game enhances the experience with its combination of fun mechanics and social engagement.
 
-## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
+## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
 
 
 **The Original TAPPLE** is ideal for families and friends who enjoy fast-paced, interactive games that challenge their quick thinking and vocabulary skills. Perfect for players aged 8 and up, this game is designed for groups of 2 to 8, making it an excellent choice for gatherings, family game nights, and educational play sessions. If you are looking for a fun and engaging way to improve word recognition and category recall, this game is an excellent pick.
@@ -150,10 +150,10 @@ Beyond its physical attributes, the game offers an interactive and entertaining 
 
 Thanks to its compact size and lightweight build, this game is highly portable and easy to set up anywhere, whether at home or on the go. The durable construction from **USAOPOLY** ensures it can withstand repeated use, while the clear and colorful interface keeps players engaged. Overall, The Original TAPPLE is a fast-paced, entertaining word game that combines learning with fun, appealing to a broad range of players looking for an exciting and educational group activity.
 
-## <a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Naughty Edition</a>
+## <a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do Or Drink Naughty Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Naughty Edition - The Adult Drinking Game for Spicy Situations - Fun Party Games for Adults with 250 Cards - Great for Game Night, Pre Games, After Parties, and More" src="https://m.media-amazon.com/images/I/413+em2ffpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C212ZHQ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do or Drink Naughty Edition - The Adult Drinking Game for Spicy Situations - Fun Party Games for Adults with 250 Cards - Great for Game Night, Pre Games, After Parties, and More" src="https://m.media-amazon.com/images/I/413+em2ffpL._SL500_.jpg"/></a>
 
 
 The **Do or Drink Naughty Edition** is perfect for adults looking to spice up their social gatherings. If you enjoy fun, daring challenges and want to break the ice at parties, game nights, or after-parties, this game is designed for you. Ideal for groups who appreciate humor, spontaneity, and a little bit of risk, it promises to elevate any event with laughter and excitement.
@@ -176,10 +176,10 @@ The **Do or Drink Naughty Edition** boasts an extensive collection of 250 unique
 
 Beyond just being a drinking game, it serves as a fantastic icebreaker for groups that may not know each other well or want to deepen their social bonds. The adult-themed content in this **Naughty Edition** caters to those looking for a more risqué and playful experience. Overall, it’s an excellent way to create memorable moments, laughter, and shared fun with friends in a lively atmosphere.
 
-## <a href="https://www.amazon.com/dp/B004RYY2EU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tdc Games Travel Dirty Minds Card Game</a>
+## <a href="https://www.amazon.com/dp/B004RYY2EU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tdc Games Travel Dirty Minds Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B004RYY2EU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TDC Games Travel Dirty Minds Card Game for Adults, Party Game for Couples Date Night and Bachelorette Parties" src="https://m.media-amazon.com/images/I/5132dYrMhfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004RYY2EU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TDC Games Travel Dirty Minds Card Game for Adults, Party Game for Couples Date Night and Bachelorette Parties" src="https://m.media-amazon.com/images/I/5132dYrMhfL._SL500_.jpg"/></a>
 
 
 The **TDC Games Travel Dirty Minds Card Game for Adults** is perfect for those looking to spice up their **couples date nights**, liven up **bachelorette parties**, or add a fun, cheeky element to adult gatherings. Ideal for players who enjoy playful, risqué humor and want a compact, easy-to-carry game that fits perfectly into travel plans or small social settings.
@@ -202,10 +202,10 @@ This travel-sized card game features a collection of cleverly crafted prompts an
 
 By focusing on adult-themed humor, the **Travel Dirty Minds Card Game** encourages open communication, laughter, and a relaxed atmosphere among players. Whether used for couples looking to deepen their connection or friends aiming to break the ice, the game delivers a unique blend of entertainment and social interaction. Its versatility and convenience make it a must-have for those seeking memorable and laughter-filled experiences.
 
-## <a href="https://www.amazon.com/dp/B093BCC4VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Why Don't We - Spice It Up - Super Fun Couples Games For Date Nights</a>
+## <a href="https://www.amazon.com/dp/B093BCC4VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Why Don't We - Spice It Up - Super Fun Couples Games For Date Nights</a>
 
 
-<a href="https://www.amazon.com/dp/B093BCC4VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Why Don't We - Spice IT UP - Super Fun Couples Games for Date Nights: 150 Cards with Conversations, Spicy Dares &amp; More - Best Date Night Games for Couples - Romantic Adult Couple Game" src="https://m.media-amazon.com/images/I/41glCTiRI1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093BCC4VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Why Don't We - Spice IT UP - Super Fun Couples Games for Date Nights: 150 Cards with Conversations, Spicy Dares &amp; More - Best Date Night Games for Couples - Romantic Adult Couple Game" src="https://m.media-amazon.com/images/I/41glCTiRI1L._SL500_.jpg"/></a>
 
 
 The **Why Don't We - Spice IT UP - Super Fun Couples Games for Date Nights** is ideal for couples looking to add excitement and deepen their connection during their quality time together. Whether you're newly dating or have been together for years, this game is perfect for those who want to break the routine, spark meaningful conversations, and enjoy playful challenges on date nights. If you enjoy interactive and romantic activities that bring you closer, this game is designed with you in mind.
@@ -228,10 +228,10 @@ This couples game set features **150 interactive cards** packed with thought-pro
 
 Crafted with a vibrant **multicolor** design, the cards are visually stimulating, encouraging couples to dive into the experience with enthusiasm. Beyond entertainment, the game fosters deeper emotional connections by prompting honest conversations and adventurous activities that enhance intimacy. Whether you want to spark romance or simply enjoy quality time together, this game offers a delightful blend of challenge and charm for couples at any stage.
 
-## <a href="https://www.amazon.com/dp/B09J6LJWSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Charge It 2 The Game Drinking Cards</a>
+## <a href="https://www.amazon.com/dp/B09J6LJWSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Charge It 2 The Game Drinking Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B09J6LJWSW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Charge It 2 The Game Drinking Cards – 90-Card Adult Party Game for Bachelorette Parties, 21st Birthdays, and Game Night Fun" src="https://m.media-amazon.com/images/I/41jy5CMo0TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09J6LJWSW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Charge It 2 The Game Drinking Cards – 90-Card Adult Party Game for Bachelorette Parties, 21st Birthdays, and Game Night Fun" src="https://m.media-amazon.com/images/I/41jy5CMo0TL._SL500_.jpg"/></a>
 
 
 The **Charge It 2 The Game Drinking Cards** are perfect for adults looking to add excitement and laughter to their social gatherings. Ideal for those hosting **bachelorette parties**, **21st birthdays**, or casual **game nights**, this game is designed for players who enjoy interactive and entertaining drinking games that bring people together. If you're searching for a lively party game that encourages fun and socializing, this is an excellent choice.
@@ -254,10 +254,10 @@ The **Charge It 2 The Game Drinking Cards** feature a thoughtfully curated set o
 
 Beyond just being a drinking game, it fosters social bonding and lively atmosphere, perfect for breaking the ice or energizing a party. The high-quality design and durable cards ensure longevity, so you can enjoy countless game nights. Whether you're celebrating a special occasion or simply want to spice up your evening, this game offers a perfect blend of challenge, humor, and social fun.
 
-## <a href="https://www.amazon.com/dp/B08FCVJ7N2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">You Laugh You Drink</a>
+## <a href="https://www.amazon.com/dp/B08FCVJ7N2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">You Laugh You Drink</a>
 
 
-<a href="https://www.amazon.com/dp/B08FCVJ7N2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="You Laugh You Drink - The Drinking Game for People Who Can't Keep a Straight Face [A Party Game]" src="https://m.media-amazon.com/images/I/41YBTOBAYXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08FCVJ7N2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="You Laugh You Drink - The Drinking Game for People Who Can't Keep a Straight Face [A Party Game]" src="https://m.media-amazon.com/images/I/41YBTOBAYXL._SL500_.jpg"/></a>
 
 
 The **You Laugh You Drink - The Drinking Game for People Who Can't Keep a Straight Face** is perfect for those who love social gatherings and enjoy lighthearted, laughter-filled moments. Ideal for party enthusiasts, friends, and anyone looking to spice up their game nights with a fun and interactive challenge, this game is designed to keep everyone entertained and engaged.

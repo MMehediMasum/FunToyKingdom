@@ -23,10 +23,10 @@ Building blocks and observation games develop focus and creativity. Space explor
 
 
 
-## <a href="https://www.amazon.com/dp/B0F32DG4CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spanish And English Talking Flash Cards For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0F32DG4CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spanish And English Talking Flash Cards For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0F32DG4CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spanish and English Talking Flash Cards for Toddlers with 510 Sight Words, Dinosaur Shaped Bilingual Pocket Speech Therapy and Autism Toys, Educational Learning Toys Gift for Kid Boys Girls" src="https://m.media-amazon.com/images/I/51bdMRU89tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F32DG4CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spanish and English Talking Flash Cards for Toddlers with 510 Sight Words, Dinosaur Shaped Bilingual Pocket Speech Therapy and Autism Toys, Educational Learning Toys Gift for Kid Boys Girls" src="https://m.media-amazon.com/images/I/51bdMRU89tL._SL500_.jpg"/></a>
 
 
 These **Spanish and English Talking Flash Cards** are perfect for parents and educators looking to introduce toddlers to bilingual learning in a fun and engaging way. Ideal for young children who are beginning to recognize sight words and develop language skills, these flashcards serve as an excellent educational tool for kids with speech therapy needs, including those with autism. If you want to enhance your child's vocabulary in both **Spanish and English** while keeping them entertained, this product is a great fit.
@@ -50,10 +50,10 @@ The **Spanish and English Talking Flash Cards** by Anhovno are designed with a f
 
 Additionally, these flashcards are tailored to assist children who require speech therapy or have autism by providing a tactile and visual learning aid. Their compact dimensions make them easy for little hands to hold and for parents to carry around, allowing learning to continue beyond the classroom or home setting. Overall, these bilingual educational toys are a thoughtful gift choice for any toddler ready to embark on the journey of language learning.
 
-## <a href="https://www.amazon.com/dp/B08W8TL6JS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Headu Observaction</a>
+## <a href="https://www.amazon.com/dp/B08W8TL6JS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Headu Observaction</a>
 
 
-<a href="https://www.amazon.com/dp/B08W8TL6JS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Headu ObservAction – Kids Learning Toys Ages 5-10, Educational Stem Toys for 5 6 7 8 9 10 Year Old Boys Girls, Observation Concentration Board Games for Kids and Families, Professional Teaching Games" src="https://m.media-amazon.com/images/I/51+oSzNNEOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08W8TL6JS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Headu ObservAction – Kids Learning Toys Ages 5-10, Educational Stem Toys for 5 6 7 8 9 10 Year Old Boys Girls, Observation Concentration Board Games for Kids and Families, Professional Teaching Games" src="https://m.media-amazon.com/images/I/51+oSzNNEOL._SL500_.jpg"/></a>
 
 
 The **Headu ObservAction** is an ideal educational toy for children aged **5 to 10 years** who are eager to develop their **observation** and **concentration skills**. Perfect for both boys and girls, this toy is designed for young learners who enjoy interactive and challenging activities that stimulate cognitive growth. Families and educators looking for a professional teaching game that combines fun with learning will find this product especially beneficial.
@@ -77,10 +77,10 @@ The **Headu ObservAction** features a thoughtfully designed observation concentr
 
 By encouraging repeated play, the toy helps kids build patience and improve their problem-solving skills. Its suitability for a broad age range means it adapts well as children grow, providing ongoing educational benefits. Additionally, the game's professional teaching approach supports family bonding and cooperative learning, making it a valuable tool for both home and classroom environments.
 
-## <a href="https://www.amazon.com/dp/B0CZ72WRML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enhana Building Block Space Exploration Shuttle Toy</a>
+## <a href="https://www.amazon.com/dp/B0CZ72WRML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enhana Building Block Space Exploration Shuttle Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ72WRML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENHANA Building Block Space Exploration Shuttle Toy with Control Tower Building Kit Spacecraft for 6 7 8 9 10 Years Old Boys, Best Space Toy Gifts for 6-10 Years" src="https://m.media-amazon.com/images/I/41fduLfixPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ72WRML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENHANA Building Block Space Exploration Shuttle Toy with Control Tower Building Kit Spacecraft for 6 7 8 9 10 Years Old Boys, Best Space Toy Gifts for 6-10 Years" src="https://m.media-amazon.com/images/I/41fduLfixPL._SL500_.jpg"/></a>
 
 
 Ideal for young space enthusiasts aged 6 to 10, the **ENHANA Building Block Space Exploration Shuttle Toy** is perfect for boys eager to explore the wonders of space through interactive play. This set combines creativity and education, making it an excellent choice for parents seeking an engaging and stimulating toy that encourages imagination and fine motor skills development.
@@ -103,10 +103,10 @@ The **ENHANA Space Exploration Shuttle Toy** features meticulously designed bloc
 
 Beyond just a toy, this building kit supports the development of critical skills such as spatial awareness, coordination, and logical thinking. As kids piece together the shuttle and control tower, they gain a sense of accomplishment and boost their confidence. The set's compatibility with other building blocks adds versatility, allowing for expanded creative projects and extended playtime.
 
-## <a href="https://www.amazon.com/dp/B0DDPFCMFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4wd Climbing Vehicle</a>
+## <a href="https://www.amazon.com/dp/B0DDPFCMFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4wd Climbing Vehicle</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDPFCMFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Electronics Circuits Engineering and Science Experiments for Teens | 4WD Climbing Vehicle STEM Projects for Kids Ages 8-12 | DIY STEM Toys for Boys and Girls" src="https://m.media-amazon.com/images/I/51qXNAC7j8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDPFCMFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Electronics Circuits Engineering and Science Experiments for Teens | 4WD Climbing Vehicle STEM Projects for Kids Ages 8-12 | DIY STEM Toys for Boys and Girls" src="https://m.media-amazon.com/images/I/51qXNAC7j8L._SL500_.jpg"/></a>
 
 
 The **Electronics Circuits Engineering and Science Experiments for Teens** is perfect for young learners aged 8-12 who have a curiosity for **STEM** and enjoy hands-on projects. This **DIY STEM toy** is ideal for both boys and girls who want to explore **electronics** and engineering concepts through engaging and interactive activities. Parents and educators looking to inspire critical thinking and problem-solving skills in children will find this kit especially beneficial.
@@ -130,10 +130,10 @@ This **STEM project kit** features a variety of **science experiments** centered
 
 By engaging with this **DIY electronics kit**, users develop critical skills such as logical thinking, creativity, and perseverance. The kit’s detailed instructions and components ensure that children learn while having fun, fostering a positive attitude towards STEM education. Overall, it is a valuable tool for nurturing the next generation of engineers and scientists in a playful and educational manner.
 
-## <a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxisteam Stem Toys</a>
+## <a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxisteam Stem Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FoxiSteam STEM Toys for Boys Girls Age 6-7 8-13 Science Kits for car Racing Birthday Gifts for 6 7 8 9 10 11 12 13 14+ Years Old Boys Teens Gift Ideas DIY Wood Building Crafts Kit" src="https://m.media-amazon.com/images/I/51Cmd+v414L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FoxiSteam STEM Toys for Boys Girls Age 6-7 8-13 Science Kits for car Racing Birthday Gifts for 6 7 8 9 10 11 12 13 14+ Years Old Boys Teens Gift Ideas DIY Wood Building Crafts Kit" src="https://m.media-amazon.com/images/I/51Cmd+v414L._SL500_.jpg"/></a>
 
 
 The **FoxiSteam STEM Toys** are ideal for curious **boys and girls aged 6 to 13** who enjoy hands-on learning and building projects. Perfect for young minds interested in **science, technology, engineering, and math (STEM)**, this kit serves as an excellent birthday gift or educational activity that combines fun with practical skills development. Parents and educators looking for an engaging way to introduce kids to mechanical concepts and creativity will find this DIY wood building crafts kit highly suitable.
@@ -156,10 +156,10 @@ The **FoxiSteam STEM Toys** kit features a well-designed DIY wood building proje
 
 By engaging with this kit, children not only have fun assembling their own racing car but also enhance their knowledge of physics, engineering, and coordination skills. The hands-on approach fosters creativity and boosts confidence as kids see their efforts come to life. This makes the **FoxiSteam STEM Toys** an excellent tool to inspire the next generation of innovators and problem solvers.
 
-## <a href="https://www.amazon.com/dp/B0DCCK1835?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oddy Basic 40 Creative Play Kit</a>
+## <a href="https://www.amazon.com/dp/B0DCCK1835?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oddy Basic 40 Creative Play Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCCK1835?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oddy Basic 40 Creative Play Kit - Eco-Friendly STEM Toy Building Set for Kids 6+" src="https://m.media-amazon.com/images/I/41k8S5dgjcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCCK1835?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oddy Basic 40 Creative Play Kit - Eco-Friendly STEM Toy Building Set for Kids 6+" src="https://m.media-amazon.com/images/I/41k8S5dgjcL._SL500_.jpg"/></a>
 
 
 The **Oddy Basic 40 Creative Play Kit** is ideal for parents and educators looking for an **eco-friendly STEM toy** that fosters creativity and problem-solving skills in children aged 6 and above. This building set is perfect for young minds eager to explore the fundamentals of engineering and design in a safe, sustainable way.
@@ -182,10 +182,10 @@ The **Oddy Basic 40 Creative Play Kit** stands out due to its commitment to **ec
 
 Designed with compact dimensions, this set is easy to carry and store, making it convenient for both home and classroom use. The kit’s versatility allows kids to build a variety of simple structures, fostering imagination while reinforcing core STEM concepts. By integrating play with education, this toy helps lay a strong foundation for future learning in science, technology, engineering, and mathematics.
 
-## <a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mex Ultimate Machines Kit</a>
+## <a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mex Ultimate Machines Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEX Ultimate Machines Kit, 12-in-1 DIY Robotics Science Kit, Learning Model Building Toys for Boys and Girls Aged 5,6,7,8,9,10, Building Construction Set with 80+ Parts, Educational Gift" src="https://m.media-amazon.com/images/I/51hP-p6byWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEX Ultimate Machines Kit, 12-in-1 DIY Robotics Science Kit, Learning Model Building Toys for Boys and Girls Aged 5,6,7,8,9,10, Building Construction Set with 80+ Parts, Educational Gift" src="https://m.media-amazon.com/images/I/51hP-p6byWL._SL500_.jpg"/></a>
 
 
 The **MEX Ultimate Machines Kit** is perfect for young aspiring engineers and curious minds aged 5 to 10 who enjoy hands-on learning and building. This **12-in-1 DIY Robotics Science Kit** encourages creativity and critical thinking, making it an excellent choice for both boys and girls interested in **STEM education** and **model building**.
@@ -208,10 +208,10 @@ The **MEX Ultimate Machines Kit** features a thoughtfully designed set of compon
 
 Additionally, this kit serves as an excellent gift for children interested in science and technology, seamlessly combining learning with play. The compact size and organized pieces make it easy to transport and store, encouraging repeated use and experimentation. Overall, the **MEX Ultimate Machines Kit** offers a fun, interactive way to introduce young learners to the exciting world of robotics and model building.
 
-## <a href="https://www.amazon.com/dp/B07QR54BW3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smartivity Fantastic Optics Kaleidoscope</a>
+## <a href="https://www.amazon.com/dp/B07QR54BW3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smartivity Fantastic Optics Kaleidoscope</a>
 
 
-<a href="https://www.amazon.com/dp/B07QR54BW3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Smartivity Fantastic Optics Kaleidoscope for 6+ Years Boys and Girls, STEM, Learning, Educational and Construction Activity Toy Gift (Multi-Color) (Optics Kaleidoscope)" src="https://m.media-amazon.com/images/I/41WW4uT1yqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QR54BW3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Smartivity Fantastic Optics Kaleidoscope for 6+ Years Boys and Girls, STEM, Learning, Educational and Construction Activity Toy Gift (Multi-Color) (Optics Kaleidoscope)" src="https://m.media-amazon.com/images/I/41WW4uT1yqL._SL500_.jpg"/></a>
 
 
 The **Smartivity Fantastic Optics Kaleidoscope** is an ideal choice for children aged 6 and above who have a keen interest in **STEM learning** and **educational activities**. Perfect for both boys and girls, this toy encourages creativity and hands-on exploration, making it suitable for parents and educators looking to introduce kids to the basics of **optics** and **construction** through play.
@@ -233,10 +233,10 @@ The **Smartivity Fantastic Optics Kaleidoscope** combines the excitement of buil
 
 Beyond just being a toy, this kaleidoscope serves as an educational tool that introduces young learners to **optics** in an interactive manner. By assembling the components themselves, children gain a deeper understanding of how light behaves and the principles behind kaleidoscopic images. This blend of fun and learning makes it a valuable addition to any child’s collection of **STEM toys**.
 
-## <a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oddy Inventions 92 Piece Creative Building Kit</a>
+## <a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oddy Inventions 92 Piece Creative Building Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oddy Inventions 92 Piece Creative Building Kit - Eco-Friendly STEM Toy Set for Kids 6+" src="https://m.media-amazon.com/images/I/41Yr8R9qOEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCCZKVLF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oddy Inventions 92 Piece Creative Building Kit - Eco-Friendly STEM Toy Set for Kids 6+" src="https://m.media-amazon.com/images/I/41Yr8R9qOEL._SL500_.jpg"/></a>
 
 
 The **Oddy Inventions 92 Piece Creative Building Kit** is ideal for parents and educators seeking an **eco-friendly STEM toy** that encourages creativity and problem-solving skills in children aged **6 and above**. This set is perfect for young learners who enjoy hands-on activities that challenge their imagination while promoting sustainable play.
@@ -259,10 +259,10 @@ The **Oddy Inventions 92 Piece Creative Building Kit** offers a thoughtfully des
 
 With its manageable size and lightweight build, this STEM toy is highly portable, making it ideal for both home and classroom use. The kit encourages independent play as well as collaborative projects, fostering teamwork and communication among peers. Overall, this creative building set combines educational value with environmental consciousness, making it a smart choice for nurturing young minds.
 
-## <a href="https://www.amazon.com/dp/B0B856BSRB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Generic I-brick Stem Building Toy Kit</a>
+## <a href="https://www.amazon.com/dp/B0B856BSRB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Generic I-brick Stem Building Toy Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0B856BSRB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Generic i-Brick STEM Building Toy Kit for Kids Ages 5-12, Learning Playset Educational Stem Activities for Boys and Girls, Creative Games After School Gifts, 500200" src="https://m.media-amazon.com/images/I/312FFuwdMSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B856BSRB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Generic i-Brick STEM Building Toy Kit for Kids Ages 5-12, Learning Playset Educational Stem Activities for Boys and Girls, Creative Games After School Gifts, 500200" src="https://m.media-amazon.com/images/I/312FFuwdMSL._SL500_.jpg"/></a>
 
 
 The **Generic i-Brick STEM Building Toy Kit** is perfect for children aged **5-12 years** who have a passion for creative play and learning. This educational **STEM activity set** is ideal for both **boys and girls** looking to enhance their problem-solving skills, fine motor abilities, and imagination through hands-on building experiences. Parents and educators seeking a fun and engaging way to introduce kids to science, technology, engineering, and math concepts will find this playset especially beneficial.

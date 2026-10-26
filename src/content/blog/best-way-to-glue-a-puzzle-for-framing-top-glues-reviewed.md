@@ -22,10 +22,10 @@ Datum Labs Jigsaw Puzzle Glue includes a sponge applicator for quick, even cover
 
 
 
-## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver (8-Ounce), CS15068** is ideal for puzzle enthusiasts who want to preserve their completed puzzles as keepsakes or display pieces. If you frequently complete jigsaw puzzles and wish to transform them into lasting art without the risk of pieces falling apart, this product is perfect for you. It’s also a great choice for crafters looking to seal and protect puzzle surfaces with a clear, durable finish.
@@ -48,10 +48,10 @@ The **Mod Podge Puzzle Saver** features a specially formulated adhesive and seal
 
 Additionally, this puzzle saver is designed with easy application in mind, allowing users to brush it on smoothly without bubbles or streaks. The lightweight, compact dimensions (4.75 inches tall and 1.32 inches wide and long) make it easy to handle and store. Overall, the Mod Podge Puzzle Saver offers a reliable and convenient solution for preserving cherished puzzles with professional-quality results.
 
-## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish** is ideal for puzzle enthusiasts who want to preserve their completed puzzles as keepsakes or wall art. This product is perfect for crafters and DIY lovers looking for a reliable and clear finishing solution that both glues and seals without yellowing over time.
@@ -74,10 +74,10 @@ The **Mod Podge Puzzle Saver** features a specialized formula designed to secure
 
 Additionally, this product is easy to apply with a brush or sponge, allowing users to achieve a professional-looking finish at home. The compact dimensions make it convenient to handle and store, catering to casual puzzlers and serious hobbyists alike. Overall, the Mod Podge Puzzle Saver delivers both functionality and aesthetic benefits, making it a valuable tool for anyone looking to preserve their puzzle creations.
 
-## <a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topwey Diamond Painting Accessories Glue</a>
+## <a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topwey Diamond Painting Accessories Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topwey Diamond Painting Accessories, Glue for Diamond Art, Puzzle, Accessories for Diamond Painting Kits for Adults (125 ML*2)" src="https://m.media-amazon.com/images/I/41wqFaSu0CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topwey Diamond Painting Accessories, Glue for Diamond Art, Puzzle, Accessories for Diamond Painting Kits for Adults (125 ML*2)" src="https://m.media-amazon.com/images/I/41wqFaSu0CL._SL500_.jpg"/></a>
 
 
 The **Topwey Diamond Painting Accessories**, featuring a **125 ML**2 glue set****, is ideal for enthusiasts of **diamond art** and **puzzle crafts**. This product is perfect for adults who enjoy creating detailed and vibrant **diamond painting kits** and need a reliable adhesive to keep their artwork intact and looking pristine. If you seek a clear, durable glue that enhances your crafting experience, this accessory is designed for you.
@@ -99,10 +99,10 @@ The **Topwey Diamond Painting Accessories glue** boasts a clear formula that dri
 
 Beyond its strong adhesion, this glue's clarity is a significant benefit, preventing any visible residue on your finished pieces. The product’s design caters to the needs of adult hobbyists who value both quality and efficiency in their crafting supplies. Trusting a reputable manufacturer like **Topwey** adds confidence in the product’s performance, making it a must-have accessory in your diamond painting toolkit.
 
-## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
 
 
 The **PHILODOGS Puzzle Glue** is ideal for puzzle enthusiasts of all ages, including families, hobbyists, and educators who want to preserve their completed jigsaw puzzles with ease. Whether you’re a parent looking to save a memorable family activity or an adult puzzle lover aiming to display your finished work, this quick-drying, non-toxic glue offers a safe and effective solution.
@@ -125,10 +125,10 @@ The **PHILODOGS Puzzle Glue** offers a user-friendly application with its clear 
 
 Beyond preserving puzzles, this adhesive acts as a protective layer that prevents dust and damage, giving your finished puzzles a professional, polished look ideal for framing or display. The family edition packaging reflects its suitability for shared activities, encouraging creativity and bonding while ensuring the puzzles you cherish last for years to come. Overall, the **PHILODOGS Puzzle Glue** combines convenience, safety, and effectiveness, making it a must-have accessory for every puzzle lover.
 
-## <a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Datum Labs Jigsaw Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Datum Labs Jigsaw Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="[240mL] Datum Labs Jigsaw Puzzle Glue | Easy Sponge Head and Scaper | Adults and Children | Clear Water-Soluble Special Craft Puzzle Glue Quick-Dry | Non-Toxic | 1000/1500/3000 Pieces Per Bottle" src="https://m.media-amazon.com/images/I/51nIIzf1BgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="[240mL] Datum Labs Jigsaw Puzzle Glue | Easy Sponge Head and Scaper | Adults and Children | Clear Water-Soluble Special Craft Puzzle Glue Quick-Dry | Non-Toxic | 1000/1500/3000 Pieces Per Bottle" src="https://m.media-amazon.com/images/I/51nIIzf1BgL._SL500_.jpg"/></a>
 
 
 The **Datum Labs Jigsaw Puzzle Glue** is ideal for both **adults and children** who enjoy completing puzzles of various sizes, especially those with **1000, 1500, or 3000 pieces**. If you want to preserve your completed puzzles as a lasting keepsake or wall decoration, this product offers a simple and effective solution. It's perfect for hobbyists, families, and craft enthusiasts looking for a clear, quick-drying, and non-toxic adhesive.
@@ -151,10 +151,10 @@ The **Datum Labs Jigsaw Puzzle Glue** features a thoughtfully designed **easy sp
 
 Safety is a priority with this glue, as it is **non-toxic** and suitable for use by both **children and adults**. The glue's size and shape are designed for comfortable handling, making the preservation process hassle-free. Whether you are finishing a 1000-piece puzzle or tackling more challenging 3000-piece designs, this product provides a reliable, clear finish that strengthens your work and keeps it intact for years to come.
 
-## <a href="https://www.amazon.com/dp/B07XGN7553?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzle Saver Glue Kit And Diamond Painting Sealer</a>
+## <a href="https://www.amazon.com/dp/B07XGN7553?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzle Saver Glue Kit And Diamond Painting Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B07XGN7553?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzle Saver Glue Kit and Diamond Painting Sealer, Adhesive Brushes for Jigsaw Puzzles, Boards, Mats, with Pixiss Accessory Kit" src="https://m.media-amazon.com/images/I/41BpKjnfGoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XGN7553?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzle Saver Glue Kit and Diamond Painting Sealer, Adhesive Brushes for Jigsaw Puzzles, Boards, Mats, with Pixiss Accessory Kit" src="https://m.media-amazon.com/images/I/41BpKjnfGoL._SL500_.jpg"/></a>
 
 
 The **Puzzle Saver Glue Kit and Diamond Painting Sealer** by **GRAS Art Bundles** is ideal for hobbyists and crafters who want to preserve their completed **jigsaw puzzles** or **diamond paintings**. Whether you are a casual puzzler or a dedicated artist, this kit is perfect for those looking to protect their artwork from damage and display it proudly without the risk of pieces falling apart.
@@ -176,10 +176,10 @@ This **Puzzle Saver Glue Kit** comes equipped with everything needed to protect 
 
 Additionally, the kit’s multi-use functionality extends beyond just puzzles; it can be applied on various surfaces such as boards and mats, making it a versatile tool for any crafter. The compact size ensures it is easy to handle and store, while the trusted **Pixiss** manufacturing guarantees a product that meets the needs of both novice and experienced users alike.
 
-## <a href="https://www.amazon.com/dp/B001I6FEHE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lineco Neutral Ph Adhesive 8 Oz</a>
+## <a href="https://www.amazon.com/dp/B001I6FEHE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lineco Neutral Ph Adhesive 8 Oz</a>
 
 
-<a href="https://www.amazon.com/dp/B001I6FEHE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LINECO Neutral pH Adhesive 8 Oz, Acid-Free, All-purpose Glue, Dries Clear and Remains Flexible. Used for Bookbinding and Book Repair, Framing, Collages, Paper Art and Crafts" src="https://m.media-amazon.com/images/I/31awriw5LFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001I6FEHE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LINECO Neutral pH Adhesive 8 Oz, Acid-Free, All-purpose Glue, Dries Clear and Remains Flexible. Used for Bookbinding and Book Repair, Framing, Collages, Paper Art and Crafts" src="https://m.media-amazon.com/images/I/31awriw5LFL._SL500_.jpg"/></a>
 
 
 Ideal for **artists, crafters, bookbinders**, and anyone involved in **paper art, framing, or book repair**, the **LINECO Neutral pH Adhesive 8 Oz** offers a versatile and reliable solution. This **acid-free, all-purpose glue** is perfect for those who need a strong yet flexible adhesive that preserves the integrity of delicate materials over time.
@@ -202,10 +202,10 @@ The **LINECO Neutral pH Adhesive** is designed with a **neutral pH**, making it 
 
 Another key benefit is the adhesive’s ability to **dry clear and remain flexible**, which enhances both the appearance and durability of the finished project. Whether you are creating a collage or mounting a delicate paper art piece, this glue will not leave unsightly residue or cause cracking when the materials expand or contract. The **all-purpose formula** also means it can be used for framing tasks, making it a versatile addition to any craft or restoration toolkit.
 
-## <a href="https://www.amazon.com/dp/B0BYSN5MBT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Naimoer Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0BYSN5MBT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Naimoer Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYSN5MBT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NAIMOER Puzzle Glue 240ML, DIY Diamond Art Sealer with Sponge Head &amp; Applicators, 5D Puzzle Sealer Accessories Permanent Hold Shine Effect Diamond Art Glue for Diamond Art &amp; Puzzle Glue" src="https://m.media-amazon.com/images/I/51Wax7+vjBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYSN5MBT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NAIMOER Puzzle Glue 240ML, DIY Diamond Art Sealer with Sponge Head &amp; Applicators, 5D Puzzle Sealer Accessories Permanent Hold Shine Effect Diamond Art Glue for Diamond Art &amp; Puzzle Glue" src="https://m.media-amazon.com/images/I/51Wax7+vjBL._SL500_.jpg"/></a>
 
 
 The **NAIMOER Puzzle Glue 240ML** is an ideal product for hobbyists and craft enthusiasts who want to preserve their completed puzzles or diamond art creations. If you’re someone who enjoys DIY projects, especially **5D diamond art** or traditional jigsaw puzzles, this sealer provides a permanent hold and adds a beautiful shine effect, making your artwork last longer and look professionally finished.
@@ -227,10 +227,10 @@ The **NAIMOER Puzzle Glue** is designed with a sponge head applicator, making it
 
 Another great feature is its versatility; whether you are sealing a traditional puzzle or working on intricate **5D diamond art** projects, this glue adapts well to both. The product dimensions and packaging make it easy to store and handle during your crafting sessions. Overall, the NAIMOER Puzzle Glue offers a reliable and user-friendly solution for preserving your cherished crafts with a professional finish.
 
-## <a href="https://www.amazon.com/dp/B000KNJEYA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lineco Neutral Ph Adhesive</a>
+## <a href="https://www.amazon.com/dp/B000KNJEYA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lineco Neutral Ph Adhesive</a>
 
 
-<a href="https://www.amazon.com/dp/B000KNJEYA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LINECO Neutral pH Adhesive, 4 Oz, Acid-Free, All-purpose Glue, Dries Clear and Remains Flexible, Used for Bookbinding and Book Repair, Framing, Collages, Paper Art and Crafts" src="https://m.media-amazon.com/images/I/31J3Koonz0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000KNJEYA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LINECO Neutral pH Adhesive, 4 Oz, Acid-Free, All-purpose Glue, Dries Clear and Remains Flexible, Used for Bookbinding and Book Repair, Framing, Collages, Paper Art and Crafts" src="https://m.media-amazon.com/images/I/31J3Koonz0L._SL500_.jpg"/></a>
 
 
 The **LINECO Neutral pH Adhesive** is ideal for artists, crafters, and bookbinders who require a reliable, all-purpose glue that is safe for delicate materials. If you are involved in **book repair**, **framing**, or intricate **paper art and crafts**, this adhesive is designed to meet your needs by ensuring long-lasting, acid-free bonding without damaging your projects.
@@ -253,10 +253,10 @@ The **LINECO Neutral pH Adhesive** stands out for its preservation-friendly form
 
 Designed with versatility in mind, this glue is suitable for a wide range of creative and professional applications including **collages, framing, and paper crafts**. Its manageable size and ease of use make it a convenient choice for both hobbyists and professionals looking for an adhesive that combines performance with preservation. Whether you are restoring a beloved book or creating intricate paper art, this product provides reliable adhesion without compromising the quality of your work.
 
-## <a href="https://www.amazon.com/dp/B07D48DFXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Jigsaw Puzzle Factory Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B07D48DFXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Jigsaw Puzzle Factory Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B07D48DFXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Jigsaw Puzzle Factory Puzzle Glue, Multicolor" src="https://m.media-amazon.com/images/I/41yRCwgyA2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D48DFXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Jigsaw Puzzle Factory Puzzle Glue, Multicolor" src="https://m.media-amazon.com/images/I/41yRCwgyA2L._SL500_.jpg"/></a>
 
 
 The **Jigsaw Puzzle Factory Puzzle Glue, Multicolor** is ideal for puzzle enthusiasts who want to preserve and display their completed puzzles. Whether you're a casual puzzler or a dedicated collector, this product is perfect for anyone looking to secure their jigsaw puzzles into a lasting masterpiece. It is especially useful for those who value their puzzle time and want to transform their work into decorative art.

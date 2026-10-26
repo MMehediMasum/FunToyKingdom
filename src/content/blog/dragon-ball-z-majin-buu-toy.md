@@ -23,10 +23,10 @@ Figuarts Action Figure or the Funko POP Anime figure, collectors have plenty of 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CKS4STLB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Super - Dragon Stars - Majin Buu</a>
+## <a href="https://www.amazon.com/dp/B0CKS4STLB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Super - Dragon Stars - Majin Buu</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKS4STLB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img action="" alt="Dragon Ball Super - Dragon Stars - Majin Buu Super, 6.5" figure"="" src="https://m.media-amazon.com/images/I/31-jbDXew1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKS4STLB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img action="" alt="Dragon Ball Super - Dragon Stars - Majin Buu Super, 6.5" figure"="" src="https://m.media-amazon.com/images/I/31-jbDXew1L._SL500_.jpg"/></a>
 
 
 The **Dragon Ball Super - Dragon Stars - Majin Buu Super, 6.5" Action Figure** is perfect for avid **Dragon Ball** collectors and fans of the series looking to add a high-quality, detailed figure to their collection. This figure is ideal for those who appreciate the iconic character **Majin Buu Super** and want a durable, poseable toy to display or use for creative play. Whether you are a longtime fan or a newcomer wanting to explore the **Dragon Stars Series**, this figure offers both authenticity and fun.
@@ -49,10 +49,10 @@ This **6.5-inch action figure** from the **Dragon Stars Series** brings **Majin 
 
 Beyond its visual appeal, the figure's design focuses on durability and articulation, making it suitable for both collectors and younger fans who enjoy interactive play. The compact size ensures it can be combined with other figures in the **Dragon Stars Series** to create an extensive lineup of favorite characters. Overall, this figure balances aesthetic accuracy with functionality, offering great value for anyone passionate about **Dragon Ball Super**.
 
-## <a href="https://www.amazon.com/dp/B0DJ2D78VD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Z Majin Buu -good- S.h.figuarts Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0DJ2D78VD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Z Majin Buu -good- S.h.figuarts Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ2D78VD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TAMASHII NATIONS - Dragon Ball Z - Majin Buu -Good-, Bandai Spirits S.H.Figuarts Action Figure" src="https://m.media-amazon.com/images/I/31fGHFSFBgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ2D78VD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TAMASHII NATIONS - Dragon Ball Z - Majin Buu -Good-, Bandai Spirits S.H.Figuarts Action Figure" src="https://m.media-amazon.com/images/I/31fGHFSFBgL._SL500_.jpg"/></a>
 
 
 The **TAMASHII NATIONS - Dragon Ball Z - Majin Buu -Good-** by **Bandai Spirits** is perfect for **Dragon Ball Z fans**, collectors of **high-quality action figures**, and enthusiasts who appreciate detailed craftsmanship. If you are looking to add a vibrant and dynamic character to your collection that captures the essence of **Majin Buu -Good-**, this figure is an ideal choice.
@@ -74,10 +74,10 @@ This **S.H.Figuarts action figure** stands out with its superior articulation, a
 
 Crafted by **Bandai Spirits** under the **TAMASHII NATIONS** brand, this figure guarantees durability and quality. Whether displayed on a shelf or used in photography, the figure’s vibrant color palette and precise design enhance any collection. However, collectors should note that it includes fewer accessories, focusing more on the figure’s poseability and detail, making it perfect for those who prioritize aesthetics and articulation.
 
-## <a href="https://www.amazon.com/dp/B0B2177X6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kelake Gk Dbz Majin Buu/kid Buu Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0B2177X6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kelake Gk Dbz Majin Buu/kid Buu Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2177X6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KELAKE GK DBZ Majin Buu/Kid Buu Actions Figure Statue Figurine Collection Birthday Gifts PVC 8.5 Inch" src="https://m.media-amazon.com/images/I/31QMk5i4xDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2177X6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KELAKE GK DBZ Majin Buu/Kid Buu Actions Figure Statue Figurine Collection Birthday Gifts PVC 8.5 Inch" src="https://m.media-amazon.com/images/I/31QMk5i4xDL._SL500_.jpg"/></a>
 
 
 Ideal for **Dragon Ball Z** enthusiasts and collectors, the **KELAKE GK DBZ Majin Buu/Kid Buu Action Figure Statue Figurine** is perfect for those looking to add a vibrant and detailed piece to their collection. Whether you're seeking a unique **birthday gift** or a standout display item, this **PVC 8.5 inch** figure captures the essence of the iconic characters with precision and style.
@@ -100,10 +100,10 @@ The **KELAKE GK DBZ Majin Buu/Kid Buu Action Figure** stands out with its except
 
 Collectors will appreciate the attention to detail in the sculpting and painting, capturing the essence of **Majin Buu** and **Kid Buu** in their iconic poses. This figure not only serves as a striking display but also as a meaningful gift for fans of the **Dragon Ball Z** series. Its quality and design reflect the reliability of the **KELAKE GK** brand and the craftsmanship of the manufacturer **dongh**, making it a valuable addition for enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0D4YT3ZKD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Banpresto Dragon Ball Z Majin Buu Figure</a>
+## <a href="https://www.amazon.com/dp/B0D4YT3ZKD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Banpresto Dragon Ball Z Majin Buu Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4YT3ZKD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Banpresto - Dragon Ball Z - Majin Buu, Bandai Spirits Solid Edge Works Figure" src="https://m.media-amazon.com/images/I/413C6Jg5WCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4YT3ZKD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Banpresto - Dragon Ball Z - Majin Buu, Bandai Spirits Solid Edge Works Figure" src="https://m.media-amazon.com/images/I/413C6Jg5WCL._SL500_.jpg"/></a>
 
 
 The **Banpresto - Dragon Ball Z - Majin Buu** figure by **Bandai Spirits Solid Edge Works** is ideal for avid **Dragon Ball Z collectors** and fans who appreciate detailed and high-quality anime merchandise. Those looking to enhance their collection with a well-crafted representation of the iconic **Majin Buu** character will find this figure a perfect addition. It is also suitable for individuals who value durable and visually striking figures for display purposes.
@@ -125,10 +125,10 @@ This **Majin Buu figure** excels in delivering a visually striking and faithful 
 
 Crafted by **Banpresto** and **Bandai Spirits**, this figure benefits from the expertise and quality assurance these brands are known for. While it lacks articulation, the solid and detailed sculpt ensures it remains a standout piece in any **Dragon Ball Z** collection. Whether for display or gifting, this figure offers both aesthetic appeal and collector value, making it a worthy investment for fans of the series.
 
-## <a href="https://www.amazon.com/dp/B07NMHVJXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Super Dragon Stars Majin Buu Final Form Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07NMHVJXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Super Dragon Stars Majin Buu Final Form Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07NMHVJXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img action="" alt="Dragon Ball Super - Dragon Stars - Majin Buu Final Form, 6.5" figure"="" src="https://m.media-amazon.com/images/I/41WOpbI5QjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NMHVJXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img action="" alt="Dragon Ball Super - Dragon Stars - Majin Buu Final Form, 6.5" figure"="" src="https://m.media-amazon.com/images/I/41WOpbI5QjL._SL500_.jpg"/></a>
 
 
 The **Dragon Ball Super - Dragon Stars - Majin Buu Final Form, 6.5" Action Figure** is ideal for fans of the **Dragon Ball Super** series and collectors who appreciate highly detailed and articulated figures. Whether you're a seasoned collector looking to complete your **Dragon Stars Series** or a new fan seeking a dynamic representation of **Majin Buu's Final Form**, this action figure offers both display appeal and playability.
@@ -150,10 +150,10 @@ The **Majin Buu Final Form action figure** stands out for its meticulous attenti
 
 Manufactured by **Bandai Namco Toys & Collectibles America**, this figure ensures high quality and durability, making it a lasting addition to any collection. Being part of the **Series 11 edition** of the **Dragon Stars Series** adds collectible value, appealing to those who want to complete the series or showcase one of the most memorable villains in the franchise. Overall, this action figure balances detailed craftsmanship with practical size, offering fans a highly enjoyable collectible experience.
 
-## <a href="https://www.amazon.com/dp/B01CBME1U4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop Anime Dragonball Z Majin Buu</a>
+## <a href="https://www.amazon.com/dp/B01CBME1U4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop Anime Dragonball Z Majin Buu</a>
 
 
-<a href="https://www.amazon.com/dp/B01CBME1U4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP Anime: Dragonball Z - Majin Buu Action Figure" src="https://m.media-amazon.com/images/I/51QcxwVTdyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01CBME1U4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP Anime: Dragonball Z - Majin Buu Action Figure" src="https://m.media-amazon.com/images/I/51QcxwVTdyL._SL500_.jpg"/></a>
 
 
 The **Funko POP Anime: Dragonball Z - Majin Buu Action Figure** is perfect for **Dragonball Z fans**, **anime collectors**, and those who appreciate unique, vibrant memorabilia. If you want to add a playful yet iconic character from the beloved anime series to your collection, this figure is an ideal choice. It also suits gift buyers looking for a fun and eye-catching present for anime enthusiasts.
@@ -174,10 +174,10 @@ This **Majin Buu Action Figure** stands out due to its faithful representation o
 
 Crafted by **Funko**, this figure ensures quality and durability, promising to maintain its vibrant look over time. Collectors will appreciate how it fits seamlessly with other Funko POP figures, helping to build a themed collection. The lightweight nature also means it can be transported or gifted effortlessly, appealing to both casual fans and dedicated collectors alike.
 
-## <a href="https://www.amazon.com/dp/B08F4S4XXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Limit Breaker Majin Bu</a>
+## <a href="https://www.amazon.com/dp/B08F4S4XXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dragon Ball Limit Breaker Majin Bu</a>
 
 
-<a href="https://www.amazon.com/dp/B08F4S4XXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bandai America - Dragon Ball Limit Breaker 12" bu"="" majin="" src="https://m.media-amazon.com/images/I/31pq3a40HGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F4S4XXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bandai America - Dragon Ball Limit Breaker 12" bu"="" majin="" src="https://m.media-amazon.com/images/I/31pq3a40HGL._SL500_.jpg"/></a>
 
 
 The **Bandai America - Dragon Ball Limit Breaker 12" Majin Bu** is perfect for avid **Dragon Ball Z collectors** and fans who appreciate highly detailed and dynamic action figures. If you are someone who enjoys displaying iconic characters from the series or wants to add a premium piece to your collection, this figure is an excellent choice. It is also ideal for gift-givers seeking a unique and beloved character that stands out in any collection.
@@ -199,10 +199,10 @@ This **Majin Buu figure** stands out due to its precise attention to detail and 
 
 Manufactured by **Bandai**, a trusted name in the world of collectible figures, this item promises durability and quality. Fans will appreciate the figure’s poseability and the dynamic stance that brings **Majin Buu's** character to life, making it not just a static decoration but a centerpiece for any **Dragon Ball Z** collection. Whether for personal enjoyment or as a gift, this figure delivers both aesthetic appeal and authentic representation.
 
-## <a href="https://www.amazon.com/dp/B0BGX1NPXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Banpresto - Dragon Ball Z - The Majin Buu, Bandai Spirits Gxmateria Figure</a>
+## <a href="https://www.amazon.com/dp/B0BGX1NPXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Banpresto - Dragon Ball Z - The Majin Buu, Bandai Spirits Gxmateria Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGX1NPXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Banpresto - Dragon Ball Z - The Majin Buu, Bandai Spirits Gxmateria Figure" src="https://m.media-amazon.com/images/I/51536mVgdwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGX1NPXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Banpresto - Dragon Ball Z - The Majin Buu, Bandai Spirits Gxmateria Figure" src="https://m.media-amazon.com/images/I/51536mVgdwL._SL500_.jpg"/></a>
 
 
 The **Banpresto - Dragon Ball Z - The Majin Buu, Bandai Spirits Gxmateria Figure** is perfect for avid **Dragon Ball Z collectors** and fans who appreciate high-quality, detailed anime merchandise. Ideal for those who want to showcase a beloved character from the series, this figure combines craftsmanship with nostalgia, making it a great addition to any collection or display shelf.
@@ -225,10 +225,10 @@ This **Banpresto Majin Buu figure** boasts impressive attention to detail, captu
 
 Beyond its visual appeal, the figure offers practical benefits for display and storage due to its manageable weight and size. Whether placed on a shelf, desk, or within a display case, it adds personality and a touch of nostalgia to any environment. For fans and collectors alike, the **Banpresto Gxmateria Majin Buu** figure represents a perfect blend of artistry and fandom, making it a worthwhile investment for those passionate about anime memorabilia.
 
-## <a href="https://www.amazon.com/dp/B0C66GQCWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Banpresto - Dragon Ball Z - Majin Buu (son Gohan Absorbed) (vs Super Saiyan Vegito)</a>
+## <a href="https://www.amazon.com/dp/B0C66GQCWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Banpresto - Dragon Ball Z - Majin Buu (son Gohan Absorbed) (vs Super Saiyan Vegito)</a>
 
 
-<a href="https://www.amazon.com/dp/B0C66GQCWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Banpresto - Dragon Ball Z - Majin Buu (Son Gohan Absorbed) (vs Super Saiyan Vegito), Bandai Spirits Match Makers Figure" src="https://m.media-amazon.com/images/I/41XQblDnlAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C66GQCWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Banpresto - Dragon Ball Z - Majin Buu (Son Gohan Absorbed) (vs Super Saiyan Vegito), Bandai Spirits Match Makers Figure" src="https://m.media-amazon.com/images/I/41XQblDnlAL._SL500_.jpg"/></a>
 
 
 The **Banpresto - Dragon Ball Z - Majin Buu (Son Gohan Absorbed) (vs Super Saiyan Vegito)** figure is ideal for **Dragon Ball Z enthusiasts** and **collectors** who appreciate detailed and high-quality anime memorabilia. If you are someone who loves displaying iconic battle scenes or wants to add a unique piece to your **Bandai Spirits Match Makers** collection, this figure is a perfect choice. It also suits fans looking for a compact yet intricately designed figure to showcase their passion for the series.
@@ -251,10 +251,10 @@ This **Banpresto Dragon Ball Z Majin Buu figure** stands out with its dynamic po
 
 Manufactured by **Bandai Spirits**, this figure promises durability and precision, reflecting the iconic anime’s spirit. The limited edition nature adds exclusivity, appealing to serious collectors who value rarity. Overall, this figure combines artistry and fandom, providing both aesthetic appeal and sentimental value to Dragon Ball Z fans worldwide.
 
-## <a href="https://www.amazon.com/dp/B0DJQBX265?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ichibansho Figure - Dragon Ball Z - Majin Buu Son Gohan Absorbed</a>
+## <a href="https://www.amazon.com/dp/B0DJQBX265?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ichibansho Figure - Dragon Ball Z - Majin Buu Son Gohan Absorbed</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJQBX265?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ichibansho Figure - Dragon Ball Z - Majin Buu Son Gohan Absorbed (vs Omnibus Ultimate) Masterlise Collectible Statue" src="https://m.media-amazon.com/images/I/31ZStls1SZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJQBX265?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ichibansho Figure - Dragon Ball Z - Majin Buu Son Gohan Absorbed (vs Omnibus Ultimate) Masterlise Collectible Statue" src="https://m.media-amazon.com/images/I/31ZStls1SZL._SL500_.jpg"/></a>
 
 
 The **Ichibansho Figure - Dragon Ball Z - Majin Buu Son Gohan Absorbed (vs Omnibus Ultimate) Masterlise Collectible Statue** is ideal for avid **Dragon Ball Z collectors** and fans who appreciate detailed, high-quality anime memorabilia. If you are looking to enhance your collection with a uniquely designed and intricately crafted figure that showcases one of the most iconic characters from the series, this item is perfect for you. It is also suitable for enthusiasts who value limited edition collectibles with impressive dimensions and weight that give a substantial presence on display.

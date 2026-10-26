@@ -23,10 +23,10 @@ Compact items like magnetic sliders and gyroscopic rings fit easily in a backpac
 
 
 
-## <a href="https://www.amazon.com/dp/B0DHWSRBHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">9pcs Math Fidget Spinner</a>
+## <a href="https://www.amazon.com/dp/B0DHWSRBHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">9pcs Math Fidget Spinner</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHWSRBHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="9PCS Math Fidget Spinner Fun Education Math Toy Game Early Education Math (Addition and Subtraction)" src="https://m.media-amazon.com/images/I/51HzDQ1BTmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHWSRBHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="9PCS Math Fidget Spinner Fun Education Math Toy Game Early Education Math (Addition and Subtraction)" src="https://m.media-amazon.com/images/I/51HzDQ1BTmL._SL500_.jpg"/></a>
 
 
 The **9PCS Math Fidget Spinner Fun Education Math Toy Game** is ideal for young learners who are beginning to explore **addition and subtraction**. This educational toy is perfect for parents, teachers, and caregivers looking to combine play with learning, making it easier for children to grasp basic math concepts through interactive and engaging methods.
@@ -49,10 +49,10 @@ The **9PCS Math Fidget Spinner** stands out as an innovative educational tool th
 
 Moreover, this math toy is designed to keep children engaged, which is essential for early education. The spinner not only helps improve math skills but also enhances hand-eye coordination and concentration. Its portability allows it to be used both at home and in classrooms, offering a versatile tool for educators and parents alike to encourage a love for math from an early age.
 
-## <a href="https://www.amazon.com/dp/B0D91XH2VB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Math Fidget Spinner</a>
+## <a href="https://www.amazon.com/dp/B0D91XH2VB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Math Fidget Spinner</a>
 
 
-<a href="https://www.amazon.com/dp/B0D91XH2VB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Math Fidget Spinner,Math Fact Fidget Spinners,Math Multiply and Divide Fidget Spinner,Math Fidget Spinner Toy, Perfect for Math Learning Multiplication,Division &amp; Educational Toys Games(9Pcs)" src="https://m.media-amazon.com/images/I/516M83csebL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D91XH2VB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Math Fidget Spinner,Math Fact Fidget Spinners,Math Multiply and Divide Fidget Spinner,Math Fidget Spinner Toy, Perfect for Math Learning Multiplication,Division &amp; Educational Toys Games(9Pcs)" src="https://m.media-amazon.com/images/I/516M83csebL._SL500_.jpg"/></a>
 
 
 The **Math Fidget Spinner** is ideal for students, educators, and parents looking to make **math learning** more engaging and interactive. If you want to help children practice **multiplication** and **division** in a fun, hands-on way, this educational toy is perfect for you. It combines the appeal of a classic **fidget spinner** with math facts, making it a great tool for kids who benefit from tactile learning and repetitive practice.
@@ -75,10 +75,10 @@ The **Math Multiply and Divide Fidget Spinner** by **Haomax** offers a unique bl
 
 With a set of **9 pieces**, this spinner provides ample opportunities for practice and sharing among classmates or family members. Its lightweight design means it can be taken to school, tutoring sessions, or used at home without hassle. The spinner's focus on multiplication and division makes it a targeted tool for mastering these fundamental arithmetic operations, boosting confidence and competence in math through playful repetition.
 
-## <a href="https://www.amazon.com/dp/B08SLQ57YD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pop Fidget Toys For Anxiety</a>
+## <a href="https://www.amazon.com/dp/B08SLQ57YD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pop Fidget Toys For Anxiety</a>
 
 
-<a href="https://www.amazon.com/dp/B08SLQ57YD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pop Fidget Toys for Anxiety, Push Pop Pop Bubble Sensory Fidget Toy, Silicone Stress Reliever Toy (Square - Rainbow, 4.7x4.7x0.6inch-1PC)" src="https://m.media-amazon.com/images/I/41qvO+vTUjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SLQ57YD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pop Fidget Toys for Anxiety, Push Pop Pop Bubble Sensory Fidget Toy, Silicone Stress Reliever Toy (Square - Rainbow, 4.7x4.7x0.6inch-1PC)" src="https://m.media-amazon.com/images/I/41qvO+vTUjL._SL500_.jpg"/></a>
 
 
 The **Pop Fidget Toys for Anxiety** are ideal for individuals seeking a simple yet effective way to manage stress and anxiety. Perfect for both children and adults, this **Silicone Stress Reliever Toy** appeals to those who benefit from sensory stimulation or need a discreet tool to improve focus and relaxation during busy or stressful times. If you are someone who enjoys tactile activities or requires an outlet to channel nervous energy, this **Push Pop Pop Bubble Sensory Fidget Toy** is a great choice.
@@ -101,10 +101,10 @@ The **Pop Fidget Toy** features a smooth, flexible silicone surface with a grid 
 
 Beyond simply being a fun toy, this fidget device offers tangible benefits such as aiding in concentration and calming nerves. It is especially useful for students, office workers, or anyone dealing with sensory processing challenges. By engaging the fingers and mind simultaneously, it promotes mindfulness and reduces feelings of stress. The simplicity of its design means there are no batteries or complicated parts, ensuring that it remains a reliable and hassle-free tool for everyday use.
 
-## <a href="https://www.amazon.com/dp/B0FC34ZW21?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gyroscopic Fidget Rings</a>
+## <a href="https://www.amazon.com/dp/B0FC34ZW21?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gyroscopic Fidget Rings</a>
 
 
-<a href="https://www.amazon.com/dp/B0FC34ZW21?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gyroscopic Fidget Rings | 3D Printed Kinetic Desk Toy for Stress Relief and Focus | Layered Spinner Rings for Adults and Teens" src="https://m.media-amazon.com/images/I/31W5w6QviwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FC34ZW21?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gyroscopic Fidget Rings | 3D Printed Kinetic Desk Toy for Stress Relief and Focus | Layered Spinner Rings for Adults and Teens" src="https://m.media-amazon.com/images/I/31W5w6QviwL._SL500_.jpg"/></a>
 
 
 The **Gyroscopic Fidget Rings** are ideal for individuals seeking a stylish and functional way to alleviate stress and enhance concentration. Perfect for both **adults and teens**, these **3D printed kinetic desk toys** are designed for anyone who benefits from tactile engagement, such as students, office workers, or anyone with a busy lifestyle looking to improve focus.
@@ -126,10 +126,10 @@ Crafted by **AML Engineering** under the **Generic** brand, these fidget rings f
 
 Thanks to the **3D printed layered construction**, the rings are both lightweight and sturdy, ensuring they withstand regular use without losing performance. Their versatility makes them suitable for various settings, from office desks to study tables, providing a discreet yet effective tool for enhancing concentration. The availability of multiple colors adds a personal touch, allowing users to express their style while benefiting from the calming effects of this innovative desk toy.
 
-## <a href="https://www.amazon.com/dp/B07ZJVM49J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Atom Balls 4-pack</a>
+## <a href="https://www.amazon.com/dp/B07ZJVM49J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Atom Balls 4-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZJVM49J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Atom Balls 4-pack, Tactile Fidget Stress Relief, 4 Colors Included: Green, Yellow, Orange and Magenta" src="https://m.media-amazon.com/images/I/41KszbxgkjS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZJVM49J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Atom Balls 4-pack, Tactile Fidget Stress Relief, 4 Colors Included: Green, Yellow, Orange and Magenta" src="https://m.media-amazon.com/images/I/41KszbxgkjS._SL500_.jpg"/></a>
 
 
 The **Atom Balls 4-pack** by **Star Magic** is perfect for individuals seeking a portable and effective way to alleviate stress and improve focus. Ideal for students, professionals, or anyone who experiences anxiety or restlessness, these tactile fidget balls offer a discreet and satisfying sensory experience. If you want a colorful and practical tool to keep your hands busy while boosting concentration, this product is an excellent choice.
@@ -150,10 +150,10 @@ The **Atom Balls 4-pack** features a set of tactile balls designed to engage you
 
 These tactile fidget balls benefit users by improving concentration and calming restless hands during work, study, or downtime. Their compact size ensures they can be conveniently stored in a pocket or bag, making stress relief accessible anytime. Additionally, the reputable **Star Magic** brand guarantees a quality product that withstands frequent use, providing long-term value for customers seeking reliable tactile fidget tools.
 
-## <a href="https://www.amazon.com/dp/B09MSLV8C8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Top Trenz Omg Pop Fidgety Bubble Fidget Toy</a>
+## <a href="https://www.amazon.com/dp/B09MSLV8C8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Top Trenz Omg Pop Fidgety Bubble Fidget Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09MSLV8C8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Top Trenz OMG Pop Fidgety Bubble Fidget Toy Stress Relief Anxiety Boredom Keychain (BFF - Hot Sauce)" src="https://m.media-amazon.com/images/I/31s4qEuFZfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09MSLV8C8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Top Trenz OMG Pop Fidgety Bubble Fidget Toy Stress Relief Anxiety Boredom Keychain (BFF - Hot Sauce)" src="https://m.media-amazon.com/images/I/31s4qEuFZfL._SL500_.jpg"/></a>
 
 
 The **Top Trenz OMG Pop Fidgety Bubble Fidget Toy Stress Relief Anxiety Boredom Keychain (BFF - Hot Sauce)** is ideal for individuals who seek a portable and engaging way to reduce stress, anxiety, or boredom. Whether you are a student, professional, or someone with sensory needs, this compact **fidget toy** provides a fun and discreet outlet to keep your hands busy and your mind calm.
@@ -176,10 +176,10 @@ The **Top Trenz OMG Pop Fidgety Bubble Fidget Toy** offers an innovative sensory
 
 Crafted by manufacturer **7D-TMB3-E9M8**, this fidget toy boasts sturdy construction and bright **red color** that adds a lively touch to your everyday carry items. The simple yet effective design makes it suitable for children and adults alike, providing a discreet way to stay calm and engaged during stressful or dull moments.
 
-## <a href="https://www.amazon.com/dp/B0DYZK6LQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4pcs Panda Popp Tubes</a>
+## <a href="https://www.amazon.com/dp/B0DYZK6LQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4pcs Panda Popp Tubes</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYZK6LQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4Pcs Panda Popp Tubes with Telescopic Suction Cup, Panda Tube Animal Fidget Toys Austism Sensory Toys for Kids Toddler Birthday Party Favors" src="https://m.media-amazon.com/images/I/41xTu-rJowL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYZK6LQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4Pcs Panda Popp Tubes with Telescopic Suction Cup, Panda Tube Animal Fidget Toys Austism Sensory Toys for Kids Toddler Birthday Party Favors" src="https://m.media-amazon.com/images/I/41xTu-rJowL._SL500_.jpg"/></a>
 
 
 The **4Pcs Panda Popp Tubes with Telescopic Suction Cup** are ideal for parents, caregivers, and educators looking for engaging **sensory toys** specifically designed to support children with **autism** and toddlers who benefit from tactile and visual stimulation. These **animal fidget toys** make excellent **birthday party favors** and are perfect for kids who enjoy interactive play that helps improve focus and relieve anxiety.
@@ -202,10 +202,10 @@ The **4Pcs Panda Popp Tubes** feature a unique design incorporating cute panda s
 
 Beyond sensory benefits, these **fidget toys** offer a fun and engaging way for toddlers and young children to explore cause and effect. The popping sensation provides immediate feedback, helping to maintain focus and reduce restlessness during playtime or learning activities. Additionally, the appealing panda animal theme makes them a delightful gift choice for **birthday parties** or as party favors, encouraging social interaction and shared play among peers. The combination of sensory stimulation, portability, and playful design makes these tubes a valuable tool for both parents and educators.
 
-## <a href="https://www.amazon.com/dp/B0CTGDSXBF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srtodtg Magnetic Aluminum Alloy Fidget Toys</a>
+## <a href="https://www.amazon.com/dp/B0CTGDSXBF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Srtodtg Magnetic Aluminum Alloy Fidget Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTGDSXBF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SRTODTG Magnetic Aluminum Alloy Fidget Toys-Double Push Fidget Coin EDC Slider Fidget Toys,Anxiety Autism ADHD Gifts for Adults Teens, Valentine's Day Gift (Silver)" src="https://m.media-amazon.com/images/I/417gg19jskL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTGDSXBF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SRTODTG Magnetic Aluminum Alloy Fidget Toys-Double Push Fidget Coin EDC Slider Fidget Toys,Anxiety Autism ADHD Gifts for Adults Teens, Valentine's Day Gift (Silver)" src="https://m.media-amazon.com/images/I/417gg19jskL._SL500_.jpg"/></a>
 
 
 The **SRTODTG Magnetic Aluminum Alloy Fidget Toys** are perfect for individuals seeking a stylish and effective way to manage anxiety, autism, or ADHD symptoms. Ideal for both **adults and teens**, this double push fidget coin is a great tool for those who need a discreet and portable gadget to help improve focus and relieve stress throughout the day.
@@ -228,10 +228,10 @@ The **SRTODTG Magnetic Aluminum Alloy Fidget Toy** features a sleek and sturdy c
 
 Thanks to its compact dimensions (**Height: 0.98 Inches, Width: 2.95 Inches, Length: 3.15 Inches**), this fidget toy easily fits in pockets, bags, or on desks without being obtrusive. The lightweight aluminum alloy ensures durability without adding bulk, making it an excellent everyday carry (EDC) accessory. Whether used at work, school, or home, this versatile fidget toy helps reduce stress while improving attention span and productivity.
 
-## <a href="https://www.amazon.com/dp/B0F5H2254V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Female Empowerment Spinning Coin</a>
+## <a href="https://www.amazon.com/dp/B0F5H2254V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Female Empowerment Spinning Coin</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5H2254V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Female Empowerment Spinning Coin, Empowering Beauty Design, Creative Fidget Toy,Perfect for Enthusiasts and Stress Relief (Single Coin)" src="https://m.media-amazon.com/images/I/51ufz1dql9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5H2254V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Female Empowerment Spinning Coin, Empowering Beauty Design, Creative Fidget Toy,Perfect for Enthusiasts and Stress Relief (Single Coin)" src="https://m.media-amazon.com/images/I/51ufz1dql9L._SL500_.jpg"/></a>
 
 
 The **Female Empowerment Spinning Coin** is ideal for individuals seeking a meaningful and creative way to channel stress and enhance focus. Perfect for enthusiasts of unique fidget toys and supporters of empowering designs, this item appeals to those who appreciate both functionality and symbolism in their everyday accessories. Whether you want to relieve anxiety or simply enjoy the tactile satisfaction of spinning a beautifully crafted coin, this product is designed for you.
@@ -253,10 +253,10 @@ The **Female Empowerment Spinning Coin** stands out with its creative design tha
 
 Crafted by **PUOEYTA**, this spinning coin is engineered for smooth spinning action, enhancing the sensory experience and providing immediate stress relief. Its lightweight construction means it won't weigh you down, and the durable materials guarantee longevity even with frequent use. Overall, this item combines symbolic meaning with practical benefits, making it a thoughtful gift and a personal tool for daily empowerment and relaxation.
 
-## <a href="https://www.amazon.com/dp/B0DTKS18YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pixelaura Fidget Toys For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DTKS18YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pixelaura Fidget Toys For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTKS18YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PixelAura Fidget Toys for Adults, 10 Clickable Buttons Fidget Toy, Camera Fidget Toys,Relieves Stress Cube Fidget Block" src="https://m.media-amazon.com/images/I/41r6-zAhPPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTKS18YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PixelAura Fidget Toys for Adults, 10 Clickable Buttons Fidget Toy, Camera Fidget Toys,Relieves Stress Cube Fidget Block" src="https://m.media-amazon.com/images/I/41r6-zAhPPL._SL500_.jpg"/></a>
 
 
 The **PixelAura Fidget Toys for Adults** are perfect for individuals seeking a stylish and effective way to relieve stress and improve focus. Ideal for professionals, students, or anyone who enjoys tactile stimulation, this fidget toy is designed to keep restless hands busy while promoting relaxation and concentration.

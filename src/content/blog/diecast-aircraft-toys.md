@@ -23,10 +23,10 @@ These toys help children learn about aviation and spark imagination. They also m
 
 
 
-## <a href="https://www.amazon.com/dp/B0CJXRT1C3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci 5 Pack Army Navy Airplane Toys Set</a>
+## <a href="https://www.amazon.com/dp/B0CJXRT1C3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci 5 Pack Army Navy Airplane Toys Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJXRT1C3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci 5 Pack Army Navy Airplane Toys Set with Light &amp; Sounds, Military Fighter Jet Die Cast Plane Metal Aircraft Toy, Pull Back Aircraft Gift for Kids Toddlers Boys Girls Ages 3+" src="https://m.media-amazon.com/images/I/415YzzML1zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJXRT1C3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci 5 Pack Army Navy Airplane Toys Set with Light &amp; Sounds, Military Fighter Jet Die Cast Plane Metal Aircraft Toy, Pull Back Aircraft Gift for Kids Toddlers Boys Girls Ages 3+" src="https://m.media-amazon.com/images/I/415YzzML1zL._SL500_.jpg"/></a>
 
 
 Ideal for **children ages 3 and up**, the **Crelloci 5 Pack Army Navy Airplane Toys Set** is perfect for kids who love **military fighter jets** and enjoy interactive play. This set appeals to toddlers, boys, and girls who are fascinated by airplanes and want a durable, engaging toy that offers both visual and auditory stimulation.
@@ -49,12 +49,12 @@ The **Crelloci 5 Pack Army Navy Airplane Toys Set** offers a thrilling combinati
 
 With realistic detailing and a compact size, these aircraft are easy for little hands to handle and perfect for both solo and group play. The set's versatility allows children to imagine exciting military missions, fostering creativity and storytelling. Overall, this set is a fantastic gift choice that combines fun, learning, and durability in one package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CJXRT1C3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CJXRT1C3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08F7T5TPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artcreativity Diecast Stealth Bomber Toy Jets</a>
+## <a href="https://www.amazon.com/dp/B08F7T5TPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artcreativity Diecast Stealth Bomber Toy Jets</a>
 
 
-<a href="https://www.amazon.com/dp/B08F7T5TPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ArtCreativity Diecast Stealth Bomber Toy Jets with Pullback Mechanism, Set of 4 B-2 Spirit Bombers, Diecast Metal Jet Plane Airplane Toys, B2 Bomber Model, Military Cake Decorations, Aviation Party" src="https://m.media-amazon.com/images/I/51j4jfY5s0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08F7T5TPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ArtCreativity Diecast Stealth Bomber Toy Jets with Pullback Mechanism, Set of 4 B-2 Spirit Bombers, Diecast Metal Jet Plane Airplane Toys, B2 Bomber Model, Military Cake Decorations, Aviation Party" src="https://m.media-amazon.com/images/I/51j4jfY5s0L._SL500_.jpg"/></a>
 
 
 The **ArtCreativity Diecast Stealth Bomber Toy Jets** are ideal for aviation enthusiasts, collectors of military models, and children who love imaginative play with realistic airplane toys. These detailed **B-2 Spirit Bomber** replicas are perfect for those looking to add a touch of authenticity to their collection or for parents seeking durable and engaging toys for their kids. Additionally, these jets serve as unique **military cake decorations** and are excellent for **aviation-themed parties**.
@@ -78,12 +78,12 @@ The **ArtCreativity Diecast Stealth Bomber Toy Jets** feature a robust diecast m
 
 Measuring a compact **2.25 inches in height** and lightweight at just **0.37 pounds**, these jets are easy to handle for children and convenient to display for collectors. Their sleek black finish lends a stealthy and authentic appearance, enhancing their appeal as **military cake decorations** or as part of aviation-themed party setups. Whether for play, display, or special events, these models combine functionality with impressive design.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08F7T5TPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08F7T5TPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BFGJSBKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci Army Airplane Toys Set</a>
+## <a href="https://www.amazon.com/dp/B0BFGJSBKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci Army Airplane Toys Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFGJSBKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci 4PCS Army Airplane Toys Set-Diecast Aircraft Plane Model Kit Military Fighter Jet Playset Helicopter Camouflage Pull Back Aircraft Kids Play Vehicle for 3+Year Old Boys Girls" src="https://m.media-amazon.com/images/I/41OMskiN5rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFGJSBKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci 4PCS Army Airplane Toys Set-Diecast Aircraft Plane Model Kit Military Fighter Jet Playset Helicopter Camouflage Pull Back Aircraft Kids Play Vehicle for 3+Year Old Boys Girls" src="https://m.media-amazon.com/images/I/41OMskiN5rL._SL500_.jpg"/></a>
 
 
 The **Crelloci 4PCS Army Airplane Toys Set** is ideal for young children aged 3 years and older who have a fascination with military aircraft and enjoy imaginative play. This set is perfect for both boys and girls who love airplanes, helicopters, and fighter jets, making it an excellent choice for parents or gift-givers looking to inspire creativity and interest in aviation.
@@ -105,12 +105,12 @@ The **Crelloci Army Airplane Toys Set** features meticulously crafted diecast mo
 
 Beyond entertainment, these toys support early childhood development by fostering imaginative scenarios and improving hand-eye coordination. The robust build quality ensures the set withstands rough play, making it a reliable addition to any child's toy collection. Whether used for solo play or group activities, the Crelloci 4PCS Army Airplane Toys Set offers endless fun and educational value for boys and girls alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BFGJSBKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BFGJSBKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Airplane 6 Pack</a>
+## <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Airplane 6 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Airplane 6 Pack, Diecast Airplane Toy for Boys Age 3 4-7 8-12, Alloy Planes Model/Glider Planes/Airlines Plane Toys for Kids Birthday Cake Toppers Airforce Party Favors" src="https://m.media-amazon.com/images/I/51UVjc5B8zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Airplane 6 Pack, Diecast Airplane Toy for Boys Age 3 4-7 8-12, Alloy Planes Model/Glider Planes/Airlines Plane Toys for Kids Birthday Cake Toppers Airforce Party Favors" src="https://m.media-amazon.com/images/I/51UVjc5B8zL._SL500_.jpg"/></a>
 
 
 The **Toy Airplane 6 Pack** is perfect for parents and gift-givers looking for engaging and durable toys for boys aged **3 to 12 years**. Ideal for children who have an interest in aviation, model planes, or imaginative play, these **diecast airplane toys** serve as excellent birthday presents, party favors, or cake toppers that can spark creativity and fascination with flying machines.
@@ -133,12 +133,12 @@ The **Toy Airplane 6 Pack** by **Tcvents** offers a delightful collection of min
 
 Beyond playtime, these airplanes double as creative **birthday cake toppers** and unique **airforce party favors**, adding charm to any celebration. The bright and varied colors appeal to children’s visual senses, while the metal finish gives the toys an authentic feel that plastic models often lack. Whether used for imaginative role-playing or as collectible items, these diecast planes foster a passion for aviation and inspire children’s curiosity about the world of flight.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wngaur Airplane Model</a>
+## <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wngaur Airplane Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WngAur Airplane Model, FedEx Aircraft Die-cast Metal Planes Suitable for Collection and Desktop Decor" src="https://m.media-amazon.com/images/I/31BAVej7VbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WngAur Airplane Model, FedEx Aircraft Die-cast Metal Planes Suitable for Collection and Desktop Decor" src="https://m.media-amazon.com/images/I/31BAVej7VbL._SL500_.jpg"/></a>
 
 
 The **WngAur Airplane Model** is perfect for aviation enthusiasts, collectors, or anyone looking to add a touch of elegance to their desktop or office space. If you appreciate finely crafted die-cast metal replicas or are a fan of **FedEx** aircraft, this model serves as an ideal decorative piece or a thoughtful gift. Its compact size and detailed design make it suitable for both display and collection purposes.
@@ -160,12 +160,12 @@ The **WngAur Airplane Model** stands out due to its meticulous design and use of
 
 Additionally, the model’s white finish and precise dimensions enhance its aesthetic appeal, making it versatile for various decor themes. Whether displayed individually or as part of a larger collection, the WngAur airplane model brings a sense of sophistication and passion for aviation to any setting. Its quality build from a reputable manufacturer ensures that it remains a lasting piece for enthusiasts and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00IXWXGAI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playmaker Toys - Die-cast Metal United States Air Force Stealth Aircraft Set</a>
+## <a href="https://www.amazon.com/dp/B00IXWXGAI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playmaker Toys - Die-cast Metal United States Air Force Stealth Aircraft Set</a>
 
 
-<a href="https://www.amazon.com/dp/B00IXWXGAI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Playmaker Toys - Die-Cast Metal United States Air Force Stealth Aircraft Set, 4.5 Inch, 4-Pack with Pullback Action, B2 Bomber, SR-71 Blackbird, F-117 Nighthawk, F/A-22 Raptor" src="https://m.media-amazon.com/images/I/411CGdOnS0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IXWXGAI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Playmaker Toys - Die-Cast Metal United States Air Force Stealth Aircraft Set, 4.5 Inch, 4-Pack with Pullback Action, B2 Bomber, SR-71 Blackbird, F-117 Nighthawk, F/A-22 Raptor" src="https://m.media-amazon.com/images/I/411CGdOnS0L._SL500_.jpg"/></a>
 
 
 Ideal for **military enthusiasts**, **collectors of die-cast models**, and **children with a passion for aviation**, the **Playmaker Toys Die-Cast Metal United States Air Force Stealth Aircraft Set** offers an exciting way to explore iconic stealth aircraft. This set is perfect for those who appreciate **detailed replicas** and enjoy interactive play with authentic pullback action features.
@@ -188,12 +188,12 @@ The **Playmaker Toys Stealth Aircraft Set** stands out with its impressive colle
 
 Beyond just aesthetics, the compact dimensions and lightweight design make this set highly portable and easy to handle. Whether used as a collectible or a toy, the durability of the metal ensures that these aircraft can withstand regular use. This combination of authenticity, functionality, and size makes the Playmaker Toys set an excellent choice for anyone looking to enjoy or showcase some of the most iconic stealth aircraft in the United States Air Force fleet.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00IXWXGAI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00IXWXGAI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DHXMYQTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quana Airplane Toys</a>
+## <a href="https://www.amazon.com/dp/B0DHXMYQTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quana Airplane Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHXMYQTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUANA Airplane Toys, Metal Plane Pull Back Toys for Kids 3-6 Years, Die Cast Aircraft Models, Play Vehicles" src="https://m.media-amazon.com/images/I/416Vd6ySyRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHXMYQTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUANA Airplane Toys, Metal Plane Pull Back Toys for Kids 3-6 Years, Die Cast Aircraft Models, Play Vehicles" src="https://m.media-amazon.com/images/I/416Vd6ySyRL._SL500_.jpg"/></a>
 
 
 Ideal for young aviation enthusiasts aged 3 to 6 years, the **QUANA Airplane Toys** are perfect for children who love imaginative play and exploring the world of aircraft. These **metal plane pull back toys** offer a safe and engaging way for kids to develop motor skills and creativity while enjoying realistic **die cast aircraft models**.
@@ -215,12 +215,12 @@ The **QUANA Airplane Toys** feature a sturdy **metal build** crafted by **DESONG
 
 With their compact design and smooth edges, these **die cast aircraft models** are not only safe but also convenient for on-the-go play. They inspire curiosity about aviation and encourage children to create stories and scenarios, which supports cognitive development and social skills. Overall, these toys combine fun, education, and durability, making them an excellent addition to any child's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DHXMYQTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DHXMYQTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00DOTA9Q4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Runway24 Cessna 172 2000 Skyhawk Diecast Airplane Model</a>
+## <a href="https://www.amazon.com/dp/B00DOTA9Q4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Runway24 Cessna 172 2000 Skyhawk Diecast Airplane Model</a>
 
 
-<a href="https://www.amazon.com/dp/B00DOTA9Q4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Runway24 Cessna 172 2000 Skyhawk Blue/White 1:87 Scale Diecast Airplane Model with Runway" src="https://m.media-amazon.com/images/I/41yC7mG7cVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DOTA9Q4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Runway24 Cessna 172 2000 Skyhawk Blue/White 1:87 Scale Diecast Airplane Model with Runway" src="https://m.media-amazon.com/images/I/41yC7mG7cVL._SL500_.jpg"/></a>
 
 
 The **Daron Runway24 Cessna 172 2000 Skyhawk Blue/White 1:87 Scale Diecast Airplane Model** is ideal for aviation enthusiasts, collectors of diecast models, and children who enjoy detailed toy airplanes. If you appreciate precision craftsmanship and want a compact, high-quality replica of the iconic Cessna 172 Skyhawk, this model is a perfect choice. It also appeals to those looking for a decorative piece or educational tool that showcases the classic aircraft design.
@@ -242,12 +242,12 @@ The **Daron Runway24 Cessna 172 2000 Skyhawk** model features precise dimensions
 
 Beyond its aesthetic appeal, this model offers educational value by giving users an opportunity to explore the design and structure of the classic Cessna 172 Skyhawk. The included runway accessory enhances imaginative play, allowing users to simulate takeoffs and landings. Whether for a hobbyist's collection or a child's aviation-themed playroom, this diecast airplane model combines realism, durability, and fun in one compact package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00DOTA9Q4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00DOTA9Q4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C6Q4F88L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Double Pack Military Fighter Jet Toy Planes</a>
+## <a href="https://www.amazon.com/dp/B0C6Q4F88L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Double Pack Military Fighter Jet Toy Planes</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6Q4F88L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Double Pack Military Fighter Jet Toy Planes, Pull Back Diecast Alloy Army Airplanes with Lights &amp; Sounds, Metal Toy Aircraft Gift for Kids, Toddlers, Boys and Girls" src="https://m.media-amazon.com/images/I/41mCWmg6rrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6Q4F88L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Double Pack Military Fighter Jet Toy Planes, Pull Back Diecast Alloy Army Airplanes with Lights &amp; Sounds, Metal Toy Aircraft Gift for Kids, Toddlers, Boys and Girls" src="https://m.media-amazon.com/images/I/41mCWmg6rrL._SL500_.jpg"/></a>
 
 
 The **Double Pack Military Fighter Jet Toy Planes** by **HOLYFUN** are perfect for kids, toddlers, boys, and girls who are fascinated by aviation and military aircraft. These **pull back diecast alloy army airplanes** provide an engaging and interactive play experience, making them ideal for young enthusiasts who enjoy imaginative play and collecting detailed toy models.
@@ -270,12 +270,12 @@ The **Double Pack Military Fighter Jet Toy Planes** feature a sturdy **diecast a
 
 Designed in an appealing **blue color** and sized perfectly for young hands, these toy planes are excellent for both solo and group play. The double pack offers two jets, enabling kids to engage in role-playing battles or racing games. Overall, these military fighter jets combine realistic design, interactive features, and durable materials, making them a fantastic gift choice for any child interested in aircraft and adventure play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C6Q4F88L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C6Q4F88L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B4R6PHHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci Toy Airplane 6 Pack Mini Diecast Aircraft</a>
+## <a href="https://www.amazon.com/dp/B0B4R6PHHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci Toy Airplane 6 Pack Mini Diecast Aircraft</a>
 
 
-<a href="https://www.amazon.com/dp/B0B4R6PHHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci Toy Airplane 6 Pack Mini Diecast Aircraft, Playset Includes Glider and Airlines Planes for Birthday Party Favor Toys for Kids Boys and Girls" src="https://m.media-amazon.com/images/I/51hqvbbBxBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B4R6PHHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci Toy Airplane 6 Pack Mini Diecast Aircraft, Playset Includes Glider and Airlines Planes for Birthday Party Favor Toys for Kids Boys and Girls" src="https://m.media-amazon.com/images/I/51hqvbbBxBL._SL500_.jpg"/></a>
 
 
 The **Crelloci Toy Airplane 6 Pack Mini Diecast Aircraft** is perfect for parents looking to delight their children with a fun and educational toy. Ideal for kids who love aviation and imaginative play, this set is suitable for both boys and girls and makes a great birthday party favor or gift. It’s designed for young children who enjoy collecting and playing with miniature vehicles, fostering creativity and fine motor skills.
@@ -298,7 +298,7 @@ The **Crelloci Toy Airplane 6 Pack** offers a delightful assortment of mini diec
 
 Beyond just fun, these mini aircraft provide educational value by helping children develop hand-eye coordination and fine motor skills as they grasp, throw, and navigate the planes. The colorful and varied designs appeal to a wide audience, supporting inclusive play for both boys and girls. Whether used as party favors or personal toys, this set adds value by combining entertainment, learning, and portability in one compact package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B4R6PHHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B4R6PHHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

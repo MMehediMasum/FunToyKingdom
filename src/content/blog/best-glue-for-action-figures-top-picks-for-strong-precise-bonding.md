@@ -23,10 +23,10 @@ Prodigy Toys Naruto figures come with special adhesive designed for their materi
 
 
 
-## <a href="https://www.amazon.com/dp/B000BMYWYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tamiya Extra Thin Cement Glue</a>
+## <a href="https://www.amazon.com/dp/B000BMYWYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tamiya Extra Thin Cement Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B000BMYWYC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tamiya 87038 Extra Thin Cement Glue Fine Tip 40ml" src="https://m.media-amazon.com/images/I/31Ez4295CqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BMYWYC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tamiya 87038 Extra Thin Cement Glue Fine Tip 40ml" src="https://m.media-amazon.com/images/I/31Ez4295CqL._SL500_.jpg"/></a>
 
 
 The **Tamiya 87038 Extra Thin Cement Glue Fine Tip 40ml** is ideal for model enthusiasts and hobbyists who require a precise and reliable adhesive for assembling plastic models. Whether you are a beginner or an experienced builder, this glue is perfect for those who value accuracy and a clean finish in their projects. Its fine tip applicator makes it especially suitable for delicate parts and detailed work.
@@ -49,10 +49,10 @@ The **Tamiya 87038 Extra Thin Cement Glue** features a highly effective solvent 
 
 Additionally, the glue dries clear, which helps maintain the visual integrity of assembled models without unsightly glue marks. Its compact dimensions and lightweight build make it convenient to handle and store, fitting comfortably in any hobby workspace. Overall, this product combines precision, effectiveness, and ease of use, making it a valuable tool for anyone passionate about model building.
 
-## <a href="https://www.amazon.com/dp/B0D8SK84KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ingwetech 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set</a>
+## <a href="https://www.amazon.com/dp/B0D8SK84KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ingwetech 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8SK84KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INGWETECH 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set HK53, MK18, MPSSDS, Uzi, KRISVECTOP, MPS, MP40, MP7 for DIY Military Toy Collectioin" src="https://m.media-amazon.com/images/I/41iiWBbM-oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8SK84KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INGWETECH 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set HK53, MK18, MPSSDS, Uzi, KRISVECTOP, MPS, MP40, MP7 for DIY Military Toy Collectioin" src="https://m.media-amazon.com/images/I/41iiWBbM-oL._SL500_.jpg"/></a>
 
 
 The **INGWETECH 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set** is ideal for hobbyists and collectors who enjoy detailed military models and DIY assembly projects. This set is perfect for enthusiasts looking to expand their collection with realistic miniature replicas of iconic submachine guns like the **HK53, MK18, MPSSDS, Uzi, KRISVECTOP, MPS, MP40,** and **MP7**. It also suits parents and children interested in educational toys that encourage creativity and fine motor skills.
@@ -75,10 +75,10 @@ Each toy in the **INGWETECH Assembly Submachine Gun Set** is meticulously crafte
 
 Beyond aesthetics, this set supports creativity and cognitive development through the DIY assembly process. Users engage in problem-solving as they piece together each submachine gun, fostering patience and concentration. The durable materials used by **INGWETECH** and **4D** guarantee long-lasting enjoyment, making this set both a fun and educational investment for collectors and young enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B07N8RLJBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prodigy Toys Naruto Uchiha Madara Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07N8RLJBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prodigy Toys Naruto Uchiha Madara Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07N8RLJBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Prodigy Toys Naruto Uchiha Madara Action Figure (Comes with Adhesive Glue)" src="https://m.media-amazon.com/images/I/41qp8gU8JUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N8RLJBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Prodigy Toys Naruto Uchiha Madara Action Figure (Comes with Adhesive Glue)" src="https://m.media-amazon.com/images/I/41qp8gU8JUL._SL500_.jpg"/></a>
 
 
 The **Prodigy Toys Naruto Uchiha Madara Action Figure** is perfect for avid **Naruto fans** and collectors looking to enhance their display with a highly detailed and dynamic figure. Ideal for both children and adult enthusiasts, this figure appeals to those who appreciate **anime memorabilia** and enjoy recreating iconic scenes or simply showcasing their favorite characters. If you seek a durable, visually striking piece to add to your collection, this item is a great choice.
@@ -101,10 +101,10 @@ The **Prodigy Toys Naruto Uchiha Madara Action Figure** stands out for its metic
 
 Manufactured by **Henry & Co.**, this figure combines quality and authenticity, appealing to those who value precision in their collectibles. The figure’s detailed sculpting and paintwork enable fans to appreciate the character's iconic look, adding both aesthetic and sentimental value. Whether displayed on a shelf or used for imaginative play, this action figure provides a tangible connection to the beloved **Naruto** series.
 
-## <a href="https://www.amazon.com/dp/B07JL7SXRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Naruto Figure</a>
+## <a href="https://www.amazon.com/dp/B07JL7SXRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Naruto Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07JL7SXRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Naruto, in Sage Mode/Naruto Figure Using The His Ultimate Move Rasenshuriken. (Comes with Adhesive Glue!)" src="https://m.media-amazon.com/images/I/31j+k38Kv1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JL7SXRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Naruto, in Sage Mode/Naruto Figure Using The His Ultimate Move Rasenshuriken. (Comes with Adhesive Glue!)" src="https://m.media-amazon.com/images/I/31j+k38Kv1L._SL500_.jpg"/></a>
 
 
 The **Naruto Figure Using His Ultimate Move Rasenshuriken** in **Sage Mode** is perfect for avid **Naruto fans**, **anime collectors**, and anyone who appreciates detailed **action figures** that capture iconic moments from the series. If you want to add a dynamic and vividly designed piece to your collection or gift a fellow anime enthusiast, this figure is an ideal choice.
@@ -126,10 +126,10 @@ This **Naruto figure** stands out by showcasing Naruto in his powerful **Sage Mo
 
 Beyond aesthetics, the figure’s size and included adhesive glue allow collectors to securely display it without worrying about stability. The collaboration between **Prodigy Toys** and **Henry & Co.** ensures a high-quality product that meets the expectations of dedicated anime merchandise collectors. Whether displayed on a desk, shelf, or in a cabinet, this figure adds vibrant energy and authenticity to any Naruto-themed collection.
 
-## <a href="https://www.amazon.com/dp/B0DK9J416Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acrylic Display Cases For Collectibles</a>
+## <a href="https://www.amazon.com/dp/B0DK9J416Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acrylic Display Cases For Collectibles</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK9J416Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Acrylic Display Cases for Collectibles, 3 Tier Clear Shelf Boxes for Figures, Miniature Dustproof and Stackable Action Figure Display Case (1, Small)" src="https://m.media-amazon.com/images/I/41JqO0j98eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK9J416Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Acrylic Display Cases for Collectibles, 3 Tier Clear Shelf Boxes for Figures, Miniature Dustproof and Stackable Action Figure Display Case (1, Small)" src="https://m.media-amazon.com/images/I/41JqO0j98eL._SL500_.jpg"/></a>
 
 
 The **Acrylic Display Cases for Collectibles, 3 Tier Clear Shelf Boxes** are perfect for collectors and hobbyists who want to showcase their **action figures**, **miniatures**, or other valuable collectibles in a neat, organized, and dust-free environment. Ideal for those with limited space but a growing collection, these cases offer a stylish and practical solution to display items while keeping them protected.
@@ -151,10 +151,10 @@ Crafted by **Cocheetah**, this **clear acrylic display case** offers both durabi
 
 The 3-tier shelf layout is thoughtfully designed to optimize space, enabling collectors to display multiple items neatly without clutter. Additionally, the stackable feature is especially beneficial for expanding collections, allowing users to customize their display setup as their assortment of collectibles grows. With compact dimensions, this display case fits perfectly on shelves, desks, or display cabinets, making it a versatile choice for both casual collectors and serious enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0C3QGZM2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yolopark Bumblebee Transformers Toy</a>
+## <a href="https://www.amazon.com/dp/B0C3QGZM2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yolopark Bumblebee Transformers Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3QGZM2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOLOPARK Bumblebee Transformers Toy Rise of The Beasts Action Figure,Highly Articulated 6.5 Inch Transformer Toys for Boys Girls 8 Years Old and Up,No Converting Bumblebee Model Kit" src="https://m.media-amazon.com/images/I/51JgbClMyOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3QGZM2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YOLOPARK Bumblebee Transformers Toy Rise of The Beasts Action Figure,Highly Articulated 6.5 Inch Transformer Toys for Boys Girls 8 Years Old and Up,No Converting Bumblebee Model Kit" src="https://m.media-amazon.com/images/I/51JgbClMyOL._SL500_.jpg"/></a>
 
 
 The **YOLOPARK Bumblebee Transformers Toy Rise of The Beasts Action Figure** is ideal for children aged 8 years and up who love **Transformers** and action figures that offer dynamic play. This toy is perfect for both boys and girls who enjoy imaginative storytelling and collecting highly detailed figures without the complexity of converting parts.
@@ -177,10 +177,10 @@ The **YOLOPARK Bumblebee Transformers Toy** stands out with its highly articulat
 
 Unlike traditional Transformer toys that require complex converting, this model focuses on ease of use and safety, making it an excellent choice for younger fans or collectors who prefer a non-transforming figure. Being a first edition from **YOLOPARK**, it offers a collectible value alongside its play features. Overall, this action figure combines detailed articulation with user-friendly design, providing hours of imaginative play and display appeal for enthusiasts of the **Rise of The Beasts** series.
 
-## <a href="https://www.amazon.com/dp/B0F9XWW96V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blokees Figures Transformers Action Edition 03 Soundwave</a>
+## <a href="https://www.amazon.com/dp/B0F9XWW96V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blokees Figures Transformers Action Edition 03 Soundwave</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9XWW96V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLOKEES Figures Transformers Action Edition 03 Soundwave" src="https://m.media-amazon.com/images/I/41-oudKvRsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9XWW96V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLOKEES Figures Transformers Action Edition 03 Soundwave" src="https://m.media-amazon.com/images/I/41-oudKvRsL._SL500_.jpg"/></a>
 
 
 The **BLOKEES Figures Transformers Action Edition 03 Soundwave** is perfect for collectors, Transformers enthusiasts, and kids who love action-packed playtime. If you're looking for a detailed and colorful figure that brings the iconic Soundwave character to life, this item is an excellent choice. Ideal customers include fans of the Transformers series, toy collectors seeking high-quality figures, and parents wanting a durable and engaging toy for their children.
@@ -201,10 +201,10 @@ The **BLOKEES Figures Transformers Action Edition 03 Soundwave** stands out due 
 
 Additionally, this figure offers an impressive balance between aesthetic appeal and functionality. While it may not have extensive articulation like some other models, its design focuses on capturing the character's iconic look, which appeals greatly to fans and collectors. Overall, the **BLOKEES Transformers Soundwave** figure delivers an engaging experience with strong visual impact and collectible value.
 
-## <a href="https://www.amazon.com/dp/B0D7PVRZVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muxhel Clear Display Case For Figures</a>
+## <a href="https://www.amazon.com/dp/B0D7PVRZVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muxhel Clear Display Case For Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7PVRZVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUXHEL 1 Pcs Clear Display Case for Figures, 8 Tiers Mini Figure Display Box Wall Mounted, Dust Proof Display Cabinet for Mini Action Figures (Cream)" src="https://m.media-amazon.com/images/I/41s+s99UsUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7PVRZVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUXHEL 1 Pcs Clear Display Case for Figures, 8 Tiers Mini Figure Display Box Wall Mounted, Dust Proof Display Cabinet for Mini Action Figures (Cream)" src="https://m.media-amazon.com/images/I/41s+s99UsUL._SL500_.jpg"/></a>
 
 
 The **MUXHEL 1 Pcs Clear Display Case for Figures** is ideal for collectors and enthusiasts who want to showcase their **mini action figures** in an organized and visually appealing way. If you are someone who values keeping your collectibles dust-free while displaying them elegantly, this **8 tiers mini figure display box** is perfect for your needs. It is especially suitable for individuals with limited space who want a wall-mounted solution to highlight their figure collection.
@@ -226,10 +226,10 @@ The **MUXHEL Clear Display Case** boasts a practical design with its **8 tiers**
 
 Crafted by the **MUXHEL brand**, this display cabinet combines functionality with aesthetics. The subtle **cream color** adds a touch of elegance without overpowering the figures on display, making it a versatile option for any room setting. Additionally, its sturdy build, reflected in its weight of about **2.47 pounds**, ensures durability and reliable support for your valuable collectibles. Overall, this display case offers a smart and stylish way to protect and showcase your mini figures effectively.
 
-## <a href="https://www.amazon.com/dp/B0D9K6BH3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosmos 12 Pcs Round Action Figure Stand Base Acrylic Figure Display Stands</a>
+## <a href="https://www.amazon.com/dp/B0D9K6BH3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosmos 12 Pcs Round Action Figure Stand Base Acrylic Figure Display Stands</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9K6BH3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cosmos 12 Pcs Round Action Figure Stand Base Acrylic Figure Display Stands Miniature Bases Mini Doll Model Display Holder Accessories for Figures, Dolls, Small Collectibles (Transparent Clear, 50mm)" src="https://m.media-amazon.com/images/I/31hMbe-6vcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9K6BH3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cosmos 12 Pcs Round Action Figure Stand Base Acrylic Figure Display Stands Miniature Bases Mini Doll Model Display Holder Accessories for Figures, Dolls, Small Collectibles (Transparent Clear, 50mm)" src="https://m.media-amazon.com/images/I/31hMbe-6vcL._SL500_.jpg"/></a>
 
 
 The **Cosmos 12 Pcs Round Action Figure Stand Base** is ideal for collectors, hobbyists, and enthusiasts who want a sturdy and stylish way to display their **figures, dolls, and small collectibles**. If you need a clear, unobtrusive stand that enhances the visibility of your miniature models without distracting from their details, this set is perfect for you.
@@ -251,10 +251,10 @@ The **Cosmos acrylic figure display stands** boast a clean, minimalist design th
 
 Each stand’s **50mm diameter** offers ample space to securely hold various small collectibles, enhancing stability and preventing accidental falls. The lightweight yet durable construction means you can easily rearrange or transport your displays without hassle. Overall, these stands deliver a perfect balance of functionality and aesthetic appeal, helping collectors present their prized items with confidence and style.
 
-## <a href="https://www.amazon.com/dp/B0F9N6Z8N6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lolysic Small Action Figure Stand With Display Holder Base</a>
+## <a href="https://www.amazon.com/dp/B0F9N6Z8N6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lolysic Small Action Figure Stand With Display Holder Base</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9N6Z8N6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOLYSIC 20 Pack Small Action Figure Stand with Display Holder Base Clear Action Figure Accessories Plastic Stand Display for 6 Inch or 1/144 Hg/rg Model, with 2 Screwdriver" src="https://m.media-amazon.com/images/I/31-pwTZupYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9N6Z8N6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOLYSIC 20 Pack Small Action Figure Stand with Display Holder Base Clear Action Figure Accessories Plastic Stand Display for 6 Inch or 1/144 Hg/rg Model, with 2 Screwdriver" src="https://m.media-amazon.com/images/I/31-pwTZupYL._SL500_.jpg"/></a>
 
 
 The **LOLISIC 20 Pack Small Action Figure Stand** is ideal for collectors and hobbyists who own **6 Inch action figures** or **1/144 Hg/rg models**. If you want to display your figures neatly and securely while maintaining a clean, unobtrusive look, this set is perfect for you. It is also suitable for those who need a reliable and versatile stand to enhance the presentation of their collectibles or models.

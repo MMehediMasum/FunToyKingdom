@@ -99,11 +99,11 @@ Choosing the right toys can support your baby’s development. Here are some top
 
 ### Tummy Time Mats
 
-[Tummy time mats](https://www.amazon.com/s?k=tummy+time+mats&tag=gearcookware-20) provide a soft surface for babies to practice rolling. They often have bright colors and patterns to catch a baby’s attention. These mats help strengthen neck and arm muscles.
+[Tummy time mats](https://www.amazon.com/s?k=tummy+time+mats&tag=mofb05-20) provide a soft surface for babies to practice rolling. They often have bright colors and patterns to catch a baby’s attention. These mats help strengthen neck and arm muscles.
 
 ### Soft Rolling Balls
 
-[Soft rolling balls](https://www.amazon.com/s?k=soft+rolling+balls+for+babies&tag=gearcookware-20) encourage babies to move and reach. They can push or roll the balls, which helps improve motor skills. These balls are safe and easy to grab.
+[Soft rolling balls](https://www.amazon.com/s?k=soft+rolling+balls+for+babies&tag=mofb05-20) encourage babies to move and reach. They can push or roll the balls, which helps improve motor skills. These balls are safe and easy to grab.
 
 * Made of soft, non-toxic material
 * Easy for small hands to hold
@@ -113,7 +113,7 @@ Choosing the right toys can support your baby’s development. Here are some top
 
 ### Activity Gyms
 
-[Activity gyms](https://www.amazon.com/s?k=baby+activity+gyms&tag=gearcookware-20) offer toys that hang above a soft mat. Babies reach and bat at hanging toys. This encourages rolling to reach different items. Many gyms include mirrors and textured toys for extra fun.
+[Activity gyms](https://www.amazon.com/s?k=baby+activity+gyms&tag=mofb05-20) offer toys that hang above a soft mat. Babies reach and bat at hanging toys. This encourages rolling to reach different items. Many gyms include mirrors and textured toys for extra fun.
 
 |  |  |
 | --- | --- |
@@ -125,7 +125,7 @@ Choosing the right toys can support your baby’s development. Here are some top
 
 ### Musical Toys
 
-[Musical toys](https://www.amazon.com/s?k=musical+toys+for+babies&tag=gearcookware-20) attract babies with sounds and lights. They encourage movement to explore and find the source of the music. This helps babies practice rolling and coordination.
+[Musical toys](https://www.amazon.com/s?k=musical+toys+for+babies&tag=mofb05-20) attract babies with sounds and lights. They encourage movement to explore and find the source of the music. This helps babies practice rolling and coordination.
 
 Tips for using musical toys:
 
@@ -190,7 +190,7 @@ Choose a soft, flat surface for your baby to play on. A clean blanket or play ma
 
 Keep the area quiet and calm so your baby can focus. Check that the floor is not slippery and the room temperature is comfortable.
 
-* Use a [padded play mat](https://www.amazon.com/s?k=padded+baby+play+mat&tag=gearcookware-20) or blanket
+* Use a [padded play mat](https://www.amazon.com/s?k=padded+baby+play+mat&tag=mofb05-20) or blanket
 * Clear away toys that might cause harm
 * Ensure the space is free from drafts
 * Supervise your baby at all times

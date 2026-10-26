@@ -48,7 +48,7 @@ Check the following:
 | --- | --- |
 | Problem | Fix |
 | Loose wires | Secure all wires inside the sound box |
-| Dead batteries | Replace [batteries](https://www.amazon.com/s?k=small+toy+batteries&tag=gearcookware-20) if present |
+| Dead batteries | Replace [batteries](https://www.amazon.com/s?k=small+toy+batteries&tag=mofb05-20) if present |
 | Damaged speaker | Replace or repair the speaker |
 
 ### String Breakage
@@ -86,18 +86,18 @@ This guide lists the essential items you need to fix the pull string properly an
 
 A basic repair kit contains tools that help open, fix, and close the toy without damage. These tools make the job easier and cleaner.
 
-* [Small screwdriver set](https://www.amazon.com/s?k=small+screwdriver+set+for+electronics&tag=gearcookware-20) (Phillips and flathead)
+* [Small screwdriver set](https://www.amazon.com/s?k=small+screwdriver+set+for+electronics&tag=mofb05-20) (Phillips and flathead)
 * Tweezers for handling small parts
 * Needle-nose pliers to grip tight areas
 * Scissors to cut strings or tape
-* [Super glue or plastic adhesive](https://www.amazon.com/s?k=super+glue+plastic+adhesive&tag=gearcookware-20)
+* [Super glue or plastic adhesive](https://www.amazon.com/s?k=super+glue+plastic+adhesive&tag=mofb05-20)
 * Soft cloth to clean parts
 
 ### Replacement Parts
 
 Some parts inside the pull string mechanism may wear out or break. Having replacements ready can save time.
 
-* New [pull string cord or rope](https://www.amazon.com/s?k=nylon+pull+string+cord&tag=gearcookware-20)
+* New [pull string cord or rope](https://www.amazon.com/s?k=nylon+pull+string+cord&tag=mofb05-20)
 * Spring for the rewind mechanism
 * Plastic gears or cogs if broken
 * Small screws matching the original ones
@@ -305,7 +305,7 @@ You typically need a small screwdriver, replacement string, and scissors. Tweeze
 
 
 
-Yes, most pull string issues are simple to fix at home. Follow clear instructions, handle parts carefully, and use basic tools. If the mechanism is broken, consider purchasing a [replacement toy](https://www.amazon.com/s?k=Toy+Story+Woody+pull+string+doll&tag=gearcookware-20).
+Yes, most pull string issues are simple to fix at home. Follow clear instructions, handle parts carefully, and use basic tools. If the mechanism is broken, consider purchasing a [replacement toy](https://www.amazon.com/s?k=Toy+Story+Woody+pull+string+doll&tag=mofb05-20).
 
 
 

@@ -23,10 +23,10 @@ Extra batteries and ready-to-fly options make these planes convenient for beginn
 
 
 
-## <a href="https://www.amazon.com/dp/B007G03LZI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Guide To Remote Control Airplanes For Beginners</a>
+## <a href="https://www.amazon.com/dp/B007G03LZI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Guide To Remote Control Airplanes For Beginners</a>
 
 
-<a href="https://www.amazon.com/dp/B007G03LZI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RC - The Guide To Remote Control Airplanes For Beginners Learn How To Fly (English Edition)" src="https://m.media-amazon.com/images/I/417TMlFCfRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007G03LZI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RC - The Guide To Remote Control Airplanes For Beginners Learn How To Fly (English Edition)" src="https://m.media-amazon.com/images/I/417TMlFCfRL._SL500_.jpg"/></a>
 
 
 The **RC - The Guide To Remote Control Airplanes For Beginners Learn How To Fly (English Edition)** is ideal for anyone new to the exciting world of **remote control airplanes**. Whether you're a hobbyist looking to start flying or a parent seeking a comprehensive guide for your child, this guide by **Jason Riddell** offers clear, concise instructions to help beginners confidently take flight.
@@ -49,10 +49,10 @@ This guide is packed with straightforward advice on the essentials of flying rem
 
 By focusing on simplicity and clarity, the book helps users build a solid foundation, which is crucial for developing confidence and skill in flying RC airplanes. Readers benefit from practical tips and guidance that make the learning process enjoyable and less intimidating, setting them up for success in this rewarding hobby.
 
-## <a href="https://www.amazon.com/dp/B0FGJLGWK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mathslice Rc Airplane</a>
+## <a href="https://www.amazon.com/dp/B0FGJLGWK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mathslice Rc Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGJLGWK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATHSLICE RC Airplane,RC Plane, 2.4GHz 2 Channels RTF RC Aircraft with 3-Axis Gyro for Beginner Easy to Speedy Fly Glider Toys with 2 Extra Batteries [ 3 Batteries ]" src="https://m.media-amazon.com/images/I/41XMkhanR2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGJLGWK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATHSLICE RC Airplane,RC Plane, 2.4GHz 2 Channels RTF RC Aircraft with 3-Axis Gyro for Beginner Easy to Speedy Fly Glider Toys with 2 Extra Batteries [ 3 Batteries ]" src="https://m.media-amazon.com/images/I/41XMkhanR2L._SL500_.jpg"/></a>
 
 
 The **MATHSLICE RC Airplane** is perfect for beginners and hobbyists looking to experience the thrill of remote-controlled flying. Ideal for those new to RC planes or anyone seeking an easy-to-use, stable, and speedy glider, this model offers a fantastic entry point with advanced features that simplify flight control and enhance the overall experience.
@@ -75,10 +75,10 @@ The **MATHSLICE RC Airplane** boasts a lightweight yet durable build, measuring 
 
 Equipped with a **2.4GHz 2-channel transmitter**, the plane offers precise control without interference from other devices, ensuring a seamless flying experience. The package includes **three batteries**, giving pilots extended playtime and reducing downtime. Its **ready-to-fly** design means you can get airborne quickly, making it an excellent choice for both casual flyers and those eager to develop their piloting skills.
 
-## <a href="https://www.amazon.com/dp/B0FGJNDLL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mathslice Rc Airplane</a>
+## <a href="https://www.amazon.com/dp/B0FGJNDLL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mathslice Rc Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGJNDLL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATHSLICE RC Airplane,RC Plane, 2.4GHz 2 Channels RTF RC Aircraft with 3-Axis Gyro for Beginner Easy to Speedy Fly Glider Toys with 2 Extra Batteries [ 3 Batteries ]" src="https://m.media-amazon.com/images/I/41eVFtE9RtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGJNDLL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATHSLICE RC Airplane,RC Plane, 2.4GHz 2 Channels RTF RC Aircraft with 3-Axis Gyro for Beginner Easy to Speedy Fly Glider Toys with 2 Extra Batteries [ 3 Batteries ]" src="https://m.media-amazon.com/images/I/41eVFtE9RtL._SL500_.jpg"/></a>
 
 
 The **MATHSLICE RC Airplane** is perfect for **beginners** and hobbyists looking to enjoy the thrill of flying a remote-controlled aircraft. Ideal for those who want an easy-to-use yet advanced **RC plane** with reliable control and stability, this model suits both young enthusiasts and adults who are new to the world of RC flying. Its user-friendly design ensures a smooth learning curve, making it an excellent choice for anyone eager to experience speedy flight with minimal hassle.
@@ -101,10 +101,10 @@ The **MATHSLICE RC Airplane** features a **3-axis gyro** system that greatly imp
 
 With its lightweight yet durable construction, this **special edition** RC plane offers both resilience and agility, allowing users to enjoy speedy flights while maintaining ease of handling. The **Ready to Fly (RTF)** configuration means that even first-time pilots can quickly get airborne without the frustration of complex assembly. Overall, the MATHSLICE RC Airplane provides an excellent balance of performance, convenience, and fun for anyone looking to dive into the exciting world of remote-controlled aircraft.
 
-## <a href="https://www.amazon.com/dp/B00ITSJ3T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rc Plane - Basics For Beginners</a>
+## <a href="https://www.amazon.com/dp/B00ITSJ3T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rc Plane - Basics For Beginners</a>
 
 
-<a href="https://www.amazon.com/dp/B00ITSJ3T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RC Plane - Basics for Beginners: All about Remote Controlled Planes for Beginners (English Edition)" src="https://m.media-amazon.com/images/I/41eMmQ+7x5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00ITSJ3T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RC Plane - Basics for Beginners: All about Remote Controlled Planes for Beginners (English Edition)" src="https://m.media-amazon.com/images/I/41eMmQ+7x5L._SL500_.jpg"/></a>
 
 
 The **RC Plane - Basics for Beginners: All about Remote Controlled Planes for Beginners (English Edition)** is ideal for anyone new to the world of remote-controlled aviation. Whether you are a hobbyist looking to explore flying RC planes for the first time or a parent seeking an educational and entertaining activity for your child, this concise guide provides fundamental knowledge to get started confidently. Its straightforward language and beginner-focused approach make it perfect for novices eager to understand the essentials of remote-controlled planes.
@@ -127,10 +127,10 @@ This beginner’s guide excels in breaking down the complex hobby of flying remo
 
 Additionally, the book’s focus on practical understanding means readers benefit from actionable advice rather than just theoretical knowledge. This makes it a valuable resource for those aiming to develop hands-on skills. However, users seeking extensive technical details or advanced flying techniques might need to supplement this guide with additional resources. Overall, it is a great starting point for anyone interested in entering the exciting world of RC planes.
 
-## <a href="https://www.amazon.com/dp/B0FK2LY47B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Volantex F4u Corsair 4 Channel Remote Control Airplane</a>
+## <a href="https://www.amazon.com/dp/B0FK2LY47B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Volantex F4u Corsair 4 Channel Remote Control Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B0FK2LY47B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="rcxsuv VOLANTEX F4U Corsair 4 Channel - Remote Control Airplane with 3 Flight Modes &amp; XPilot Stabilization, 2.4G RC Airplane for Adults Beginner, One Key Aerobatic" src="https://m.media-amazon.com/images/I/41LVtj+2NnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FK2LY47B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="rcxsuv VOLANTEX F4U Corsair 4 Channel - Remote Control Airplane with 3 Flight Modes &amp; XPilot Stabilization, 2.4G RC Airplane for Adults Beginner, One Key Aerobatic" src="https://m.media-amazon.com/images/I/41LVtj+2NnL._SL500_.jpg"/></a>
 
 
 The **rcxsuv VOLANTEX F4U Corsair 4 Channel Remote Control Airplane** is ideal for **adults and beginners** who are passionate about flying RC airplanes and want to experience a realistic yet user-friendly flight. Whether you’re new to remote control aviation or seeking a reliable model with advanced features, this airplane offers an excellent balance of simplicity and performance.
@@ -153,10 +153,10 @@ The **rcxsuv VOLANTEX F4U Corsair** features a 4-channel control system that off
 
 Additionally, the **2.4G remote control** system provides a reliable and interference-free connection, enabling responsive control even in crowded areas. The **one key aerobatic** feature allows users to execute impressive stunts without complicated maneuvers, adding excitement and fun to every flight session. Compact dimensions further improve portability, making it easy to transport and enjoy flying anywhere.
 
-## <a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Epipgale Su-35 Rc Plane</a>
+## <a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Epipgale Su-35 Rc Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Epipgale SU-35 RC Plane, 2CH Remote Control Airplane, Hobby RC Glider, Ready &amp; Easy to Fly for Beginners, RC Aircraft Jet with Luminous Strip (Yellow)" src="https://m.media-amazon.com/images/I/416eHaEMcHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Epipgale SU-35 RC Plane, 2CH Remote Control Airplane, Hobby RC Glider, Ready &amp; Easy to Fly for Beginners, RC Aircraft Jet with Luminous Strip (Yellow)" src="https://m.media-amazon.com/images/I/416eHaEMcHL._SL500_.jpg"/></a>
 
 
 The **Epipgale SU-35 RC Plane** is ideal for **beginners** and hobbyists looking for an **easy-to-fly** and visually appealing **remote control airplane**. Its **2CH control system** and **ready-to-fly** design make it perfect for those new to the world of RC aircraft or anyone wanting a low-maintenance glider with cool features.
@@ -179,10 +179,10 @@ The **Epipgale SU-35 RC Plane** features a streamlined design with a height of *
 
 One of the standout features is the integrated **luminous strip** that not only enhances the plane’s appearance but also improves visibility during low light conditions, adding an element of safety and excitement. The bright **yellow color** further helps in tracking the aircraft during flight. Overall, the Epipgale SU-35 combines simplicity, style, and functionality to provide an enjoyable flying experience for newcomers and casual RC enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B08RC5RB85?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Just A Girl Who Run On Jesus And Drones: Rc Flight Log Logbook</a>
+## <a href="https://www.amazon.com/dp/B08RC5RB85?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Just A Girl Who Run On Jesus And Drones: Rc Flight Log Logbook</a>
 
 
-<a href="https://www.amazon.com/dp/B08RC5RB85?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Just a girl who run on Jesus and Drones: RC Flight Log Logbook for Remote Control Airplane Helicopter Quadcopter | Drone Pilot Notebook | For 1600 ... Map Record | An Easy-to-Use Training Drone" src="https://m.media-amazon.com/images/I/31yH8rxjDzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08RC5RB85?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Just a girl who run on Jesus and Drones: RC Flight Log Logbook for Remote Control Airplane Helicopter Quadcopter | Drone Pilot Notebook | For 1600 ... Map Record | An Easy-to-Use Training Drone" src="https://m.media-amazon.com/images/I/31yH8rxjDzL._SL500_.jpg"/></a>
 
 
 Ideal for **drone enthusiasts**, **remote control airplane pilots**, and anyone passionate about tracking their flight hours, the **Just a Girl Who Run on Jesus and Drones: RC Flight Log Logbook** is perfect for those who want an organized and easy way to document their flying sessions. Whether you're a beginner or an experienced pilot, this logbook helps keep track of your flights, improving your skills and providing valuable records for future reference.
@@ -205,10 +205,10 @@ This logbook is designed to provide a streamlined way to document every flight, 
 
 Additionally, the notebook's durable and compact design makes it an excellent companion for pilots on the go. Its easy-to-use format ensures even beginners can quickly start logging their flights without hassle. By keeping detailed records, users can identify patterns, improve their drone flying skills, and maintain a valuable log for competitions, insurance, or personal achievement tracking.
 
-## <a href="https://www.amazon.com/dp/B0DMSV8WDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mathslice Rc Airplane</a>
+## <a href="https://www.amazon.com/dp/B0DMSV8WDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mathslice Rc Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMSV8WDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATHSLICE RC Airplane" src="https://m.media-amazon.com/images/I/41vgzoJGx9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMSV8WDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MATHSLICE RC Airplane" src="https://m.media-amazon.com/images/I/41vgzoJGx9L._SL500_.jpg"/></a>
 
 
 The **MATHSLICE RC Airplane** is ideal for hobbyists and enthusiasts who are passionate about remote-controlled flying devices. Whether you are a beginner looking to learn the basics of RC flying or an experienced pilot seeking a lightweight and maneuverable aircraft, this special edition model offers a perfect blend of performance and style. Its compact size and manageable weight make it suitable for users of all skill levels who want a reliable and fun flying experience.
@@ -231,10 +231,10 @@ The **MATHSLICE RC Airplane** features a lightweight and aerodynamic design that
 
 Users benefit from its compact size and low weight, which reduce fatigue during extended flying sessions and allow for greater control in various wind conditions. The white color scheme not only looks sleek but also improves visibility against the sky, helping pilots maintain orientation during flight. Overall, the **MATHSLICE RC Airplane** is a versatile and enjoyable choice for anyone interested in remote-controlled aviation, from beginners to seasoned pilots.
 
-## <a href="https://www.amazon.com/dp/B0DK9RXNLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pinstant Eat Sleep Fly Pilot Flying Flyer Avião Tripulação Capitão Aircrew Airport Drone Lover Air Passion Aeronave Chaveiro Anel De Fob</a>
+## <a href="https://www.amazon.com/dp/B0DK9RXNLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pinstant Eat Sleep Fly Pilot Flying Flyer Avião Tripulação Capitão Aircrew Airport Drone Lover Air Passion Aeronave Chaveiro Anel De Fob</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK9RXNLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pinstant EAT SLEEP FLY Pilot Flying Flyer Avião Tripulação Capitão Aircrew Airport Drone Lover Air Passion Aeronave Chaveiro Anel de Fob, Misto, 5.1 x 1.2 inches" src="https://m.media-amazon.com/images/I/41nbnD89FaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK9RXNLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pinstant EAT SLEEP FLY Pilot Flying Flyer Avião Tripulação Capitão Aircrew Airport Drone Lover Air Passion Aeronave Chaveiro Anel de Fob, Misto, 5.1 x 1.2 inches" src="https://m.media-amazon.com/images/I/41nbnD89FaL._SL500_.jpg"/></a>
 
 
 The **Pinstant EAT SLEEP FLY Pilot Flying Flyer Avião Tripulação Capitão Aircrew Airport Drone Lover Air Passion Aeronave Chaveiro Anel de Fob** is ideal for aviation enthusiasts, professional pilots, drone lovers, and anyone passionate about flight. If you want a unique and stylish accessory that reflects your love for flying or works as a meaningful gift for someone in the aviation community, this keychain is a perfect choice.
@@ -257,10 +257,10 @@ This **aviation-themed keychain** offers a blend of style and functionality, des
 
 Additionally, the **Pinstant** brand’s commitment to quality means this keychain is built to last, making it a reliable accessory for travelers and drone enthusiasts alike. The colorful **Misto finish** enhances its aesthetic appeal, allowing users to express their passion for aviation in a subtle yet distinct way. Whether used as a personal keepsake or gifted to a loved one, this flying flyer keychain serves as a constant reminder of the thrilling world of flight.
 
-## <a href="https://www.amazon.com/dp/B0CDR6MY35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rc Airplane C-17</a>
+## <a href="https://www.amazon.com/dp/B0CDR6MY35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rc Airplane C-17</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDR6MY35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RC Plane,2 Channels Remote Control Airplane RTF,RC Airplane C-17,Remote Control Plane for Kids Adults Beginner" src="https://m.media-amazon.com/images/I/31XL-jeJekL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDR6MY35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RC Plane,2 Channels Remote Control Airplane RTF,RC Airplane C-17,Remote Control Plane for Kids Adults Beginner" src="https://m.media-amazon.com/images/I/31XL-jeJekL._SL500_.jpg"/></a>
 
 
 The **RC Plane, 2 Channels Remote Control Airplane RTF** is perfect for both **kids and adults** who are beginners in the world of remote control aircraft. If you are looking for an easy-to-use, fun, and engaging hobby that can help you develop hand-eye coordination and enjoy outdoor activities, this **RC Airplane C-17** is an ideal choice. Its simple controls and ready-to-fly setup make it accessible for anyone new to remote control planes.

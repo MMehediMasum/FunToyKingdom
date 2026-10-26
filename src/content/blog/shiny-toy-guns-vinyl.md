@@ -23,10 +23,10 @@ Each record delivers clear sound and vivid colors that make them perfect for any
 
 
 
-## <a href="https://www.amazon.com/dp/B0F4NHN22W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">We Are Pilots Vinyl</a>
+## <a href="https://www.amazon.com/dp/B0F4NHN22W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">We Are Pilots Vinyl</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4NHN22W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="We Are Pilots Vinyl (Deluxe Edition 2xLP) Le Disko Iridescent Swirl" src="https://m.media-amazon.com/images/I/41G6DeYCUyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4NHN22W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="We Are Pilots Vinyl (Deluxe Edition 2xLP) Le Disko Iridescent Swirl" src="https://m.media-amazon.com/images/I/41G6DeYCUyL._SL500_.jpg"/></a>
 
 
 The **We Are Pilots Vinyl (Deluxe Edition 2xLP) Le Disko Iridescent Swirl** is perfect for vinyl collectors, electronic music enthusiasts, and fans of exclusive, high-quality pressings. If you appreciate unique visual designs and crave a deluxe edition that enhances your listening experience, this edition by **VinceronImports** is tailored for you.
@@ -49,10 +49,10 @@ The **We Are Pilots Vinyl Deluxe Edition** stands out not only for its musical c
 
 Manufactured by **Vinceron Imports**, this vinyl ensures top-notch quality both in pressing and packaging. The **deluxe edition** typically includes additional artwork or liner notes, providing fans with deeper insight into the album and enhancing overall enjoyment. Whether you’re a long-time fan or new to the band, this release delivers both aesthetic and auditory satisfaction in one exceptional package.
 
-## <a href="https://www.amazon.com/dp/B000U1ZKR2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">You Are The One: Remixes</a>
+## <a href="https://www.amazon.com/dp/B000U1ZKR2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">You Are The One: Remixes</a>
 
 
-<a href="https://www.amazon.com/dp/B000U1ZKR2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="You Are the One: Remixes [Vinyl]" src="https://m.media-amazon.com/images/I/51PngvWcOjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000U1ZKR2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="You Are the One: Remixes [Vinyl]" src="https://m.media-amazon.com/images/I/51PngvWcOjL._SL500_.jpg"/></a>
 
 
 The **You Are the One: Remixes [Vinyl]** is ideal for vinyl collectors, music enthusiasts, and fans of classic remixes who appreciate high-quality sound and exclusive editions. If you value the rich, analog warmth of **vinyl records** and enjoy owning music from renowned labels, this item is perfect for you.
@@ -74,10 +74,10 @@ The **You Are the One: Remixes [Vinyl]** offers a unique listening experience th
 
 Manufactured by **UNIVERSAL MOTOWN**, this vinyl record guarantees exceptional craftsmanship and sound fidelity. The remixes included provide a fresh take on familiar songs, appealing to both longtime fans and new listeners seeking something distinctive. Owning this vinyl not only enhances your music collection but also connects you to a legacy of iconic music production.
 
-## <a href="https://www.amazon.com/dp/B09DRQ21LD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hey I'm Just Like You</a>
+## <a href="https://www.amazon.com/dp/B09DRQ21LD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hey I'm Just Like You</a>
 
 
-<a href="https://www.amazon.com/dp/B09DRQ21LD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hey I'm Just Like You - Exclusive Limited Edition Milky White Translucent Vinyl LP" src="https://m.media-amazon.com/images/I/31ydHIu8TjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09DRQ21LD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hey I'm Just Like You - Exclusive Limited Edition Milky White Translucent Vinyl LP" src="https://m.media-amazon.com/images/I/31ydHIu8TjL._SL500_.jpg"/></a>
 
 
 The **Hey I'm Just Like You - Exclusive Limited Edition Milky White Translucent Vinyl LP** is perfect for **vinyl collectors** and **music enthusiasts** who appreciate unique, high-quality releases. Ideal for those who want to add a rare and visually striking album to their collection, this edition offers both aesthetic appeal and exclusive value.

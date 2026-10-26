@@ -23,10 +23,10 @@ The Tiny Epic series, known for its compact yet compelling gameplay, lets you di
 
 
 
-## <a href="https://www.amazon.com/dp/B015QHVZCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Epic Galaxies</a>
+## <a href="https://www.amazon.com/dp/B015QHVZCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Epic Galaxies</a>
 
 
-<a href="https://www.amazon.com/dp/B015QHVZCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Galaxies" src="https://m.media-amazon.com/images/I/616cabCPqQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015QHVZCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Galaxies" src="https://m.media-amazon.com/images/I/616cabCPqQL._SL500_.jpg"/></a>
 
 
 The **Gamelyn Games Tiny Epic Galaxies** is an excellent choice for board game enthusiasts who enjoy strategic, space-themed games that are compact and portable. This game is ideal for players who appreciate deep gameplay in a small package, especially those who want a quick yet engaging experience with friends or family. If you are looking for a game that combines tactical decision-making with a fun exploration of the cosmos, this item is perfect for you.
@@ -49,12 +49,12 @@ The **Tiny Epic Galaxies** features a compact size with dimensions of 1.5 inches
 
 Thanks to its lightweight and travel-friendly design, this edition of **Ultra Tiny Epic Galaxies** is perfect for game nights on the go or casual gatherings. The game's mechanics encourage thoughtful planning and interaction, creating a dynamic environment where every decision impacts your path to victory. With Gamelyn Games as the manufacturer, players can expect high-quality components and a well-crafted gaming experience that stands out in the realm of compact strategy board games.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B015QHVZCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B015QHVZCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DCPQPWMX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jurassic World Island Quake</a>
+## <a href="https://www.amazon.com/dp/B0DCPQPWMX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jurassic World Island Quake</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCPQPWMX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EPOCH Games Jurassic World Island Quake - Epic Balancing Game" src="https://m.media-amazon.com/images/I/41rdwh3geqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCPQPWMX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EPOCH Games Jurassic World Island Quake - Epic Balancing Game" src="https://m.media-amazon.com/images/I/41rdwh3geqL._SL500_.jpg"/></a>
 
 
 The **EPOCH Games Jurassic World Island Quake - Epic Balancing Game** is perfect for children and families who enjoy interactive and challenging board games. Ideal for fans of the **Jurassic World** franchise, this game encourages strategic thinking and hand-eye coordination, making it a great choice for those looking to combine fun with skill development. Parents seeking an engaging, screen-free activity to play with their kids will also find this game a fantastic option.
@@ -77,12 +77,12 @@ The **Jurassic World Island Quake** game by **EPOCH Games** offers a captivating
 
 Additionally, the game’s design fosters critical thinking and patience, as players must plan their moves strategically to avoid tipping the structure. The hands-on interaction promotes fine motor skills development, making it not only entertaining but educational. This balancing game is a fantastic way to bring families together, encouraging communication and cooperative play while providing hours of dinosaur-themed fun.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DCPQPWMX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DCPQPWMX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B015QFAVPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wise Wizard Games</a>
+## <a href="https://www.amazon.com/dp/B015QFAVPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wise Wizard Games</a>
 
 
-<a href="https://www.amazon.com/dp/B015QFAVPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wise Wizard Games: Epic Deckbuilding Card Game" src="https://m.media-amazon.com/images/I/51DNwvo7GyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015QFAVPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wise Wizard Games: Epic Deckbuilding Card Game" src="https://m.media-amazon.com/images/I/51DNwvo7GyL._SL500_.jpg"/></a>
 
 
 The **Wise Wizard Games: Epic Deckbuilding Card Game** is perfect for enthusiasts of strategic card games who enjoy immersive gameplay and competitive challenges. Ideal for both casual players looking to enhance their deckbuilding skills and seasoned gamers seeking a fresh, engaging experience, this game offers a dynamic blend of strategy and fun.
@@ -105,12 +105,12 @@ The **Wise Wizard Games: Epic Deckbuilding Card Game** boasts a sleek and portab
 
 Beyond the impressive physical attributes, the game offers a rich and immersive experience that challenges players to think critically and plan ahead. The balance between luck and strategy ensures that every match is unpredictable yet fair, keeping players engaged for hours. Whether playing solo or with friends, the game’s design fosters social interaction and competitive spirit, making it a valuable addition to any card game collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B015QFAVPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B015QFAVPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07Y2JPYKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamelyn Games Tiny Epic Tactics</a>
+## <a href="https://www.amazon.com/dp/B07Y2JPYKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamelyn Games Tiny Epic Tactics</a>
 
 
-<a href="https://www.amazon.com/dp/B07Y2JPYKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Tactics" src="https://m.media-amazon.com/images/I/41abP9WyFtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Y2JPYKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Tactics" src="https://m.media-amazon.com/images/I/41abP9WyFtL._SL500_.jpg"/></a>
 
 
 **Gamelyn Games Tiny Epic Tactics** is ideal for board game enthusiasts who enjoy fast-paced, strategic gameplay in a compact format. This game is perfect for players who appreciate deep tactical decisions without lengthy setup or playtime, making it suitable for both casual gamers and seasoned strategists looking for a portable challenge.
@@ -133,12 +133,12 @@ The **Tiny Epic Tactics** game by **Gamelyn Games** offers a unique blend of str
 
 Designed with convenience in mind, the lightweight and portable nature of this game makes it an excellent choice for gaming on the go. Whether at home or traveling, players can dive into challenging scenarios without the hassle of bulky game components. The quality manufacturing ensures durability and a premium feel, promising long-lasting enjoyment for all types of players.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07Y2JPYKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07Y2JPYKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DT25SDVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Epic Game Of Thrones Board Game</a>
+## <a href="https://www.amazon.com/dp/B0DT25SDVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Epic Game Of Thrones Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT25SDVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Epic Game of Thrones Board Game, Strategy Game for Adults &amp; Teens, 1-4 Players, 60+ Min Playtime, Play as Iconic Westeros Characters, Custom Dice, Miniatures, Metal Coins, and Wooden Components" src="https://m.media-amazon.com/images/I/41E2azD3EhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT25SDVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Epic Game of Thrones Board Game, Strategy Game for Adults &amp; Teens, 1-4 Players, 60+ Min Playtime, Play as Iconic Westeros Characters, Custom Dice, Miniatures, Metal Coins, and Wooden Components" src="https://m.media-amazon.com/images/I/41E2azD3EhL._SL500_.jpg"/></a>
 
 
 The **Tiny Epic Game of Thrones Board Game** is perfect for fans of the **Game of Thrones** series and strategy game enthusiasts looking for an engaging and compact game experience. Ideal for **adults and teens** who enjoy tactical gameplay, this game accommodates **1 to 4 players** and offers a playtime of over **60 minutes**, making it suitable for casual game nights or more intense strategic sessions. If you appreciate immersive themes combined with challenging mechanics, this game is an excellent choice.
@@ -161,12 +161,12 @@ The **Tiny Epic Game of Thrones Board Game** stands out thanks to its compact ye
 
 Additionally, the game's design supports both solo and multiplayer modes, providing flexibility for various playing situations. With a playtime of over an hour, it offers a satisfying challenge that encourages players to think critically and plan their moves carefully. The use of high-quality **wooden components** and the compact size make it an ideal choice for those who want a rich board game experience without the bulk of traditional large-scale games.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DT25SDVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DT25SDVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07982NTSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pantheon: Furios Vs Maligus</a>
+## <a href="https://www.amazon.com/dp/B07982NTSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pantheon: Furios Vs Maligus</a>
 
 
-<a href="https://www.amazon.com/dp/B07982NTSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Epic: Pantheon: Furios Vs Maligus" src="https://m.media-amazon.com/images/I/51XCxPJ4LqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07982NTSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Epic: Pantheon: Furios Vs Maligus" src="https://m.media-amazon.com/images/I/51XCxPJ4LqL._SL500_.jpg"/></a>
 
 
 The **Epic: Pantheon: Furios Vs Maligus** is ideal for board game enthusiasts who enjoy strategic gameplay with a mythological twist. If you are a fan of immersive, competitive games that feature unique characters and tactical depth, this product from **White Wizard Games** will perfectly suit your collection. It’s especially great for players who appreciate beautifully designed components and engaging story-driven battles.
@@ -187,12 +187,12 @@ The **Epic: Pantheon: Furios Vs Maligus** features a compact design that ensures
 
 Beyond its physical attributes, the game’s blue and white coloration not only enhances visual appeal but also helps in distinguishing characters during intense gameplay. This thoughtful design element enriches the user experience by making the game more engaging and easier to follow. Overall, **Epic: Pantheon: Furios Vs Maligus** offers a blend of strategic depth and aesthetic quality, making it an excellent choice for both casual and serious gamers alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07982NTSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07982NTSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08D5G57X4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Epic Galaxies Blast Off!</a>
+## <a href="https://www.amazon.com/dp/B08D5G57X4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Epic Galaxies Blast Off!</a>
 
 
-<a href="https://www.amazon.com/dp/B08D5G57X4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Galaxies Blast Off! - A Game of Cosmic Combos" src="https://m.media-amazon.com/images/I/51-Q9fZtr3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08D5G57X4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Galaxies Blast Off! - A Game of Cosmic Combos" src="https://m.media-amazon.com/images/I/51-Q9fZtr3L._SL500_.jpg"/></a>
 
 
 The **Gamelyn Games Tiny Epic Galaxies Blast Off!** is ideal for board game enthusiasts who enjoy fast-paced, strategic gameplay with a cosmic theme. It is perfect for players who appreciate compact, travel-friendly games that pack deep tactical decisions into a small package. If you are someone who loves engaging in cosmic combos and competitive multiplayer experiences, this game is a great addition to your collection.
@@ -215,12 +215,12 @@ The **Tiny Epic Galaxies Blast Off!** features a compact, space-themed design th
 
 Manufactured by **Gamelyn Games**, this product stands out for its quality craftsmanship and attention to detail. The vibrant blue color of the components not only makes the game visually attractive but also helps players easily distinguish different game elements during play. Overall, the **Tiny Epic Galaxies Blast Off!** offers a perfect blend of portability, strategic depth, and aesthetic appeal, making it a must-have for fans of cosmic-themed board games.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08D5G57X4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08D5G57X4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DK3ZZFVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brandon Sanderson's Mistborn Deckbuilding Game</a>
+## <a href="https://www.amazon.com/dp/B0DK3ZZFVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brandon Sanderson's Mistborn Deckbuilding Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK3ZZFVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brandon Sanderson's Mistborn Deckbuilding Game - Forge Alliances in Epic Metal-Burning Battles - Cooperative Card Game - Immersive Strategic Gameplay - 1 to 4 Players, Ages 13+" src="https://m.media-amazon.com/images/I/51mhDC0V+LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK3ZZFVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brandon Sanderson's Mistborn Deckbuilding Game - Forge Alliances in Epic Metal-Burning Battles - Cooperative Card Game - Immersive Strategic Gameplay - 1 to 4 Players, Ages 13+" src="https://m.media-amazon.com/images/I/51mhDC0V+LL._SL500_.jpg"/></a>
 
 
 **Brandon Sanderson's Mistborn Deckbuilding Game** is ideal for fans of strategic card games who enjoy cooperative gameplay and immersive fantasy worlds. Perfect for players aged 13 and up, this game appeals to those who appreciate intricate deckbuilding mechanics combined with a richly developed narrative universe. Whether you're a solo player or part of a group of up to four, this game offers a challenging and engaging experience for those who love teamwork and tactical decision-making.
@@ -243,12 +243,12 @@ Featuring detailed components from **Brotherwise Games**, this card game capture
 
 The gameplay emphasizes cooperative tactics, allowing players to synergize their unique abilities and deck builds to maximize their effectiveness. This immersive strategic experience not only tests your deckbuilding skills but also your ability to collaborate and adapt. Whether playing solo or with friends, the game delivers a compelling narrative and engaging mechanics that bring the Mistborn world to life in an exciting new way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DK3ZZFVM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DK3ZZFVM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01INZNQPE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamelyn Games Tiny Epic Western</a>
+## <a href="https://www.amazon.com/dp/B01INZNQPE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamelyn Games Tiny Epic Western</a>
 
 
-<a href="https://www.amazon.com/dp/B01INZNQPE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Western: A Boomtown Board Game with A Poker Twist in The Wild West" src="https://m.media-amazon.com/images/I/51WHV82NL1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01INZNQPE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamelyn Games Tiny Epic Western: A Boomtown Board Game with A Poker Twist in The Wild West" src="https://m.media-amazon.com/images/I/51WHV82NL1L._SL500_.jpg"/></a>
 
 
 The **Gamelyn Games Tiny Epic Western: A Boomtown Board Game with A Poker Twist in The Wild West** is ideal for board game enthusiasts who enjoy strategic gameplay with a unique thematic flair. Perfect for players who appreciate a blend of classic poker mechanics with innovative board game elements, this game suits both casual players and seasoned strategists looking for a compact, engaging experience. Fans of Western-themed adventures and those seeking a fast-paced, competitive game will find this edition particularly appealing.
@@ -271,7 +271,7 @@ The **Tiny Epic Western** stands out with its smart integration of poker element
 
 Crafted by **Gamelyn Games**, the game's quality components and thoughtful design ensure a smooth and immersive experience. The strategic depth combined with accessible rules makes it suitable for a wide range of players. Whether you are a fan of Western settings or enjoy poker-inspired strategy, this game offers engaging and replayable sessions that balance luck and tactics effectively.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01INZNQPE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01INZNQPE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -23,10 +23,10 @@ From classic vehicles like the 1967 Volkswagen Beetle to modern sports cars like
 
 
 
-## <a href="https://www.amazon.com/dp/B0D7Z7BCJZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loveposely 1/32 Scale Car Model Benz G63 Amg</a>
+## <a href="https://www.amazon.com/dp/B0D7Z7BCJZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loveposely 1/32 Scale Car Model Benz G63 Amg</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7Z7BCJZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOVEPOSELY 1/32 Scale Car Model Compatible for Collectible Benz G63 AMG Diecast Toy Vehicle, Zinc Alloy Pull Back Toy Car with Sound and Light for Adult Boys Girls 3 4 5 6 7 8（White）" src="https://m.media-amazon.com/images/I/31f7MIsCW6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7Z7BCJZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOVEPOSELY 1/32 Scale Car Model Compatible for Collectible Benz G63 AMG Diecast Toy Vehicle, Zinc Alloy Pull Back Toy Car with Sound and Light for Adult Boys Girls 3 4 5 6 7 8（White）" src="https://m.media-amazon.com/images/I/31f7MIsCW6L._SL500_.jpg"/></a>
 
 
 The **LOVEPOSELY 1/32 Scale Car Model** is an ideal purchase for **collectors** and **enthusiasts** of **diecast models**, as well as for **children** aged 3 to 8 who enjoy interactive and realistic toy vehicles. This model is particularly suited for those who appreciate detailed craftsmanship and are fans of the iconic **Benz G63 AMG** design.
@@ -47,12 +47,12 @@ The **LOVEPOSELY 1/32 Scale Car Model** stands out with its **realistic design**
 
 For young users, the **interactive sound and light features** provide an immersive play experience, simulating real-life driving scenarios. The **pull back mechanism** adds another layer of engagement, allowing children to enjoy dynamic play. These features together make the model not only a display piece but also a functional toy that encourages imaginative play and motor skills development.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D7Z7BCJZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D7Z7BCJZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B003EODSK8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - 1967 Volkswagen Classic Beetle</a>
+## <a href="https://www.amazon.com/dp/B003EODSK8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - 1967 Volkswagen Classic Beetle</a>
 
 
-<a href="https://www.amazon.com/dp/B003EODSK8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART - 1967 Volkswagen Classic Beetle 5 Inch 1:32 Scale Die Cast Metal Model Toy (Police)" src="https://m.media-amazon.com/images/I/51hmb+KqAOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003EODSK8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART - 1967 Volkswagen Classic Beetle 5 Inch 1:32 Scale Die Cast Metal Model Toy (Police)" src="https://m.media-amazon.com/images/I/51hmb+KqAOL._SL500_.jpg"/></a>
 
 
 The **KiNSMART - 1967 Volkswagen Classic Beetle 5 Inch 1:32 Scale Die Cast Metal Model Toy (Police)** is ideal for collectors, enthusiasts of vintage cars, and children who enjoy realistic and durable toy models. This item is perfect for those who appreciate detailed craftsmanship in miniature vehicles and are looking for a sturdy, visually appealing model to add to their collection or playtime.
@@ -75,12 +75,12 @@ The **KiNSMART 1967 Volkswagen Classic Beetle** model offers an impressive level
 
 Additionally, the special **police color scheme** makes this model unique and attractive, especially for those who collect themed vehicles. The lightweight design ensures it can be easily handled by kids or displayed by adults. Overall, this model balances aesthetics and build quality, delivering both visual appeal and lasting durability for users.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B003EODSK8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B003EODSK8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0050IYCK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Volkswagen Classic Bus</a>
+## <a href="https://www.amazon.com/dp/B0050IYCK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Volkswagen Classic Bus</a>
 
 
-<a href="https://www.amazon.com/dp/B0050IYCK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (maroon)"="" acation="" alt="KiNSMART 1962 Volkswagen Classic Bus 1:32 Scale 5" cast="" die="" metal="" model="" pullback="" src="https://m.media-amazon.com/images/I/41ArkhlxEKL._SL500_.jpg" toy="" van=""/></a>
+<a href="https://www.amazon.com/dp/B0050IYCK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (maroon)"="" acation="" alt="KiNSMART 1962 Volkswagen Classic Bus 1:32 Scale 5" cast="" die="" metal="" model="" pullback="" src="https://m.media-amazon.com/images/I/41ArkhlxEKL._SL500_.jpg" toy="" van=""/></a>
 
 
 The **KiNSMART 1962 Volkswagen Classic Bus 1:32 Scale 5" Die Cast Metal Model Toy Van** in **Maroon** is perfect for collectors, vintage car enthusiasts, and children who enjoy detailed, durable toy vehicles. This model is ideal for those who appreciate classic automotive design or are looking for a high-quality, collectible die-cast model with functional features like pullback action.
@@ -103,12 +103,12 @@ The **KiNSMART 1962 Volkswagen Classic Bus** model boasts precise craftsmanship 
 
 Additionally, the **pullback action** feature adds an element of interactive play, allowing users to easily launch the vehicle forward. This functionality makes it enjoyable for kids while still appealing to adult collectors who appreciate mechanical features. The model’s compact dimensions (5 inches long, 2 inches wide and tall) and lightweight design make it versatile for both display and play without taking up much space.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0050IYCK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0050IYCK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B084FXDWL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gidoyi Toy Car Model X</a>
+## <a href="https://www.amazon.com/dp/B084FXDWL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gidoyi Toy Car Model X</a>
 
 
-<a href="https://www.amazon.com/dp/B084FXDWL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="gidoyi Toy Car Model x, Pull Back Car Toys Alloy Vehicles with Lights and Sound 1:32 Scale Model Car (Blue)" src="https://m.media-amazon.com/images/I/51BAFK+5OjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084FXDWL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="gidoyi Toy Car Model x, Pull Back Car Toys Alloy Vehicles with Lights and Sound 1:32 Scale Model Car (Blue)" src="https://m.media-amazon.com/images/I/51BAFK+5OjL._SL500_.jpg"/></a>
 
 
 The **gidoyi Toy Car Model x** is ideal for children and collectors who appreciate detailed **1:32 scale model cars** with interactive features. If you're looking for a compact, durable toy that combines fun with realism, this **pull back car toy** in vibrant **blue** is perfect for enhancing playtime or expanding your miniature vehicle collection.
@@ -130,12 +130,12 @@ The **gidoyi Toy Car Model x** stands out with its detailed craftsmanship and in
 
 Equipped with a **pull-back mechanism**, this toy car offers an engaging way for children to enjoy motion without batteries, promoting active play. The **blue color** adds a vibrant touch that stands out on any shelf or play area. Overall, the **gidoyi Toy Car Model x** blends realistic design, interactive features, and portability, making it a great choice for those seeking a high-quality miniature vehicle.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B084FXDWL4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B084FXDWL4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01MT7UMZ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jada Toys Fast &amp; Furious Brian's 1995 Mitsubishi Eclipse Diecast Model Car</a>
+## <a href="https://www.amazon.com/dp/B01MT7UMZ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jada Toys Fast &amp; Furious Brian's 1995 Mitsubishi Eclipse Diecast Model Car</a>
 
 
-<a href="https://www.amazon.com/dp/B01MT7UMZ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jada Toys 1:32 Fast &amp; Furious: Furious - Brian's 1995 Mitsubishi Eclipse Diecast Model Car" src="https://m.media-amazon.com/images/I/41WkXRp+ynL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MT7UMZ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jada Toys 1:32 Fast &amp; Furious: Furious - Brian's 1995 Mitsubishi Eclipse Diecast Model Car" src="https://m.media-amazon.com/images/I/41WkXRp+ynL._SL500_.jpg"/></a>
 
 
 The **Jada Toys 1:32 Fast & Furious: Furious - Brian's 1995 Mitsubishi Eclipse Diecast Model Car** is ideal for collectors, fans of the **Fast & Furious** franchise, and diecast model enthusiasts looking for a detailed and authentic replica. If you appreciate finely crafted collectibles or want to add a piece of cinematic history to your display, this model is a perfect choice.
@@ -159,12 +159,12 @@ The **Jada Toys 1:32 Fast & Furious: Furious - Brian's 1995 Mitsubishi Eclipse D
 
 Beyond aesthetics, this model offers practical benefits such as easy handling and display due to its compact size and lightweight build. Whether placed on a shelf, desk, or in a glass case, it serves as a striking memorabilia piece that sparks conversations among enthusiasts. Manufactured by the reputable **Jada Toys** brand, this diecast car guarantees quality and durability, making it a worthwhile investment for collectors and fans alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01MT7UMZ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01MT7UMZ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1955 Chevrolet Stepside Pickup Truck</a>
+## <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1955 Chevrolet Stepside Pickup Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (Black)" src="https://m.media-amazon.com/images/I/41AEUWJmnkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (Black)" src="https://m.media-amazon.com/images/I/41AEUWJmnkL._SL500_.jpg"/></a>
 
 
 The **KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (Black)** is ideal for collectors, vintage car enthusiasts, and children who love detailed miniature vehicles. This model is perfect for those who appreciate classic American automotive design and want a durable, high-quality replica to add to their collection or to play with safely.
@@ -187,12 +187,12 @@ The **KiNSMART 1955 Chevrolet Stepside Pickup Truck** is crafted with precision,
 
 Additionally, the **compact 1:32 scale** makes it versatile for both play and display. Kids can enjoy its durable build for imaginative play, while adult collectors can appreciate the meticulous detailing and accurate proportions. The lightweight design also makes it easy to transport and store, ensuring that this miniature truck is as functional as it is visually appealing.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00FYV6T4Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09B383HML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fast &amp; Furious Tego's Pontiac Firebird</a>
+## <a href="https://www.amazon.com/dp/B09B383HML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fast &amp; Furious Tego's Pontiac Firebird</a>
 
 
-<a href="https://www.amazon.com/dp/B09B383HML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fast &amp; Furious Tego's Pontiac Firebird 1:32 Die-Cast Cars, Toys for Kids and Adults" src="https://m.media-amazon.com/images/I/31L7m6MZMvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09B383HML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fast &amp; Furious Tego's Pontiac Firebird 1:32 Die-Cast Cars, Toys for Kids and Adults" src="https://m.media-amazon.com/images/I/31L7m6MZMvL._SL500_.jpg"/></a>
 
 
 The **Fast & Furious Tego's Pontiac Firebird 1:32 Die-Cast Car** is perfect for both **collectors** and **enthusiasts** of the iconic movie franchise, as well as kids who enjoy detailed, high-quality **toy cars**. If you are looking for a model that combines authenticity with durable playability, this item is an excellent choice. It appeals to those who appreciate precision craftsmanship and want to add a stylish piece to their collection or a fun, realistic toy for imaginative play.
@@ -215,12 +215,12 @@ Crafted with precision by **Jada Toys**, this die-cast model captures the essenc
 
 The **gold and black finish** not only enhances its visual appeal but also reflects the character and style associated with the Fast & Furious franchise. Whether you are an adult collector adding to your memorabilia or a parent looking for a special gift, this die-cast car offers both aesthetic value and functional enjoyment. Its size and design make it a versatile item suitable for diverse uses, from imaginative play to detailed collection displays.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09B383HML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09B383HML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B094FHRXXD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bugatti Divo Zinc Alloy Pull Back Car Diecast Electronic Toy</a>
+## <a href="https://www.amazon.com/dp/B094FHRXXD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bugatti Divo Zinc Alloy Pull Back Car Diecast Electronic Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B094FHRXXD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1:32 Scale for Bugatti Divo zinc Alloy Pull Back Car Diecast Electronic Toys with Lights and Music,Decorative,Mini Vehicles Toys for Kids,Boyfriend,Young Peoples Gift(Green)" src="https://m.media-amazon.com/images/I/414UVqQZZFS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B094FHRXXD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1:32 Scale for Bugatti Divo zinc Alloy Pull Back Car Diecast Electronic Toys with Lights and Music,Decorative,Mini Vehicles Toys for Kids,Boyfriend,Young Peoples Gift(Green)" src="https://m.media-amazon.com/images/I/414UVqQZZFS._SL500_.jpg"/></a>
 
 
 The **1:32 Scale Bugatti Divo Zinc Alloy Pull Back Car Diecast** is ideal for **car enthusiasts, collectors, and kids** who love detailed miniature vehicles. This item is perfect for those seeking a **decorative piece** or a **fun, interactive toy** with lights and music, making it an excellent gift for **boys, young people, and even boyfriends** who appreciate unique collectibles.
@@ -243,12 +243,12 @@ This **miniature Bugatti Divo** offers exceptional detail in a compact size, mak
 
 Its dimensions, standing at 2.6 inches in height, 3.4 inches in width, and 6.8 inches in length, provide a perfect balance between display appeal and playability. Whether used as a decorative item or a playful collectible, this model's vibrant **green color** and realistic design make it an excellent gift choice for anyone passionate about luxury cars and diecast models.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B094FHRXXD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B094FHRXXD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Agsixzlan Little Blue Truck Toy</a>
+## <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Agsixzlan Little Blue Truck Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AGSIXZLAN Little Blue Truck Toy for Kids Ages 2 3 4 5 6 7 8 Year Old Boys Girls,1:32 Alloy Kids Car Toy Driveable,Car Door Can Open,Toy Trucks for Toddlers Easter Christmas Birthday Gifts" src="https://m.media-amazon.com/images/I/415DLLg4qDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AGSIXZLAN Little Blue Truck Toy for Kids Ages 2 3 4 5 6 7 8 Year Old Boys Girls,1:32 Alloy Kids Car Toy Driveable,Car Door Can Open,Toy Trucks for Toddlers Easter Christmas Birthday Gifts" src="https://m.media-amazon.com/images/I/415DLLg4qDL._SL500_.jpg"/></a>
 
 
 The **AGSIXZLAN Little Blue Truck Toy** is perfect for young children aged **2 to 8 years old** who have a fascination with vehicles and enjoy imaginative play. This toy is ideal for both boys and girls, making it a versatile gift choice for birthdays, Easter, Christmas, or any special occasion. Parents looking to encourage creativity and motor skills development in their toddlers will find this **driveable alloy car toy** an excellent addition to their child's collection.
@@ -272,12 +272,12 @@ The **AGSIXZLAN Little Blue Truck Toy** is crafted with a sturdy alloy body that
 
 Measuring just under 5 inches in length, this compact toy fits comfortably in small hands and is easy to transport for playdates or trips. Its vibrant **blue color** is visually appealing and makes it easy to spot among other toys. Overall, the AGSIXZLAN Little Blue Truck Toy offers a delightful blend of durability, interactive features, and child-friendly design that makes it a cherished gift for toddlers and young children alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07G2SCML9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Shelby Cobra 427 S/c</a>
+## <a href="https://www.amazon.com/dp/B07G2SCML9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Shelby Cobra 427 S/c</a>
 
 
-<a href="https://www.amazon.com/dp/B07G2SCML9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (yellow)"="" alt="KiNSMART - 1965 Shelby Cobra 427 S/C 1:32 Scale 5" car="" cast="" classic="" die="" metal="" model="" src="https://m.media-amazon.com/images/I/51lC678mdsL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B07G2SCML9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (yellow)"="" alt="KiNSMART - 1965 Shelby Cobra 427 S/C 1:32 Scale 5" car="" cast="" classic="" die="" metal="" model="" src="https://m.media-amazon.com/images/I/51lC678mdsL._SL500_.jpg" toy=""/></a>
 
 
 The **KiNSMART - 1965 Shelby Cobra 427 S/C 1:32 Scale 5" Die Cast Metal Model Classic Toy Car (Yellow)** is ideal for **car enthusiasts**, **collectors**, and **children** who appreciate detailed and durable toy cars. If you are looking for a high-quality replica of a classic sports car that combines both display value and playability, this model is a perfect choice. Its compact size and sturdy construction make it suitable for both display and active play.
@@ -299,7 +299,7 @@ The **KiNSMART Shelby Cobra 427** model boasts a meticulously crafted exterior t
 
 Beyond aesthetics, the model’s compact size and lightweight design offer practical benefits. It is easy to carry, display, and store, allowing enthusiasts to showcase their passion without requiring excessive space. Moreover, the sturdy build means it can withstand regular handling, making it an excellent option for children who enjoy playing with classic car replicas while also appealing to adult collectors seeking a reliable display model.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07G2SCML9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07G2SCML9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

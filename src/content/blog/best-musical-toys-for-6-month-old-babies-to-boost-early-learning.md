@@ -23,10 +23,10 @@ Soft rattles and teething toys, such as the WHNKFB Bright Yellow Giraffe, combin
 
 
 
-## <a href="https://www.amazon.com/dp/B07H93M5X8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vtech Musical Rhymes Book</a>
+## <a href="https://www.amazon.com/dp/B07H93M5X8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vtech Musical Rhymes Book</a>
 
 
-<a href="https://www.amazon.com/dp/B07H93M5X8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VTech Musical Rhymes Book, Red" src="https://m.media-amazon.com/images/I/51mdwKj0suL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07H93M5X8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VTech Musical Rhymes Book, Red" src="https://m.media-amazon.com/images/I/51mdwKj0suL._SL500_.jpg"/></a>
 
 
 The **VTech Musical Rhymes Book, Red** is an ideal choice for parents and caregivers looking to introduce young children to the joys of music and early learning. Designed specifically for toddlers and preschoolers, this interactive book combines engaging songs with colorful visuals to stimulate a child's auditory and visual senses. If you want a fun, educational tool that encourages early literacy and motor skills development, this item is perfect for your little one.
@@ -49,10 +49,10 @@ The **VTech Musical Rhymes Book** features a compact size of approximately 7.48 
 
 Additionally, this book supports early literacy by introducing children to words and sounds in a playful context. Its sturdy design ensures it can withstand the rough handling typical of young users. Overall, the **VTech Musical Rhymes Book, Red** is a delightful educational tool that combines fun and learning, fostering a child's developmental milestones in an enjoyable way.
 
-## <a href="https://www.amazon.com/dp/B000YDDF6O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Take Along Tunes Musical Toy</a>
+## <a href="https://www.amazon.com/dp/B000YDDF6O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Take Along Tunes Musical Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B000YDDF6O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Take Along Tunes Musical Toy, Ages 3 months +" src="https://m.media-amazon.com/images/I/41VT5E58UOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000YDDF6O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Take Along Tunes Musical Toy, Ages 3 months +" src="https://m.media-amazon.com/images/I/41VT5E58UOL._SL500_.jpg"/></a>
 
 
 The **Baby Einstein Take Along Tunes Musical Toy** is ideal for parents and caregivers looking to introduce their infants, starting at **3 months old**, to the world of music and sensory exploration. This compact and colorful toy is perfect for babies who are beginning to develop auditory skills and hand-eye coordination, providing an engaging way to stimulate early learning and curiosity.
@@ -75,10 +75,10 @@ The **Baby Einstein Take Along Tunes Musical Toy** is designed with simplicity a
 
 Manufactured by **Kids2, Inc.**, this toy is built with safety and durability as priorities, ensuring it can withstand the rigors of daily use by infants. The portability factor is a significant benefit for parents who want to keep their little ones entertained during car rides, outings, or quiet moments at home. While it may have a limited tune selection, its focus on classical music offers a timeless and enriching auditory experience that supports cognitive growth and creative thinking from an early age.
 
-## <a href="https://www.amazon.com/dp/B08P5K9Y8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Piano Toy</a>
+## <a href="https://www.amazon.com/dp/B08P5K9Y8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Piano Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B08P5K9Y8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Piano Toy 6 to 12 Months Light Up Music Baby Toys for 0 6 9 12 18 Months Early Learning Educational Piano Keyboard Infant Babies Girl Toy 1 Year Old Boy Girls Gift" src="https://m.media-amazon.com/images/I/51k5ziaiORL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08P5K9Y8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Piano Toy 6 to 12 Months Light Up Music Baby Toys for 0 6 9 12 18 Months Early Learning Educational Piano Keyboard Infant Babies Girl Toy 1 Year Old Boy Girls Gift" src="https://m.media-amazon.com/images/I/51k5ziaiORL._SL500_.jpg"/></a>
 
 
 The **Baby Piano Toy** by **WITALENT** is ideal for parents and caregivers looking to introduce their infants, aged **6 to 12 months**, to early learning through interactive play. This **light-up, musical toy** is perfect for babies from **0 to 18 months**, making it a versatile gift for both boys and girls that encourages sensory development and fine motor skills.
@@ -101,10 +101,10 @@ The **Baby Piano Toy** features a bright, **multicolored keyboard** that lights 
 
 Designed with infants in mind, the lightweight and compact structure makes it easy for little hands to grasp and play. The toy’s sturdy build ensures it can withstand the rough handling typical of babies, while its safe materials provide peace of mind for parents. Overall, this **educational piano keyboard** is a fun and beneficial tool for early learning, making it an excellent gift choice for any baby’s first year.
 
-## <a href="https://www.amazon.com/dp/B01C5L5DZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bright Starts Press &amp; Glow Spinner</a>
+## <a href="https://www.amazon.com/dp/B01C5L5DZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bright Starts Press &amp; Glow Spinner</a>
 
 
-<a href="https://www.amazon.com/dp/B01C5L5DZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bright Starts Press &amp; Glow Spinner Cause and Effect Musical Baby Toy, Age 6 Months+" src="https://m.media-amazon.com/images/I/41TYosNsm6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01C5L5DZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bright Starts Press &amp; Glow Spinner Cause and Effect Musical Baby Toy, Age 6 Months+" src="https://m.media-amazon.com/images/I/41TYosNsm6L._SL500_.jpg"/></a>
 
 
 The **Bright Starts Press & Glow Spinner Cause and Effect Musical Baby Toy** is perfect for parents seeking an engaging and educational toy for their infants aged **6 months and older**. This toy is ideal for babies who are beginning to explore cause and effect through interactive play, helping to develop their sensory skills and hand-eye coordination in a fun and stimulating way.
@@ -127,10 +127,10 @@ The **Press & Glow Spinner** combines visual stimulation with cause-and-effect l
 
 Additionally, this musical baby toy is crafted by **Bright Starts**, a brand known for quality and safety, ensuring parents can trust its durability and child-friendly materials. The interactive elements of spinning and pressing reinforce a baby’s understanding of actions and consequences, which is a crucial cognitive milestone during early development.
 
-## <a href="https://www.amazon.com/dp/B06Y1192MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Glow &amp; Discover Light Bar</a>
+## <a href="https://www.amazon.com/dp/B06Y1192MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Glow &amp; Discover Light Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B06Y1192MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Glow &amp; Discover Light Bar Musical Activity Station and Tummy Time Toy, Montessori Cause and Effect Early Learning for 3-36 months" src="https://m.media-amazon.com/images/I/41W3iGfJpJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06Y1192MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Glow &amp; Discover Light Bar Musical Activity Station and Tummy Time Toy, Montessori Cause and Effect Early Learning for 3-36 months" src="https://m.media-amazon.com/images/I/41W3iGfJpJL._SL500_.jpg"/></a>
 
 
 The **Baby Einstein Glow & Discover Light Bar Musical Activity Station and Tummy Time Toy** is ideal for parents and caregivers of infants aged **3 to 36 months** who are looking to engage their child in early learning through interactive play. This toy is perfect for those who want to encourage **Montessori-inspired cause and effect learning**, sensory development, and motor skills during tummy time and playtime.
@@ -153,10 +153,10 @@ The **Glow & Discover Light Bar** is designed with an engaging combination of **
 
 Additionally, this activity station promotes important developmental milestones by integrating **Montessori-inspired cause and effect learning**. When babies interact with the light bar, they learn that their actions can trigger responses, fostering cognitive development and hand-eye coordination. The station also doubles as a tummy time toy, supporting muscle strengthening and motor skill development by motivating babies to lift their heads and reach out. Overall, the Baby Einstein Glow & Discover Light Bar offers a well-rounded early learning experience designed to delight and educate infants from 3 months to 3 years old.
 
-## <a href="https://www.amazon.com/dp/B0CQ1TJ3TV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Whnkfb Bright Yellow Giraffe Baby Musical Rattle Toy</a>
+## <a href="https://www.amazon.com/dp/B0CQ1TJ3TV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Whnkfb Bright Yellow Giraffe Baby Musical Rattle Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ1TJ3TV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHNKFB Bright Yellow Giraffe Baby Musical Rattle Toy - Light-Up Teether &amp; Sensory Chew, BPA-Free Soft Rubber, Baby Shower &amp; 1st Birthday Gift for 6-18 Months 1+ Year Old" src="https://m.media-amazon.com/images/I/411mKUKGssL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ1TJ3TV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHNKFB Bright Yellow Giraffe Baby Musical Rattle Toy - Light-Up Teether &amp; Sensory Chew, BPA-Free Soft Rubber, Baby Shower &amp; 1st Birthday Gift for 6-18 Months 1+ Year Old" src="https://m.media-amazon.com/images/I/411mKUKGssL._SL500_.jpg"/></a>
 
 
 The **WHNKFB Bright Yellow Giraffe Baby Musical Rattle Toy** is ideal for parents and caregivers seeking a versatile and engaging **teether and sensory toy** for babies aged **6 to 18 months** and beyond. This toy is perfect for little ones who are in the early stages of teething and sensory exploration, making it a thoughtful gift for **baby showers** or a child's **1st birthday**.
@@ -178,10 +178,10 @@ The **WHNKFB Bright Yellow Giraffe Baby Musical Rattle Toy** offers a unique com
 
 Designed with a lightweight and ergonomic shape, the toy is easy for infants to hold and shake, promoting motor skills and hand-eye coordination. The cheerful **giraffe design** adds an element of fun and familiarity, making it a comforting companion for babies. Overall, this toy supports sensory exploration and provides soothing relief, making it a practical and enjoyable choice for both babies and parents.
 
-## <a href="https://www.amazon.com/dp/B0D7PZ9P3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Baby Toy Purple Monkey Musical Storybook</a>
+## <a href="https://www.amazon.com/dp/B0D7PZ9P3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Baby Toy Purple Monkey Musical Storybook</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7PZ9P3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Baby Toy Purple Monkey Musical Storybook with Lights &amp; Sounds for Infants &amp; Toddlers Ages 6+ Months" src="https://m.media-amazon.com/images/I/51UlJkrz-9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7PZ9P3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Baby Toy Purple Monkey Musical Storybook with Lights &amp; Sounds for Infants &amp; Toddlers Ages 6+ Months" src="https://m.media-amazon.com/images/I/51UlJkrz-9L._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Baby Toy Purple Monkey Musical Storybook** is ideal for **infants and toddlers aged 6 months and older** who are beginning to explore sounds, lights, and interactive play. Parents looking for a **colorful, engaging toy** that stimulates early learning and sensory development will find this product especially suitable.
@@ -204,10 +204,10 @@ The **Fisher-Price Baby Toy Purple Monkey Musical Storybook** features an intera
 
 This toy not only entertains but also supports early developmental milestones by introducing basic concepts of sound, rhythm, and storytelling. The gentle musical tunes and flashing lights promote auditory and visual learning, while the storybook format fosters curiosity and imagination. Overall, it’s a well-rounded educational toy that provides hours of fun and learning for young children.
 
-## <a href="https://www.amazon.com/dp/B0CBQV2FBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Laugh &amp; Learn Wake Up &amp; Learn Coffee Mug</a>
+## <a href="https://www.amazon.com/dp/B0CBQV2FBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Laugh &amp; Learn Wake Up &amp; Learn Coffee Mug</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBQV2FBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Baby &amp; Toddler Toy Laugh &amp; Learn Wake Up &amp; Learn Coffee Mug with Lights Music &amp; Learning for Infants Ages 6+ Months" src="https://m.media-amazon.com/images/I/41Q+KVpichL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBQV2FBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Baby &amp; Toddler Toy Laugh &amp; Learn Wake Up &amp; Learn Coffee Mug with Lights Music &amp; Learning for Infants Ages 6+ Months" src="https://m.media-amazon.com/images/I/41Q+KVpichL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Baby & Toddler Toy Laugh & Learn Wake Up & Learn Coffee Mug** is ideal for parents and caregivers seeking an engaging and educational toy for infants aged **6+ months**. This toy is perfect for little ones who are beginning to explore sounds, lights, and early learning concepts, making it a great choice for developmental stimulation during the crucial early months.
@@ -230,10 +230,10 @@ The **Laugh & Learn Wake Up & Learn Coffee Mug** features interactive buttons th
 
 Additionally, this toy promotes cognitive skills by teaching babies about numbers, colors, and greetings through playful interaction. The engaging music and phrases foster a positive learning environment, making it an enjoyable experience for both babies and caregivers. Overall, it serves as a fun and educational tool that supports early childhood development in a safe and entertaining way.
 
-## <a href="https://www.amazon.com/dp/B0C1SJVKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sanjoin Dancing Talking Cactus Toy</a>
+## <a href="https://www.amazon.com/dp/B0C1SJVKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sanjoin Dancing Talking Cactus Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1SJVKCH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SANJOIN Dancing Talking Cactus Toy for Baby Toddler, Boys Girls Gifts Singing Mimicking Recording Repeating What You Say Baby Toys with 120 English Songs (Adjustable Volume)" src="https://m.media-amazon.com/images/I/51U1ueaPI9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1SJVKCH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SANJOIN Dancing Talking Cactus Toy for Baby Toddler, Boys Girls Gifts Singing Mimicking Recording Repeating What You Say Baby Toys with 120 English Songs (Adjustable Volume)" src="https://m.media-amazon.com/images/I/51U1ueaPI9L._SL500_.jpg"/></a>
 
 
 The **SANJOIN Dancing Talking Cactus Toy** is an ideal gift for **babies and toddlers** who love interactive and musical toys. Perfect for both **boys and girls**, this toy is designed to engage young children with its lively movements and entertaining features, making it a great choice for parents and caregivers seeking a fun and educational playtime companion.
@@ -256,10 +256,10 @@ The **SANJOIN Dancing Talking Cactus Toy** offers a dynamic play experience by c
 
 Designed with young users in mind, this toy's **adjustable volume** feature allows parents to tailor sound levels to suit their child's comfort, ensuring a safe listening environment. Its compact size makes it easy for toddlers to hold and carry, while the vibrant **green cactus design** and lively dancing motions make playtime visually appealing and interactive, promoting imaginative play and motor skills development.
 
-## <a href="https://www.amazon.com/dp/B0B5XPFKC3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crawling Crab Baby Toy</a>
+## <a href="https://www.amazon.com/dp/B0B5XPFKC3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crawling Crab Baby Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5XPFKC3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="control future Crawling Crab Baby Toy - Infant Tummy Time Toys 3 4 5 6 7 8 9 10 11 12 Babies Boy 3-6 6-12 Learning Crawl 9-12 12-18 Walking Toddler 36 Months Old Music Development 1st Birthday Gifts" src="https://m.media-amazon.com/images/I/41fC5Rk-T4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5XPFKC3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="control future Crawling Crab Baby Toy - Infant Tummy Time Toys 3 4 5 6 7 8 9 10 11 12 Babies Boy 3-6 6-12 Learning Crawl 9-12 12-18 Walking Toddler 36 Months Old Music Development 1st Birthday Gifts" src="https://m.media-amazon.com/images/I/41fC5Rk-T4L._SL500_.jpg"/></a>
 
 
 The **control future Crawling Crab Baby Toy** is ideal for parents and caregivers looking to support their infant's developmental milestones from **3 months to 36 months old**. This toy is perfect for babies who are beginning to explore tummy time, crawling, and early walking stages, providing both entertainment and learning opportunities. If you want a multi-functional toy that encourages motor skills and sensory development, this is a great choice.

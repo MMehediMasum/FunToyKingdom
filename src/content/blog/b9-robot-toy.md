@@ -23,10 +23,10 @@ The Lost in Space Heavyweight Metal Robot B-9 and the Moebius Models Toy add a n
 
 
 
-## <a href="https://www.amazon.com/dp/B00LWDBRQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space B9 Robot Figure</a>
+## <a href="https://www.amazon.com/dp/B00LWDBRQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space B9 Robot Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B00LWDBRQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DIAMOND SELECT TOYS Lost in Space: Electronic Lights &amp; Sounds B9 Robot Figure, Multi-colored, 10 inches, (AUG142281)" src="https://m.media-amazon.com/images/I/41jvn+opGML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00LWDBRQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DIAMOND SELECT TOYS Lost in Space: Electronic Lights &amp; Sounds B9 Robot Figure, Multi-colored, 10 inches, (AUG142281)" src="https://m.media-amazon.com/images/I/41jvn+opGML._SL500_.jpg"/></a>
 
 
 The **DIAMOND SELECT TOYS Lost in Space: Electronic Lights & Sounds B9 Robot Figure** is ideal for collectors, sci-fi enthusiasts, and fans of the classic **Lost in Space** series looking to add a unique and interactive piece to their collection. This **10-inch** multi-colored figure offers both nostalgic value and modern electronic features, making it perfect for display or play. Whether you are a long-time fan or searching for a detailed, high-quality toy, this item caters to those who appreciate detailed craftsmanship combined with engaging functionality.
@@ -49,12 +49,12 @@ Featuring a height of **5.25 inches**, width of **12.56 inches**, and length of 
 
 Beyond aesthetics, the figure’s interactive elements offer added enjoyment, allowing owners to engage with the toy beyond simple display. Its manageable size and lightweight design make it easy to position for optimal viewing, while the quality manufacturing by **Diamond Comic Distributors** guarantees durability and lasting appeal. Overall, this B9 Robot figure combines nostalgia, function, and craftsmanship to delight both collectors and casual fans alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00LWDBRQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00LWDBRQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01EK8E6IE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space: B9 Electronic Robot Action Figure</a>
+## <a href="https://www.amazon.com/dp/B01EK8E6IE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space: B9 Electronic Robot Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B01EK8E6IE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Select Toys Lost in Space: B9 Electronic Robot Anti-Matter Version Action Figure" src="https://m.media-amazon.com/images/I/41iQsVZ1qIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01EK8E6IE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Select Toys Lost in Space: B9 Electronic Robot Anti-Matter Version Action Figure" src="https://m.media-amazon.com/images/I/41iQsVZ1qIL._SL500_.jpg"/></a>
 
 
 The **Diamond Select Toys Lost in Space: B9 Electronic Robot Anti-Matter Version Action Figure** is perfect for collectors, fans of the classic Lost in Space series, and enthusiasts of detailed electronic action figures. If you appreciate high-quality replicas with functional electronic features and want a standout piece for your collection, this action figure is an ideal choice. It suits those who enjoy nostalgia combined with modern craftsmanship.
@@ -77,12 +77,12 @@ The **B9 Electronic Robot Anti-Matter Version Action Figure** stands out with it
 
 Beyond aesthetics, the figure’s electronic functionalities provide an interactive experience, allowing users to engage with the character in a more dynamic way. This blend of vintage appeal and modern technology not only enhances enjoyment but also adds value for collectors who seek unique items. Overall, this action figure is a worthy addition for anyone passionate about Lost in Space memorabilia or electronic collectibles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01EK8E6IE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01EK8E6IE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000USYH24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space Heavyweight Metal Robot B-9</a>
+## <a href="https://www.amazon.com/dp/B000USYH24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space Heavyweight Metal Robot B-9</a>
 
 
-<a href="https://www.amazon.com/dp/B000USYH24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lost in Space Heavyweight Metal Robot B-9" src="https://m.media-amazon.com/images/I/41eGapl5VKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000USYH24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lost in Space Heavyweight Metal Robot B-9" src="https://m.media-amazon.com/images/I/41eGapl5VKL._SL500_.jpg"/></a>
 
 
 The **Lost in Space Heavyweight Metal Robot B-9** is perfect for collectors, sci-fi enthusiasts, and fans of vintage television memorabilia who appreciate finely crafted replicas. If you value detailed, durable models and want a standout piece from the iconic "Lost in Space" series, this item is an excellent addition to your collection.
@@ -103,12 +103,12 @@ The **Lost in Space Heavyweight Metal Robot B-9** stands out due to its meticulo
 
 Manufactured by **Playing Mantis**, known for quality collectibles, this model ensures longevity and authenticity. While it may not have electronic features, its robust design and faithful representation of the original Robot B-9 provide significant value to enthusiasts seeking a durable and visually striking piece. Whether for nostalgia or admiration of sci-fi history, this heavyweight metal robot is a worthy investment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000USYH24?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000USYH24?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07QR7L7YK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space Retro B-9 Robot</a>
+## <a href="https://www.amazon.com/dp/B07QR7L7YK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space Retro B-9 Robot</a>
 
 
-<a href="https://www.amazon.com/dp/B07QR7L7YK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lost in Space: Electronic Lights &amp; Sounds Retro B-9 Robot, Multicolor" src="https://m.media-amazon.com/images/I/41bfWv0yPCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QR7L7YK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lost in Space: Electronic Lights &amp; Sounds Retro B-9 Robot, Multicolor" src="https://m.media-amazon.com/images/I/41bfWv0yPCL._SL500_.jpg"/></a>
 
 
 The **Lost in Space: Electronic Lights & Sounds Retro B-9 Robot** is ideal for fans of classic sci-fi memorabilia, collectors of vintage-inspired toys, and anyone who appreciates detailed replicas from iconic television series. If you enjoy nostalgic items that combine both display value and interactive features, this **multicolor** robot figure by **Diamond Select Toys** is a perfect addition to your collection.
@@ -131,12 +131,12 @@ The **Lost in Space Retro B-9 Robot** stands out with its detailed and faithful 
 
 Designed by **Diamond Select Toys**, the figure ensures high-quality materials and precise craftsmanship. Its **multicolor** finish captures the visual appeal of the original series, while its manageable size and lightweight build allow collectors to easily incorporate it into their existing collections. This item offers both aesthetic charm and interactive fun, making it a valuable piece for enthusiasts of retro sci-fi memorabilia.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07QR7L7YK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07QR7L7YK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00C0EIDSK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Television: Lost In Space - B-9 Robot</a>
+## <a href="https://www.amazon.com/dp/B00C0EIDSK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Television: Lost In Space - B-9 Robot</a>
 
 
-<a href="https://www.amazon.com/dp/B00C0EIDSK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Television: Lost in Space - B-9 Robot" src="https://m.media-amazon.com/images/I/51Q8NkfpqML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00C0EIDSK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Television: Lost in Space - B-9 Robot" src="https://m.media-amazon.com/images/I/51Q8NkfpqML._SL500_.jpg"/></a>
 
 
 The **Funko POP! Television: Lost in Space - B-9 Robot** is ideal for collectors and fans of classic sci-fi television shows, especially those who appreciate nostalgic memorabilia from the iconic series *Lost in Space*. If you love unique, eye-catching collectibles or are looking to add a distinctive piece to your Funko POP! collection, this item is perfect for you.
@@ -159,12 +159,12 @@ The **Funko POP! Lost in Space - B-9 Robot** stands out due to its meticulous cr
 
 Beyond aesthetics, this figure serves as a nostalgic tribute to the beloved television series, connecting fans with a piece of sci-fi history. The vibrant red color not only enhances its visual appeal but also makes it a conversation starter. Whether you are a seasoned Funko collector or a casual fan, this item offers a blend of quality, design, and fandom that enriches any collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00C0EIDSK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00C0EIDSK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00L4HXPXC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diamond Select Toys Lost In Space Robot B9 Metal Bottle Opener</a>
+## <a href="https://www.amazon.com/dp/B00L4HXPXC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diamond Select Toys Lost In Space Robot B9 Metal Bottle Opener</a>
 
 
-<a href="https://www.amazon.com/dp/B00L4HXPXC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Select Toys Lost in Space: Robot B9 Metal Bottle Opener" src="https://m.media-amazon.com/images/I/312yMpHNZPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00L4HXPXC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Select Toys Lost in Space: Robot B9 Metal Bottle Opener" src="https://m.media-amazon.com/images/I/312yMpHNZPL._SL500_.jpg"/></a>
 
 
 The **Diamond Select Toys Lost in Space: Robot B9 Metal Bottle Opener** is perfect for fans of the classic TV series *Lost in Space* and collectors of unique, functional memorabilia. If you appreciate nostalgic sci-fi items or are looking for a distinctive and practical gift, this item is ideal for you. Its compact size and detailed design make it a must-have for enthusiasts and everyday users alike.
@@ -187,12 +187,12 @@ The **Robot B9 Metal Bottle Opener** by **Diamond Select Toys** stands out due t
 
 Beyond its charming aesthetics, the metal construction offers durability and reliability when opening bottles, ensuring it withstands regular use without wear. The multicolor design enhances its visual appeal, making it more than just a tool—it’s a conversation starter. Whether used during gatherings or kept as part of a collection, this bottle opener combines form and function in a way that appeals to both sci-fi fans and practical users alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00L4HXPXC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00L4HXPXC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01GGOBATI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space: B9 Robot Vinimate Vinyl Figure</a>
+## <a href="https://www.amazon.com/dp/B01GGOBATI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space: B9 Robot Vinimate Vinyl Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B01GGOBATI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Select Toys Lost in Space: B9 Robot Vinimate Vinyl Figure" src="https://m.media-amazon.com/images/I/41OYMgW7KOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01GGOBATI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Select Toys Lost in Space: B9 Robot Vinimate Vinyl Figure" src="https://m.media-amazon.com/images/I/41OYMgW7KOL._SL500_.jpg"/></a>
 
 
 The **Diamond Select Toys Lost in Space: B9 Robot Vinimate Vinyl Figure** is ideal for avid collectors, fans of the classic "Lost in Space" series, and enthusiasts of unique, high-quality vinyl figures. If you appreciate nostalgic memorabilia or are looking to add a distinctive piece to your collection, this figure is a perfect choice.
@@ -215,12 +215,12 @@ The **B9 Robot Vinimate Vinyl Figure** stands out with its attention to detail a
 
 Beyond its visual appeal, the figure provides collectors with a tangible connection to the beloved "Lost in Space" franchise. The design captures the robot’s distinctive features, appealing to nostalgic fans and new enthusiasts alike. While its limited articulation means it is best suited for display rather than active play, the figure’s durability and brand reputation ensure it remains a cherished collectible for years to come.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01GGOBATI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01GGOBATI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00L3DRBPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space Robot B9 From Moebius Models Toy</a>
+## <a href="https://www.amazon.com/dp/B00L3DRBPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lost In Space Robot B9 From Moebius Models Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B00L3DRBPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lost in Space Robot B9 From Moebius Models Toy, Kids, Play, Children" src="https://m.media-amazon.com/images/I/410QnpLpSLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00L3DRBPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lost in Space Robot B9 From Moebius Models Toy, Kids, Play, Children" src="https://m.media-amazon.com/images/I/410QnpLpSLL._SL500_.jpg"/></a>
 
 
 The **Lost in Space Robot B9** from **Moebius Models** is ideal for children and collectors who are fans of classic sci-fi television and vintage toys. Perfect for kids who enjoy imaginative play and adults who appreciate detailed, nostalgic collectibles, this **silver** robot model offers both entertainment and display value.
@@ -243,12 +243,12 @@ The **Lost in Space Robot B9** by **Moebius Models** stands out with its meticul
 
 Beyond its visual appeal, this model fosters creativity and imagination among children by allowing them to reenact scenes from the classic show or invent new adventures. Its durable materials mean it can withstand regular use, making it a reliable companion for kids. For collectors, the authenticity and craftsmanship of the **Lost in Space Robot B9** provide a standout piece to showcase in any collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00L3DRBPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00L3DRBPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DZN2KDBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Remote Control Robot Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B0DZN2KDBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Remote Control Robot Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZN2KDBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Remote Control Robot Dog Toy, RC Dog Programmable Smart Interactive Robotic Pets, RC Stunt Robot Toys Imitates Animals Music Dancing Handstand Push-up Follow Functions for Boys Girls Toy White Silver" src="https://m.media-amazon.com/images/I/41hGHbKEFKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZN2KDBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Remote Control Robot Dog Toy, RC Dog Programmable Smart Interactive Robotic Pets, RC Stunt Robot Toys Imitates Animals Music Dancing Handstand Push-up Follow Functions for Boys Girls Toy White Silver" src="https://m.media-amazon.com/images/I/41hGHbKEFKL._SL500_.jpg"/></a>
 
 
 The **Remote Control Robot Dog Toy** is perfect for children and tech enthusiasts who love interactive and programmable robotic pets. Ideal for both **boys and girls**, this smart toy offers a fun and educational experience, combining entertainment with learning through its advanced **programmable features** and animal-like behaviors.
@@ -271,12 +271,12 @@ This **RC Dog Programmable Smart Interactive Robotic Pet** is designed to mimic 
 
 With its variety of interactive functions controlled via remote, this robotic dog toy provides endless entertainment while promoting learning. The music and follow functions simulate a real pet experience, helping children develop a sense of responsibility and care. Manufactured by the trusted **SUPIREO** brand and produced by a leading toy factory, this item assures quality and durability for long-lasting fun.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DZN2KDBG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DZN2KDBG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07RWLZSQP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kingsdragon Rc Robot Toys For Kids</a>
+## <a href="https://www.amazon.com/dp/B07RWLZSQP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kingsdragon Rc Robot Toys For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B07RWLZSQP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KingsDragon RC Robot Toys for Kids, Gesture &amp; Sensing Programmable Remote Control Smart Robot for Age 3 4 5 6 7 8 Year Old Boys Girls Birthday Gift Present" src="https://m.media-amazon.com/images/I/41IkeVXZLQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RWLZSQP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KingsDragon RC Robot Toys for Kids, Gesture &amp; Sensing Programmable Remote Control Smart Robot for Age 3 4 5 6 7 8 Year Old Boys Girls Birthday Gift Present" src="https://m.media-amazon.com/images/I/41IkeVXZLQL._SL500_.jpg"/></a>
 
 
 The **KingsDragon RC Robot Toys for Kids** is ideal for young children aged 3 to 8 years old who are curious about technology and love interactive play. This smart robot is perfect for both boys and girls looking to develop their creativity, hand-eye coordination, and problem-solving skills through fun and educational activities. Parents seeking a versatile and engaging **birthday gift** or present that encourages learning and play will find this product especially suitable.
@@ -299,7 +299,7 @@ The **KingsDragon RC Robot** features advanced **gesture and sensing technology*
 
 Designed with a compact and lightweight frame, the robot is easy for small hands to handle and transport. Its vibrant **blue color** and sturdy construction from the reputable **KingsDragon manufacturer** ensure it captures attention and withstands active play. Overall, this remote control smart robot is an excellent educational toy that combines fun, learning, and technology in one appealing package for young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07RWLZSQP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07RWLZSQP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

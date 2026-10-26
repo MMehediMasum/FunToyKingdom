@@ -23,10 +23,10 @@ These kits suit a wide age range, from toddlers to teens. They provide education
 
 
 
-## <a href="https://www.amazon.com/dp/B0008EJIQA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maisto 1929 Ford Model A Diecast Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0008EJIQA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maisto 1929 Ford Model A Diecast Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0008EJIQA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Maisto 1:24 Scale All Star Assembly Line 1929 Ford Model A Diecast Model Kit Small" src="https://m.media-amazon.com/images/I/51HPRs9Sz9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0008EJIQA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Maisto 1:24 Scale All Star Assembly Line 1929 Ford Model A Diecast Model Kit Small" src="https://m.media-amazon.com/images/I/51HPRs9Sz9L._SL500_.jpg"/></a>
 
 
 The **Maisto 1:24 Scale All Star Assembly Line 1929 Ford Model A Diecast Model Kit Small** is perfect for **model car enthusiasts**, **collectors**, and those who appreciate **vintage automobiles**. If you enjoy hands-on projects and want to add a detailed replica of a classic **1929 Ford Model A** to your collection, this kit is an ideal choice. Its compact size and authentic design make it suitable for both beginners and experienced hobbyists.
@@ -49,10 +49,10 @@ This **diecast model kit** offers an impressive level of realism, capturing the 
 
 Constructed by **Maisto**, a trusted name in the diecast industry, this kit delivers quality and durability. It provides an engaging assembly experience that helps users understand the classic car's components. Whether you're a seasoned modeler or a newcomer, the kit strikes a balance between detail and accessibility, making it both fun and educational to build and display.
 
-## <a href="https://www.amazon.com/dp/B0741W4MSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pup Go Construction Toys For Boys</a>
+## <a href="https://www.amazon.com/dp/B0741W4MSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pup Go Construction Toys For Boys</a>
 
 
-<a href="https://www.amazon.com/dp/B0741W4MSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pup Go Construction Toys for Boys Age 3-8, Take Apart Toy Car Racing, 30 Pieces Building Toys with Electric Drill, Build Your Own Car with Realistic Sounds &amp; Lights, STEM Gifts Kids (4 Spare Screws)" src="https://m.media-amazon.com/images/I/51fJ0v9IVkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0741W4MSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pup Go Construction Toys for Boys Age 3-8, Take Apart Toy Car Racing, 30 Pieces Building Toys with Electric Drill, Build Your Own Car with Realistic Sounds &amp; Lights, STEM Gifts Kids (4 Spare Screws)" src="https://m.media-amazon.com/images/I/51fJ0v9IVkL._SL500_.jpg"/></a>
 
 
 The **Pup Go Construction Toys for Boys Age 3-8** is ideal for young children who love to build and explore. This toy is perfect for kids in the early childhood stage who enjoy hands-on activities and want to develop their creativity and problem-solving skills. Parents looking for an engaging and educational gift that combines play with STEM learning will find this set an excellent choice.
@@ -75,10 +75,10 @@ The **Pup Go Construction Toys** set offers a wonderful combination of fun and e
 
 Designed with **STEM principles** in mind, this toy helps children understand basic mechanical functions and encourages critical thinking. Its bright **yellow color** and sturdy construction make it visually appealing and durable. Overall, this set provides a hands-on experience that combines playtime with valuable learning opportunities, making it an excellent gift for kids aged 3 to 8.
 
-## <a href="https://www.amazon.com/dp/B00IEABIAO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maisto Assembly Line Lamborghini Aventador Roadster Die Cast Model Kit</a>
+## <a href="https://www.amazon.com/dp/B00IEABIAO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maisto Assembly Line Lamborghini Aventador Roadster Die Cast Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B00IEABIAO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Maisto Assembly Line Lamborghini Aventador Roadster Die Cast Model Kit (1:24 Scale), Colors May Vary" src="https://m.media-amazon.com/images/I/41cs6Y-w2eS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00IEABIAO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Maisto Assembly Line Lamborghini Aventador Roadster Die Cast Model Kit (1:24 Scale), Colors May Vary" src="https://m.media-amazon.com/images/I/41cs6Y-w2eS._SL500_.jpg"/></a>
 
 
 The **Maisto Assembly Line Lamborghini Aventador Roadster Die Cast Model Kit (1:24 Scale)** is perfect for hobbyists, car enthusiasts, and collectors who enjoy hands-on projects. Ideal for those who appreciate detailed craftsmanship and want to build a realistic replica of a luxury sports car, this kit offers an engaging and rewarding experience for both beginners and experienced model builders.
@@ -101,10 +101,10 @@ The **Maisto Assembly Line Lamborghini Aventador Roadster Model Kit** stands out
 
 Additionally, the compact dimensions make it an excellent display piece for desks, shelves, or showcases. The assembly process itself offers an immersive experience that helps develop fine motor skills and patience, making it a rewarding activity for hobbyists. Despite the variation in colors, the kit guarantees a visually striking model that reflects the prestige of the original luxury sports car.
 
-## <a href="https://www.amazon.com/dp/B09CPV6FDP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits For Kids Wood Building Projects Crafts Science Model Car Kits Wooden 3d Puzzles Stem Toys Birthday Gifts</a>
+## <a href="https://www.amazon.com/dp/B09CPV6FDP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits For Kids Wood Building Projects Crafts Science Model Car Kits Wooden 3d Puzzles Stem Toys Birthday Gifts</a>
 
 
-<a href="https://www.amazon.com/dp/B09CPV6FDP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits for Kids Age 8-10 10-12, 6 Set Wood Building Projects Crafts Science Model Car Kits for Kids Age 8-12 5-7, Wooden 3D Puzzles, STEM Toys for Boys 7 8 9 10 12 13 Year Old Birthday Gifts" src="https://m.media-amazon.com/images/I/51CFU-V8WIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09CPV6FDP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits for Kids Age 8-10 10-12, 6 Set Wood Building Projects Crafts Science Model Car Kits for Kids Age 8-12 5-7, Wooden 3D Puzzles, STEM Toys for Boys 7 8 9 10 12 13 Year Old Birthday Gifts" src="https://m.media-amazon.com/images/I/51CFU-V8WIL._SL500_.jpg"/></a>
 
 
 The **STEM Kits for Kids Age 8-10 10-12** by **Yutin** are perfect for young learners who have a keen interest in **science, technology, engineering, and math**. These kits are ideal for children aged **7 to 13 years** who enjoy hands-on activities and want to develop their problem-solving and critical thinking skills through engaging **wooden 3D puzzles** and **model car projects**.
@@ -127,10 +127,10 @@ The **Yutin STEM Kits** offer an excellent blend of education and entertainment,
 
 With these kits, kids gain hands-on experience in various **STEM disciplines**, promoting cognitive development and encouraging curiosity about how things work. The wooden components ensure that the toys are sturdy and sustainable, while the compact design makes them perfect for both home and classroom use. Overall, these kits serve as an outstanding educational tool and a fun activity for birthdays or special occasions.
 
-## <a href="https://www.amazon.com/dp/B083R16TXH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coogam Take Apart Racing Car</a>
+## <a href="https://www.amazon.com/dp/B083R16TXH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coogam Take Apart Racing Car</a>
 
 
-<a href="https://www.amazon.com/dp/B083R16TXH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coogam Take Apart Racing Car with Electric Screwdriver Tool, Fine Motor Skill Toy Car Construction Set STEM Building Learning Game with Light and Sound Gifts for Year Old Boys and Girls" src="https://m.media-amazon.com/images/I/51bkktCnniL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083R16TXH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coogam Take Apart Racing Car with Electric Screwdriver Tool, Fine Motor Skill Toy Car Construction Set STEM Building Learning Game with Light and Sound Gifts for Year Old Boys and Girls" src="https://m.media-amazon.com/images/I/51bkktCnniL._SL500_.jpg"/></a>
 
 
 The **Coogam Take Apart Racing Car with Electric Screwdriver Tool** is perfect for young children, especially boys and girls who are curious about how things work and enjoy hands-on activities. This **STEM building learning game** is ideal for kids who love to explore, build, and develop their **fine motor skills** through interactive play. It is a great choice for parents looking to combine fun with educational value.
@@ -152,10 +152,10 @@ The **Coogam Take Apart Racing Car** offers an exciting and educational experien
 
 Beyond just assembly, the added **light and sound features** create an immersive playtime environment, keeping children entertained while learning. The compact and sturdy design ensures that the car can withstand enthusiastic play, making it a long-lasting addition to any child's toy collection. Overall, this set is an excellent gift that promotes creativity, learning, and fine motor development in a fun and interactive way.
 
-## <a href="https://www.amazon.com/dp/B002DOZR3G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1967 Pontiac Gto</a>
+## <a href="https://www.amazon.com/dp/B002DOZR3G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1967 Pontiac Gto</a>
 
 
-<a href="https://www.amazon.com/dp/B002DOZR3G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MPC: 1:25 Scale Model Kit - 1967 Pontiac GTO - Blue, 85+ Parts - Skill Level 2, Authentic Vehicle Building Kit, Replica Classic Car, Age 14+" src="https://m.media-amazon.com/images/I/41oCvZPt5-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002DOZR3G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MPC: 1:25 Scale Model Kit - 1967 Pontiac GTO - Blue, 85+ Parts - Skill Level 2, Authentic Vehicle Building Kit, Replica Classic Car, Age 14+" src="https://m.media-amazon.com/images/I/41oCvZPt5-L._SL500_.jpg"/></a>
 
 
 The **MPC: 1:25 Scale Model Kit - 1967 Pontiac GTO - Blue** is ideal for hobbyists and classic car enthusiasts aged 14 and above who enjoy detailed, hands-on model building. This **skill level 2** kit is perfect for those looking to advance their modeling skills with a moderately challenging project that results in a highly authentic replica of the iconic 1967 Pontiac GTO.
@@ -178,10 +178,10 @@ This **1:25 scale model kit** provides an engaging and rewarding experience by c
 
 The kit’s manageable size and weight make it perfect for display on shelves or in cases, highlighting the craftsmanship of the finished model. Additionally, the intermediate skill level ensures that builders can develop their modeling techniques while enjoying a satisfying challenge, making it a great choice for both teenagers and adult hobbyists.
 
-## <a href="https://www.amazon.com/dp/B0DLW46VT3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mould King Mini V8 Engine Kits That Runs</a>
+## <a href="https://www.amazon.com/dp/B0DLW46VT3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mould King Mini V8 Engine Kits That Runs</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLW46VT3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mould King Mini V8 Engine Kits That Runs, Build Your Own Visible Car Motor, Physical Science Experiment Models for Teens, Best STEM Toy Gifts for Kids and Adult 10171 (487 Pcs)" src="https://m.media-amazon.com/images/I/51GV4ivyTtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLW46VT3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mould King Mini V8 Engine Kits That Runs, Build Your Own Visible Car Motor, Physical Science Experiment Models for Teens, Best STEM Toy Gifts for Kids and Adult 10171 (487 Pcs)" src="https://m.media-amazon.com/images/I/51GV4ivyTtL._SL500_.jpg"/></a>
 
 
 The **Mould King Mini V8 Engine Kits That Runs** is an ideal product for **teens** and **STEM enthusiasts** who enjoy hands-on learning and building projects. Perfect for those who want to explore **physical science** concepts through a tangible and interactive model, this kit is also a great choice for **kids and adults** looking for an educational and entertaining toy that demonstrates the workings of a real car motor.
@@ -204,10 +204,10 @@ The **Mould King Mini V8 Engine Kit** is thoughtfully designed to simulate the m
 
 Additionally, the kit’s moderate size and manageable weight make it an excellent display piece for classrooms or home study areas. Its detailed construction encourages patience and precision, which are valuable skills in both academic and real-world contexts. Overall, this kit offers a rewarding blend of education and entertainment, making it one of the best **STEM toy gifts** for both **kids and adults** interested in science and engineering.
 
-## <a href="https://www.amazon.com/dp/B0CGY2KWTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lego Technic Off-road Race Buggy</a>
+## <a href="https://www.amazon.com/dp/B0CGY2KWTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lego Technic Off-road Race Buggy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGY2KWTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEGO Technic Off-Road Race Buggy Buildable Car Toy, Cool Toy for 8 Year Old Boys, Girls and Kids who Love Rally Contests, Race Car Toy Featuring Moving 4-Cylinder Engine and Working Suspension, 42164" src="https://m.media-amazon.com/images/I/51+RMFHS1HL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGY2KWTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEGO Technic Off-Road Race Buggy Buildable Car Toy, Cool Toy for 8 Year Old Boys, Girls and Kids who Love Rally Contests, Race Car Toy Featuring Moving 4-Cylinder Engine and Working Suspension, 42164" src="https://m.media-amazon.com/images/I/51+RMFHS1HL._SL500_.jpg"/></a>
 
 
 The **LEGO Technic Off-Road Race Buggy Buildable Car Toy** is perfect for **8 year old boys, girls, and kids** who have a passion for **rally contests** and **race car toys**. Ideal for young builders who enjoy hands-on activities, this set encourages creativity and fine motor skills while offering an exciting introduction to mechanical concepts.
@@ -229,10 +229,10 @@ The **LEGO Technic Off-Road Race Buggy** stands out with its intricate design, f
 
 Additionally, the buildable nature of the car encourages patience and problem-solving skills, as kids follow step-by-step instructions to complete the model. The compact size and durable construction ensure that the buggy can be both a display piece and a robust toy for active play. Overall, this LEGO set offers a perfect blend of educational value and fun for young enthusiasts of race cars and engineering.
 
-## <a href="https://www.amazon.com/dp/B0DPW6BJYG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits For Kids Remote Control Model Car Building Kits Wood 3d Puzzles Science Crafts Projects</a>
+## <a href="https://www.amazon.com/dp/B0DPW6BJYG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits For Kids Remote Control Model Car Building Kits Wood 3d Puzzles Science Crafts Projects</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPW6BJYG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits for Kids Age 8-10, STEM Toys for Boys 8-12, Remote Control Model Car Building Kits, Wood 3D Puzzles 8-13, Science Crafts Projects, Gifts for 8 9 10 11 12 13 14 Year Old Teen Boys Girls" src="https://m.media-amazon.com/images/I/51V2xrTJGuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPW6BJYG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits for Kids Age 8-10, STEM Toys for Boys 8-12, Remote Control Model Car Building Kits, Wood 3D Puzzles 8-13, Science Crafts Projects, Gifts for 8 9 10 11 12 13 14 Year Old Teen Boys Girls" src="https://m.media-amazon.com/images/I/51V2xrTJGuL._SL500_.jpg"/></a>
 
 
 The **STEM Kits for Kids Age 8-10** are perfect for young learners who have a curiosity for science, technology, engineering, and math. Ideal for boys and girls aged 8 to 14, these kits are especially suited for children who enjoy hands-on activities like building and crafting. Parents and educators looking to encourage problem-solving skills and creativity will find this product an excellent choice to engage kids in educational play.
@@ -254,10 +254,10 @@ The **Yutin STEM Kits** combine educational value with fun by allowing kids to b
 
 Additionally, the compact size of the kits makes them easy to store and transport, perfect for at-home or on-the-go learning. The bright red color adds visual appeal, making the experience more engaging for children. Whether used as a gift or a classroom resource, these STEM kits provide a valuable opportunity for kids to explore science and engineering concepts in a hands-on, enjoyable way.
 
-## <a href="https://www.amazon.com/dp/B098PHLGYZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiseplay Build Your Own Rc Car Kit For Kids</a>
+## <a href="https://www.amazon.com/dp/B098PHLGYZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiseplay Build Your Own Rc Car Kit For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B098PHLGYZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WISEPLAY Build Your Own RC Car Kit for Kids | 325-Pieces STEM Building Toys for Boys and Girls | Perfect Christmas &amp; Birthday Gift for 6-10 Year Olds (Blue)" src="https://m.media-amazon.com/images/I/51iyM4Lka1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098PHLGYZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WISEPLAY Build Your Own RC Car Kit for Kids | 325-Pieces STEM Building Toys for Boys and Girls | Perfect Christmas &amp; Birthday Gift for 6-10 Year Olds (Blue)" src="https://m.media-amazon.com/images/I/51iyM4Lka1L._SL500_.jpg"/></a>
 
 
 The **WISEPLAY Build Your Own RC Car Kit for Kids** is ideal for young aspiring engineers and creative minds aged **6-10 years**. This **325-piece STEM building toy** is perfect for children who enjoy hands-on activities, love building things, and want to develop their problem-solving and motor skills. It's also a fantastic gift for boys and girls who are fascinated by remote-controlled vehicles and want to learn the basics of engineering and mechanics through play.

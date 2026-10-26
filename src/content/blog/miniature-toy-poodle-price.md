@@ -20,10 +20,10 @@ Accessories such as chewable tablets for health, soft squeaky toys, and dog shir
 
 
 
-## <a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Toy Poodle Multi-tabs Plus Chewable Tablets</a>
+## <a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Toy Poodle Multi-tabs Plus Chewable Tablets</a>
 
 
-<a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Toy Poodle Multi-Tabs Plus Chewable Tablets 180 Count" src="https://m.media-amazon.com/images/I/411rP9JE5yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Toy Poodle Multi-Tabs Plus Chewable Tablets 180 Count" src="https://m.media-amazon.com/images/I/411rP9JE5yL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Toy Poodle Multi-Tabs Plus Chewable Tablets 180 Count** are ideal for **Toy Poodle owners** seeking a comprehensive daily supplement to support their pet's overall health. If you want to ensure your small breed dog receives balanced nutrition tailored specifically to their unique needs, this product is designed for you. Perfect for maintaining vitality, enhancing coat quality, and supporting immune function, these chewables are a convenient addition to your Toy Poodle’s diet.
@@ -46,10 +46,10 @@ These **Healthy Breeds Multi-Tabs Plus Chewable Tablets** are expertly crafted b
 
 The product’s formulation includes antioxidants and vitamins that contribute to a shiny, healthy coat and improved skin condition, which are often concerns for Toy Poodle owners. Additionally, these tablets help bolster natural defenses and promote overall wellness, making them a smart choice for preventive health care. With the convenience of a 180-count bottle, you can maintain your pet’s health regimen without frequent repurchasing, providing both convenience and peace of mind.
 
-## <a href="https://www.amazon.com/dp/B0CXJL2DM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dog Shirt</a>
+## <a href="https://www.amazon.com/dp/B0CXJL2DM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dog Shirt</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXJL2DM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Pieces Dog Shirt Dog Shirts for Medium Dogs Boy Dog Clothes Medium Sized Dog Dog Clothes for Small Dogs Puppy Clothes Dog Clothing Toy Poodle Clothes (Large)" src="https://m.media-amazon.com/images/I/51Ea9pI-tbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXJL2DM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Pieces Dog Shirt Dog Shirts for Medium Dogs Boy Dog Clothes Medium Sized Dog Dog Clothes for Small Dogs Puppy Clothes Dog Clothing Toy Poodle Clothes (Large)" src="https://m.media-amazon.com/images/I/51Ea9pI-tbL._SL500_.jpg"/></a>
 
 
 Ideal for pet owners seeking stylish and comfortable apparel for their medium-sized dogs, the **2 Pieces Dog Shirt Dog Shirts for Medium Dogs** by **Puppishy** is perfect for those who want to keep their furry friends cozy and fashionable. This set is especially suitable for owners of breeds like Toy Poodles and other small to medium-sized dogs looking for quality dog clothing that fits well and looks great.
@@ -72,10 +72,10 @@ The **2 Pieces Dog Shirt Dog Shirts** set is crafted with attention to detail by
 
 Beyond comfort, these dog shirts are designed to enhance your pet’s appearance with a vibrant **blue color** that stands out. Whether for casual outings or special occasions, these shirts provide an easy way to dress your dog in a charming and practical outfit. Additionally, owning two shirts means you always have a clean option ready, which is especially beneficial for busy pet owners.
 
-## <a href="https://www.amazon.com/dp/B0BW9X42MH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Ball Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B0BW9X42MH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Small Ball Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0BW9X42MH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img )="" -="" 2="" alt="Small Ball Dog Toy - 100% Natural Rubber (Latex) - Soft Squeaky Dog Toy - Small Dogs Puppies - Indoor Play - Free from Harmful Chemicals - Small (2.35" of="" pink"="" set="" src="https://m.media-amazon.com/images/I/41Mjc6m1T1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BW9X42MH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img )="" -="" 2="" alt="Small Ball Dog Toy - 100% Natural Rubber (Latex) - Soft Squeaky Dog Toy - Small Dogs Puppies - Indoor Play - Free from Harmful Chemicals - Small (2.35" of="" pink"="" set="" src="https://m.media-amazon.com/images/I/41Mjc6m1T1L._SL500_.jpg"/></a>
 
 
 The **Small Ball Dog Toy** made from **100% Natural Rubber (Latex)** is ideal for **small dogs and puppies** who need a safe, engaging toy for **indoor play**. Pet owners looking for a **chemical-free**, **soft**, and **squeaky** toy that promotes interactive fun will find this set of two pink balls perfect for their furry friends.
@@ -98,10 +98,10 @@ This **Small Ball Dog Toy** by **Lucas b Natural Dog Toys** offers a blend of sa
 
 The toy’s chemical-free makeup reassures pet owners about their dog’s health while the bright **pink color** makes it easy to find around the house. Additionally, the set of two allows dogs to have multiple toys to play with or gives owners a backup when one toy is being cleaned. This combination of thoughtful design and safety makes it an excellent choice for indoor playtime with small dogs.
 
-## <a href="https://www.amazon.com/dp/B079ZW8WG7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Toy Poodle Oatmeal Shampoo</a>
+## <a href="https://www.amazon.com/dp/B079ZW8WG7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Toy Poodle Oatmeal Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B079ZW8WG7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Toy Poodle Oatmeal Shampoo with Aloe 16 oz" src="https://m.media-amazon.com/images/I/31h--GeAFQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079ZW8WG7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Toy Poodle Oatmeal Shampoo with Aloe 16 oz" src="https://m.media-amazon.com/images/I/31h--GeAFQL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Toy Poodle Oatmeal Shampoo with Aloe 16 oz.** is perfect for pet owners who want a gentle yet effective grooming product specifically formulated for **toy poodles**. Ideal for those who prioritize their dog’s sensitive skin health, this shampoo caters to dogs prone to dryness and irritation, offering a soothing and nourishing clean.
@@ -124,10 +124,10 @@ This shampoo combines the natural soothing properties of **oatmeal** and **aloe*
 
 Additionally, the compact and ergonomic design of the bottle ensures ease of use and storage, while the trusted **Healthy Breeds** brand assures pet owners of a quality grooming solution. This product not only cleans but also nourishes your pet’s skin, promoting a healthy, shiny coat and enhancing overall comfort after every bath.
 
-## <a href="https://www.amazon.com/dp/B0186UYKD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spunky Pup Squeaky Gems Heart Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B0186UYKD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spunky Pup Squeaky Gems Heart Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0186UYKD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spunky pup Squeaky Gems Heart Dog Toy | Fun Squeak | Crazy Bounce Gem Cut Shape that Floats | Non-Toxic Rubber | Dishwasher Safe | Perfect Toys for Small to Medium Breeds" src="https://m.media-amazon.com/images/I/5123-0YpsEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0186UYKD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spunky pup Squeaky Gems Heart Dog Toy | Fun Squeak | Crazy Bounce Gem Cut Shape that Floats | Non-Toxic Rubber | Dishwasher Safe | Perfect Toys for Small to Medium Breeds" src="https://m.media-amazon.com/images/I/5123-0YpsEL._SL500_.jpg"/></a>
 
 
 The **Spunky Pup Squeaky Gems Heart Dog Toy** is ideal for pet owners with **small to medium breed dogs** looking for a durable, engaging, and safe toy. This toy is perfect for dogs that love interactive play and squeaky sounds, providing hours of entertainment while also being gentle on your pet’s teeth and gums. If you want a toy that offers both fun and safety, this is an excellent choice.
@@ -151,10 +151,10 @@ The **Spunky Pup Squeaky Gems Heart Dog Toy** stands out with its unique gem cut
 
 Additionally, the toy’s **dishwasher safe** feature simplifies maintenance for busy pet owners, ensuring cleanliness without extra effort. Manufactured by **American Dog Toys** under the trusted **Spunky Pup** brand, this toy combines quality and fun, making it an excellent investment for keeping your furry friend happy and healthy.
 
-## <a href="https://www.amazon.com/dp/B0CN2PM8FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doreenabe Silver Miniature Or Toy Poodle Ornaments</a>
+## <a href="https://www.amazon.com/dp/B0CN2PM8FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doreenabe Silver Miniature Or Toy Poodle Ornaments</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN2PM8FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DOREENABE Silver Miniature Or Toy Poodle Ornaments Personalized Dog Ornament Custom Christmas Pet Ornament Pet Remembrance Keepsake Dog Memorial Gift 3" dog="" for="" gift="" keepsake="" lovers"="" pet="" src="https://m.media-amazon.com/images/I/41C71bsx5rL._SL500_.jpg" tree="" xmas=""/></a>
+<a href="https://www.amazon.com/dp/B0CN2PM8FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DOREENABE Silver Miniature Or Toy Poodle Ornaments Personalized Dog Ornament Custom Christmas Pet Ornament Pet Remembrance Keepsake Dog Memorial Gift 3" dog="" for="" gift="" keepsake="" lovers"="" pet="" src="https://m.media-amazon.com/images/I/41C71bsx5rL._SL500_.jpg" tree="" xmas=""/></a>
 
 
 The **DOREENABE Silver Miniature Or Toy Poodle Ornaments** are perfect for **dog lovers** who want to celebrate their furry friends, especially those who cherish **Miniature or Toy Poodles**. Ideal as a **personalized Christmas pet ornament** or a **pet remembrance keepsake**, this item is suited for anyone looking to add a special, custom touch to their holiday decorations or to honor the memory of a beloved pet.
@@ -177,10 +177,10 @@ Crafted by the reputable **DOREENABE** brand, this silver ornament offers both a
 
 Beyond its decorative function, the ornament serves as a meaningful **pet remembrance keepsake**, helping owners honor their cherished companions. The durable materials and elegant styling blend seamlessly into home décor while preserving precious memories. Whether gifted or kept, this ornament is a heartfelt tribute to the enduring bond between owners and their beloved Miniature or Toy Poodles.
 
-## <a href="https://www.amazon.com/dp/B08ZMRP96W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lophipets Girl Dog Shirts Pajamas For Small Dog</a>
+## <a href="https://www.amazon.com/dp/B08ZMRP96W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lophipets Girl Dog Shirts Pajamas For Small Dog</a>
 
 
-<a href="https://www.amazon.com/dp/B08ZMRP96W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOPHIPETS Girl Dog Shirts Pajamas for Small Dog Pomeranian Maltese Toy Poodle-Green Strips/M" src="https://m.media-amazon.com/images/I/41JPSe+oBQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08ZMRP96W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOPHIPETS Girl Dog Shirts Pajamas for Small Dog Pomeranian Maltese Toy Poodle-Green Strips/M" src="https://m.media-amazon.com/images/I/41JPSe+oBQL._SL500_.jpg"/></a>
 
 
 The **LOPHIPETS Girl Dog Shirts Pajamas** in **Green Strips** are perfect for owners of small dog breeds such as **Pomeranians, Maltese,** and **Toy Poodles** who want to keep their pets comfortable and stylish. Ideal for pet parents looking for cozy, well-fitting sleepwear that provides both warmth and a cute appearance during bedtime or lounging at home.
@@ -202,10 +202,10 @@ The **LOPHIPETS Girl Dog Shirts Pajamas** combine functionality with fashion, ma
 
 Beyond comfort, the stylish **Green Strips** design adds a charming aesthetic that enhances your pet’s appearance. Whether for nighttime wear or casual lounging, these pajamas provide warmth, softness, and an adorable look. The brand’s attention to detail and quality craftsmanship make this product a dependable option for small dog owners seeking both practicality and style.
 
-## <a href="https://www.amazon.com/dp/B0BTMDDJ8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wall Art Poster Print Of Portrait Of Maltese Dog</a>
+## <a href="https://www.amazon.com/dp/B0BTMDDJ8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wall Art Poster Print Of Portrait Of Maltese Dog</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTMDDJ8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wall Art Poster Print of Portrait of Maltese Dog Isolated on a White Background. Toy or Miniature Poodle. Cute Puppy. Realistic Hand Drawn Pet Illustration. Animal Collection: Dogs. Design Template." src="https://m.media-amazon.com/images/I/41LW5eZvsqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTMDDJ8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wall Art Poster Print of Portrait of Maltese Dog Isolated on a White Background. Toy or Miniature Poodle. Cute Puppy. Realistic Hand Drawn Pet Illustration. Animal Collection: Dogs. Design Template." src="https://m.media-amazon.com/images/I/41LW5eZvsqL._SL500_.jpg"/></a>
 
 
 Ideal for **dog lovers**, **pet owners**, and anyone looking to add a touch of charm to their living space, the **Wall Art Poster Print of Portrait of Maltese Dog** is perfect for those who appreciate **realistic hand-drawn pet illustrations**. This piece is especially suitable for individuals who want to showcase their affection for **toy or miniature poodles** in a stylish and artistic way.
@@ -228,10 +228,10 @@ This **wall art poster** features a beautifully detailed portrait of a **Maltese
 
 Crafted by **HardPress**, a trusted name in quality prints, this poster offers both style and substance. Its **compact dimensions** make it versatile for placement in bedrooms, living rooms, offices, or even pet stores. The soothing **pampas color palette** creates a warm ambiance that enhances the visual appeal without overwhelming the space. Overall, this print is an excellent choice for anyone wanting to celebrate their love for dogs through elegant and heartfelt artwork.
 
-## <a href="https://www.amazon.com/dp/B0CNXPGG3J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guangpat Silver Miniature Or Toy Poodle Ornaments</a>
+## <a href="https://www.amazon.com/dp/B0CNXPGG3J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guangpat Silver Miniature Or Toy Poodle Ornaments</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNXPGG3J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Guangpat Silver Miniature Or Toy Poodle Ornaments Personalized Dog Ornament Custom Christmas Pet Ornament Pet Remembrance Keepsake Dog Memorial Gift 3" dog="" for="" gift="" keepsake="" lovers"="" pet="" src="https://m.media-amazon.com/images/I/41C71bsx5rL._SL500_.jpg" tree="" xmas=""/></a>
+<a href="https://www.amazon.com/dp/B0CNXPGG3J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Guangpat Silver Miniature Or Toy Poodle Ornaments Personalized Dog Ornament Custom Christmas Pet Ornament Pet Remembrance Keepsake Dog Memorial Gift 3" dog="" for="" gift="" keepsake="" lovers"="" pet="" src="https://m.media-amazon.com/images/I/41C71bsx5rL._SL500_.jpg" tree="" xmas=""/></a>
 
 
 The **Guangpat Silver Miniature Or Toy Poodle Ornaments** are perfect for **dog lovers** who want to add a personalized touch to their holiday decorations or keep a cherished memory of their beloved pet. Ideal for those who appreciate custom **Christmas pet ornaments** or are seeking a meaningful **dog memorial gift**, this 3-inch keepsake serves as a beautiful tribute on any **Xmas tree**.
@@ -254,10 +254,10 @@ The **Guangpat Silver Miniature Or Toy Poodle Ornament** stands out with its fin
 
 Designed by **Guangpat**, the ornament balances quality and meaningful design, providing a lasting keepsake that honors the special bond between pet and owner. Whether used as a **Christmas pet ornament** or a **dog memorial gift**, it offers a heartfelt way to celebrate and remember cherished pets during the holiday season and beyond.
 
-## <a href="https://www.amazon.com/dp/B002JQYGEE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> The Original Weasel Ball </a>
+## <a href="https://www.amazon.com/dp/B002JQYGEE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> The Original Weasel Ball </a>
 
 
-<a href="https://www.amazon.com/dp/B002JQYGEE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original Weasel Ball, Interactive Motion Toy For Small Pets (Dog, Cat and More)" src="https://m.media-amazon.com/images/I/41HzuqrYgZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002JQYGEE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original Weasel Ball, Interactive Motion Toy For Small Pets (Dog, Cat and More)" src="https://m.media-amazon.com/images/I/41HzuqrYgZL._SL500_.jpg"/></a>
 
 
 The **Original Weasel Ball** is an ideal choice for pet owners looking to keep their **small pets** such as **dogs, cats, and other furry friends** entertained and active. This interactive motion toy is perfect for those who want to provide their pets with mental stimulation and physical exercise in a fun and engaging way. If you want to enhance your pet’s playtime experience with a durable and interactive toy, this product is designed specifically for you.

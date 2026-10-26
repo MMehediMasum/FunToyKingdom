@@ -20,10 +20,10 @@ These products offer eco-friendly formulas and easy application. Some kits even 
 
 
 
-## <a href="https://www.amazon.com/dp/B000AOMQ80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 10008 Flat Tire Puncture Repair Sealant</a>
+## <a href="https://www.amazon.com/dp/B000AOMQ80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 10008 Flat Tire Puncture Repair Sealant</a>
 
 
-<a href="https://www.amazon.com/dp/B000AOMQ80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 10008 Flat Tire Puncture Repair Sealant, Prevent and Repair, Tubeless Mower and ATV Tires, Non-Toxic, eco-Friendly, 24 oz Bottle" src="https://m.media-amazon.com/images/I/414-7Tz-LbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000AOMQ80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 10008 Flat Tire Puncture Repair Sealant, Prevent and Repair, Tubeless Mower and ATV Tires, Non-Toxic, eco-Friendly, 24 oz Bottle" src="https://m.media-amazon.com/images/I/414-7Tz-LbL._SL500_.jpg"/></a>
 
 
 The **Slime 10008 Flat Tire Puncture Repair Sealant** is ideal for individuals who own **tubeless mower and ATV tires** and want a reliable solution to prevent and repair flat tires quickly and efficiently. If you frequently use off-road vehicles or lawn equipment and want to avoid downtime caused by tire punctures, this product is an excellent choice. It is also suitable for those seeking an **eco-friendly** and **non-toxic** tire sealant option.
@@ -46,10 +46,10 @@ The **Slime 10008 Flat Tire Puncture Repair Sealant** is designed to offer quick
 
 Additionally, the compact and lightweight design of the 24 oz bottle makes it easy to store and carry during outdoor activities, ensuring you’re always prepared. With this sealant, users can expect prolonged tire life and fewer interruptions, ultimately saving time and money on tire maintenance and replacements.
 
-## <a href="https://www.amazon.com/dp/B08TFMBKZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 10207 Tire &amp; Tube Sealant Puncture Repair Sealant</a>
+## <a href="https://www.amazon.com/dp/B08TFMBKZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 10207 Tire &amp; Tube Sealant Puncture Repair Sealant</a>
 
 
-<a href="https://www.amazon.com/dp/B08TFMBKZ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 10207 2-in-1 Tire &amp; Tube Sealant Puncture Repair Sealant, 2-in-1, Premium, Prevent and Repair, suitable for all off-highway Tires and Tubes, Non-Toxic, Eco-Friendly, 1 Gallon jug" src="https://m.media-amazon.com/images/I/41nYYkBUsUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08TFMBKZ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 10207 2-in-1 Tire &amp; Tube Sealant Puncture Repair Sealant, 2-in-1, Premium, Prevent and Repair, suitable for all off-highway Tires and Tubes, Non-Toxic, Eco-Friendly, 1 Gallon jug" src="https://m.media-amazon.com/images/I/41nYYkBUsUL._SL500_.jpg"/></a>
 
 
 The **Slime 10207 2-in-1 Tire & Tube Sealant** is ideal for off-highway vehicle owners who want a reliable and efficient solution to prevent and repair tire punctures. Whether you own an ATV, UTV, lawn mower, or other off-road vehicles, this product is designed for those seeking a premium, non-toxic, and eco-friendly sealant that protects tires and tubes from unexpected flats.
@@ -71,10 +71,10 @@ The **Slime 10207 Sealant** features a vibrant green color and comes in a sturdy
 
 Users benefit from its **eco-friendly and non-toxic composition**, making it safe for both the user and the environment. The product’s high-quality formulation from the reputable **Slime brand** guarantees durability and long-lasting protection, which is essential for rugged off-road conditions. Overall, this sealant is a practical investment for anyone looking to maintain their off-highway tires with ease and confidence.
 
-## <a href="https://www.amazon.com/dp/B000C11PYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 10011 Flat Tire Puncture Repair Sealant</a>
+## <a href="https://www.amazon.com/dp/B000C11PYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 10011 Flat Tire Puncture Repair Sealant</a>
 
 
-<a href="https://www.amazon.com/dp/B000C11PYW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 10011 Flat Tire Puncture Repair Sealant, Emergency Repair for highway vehicles, suitable for Cars/Trailers, Non-toxic, eco-friendly, 16 oz bottle" src="https://m.media-amazon.com/images/I/41PbL1UC5RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000C11PYW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 10011 Flat Tire Puncture Repair Sealant, Emergency Repair for highway vehicles, suitable for Cars/Trailers, Non-toxic, eco-friendly, 16 oz bottle" src="https://m.media-amazon.com/images/I/41PbL1UC5RL._SL500_.jpg"/></a>
 
 
 The **Slime 10011 Flat Tire Puncture Repair Sealant** is ideal for drivers who want a quick and reliable solution to flat tires, especially those frequently traveling on highways or long distances. This product is perfect for owners of **cars** and **trailers** who value safety and convenience and prefer an easy-to-use, emergency repair option without needing professional assistance immediately. Its **non-toxic** and **eco-friendly** formulation also appeals to environmentally conscious consumers.
@@ -97,10 +97,10 @@ The **Slime 10011 Flat Tire Puncture Repair Sealant** is designed with a compact
 
 Additionally, its **non-toxic and eco-friendly** properties ensure that it is safe for both users and the environment, which is a significant advantage over many other tire repair products. Manufactured by **Slime**, a trusted brand in tire maintenance, this sealant provides peace of mind and convenience for everyday drivers and professionals alike. Its reliable performance and user-friendly design make it an essential emergency tool for any vehicle owner.
 
-## <a href="https://www.amazon.com/dp/B0CXJJX43W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Flatout Quickstrike Tire Sealant</a>
+## <a href="https://www.amazon.com/dp/B0CXJJX43W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Flatout Quickstrike Tire Sealant</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXJJX43W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FlatOut QuickStrike Tire Sealant - Off-Road Formula - Prevents Flat Tires - Seals Leaks - Contains Kevlar - Tubeless Tire Sealant - 1 Gallon + Tool" src="https://m.media-amazon.com/images/I/31DRNslQ7oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXJJX43W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FlatOut QuickStrike Tire Sealant - Off-Road Formula - Prevents Flat Tires - Seals Leaks - Contains Kevlar - Tubeless Tire Sealant - 1 Gallon + Tool" src="https://m.media-amazon.com/images/I/31DRNslQ7oL._SL500_.jpg"/></a>
 
 
 The **FlatOut QuickStrike Tire Sealant - Off-Road Formula** is ideal for off-road enthusiasts, truck owners, and anyone who frequently drives on rough terrains. If you want to prevent flat tires and maintain tire integrity during your adventurous or heavy-duty driving, this product is designed for you. It is especially beneficial for those using tubeless tires who seek a reliable, long-lasting sealant that can handle leaks and punctures efficiently.
@@ -124,10 +124,10 @@ The **FlatOut QuickStrike Tire Sealant** offers a robust solution to common tire
 
 Beyond its sealing performance, this product is user-friendly with a clear application tool included, making it easy to apply the right amount of sealant inside your tubeless tires. The clear formula prevents any discoloration or residue buildup, maintaining the tire’s internal appearance. For drivers who depend on their vehicles for work or adventure, the **FlatOut QuickStrike Tire Sealant** provides peace of mind through reliable, long-lasting tire protection.
 
-## <a href="https://www.amazon.com/dp/B07D5MHLGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tireject Off-road Tubeless Tire Sealant Kit</a>
+## <a href="https://www.amazon.com/dp/B07D5MHLGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tireject Off-road Tubeless Tire Sealant Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07D5MHLGD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TireJect Off-Road Tubeless Tire Sealant Kit: Fix a Flat Tire &amp; Prevent Flat Tires, Seal Punctures Leaks Dry Rot Thorns Nails Screws, tire repair slime, puncture tire sealer (40oz, 4-Tire Value Pack)" src="https://m.media-amazon.com/images/I/51+-Fov3jjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D5MHLGD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TireJect Off-Road Tubeless Tire Sealant Kit: Fix a Flat Tire &amp; Prevent Flat Tires, Seal Punctures Leaks Dry Rot Thorns Nails Screws, tire repair slime, puncture tire sealer (40oz, 4-Tire Value Pack)" src="https://m.media-amazon.com/images/I/51+-Fov3jjL._SL500_.jpg"/></a>
 
 
 The **TireJect Off-Road Tubeless Tire Sealant Kit** is perfect for off-road enthusiasts, ATV riders, and anyone who frequently drives on rough terrains. If you want a reliable solution to quickly fix a flat tire and prevent future punctures caused by thorns, nails, screws, or dry rot, this kit is designed specifically for you. It's ideal for those who value convenience and safety when venturing into challenging environments where tire damage is common.
@@ -149,10 +149,10 @@ The **TireJect Off-Road Tubeless Tire Sealant Kit** features a powerful, fast-ac
 
 Beyond just fixing flats, this tire repair slime also works to prevent leaks and dry rot, extending the life of your tires and improving overall safety. Its ease of use means you can quickly address tire issues without needing professional help or removing the tire, saving time and hassle during your outdoor excursions. With the TireJect sealant, you can confidently tackle rough terrain knowing your tires are protected against unexpected punctures.
 
-## <a href="https://www.amazon.com/dp/B01B6E4RPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime Value Size Tubeless Tire Sealant</a>
+## <a href="https://www.amazon.com/dp/B01B6E4RPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime Value Size Tubeless Tire Sealant</a>
 
 
-<a href="https://www.amazon.com/dp/B01B6E4RPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime Value Size 10009 Tubeless Tire Sealant 32 Ounce 2 Pack" src="https://m.media-amazon.com/images/I/41N8UrJdvBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01B6E4RPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime Value Size 10009 Tubeless Tire Sealant 32 Ounce 2 Pack" src="https://m.media-amazon.com/images/I/41N8UrJdvBL._SL500_.jpg"/></a>
 
 
 Ideal for cyclists and off-road enthusiasts looking for reliable puncture protection, the **Slime Value Size 10009 Tubeless Tire Sealant 32 Ounce 2 Pack** is perfect for those who want to maintain tire integrity without frequent repairs. This product is especially beneficial for riders who use tubeless tires and seek a hassle-free, long-lasting sealant solution to prevent flats during rides.
@@ -175,10 +175,10 @@ The **Slime Tubeless Tire Sealant** is designed to quickly seal punctures up to 
 
 Additionally, the dual 32-ounce containers provide ample supply for multiple tire applications or refills, ensuring that users are well-prepared for long-term maintenance. The product's lightweight nature means it won’t negatively impact bike performance, while its trusted brand reputation reassures users of its quality and effectiveness. Overall, this sealant offers a practical and economical solution for tubeless tire maintenance.
 
-## <a href="https://www.amazon.com/dp/B085JSNZSV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 60187 Flat Tire Puncture Repair Sealant</a>
+## <a href="https://www.amazon.com/dp/B085JSNZSV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 60187 Flat Tire Puncture Repair Sealant</a>
 
 
-<a href="https://www.amazon.com/dp/B085JSNZSV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 60187 Flat Tire Puncture Repair Sealant, Emergency Repair for Highway Vehicles, Suitable for Cars/Trailers, Non-Toxic, eco-Friendly, 18oz" src="https://m.media-amazon.com/images/I/41uqcPB4byL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085JSNZSV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 60187 Flat Tire Puncture Repair Sealant, Emergency Repair for Highway Vehicles, Suitable for Cars/Trailers, Non-Toxic, eco-Friendly, 18oz" src="https://m.media-amazon.com/images/I/41uqcPB4byL._SL500_.jpg"/></a>
 
 
 The **Slime 60187 Flat Tire Puncture Repair Sealant** is ideal for drivers and vehicle owners who frequently travel on highways or remote areas where quick access to tire repair services may be limited. This product is perfect for owners of **cars**, **trailers**, and other highway vehicles who want a reliable, easy-to-use emergency solution to fix flat tires without needing a professional mechanic immediately. Its non-toxic and eco-friendly formula makes it suitable for environmentally conscious users.
@@ -201,10 +201,10 @@ The **Slime 60187 Sealant** features a compact design with dimensions of 9.5 inc
 
 Beyond just repairing flats, the eco-friendly and non-toxic formulation ensures that it is safe to handle and does not pose environmental hazards. This makes the product an excellent choice for users who value sustainability alongside performance. The easy application process means anyone can use it, even without prior mechanical knowledge, providing peace of mind when faced with unexpected tire damage on the road.
 
-## <a href="https://www.amazon.com/dp/B01MR2XKS0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 20240 Tire Repair And Inflation Kit</a>
+## <a href="https://www.amazon.com/dp/B01MR2XKS0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 20240 Tire Repair And Inflation Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B01MR2XKS0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 20240 Tire Repair and Inflation Kit, Tubeless Tires, Trailer &amp; ATV Emergency Puncture Repair, Quick and Easy, Contains Mini Inflator" src="https://m.media-amazon.com/images/I/51WWhfE2tTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MR2XKS0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 20240 Tire Repair and Inflation Kit, Tubeless Tires, Trailer &amp; ATV Emergency Puncture Repair, Quick and Easy, Contains Mini Inflator" src="https://m.media-amazon.com/images/I/51WWhfE2tTL._SL500_.jpg"/></a>
 
 
 The **Slime 20240 Tire Repair and Inflation Kit** is perfect for vehicle owners who frequently drive off-road or use trailers and ATVs. If you need a quick, reliable solution for unexpected punctures in **tubeless tires**, this kit is designed for you. It caters especially to those who value convenience and want to avoid the hassle of changing tires on the spot.
@@ -227,10 +227,10 @@ The **Slime 20240 Tire Repair and Inflation Kit** boasts a compact size with dim
 
 Equipped with a reliable **mini inflator**, this kit allows users to restore tire pressure swiftly, enhancing safety and reducing downtime during trips. The repair process is straightforward, making it accessible even to those with minimal mechanical experience. Overall, this kit serves as an essential emergency tool for adventurers and everyday drivers alike, ensuring peace of mind on the road.
 
-## <a href="https://www.amazon.com/dp/B000ET8D0G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 1031-a Tire Repair Plug Pack</a>
+## <a href="https://www.amazon.com/dp/B000ET8D0G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 1031-a Tire Repair Plug Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B000ET8D0G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 1031-A Tire Repair Plug Pack, Standard Heavy Duty Strings, for tubeless Off-Road Tires, Such as ATVS, wheelbarrows, Lawn mowers, Trailers, Pack of 30" src="https://m.media-amazon.com/images/I/41vN4OoW7hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000ET8D0G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 1031-A Tire Repair Plug Pack, Standard Heavy Duty Strings, for tubeless Off-Road Tires, Such as ATVS, wheelbarrows, Lawn mowers, Trailers, Pack of 30" src="https://m.media-amazon.com/images/I/41vN4OoW7hL._SL500_.jpg"/></a>
 
 
 The **Slime 1031-A Tire Repair Plug Pack** is ideal for individuals who frequently use **tubeless off-road tires** such as those on **ATVs, wheelbarrows, lawn mowers,** and **trailers**. If you are someone who values quick and reliable tire repairs in remote or rugged environments, this pack of 30 heavy-duty strings is designed to keep you moving without the hassle of professional repair services.
@@ -253,10 +253,10 @@ The **Slime 1031-A Tire Repair Plug Pack** features 30 standard heavy-duty strin
 
 Each repair plug is constructed to be durable and flexible, creating a reliable seal that maintains tire pressure and enhances the overall safety of your ride or equipment. This product is particularly beneficial for users who operate in rough terrain, where tire punctures are common and quick fixes are essential to maintain productivity and enjoyment. With the Slime repair plug pack, users save time and money by avoiding frequent trips to tire repair shops.
 
-## <a href="https://www.amazon.com/dp/B0166BVK28?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 50107 Flat Tire Puncture Repair</a>
+## <a href="https://www.amazon.com/dp/B0166BVK28?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slime 50107 Flat Tire Puncture Repair</a>
 
 
-<a href="https://www.amazon.com/dp/B0166BVK28?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 50107 Flat Tire Puncture Repair, Smart Spair, Emergency Kit for Car Tires, Includes Sealant and Tire Inflator Pump, Suitable for Cars and Other Highway Vehicles, 15 Min Fix" src="https://m.media-amazon.com/images/I/41KqnPAtpSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0166BVK28?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slime 50107 Flat Tire Puncture Repair, Smart Spair, Emergency Kit for Car Tires, Includes Sealant and Tire Inflator Pump, Suitable for Cars and Other Highway Vehicles, 15 Min Fix" src="https://m.media-amazon.com/images/I/41KqnPAtpSL._SL500_.jpg"/></a>
 
 
 The **Slime 50107 Flat Tire Puncture Repair Kit** is ideal for drivers who want a quick and reliable solution to unexpected tire punctures. Perfect for car owners and highway travelers, this emergency kit is designed to provide a temporary fix, allowing users to get back on the road safely without the immediate need for professional assistance.

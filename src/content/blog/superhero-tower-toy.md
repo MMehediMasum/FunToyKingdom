@@ -23,10 +23,10 @@ The Marvel Avengers Ultimate Protectors Pack includes multiple heroes and access
 
 
 
-## <a href="https://www.amazon.com/dp/B0BS77PRLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Web-spinners Web-quarters</a>
+## <a href="https://www.amazon.com/dp/B0BS77PRLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Web-spinners Web-quarters</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS77PRLJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and His Amazing Friends Web-Spinners Web-Quarters, Kids Playset with Action Figure, Vehicle, and Accessories, Marvel Super Hero Toys, Ages 3 and Up" src="https://m.media-amazon.com/images/I/51QV8BMskkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS77PRLJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and His Amazing Friends Web-Spinners Web-Quarters, Kids Playset with Action Figure, Vehicle, and Accessories, Marvel Super Hero Toys, Ages 3 and Up" src="https://m.media-amazon.com/images/I/51QV8BMskkL._SL500_.jpg"/></a>
 
 
 The **Spidey and His Amazing Friends Web-Spinners Web-Quarters** playset is ideal for young Marvel fans aged 3 and up who love imaginative play and superhero adventures. This set is perfect for children who enjoy action figures, interactive vehicles, and role-playing as their favorite characters from the Spidey universe. Parents looking for a durable, engaging toy that encourages creativity and fine motor skills will find this playset a great choice.
@@ -49,10 +49,10 @@ The **Spidey and His Amazing Friends Web-Spinners Web-Quarters** playset offers 
 
 This playset’s design encourages creativity and imaginative problem-solving by providing various **accessories** that expand the storytelling possibilities. Its size and weight make it suitable for indoor play, while also being portable enough for playdates or travel. Overall, the **Web-Spinners Web-Quarters** is a fantastic addition to any young superhero fan’s collection, combining fun, creativity, and quality in one engaging package.
 
-## <a href="https://www.amazon.com/dp/B079KDM7GW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Toy</a>
+## <a href="https://www.amazon.com/dp/B079KDM7GW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B079KDM7GW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Batman Toy, Wayne Manor Batcave Playset with Figure &amp; Batcyle for Pretend Play Kids Ages 3+ Years (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51SRER7zuiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079KDM7GW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Batman Toy, Wayne Manor Batcave Playset with Figure &amp; Batcyle for Pretend Play Kids Ages 3+ Years (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51SRER7zuiL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Imaginext DC Super Friends Batman Toy** is ideal for young children aged **3 years and above** who are fans of superheroes, especially **Batman**. This playset is perfect for kids who enjoy imaginative and pretend play, allowing them to engage in creative storytelling with their favorite DC characters. Parents looking for a high-quality, durable, and engaging toy to encourage role-playing and motor skills development will find this set highly suitable.
@@ -76,10 +76,10 @@ The **Wayne Manor Batcave Playset** provides an immersive environment that bring
 
 Designed with safety and durability in mind, this toy weighs approximately 5.25 pounds and is built to withstand active play. The multicolor scheme and realistic features make it visually appealing, drawing children into extended play sessions. Overall, this playset offers a perfect blend of fun and educational benefits, making it a great addition to any young superhero fan’s collection.
 
-## <a href="https://www.amazon.com/dp/B0CCQ8CTCX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Stark Tower Playset</a>
+## <a href="https://www.amazon.com/dp/B0CCQ8CTCX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Stark Tower Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCQ8CTCX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends Stark Tower Playset, Includes 4-Inch Iron Man Action Figure, Marvel Super Hero Toys for Kids 3 and Up" src="https://m.media-amazon.com/images/I/41oB5QJKAhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCQ8CTCX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends Stark Tower Playset, Includes 4-Inch Iron Man Action Figure, Marvel Super Hero Toys for Kids 3 and Up" src="https://m.media-amazon.com/images/I/41oB5QJKAhL._SL500_.jpg"/></a>
 
 
 The **Spidey and his Amazing Friends Stark Tower Playset** is perfect for young Marvel enthusiasts aged 3 and up who love interactive superhero adventures. This playset is ideal for kids who enjoy imaginative play and collecting action figures, especially fans of **Iron Man** and the Marvel universe. Parents looking for a durable, engaging toy that encourages creativity will also find this an excellent choice.
@@ -101,10 +101,10 @@ This **Stark Tower Playset** offers an engaging environment where kids can recre
 
 The playset’s vibrant **multicolor design** and accurate representation of Stark Tower make it visually appealing and instantly recognizable to Marvel fans. Its manageable size means it fits easily on shelves or play areas without overwhelming space. Overall, this toy encourages imaginative role-playing while fostering a love for superheroes and creative exploration.
 
-## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
+## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Ultimate Protectors Pack** is ideal for young fans of the Marvel Universe, especially boys and girls aged **4 and up**. This set is perfect for children who love to engage in imaginative play with their favorite superheroes, as well as collectors looking for detailed **6-inch-scale action figures** with accessories. It caters to those who want to recreate iconic battles or invent new adventures with a comprehensive set of figures.
@@ -128,10 +128,10 @@ The **Marvel Avengers Ultimate Protectors Pack** features a diverse range of act
 
 Thanks to its sturdy build and quality materials from **Hasbro**, the figures withstand rough play, ensuring long-lasting enjoyment. The size and scale of these action figures make them perfect for small hands, promoting fine motor skills and imaginative storytelling. Whether for solo play or group adventures, this pack encourages social interaction and creativity, making it a fantastic gift for young Marvel enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0BSN1931R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Toy</a>
+## <a href="https://www.amazon.com/dp/B0BSN1931R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0BSN1931R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Batman Toy, Crime Alley Playset with Figures &amp; Accessories for Preschool Kids Ages 3+ Years" src="https://m.media-amazon.com/images/I/51TXA9uVd2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BSN1931R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Batman Toy, Crime Alley Playset with Figures &amp; Accessories for Preschool Kids Ages 3+ Years" src="https://m.media-amazon.com/images/I/51TXA9uVd2L._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Imaginext DC Super Friends Batman Toy, Crime Alley Playset** is ideal for **preschool kids ages 3+** who love **superhero adventures** and imaginative play. This playset is perfect for young fans of **Batman** and the **DC Super Friends** universe, offering a hands-on experience that encourages creativity and storytelling. Parents looking for an engaging, durable, and interactive toy to stimulate their child’s imagination will find this product a great choice.
@@ -154,10 +154,10 @@ This **Crime Alley Playset** features detailed design elements that bring the ic
 
 Beyond entertainment, the playset supports educational development by fostering imagination and creativity. Children can create their own Batman stories, improving language skills and narrative thinking. Manufactured by **Fisher-Price**, this toy is built to last, offering parents peace of mind with its sturdy build and safety standards. Overall, the **Imaginext DC Super Friends Batman Toy** is a wonderful gift for young superhero enthusiasts seeking fun and imaginative play.
 
-## <a href="https://www.amazon.com/dp/B09H129XG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Hulk’s Smash Yard Preschool Toy</a>
+## <a href="https://www.amazon.com/dp/B09H129XG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Hulk’s Smash Yard Preschool Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09H129XG9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends Hulk’s Smash Yard Preschool Toy, Hulk Playset with Toppling Tower and Smash Wall, Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/513AauPSSQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09H129XG9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends Hulk’s Smash Yard Preschool Toy, Hulk Playset with Toppling Tower and Smash Wall, Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/513AauPSSQL._SL500_.jpg"/></a>
 
 
 The **Spidey and his Amazing Friends Hulk’s Smash Yard Preschool Toy** is ideal for young children aged 3 and up who are fans of superheroes and interactive playsets. This **Amazon Exclusive** product is perfect for parents seeking a fun and engaging toy that encourages imaginative play and helps develop motor skills in preschoolers. Kids who love action-packed adventures and hands-on activities will find this **Hulk Playset** especially exciting.
@@ -180,10 +180,10 @@ The **Hulk’s Smash Yard Preschool Toy** offers a dynamic play experience with 
 
 Designed by **Hasbro**, this playset meets high safety standards, providing parents peace of mind. Its lightweight and compact design make it easy for little hands to maneuver, encouraging independent play. Overall, the **Spidey and his Amazing Friends Hulk’s Smash Yard Preschool Toy** is a great choice for young children eager to explore creative adventures with their favorite superhero characters.
 
-## <a href="https://www.amazon.com/dp/B09NPB7G6R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Battle Multipack</a>
+## <a href="https://www.amazon.com/dp/B09NPB7G6R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Battle Multipack</a>
 
 
-<a href="https://www.amazon.com/dp/B09NPB7G6R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Preschool Toys Batman Battle Multipack 9-Piece Figure Set with Light-Up Backpack for Ages 3+ Years" src="https://m.media-amazon.com/images/I/41vUIV3cDsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NPB7G6R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Preschool Toys Batman Battle Multipack 9-Piece Figure Set with Light-Up Backpack for Ages 3+ Years" src="https://m.media-amazon.com/images/I/41vUIV3cDsL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Imaginext DC Super Friends Preschool Toys Batman Battle Multipack** is ideal for young children aged 3 and above who are fans of superheroes and imaginative play. Parents looking to encourage creative storytelling and interactive playtime will find this set perfect for sparking their child's imagination while offering durable and safe entertainment.
@@ -206,10 +206,10 @@ The **Fisher-Price Imaginext Batman Battle Multipack** offers a highly engaging 
 
 Built with safety and durability in mind, this multipack is crafted by **Fisher-Price**, a trusted name in children's toys. The figures are designed to withstand rough play typical of preschoolers, ensuring long-lasting enjoyment. Overall, this set provides an excellent blend of fun, creativity, and educational benefits for young superhero enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B06XK8DYJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Toy</a>
+## <a href="https://www.amazon.com/dp/B06XK8DYJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Dc Super Friends Batman Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B06XK8DYJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Batman Toy, Batbot Xtreme Robot Playset, 30 Inches Tall with Figure for Pretend Play Kids Ages 3+ Years​" src="https://m.media-amazon.com/images/I/41g-P7PhQ7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XK8DYJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext DC Super Friends Batman Toy, Batbot Xtreme Robot Playset, 30 Inches Tall with Figure for Pretend Play Kids Ages 3+ Years​" src="https://m.media-amazon.com/images/I/41g-P7PhQ7L._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Imaginext DC Super Friends Batman Toy, Batbot Xtreme Robot Playset** is ideal for young children aged 3 and above who are fans of superheroes, especially **Batman**. This toy is perfect for kids who enjoy **pretend play** and imaginative storytelling, allowing them to engage in exciting adventures with a towering 30-inch tall robot playset. Parents looking for a durable, interactive, and visually appealing toy will also find this product a great addition to their child’s playtime collection.
@@ -231,10 +231,10 @@ This **Batbot Xtreme Robot Playset** stands out due to its impressive size and d
 
 Crafted by **Fisher-Price**, a trusted brand known for quality children's toys, this playset combines durability with a visually striking appearance. Its **dark blue** color and robust dimensions make it a centerpiece in any playroom. The toy’s design prioritizes ease of use, ensuring that kids can easily manipulate the robot and figure to create endless imaginative adventures, boosting their cognitive and social skills through interactive play.
 
-## <a href="https://www.amazon.com/dp/B09H28YV5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pj Masks Hasbro Gaming Hq Rescue Kids Board Game</a>
+## <a href="https://www.amazon.com/dp/B09H28YV5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pj Masks Hasbro Gaming Hq Rescue Kids Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09H28YV5S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PJ Masks Hasbro Gaming HQ Rescue Kids Board Game, Preschool Games, Race to Stop Romeo, Includes 3D Plastic Tower, Kids Games Ages 4 and Up" src="https://m.media-amazon.com/images/I/51bNMynEiNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09H28YV5S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PJ Masks Hasbro Gaming HQ Rescue Kids Board Game, Preschool Games, Race to Stop Romeo, Includes 3D Plastic Tower, Kids Games Ages 4 and Up" src="https://m.media-amazon.com/images/I/51bNMynEiNL._SL500_.jpg"/></a>
 
 
 The **PJ Masks Hasbro Gaming HQ Rescue Kids Board Game** is ideal for young children aged 4 and up who love interactive and imaginative play. Perfect for preschoolers and early learners, this game encourages family bonding and develops critical thinking skills while providing fun and excitement. Parents looking for an engaging, age-appropriate game that combines teamwork and strategy will find this an excellent choice.
@@ -258,10 +258,10 @@ This **Kids Edition** board game by Hasbro Gaming stands out with its unique 3D 
 
 In addition to being entertaining, the game supports cognitive development by encouraging kids to think ahead and make decisions. Its compact size and lightweight build make it convenient for families to take along on trips or play in various settings. Overall, the **PJ Masks Hasbro Gaming HQ Rescue Kids Board Game** offers a perfect balance of fun, learning, and child-friendly design, making it an excellent addition to any preschooler's game collection.
 
-## <a href="https://www.amazon.com/dp/B00BQYQY8Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Super Friends Batcave</a>
+## <a href="https://www.amazon.com/dp/B00BQYQY8Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Super Friends Batcave</a>
 
 
-<a href="https://www.amazon.com/dp/B00BQYQY8Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext Super Friends Batcave" src="https://m.media-amazon.com/images/I/51NFTfFcxTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00BQYQY8Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext Super Friends Batcave" src="https://m.media-amazon.com/images/I/51NFTfFcxTL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Imaginext Super Friends Batcave** is ideal for young fans of superheroes, especially children who love imaginative play and are fans of the DC Super Friends universe. This playset is perfect for kids aged 3 and up who enjoy interactive, role-playing adventures that stimulate creativity and storytelling. Parents looking for a durable and engaging toy that encourages active play will also find this item appealing.

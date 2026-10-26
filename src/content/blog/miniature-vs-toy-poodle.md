@@ -20,10 +20,10 @@ Both breeds share a love for play and companionship, making them popular choices
 
 
 
-## <a href="https://www.amazon.com/dp/B08HSDRD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Poodle Toy Figurine</a>
+## <a href="https://www.amazon.com/dp/B08HSDRD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Poodle Toy Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B08HSDRD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World, Realisitc Dog Toys for Boys and Girls Ages 3 and Above, Poodle Toy Figurine" src="https://m.media-amazon.com/images/I/314blK+QGsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HSDRD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World, Realisitc Dog Toys for Boys and Girls Ages 3 and Above, Poodle Toy Figurine" src="https://m.media-amazon.com/images/I/314blK+QGsL._SL500_.jpg"/></a>
 
 
 The **Schleich Farm World, Realistic Dog Toys** are perfect for **boys and girls ages 3 and above** who love imaginative play and animal figurines. Ideal for young children who enjoy creating farm scenes or learning about different dog breeds, this **Poodle Toy Figurine** offers both educational and entertainment value. Parents seeking durable, safe, and detailed toys for their kids will find this item an excellent addition to their collection.
@@ -45,10 +45,10 @@ The **Schleich Farm World Poodle Toy Figurine** stands out due to its meticulous
 
 With its compact and lightweight design, the figurine is easy for young children to hold and manipulate, helping to develop their fine motor skills. The brand **Schleich** is renowned for producing safe, non-toxic toys, giving parents peace of mind. This figurine can easily be combined with other toys from the **Schleich Farm World** series to create an expansive and engaging playset that sparks creativity and storytelling in children.
 
-## <a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cu-mate White Poodle Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cu-mate White Poodle Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CU-MATE White Poodle Stuffed Animal Simulation Dog -Realistic &amp; Lifelike Soft Handmade Standing Dog Plush Toy Puppy -Present Gift for Boys and Girls" src="https://m.media-amazon.com/images/I/31c94+Q0CiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CU-MATE White Poodle Stuffed Animal Simulation Dog -Realistic &amp; Lifelike Soft Handmade Standing Dog Plush Toy Puppy -Present Gift for Boys and Girls" src="https://m.media-amazon.com/images/I/31c94+Q0CiL._SL500_.jpg"/></a>
 
 
 The **CU-MATE White Poodle Stuffed Animal Simulation Dog** is perfect for children and dog lovers who want a realistic and lifelike plush toy. Ideal for boys and girls who enjoy soft, cuddly companions, this handmade stuffed dog offers a comforting presence without the responsibilities of a real pet. It’s also a great gift choice for anyone looking to add a charming and decorative plush toy to their collection.
@@ -71,10 +71,10 @@ The **CU-MATE White Poodle Stuffed Animal** stands out with its exceptional atte
 
 Beyond aesthetics, the plush dog’s ideal size means it fits perfectly on shelves, beds, or in backpacks, making it versatile for both playtime and decoration. The soft materials used also provide a soothing tactile experience, which can be especially comforting for young children. Overall, this stuffed animal combines charm, quality, and practicality, making it a delightful gift and a treasured companion for kids and dog enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B0DK4JZBGC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ruzucoda Plush Poodle Puppy Stuffed Animals Toys</a>
+## <a href="https://www.amazon.com/dp/B0DK4JZBGC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ruzucoda Plush Poodle Puppy Stuffed Animals Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK4JZBGC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ruzucoda Plush Poodle Puppy Stuffed Animals Toys Pink Dog Dolls Gifts for Kids Boys Girls 12 Inches" src="https://m.media-amazon.com/images/I/41CclkbcRnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK4JZBGC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ruzucoda Plush Poodle Puppy Stuffed Animals Toys Pink Dog Dolls Gifts for Kids Boys Girls 12 Inches" src="https://m.media-amazon.com/images/I/41CclkbcRnL._SL500_.jpg"/></a>
 
 
 The **Ruzucoda Plush Poodle Puppy Stuffed Animals Toys** in charming **pink** is an ideal gift for **kids, boys, and girls** who love soft, cuddly companions. Measuring **12 inches** in height, this adorable **dog doll** is perfect for children who enjoy imaginative play or need a comforting plush friend. It’s especially suited for parents and gift-givers looking for a safe, lightweight, and visually appealing stuffed animal.
@@ -97,10 +97,10 @@ The **Ruzucoda Plush Poodle Puppy** features a soft and durable plush exterior t
 
 Additionally, the charming **pink color** and detailed poodle design add to its visual appeal, making it not only a toy but also a delightful room decoration. The trusted quality from **Ruzucoda** ensures the plush stays fluffy and intact through hours of play, providing lasting enjoyment for your child or loved one.
 
-## <a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophrbu Poodle Plush Toys</a>
+## <a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophrbu Poodle Plush Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OPHRBU Poodle Plush Toys, Soft and Cute Poodle Plush Toys, Pillows, Cushions, The Best Gift for Your Family and Friends. 1 pc. (Light Grey 12 inches)" src="https://m.media-amazon.com/images/I/41P28uxubiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OPHRBU Poodle Plush Toys, Soft and Cute Poodle Plush Toys, Pillows, Cushions, The Best Gift for Your Family and Friends. 1 pc. (Light Grey 12 inches)" src="https://m.media-amazon.com/images/I/41P28uxubiL._SL500_.jpg"/></a>
 
 
 The **OPHRBU Poodle Plush Toys** are perfect for anyone looking to add a touch of warmth and comfort to their living space or to gift a loved one. Ideal for children, collectors of cute plush items, or anyone who appreciates soft and cuddly cushions, this plush toy offers both aesthetic appeal and practical use. If you want a charming, soft companion that doubles as a cushion or pillow, this item is an excellent choice.
@@ -122,10 +122,10 @@ The **OPHRBU Poodle Plush Toy** stands out with its combination of softness and 
 
 Crafted by **OPHRBU**, a brand known for quality, this plush toy offers durability alongside its charming appearance. Whether you're looking for a thoughtful gift or a personal comfort item, this plush toy satisfies both needs. Its softness makes it ideal for children, while its stylish look appeals to adults seeking cozy décor elements.
 
-## <a href="https://www.amazon.com/dp/B0D2HS67YZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ruzucoda Plush Poodle Dog Puppy Stuffed Animals Toys Dolls Kids Gifts</a>
+## <a href="https://www.amazon.com/dp/B0D2HS67YZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ruzucoda Plush Poodle Dog Puppy Stuffed Animals Toys Dolls Kids Gifts</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2HS67YZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ruzucoda Plush Poodle Dog Puppy Stuffed Animals Toys Dolls Kids Gifts 9 Inches (White)" src="https://m.media-amazon.com/images/I/31uj42GbBxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2HS67YZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ruzucoda Plush Poodle Dog Puppy Stuffed Animals Toys Dolls Kids Gifts 9 Inches (White)" src="https://m.media-amazon.com/images/I/31uj42GbBxL._SL500_.jpg"/></a>
 
 
 The **Ruzucoda Plush Poodle Dog Puppy Stuffed Animals Toys Dolls Kids Gifts 9 Inches (White)** is perfect for children and collectors who love soft, cuddly, and realistic stuffed animals. Ideal for kids who enjoy imaginative play and anyone looking for a charming gift, this plush toy offers a comforting companion for all ages.
@@ -147,10 +147,10 @@ The **Ruzucoda Plush Poodle Dog Puppy** stands out with its meticulous design an
 
 Additionally, the lightweight build ensures younger children can handle it without difficulty, while the realistic poodle features enhance imaginative play. Whether as a gift or a personal keepsake, this stuffed animal combines quality craftsmanship with adorable appeal, making it a versatile choice for various occasions.
 
-## <a href="https://www.amazon.com/dp/B07R5NYL9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Athoinsu Realistic White Poodle Puppy Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B07R5NYL9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Athoinsu Realistic White Poodle Puppy Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B07R5NYL9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Athoinsu Realistic White Poodle Puppy Stuffed Animal Soft Adorable Hugging Puppy Dog Plush Toy Children's Day Holiday Birthday (White)" src="https://m.media-amazon.com/images/I/31Y9QAaP5xS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07R5NYL9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Athoinsu Realistic White Poodle Puppy Stuffed Animal Soft Adorable Hugging Puppy Dog Plush Toy Children's Day Holiday Birthday (White)" src="https://m.media-amazon.com/images/I/31Y9QAaP5xS._SL500_.jpg"/></a>
 
 
 The **Athoinsu Realistic White Poodle Puppy Stuffed Animal** is perfect for children and collectors who adore soft, lifelike plush toys. Ideal for those looking to gift a cuddly companion for **Children's Day, holidays, or birthdays**, this adorable hugging puppy plush provides comfort and joy to young kids and plush enthusiasts alike.
@@ -172,10 +172,10 @@ This **12-inch tall plush toy** stands out due to its highly realistic features 
 
 Additionally, the **Athoinsu stuffed animal** is crafted with durable materials, ensuring it withstands frequent hugs and playtime. Its ideal size fits perfectly in arms for hugging, promoting a sense of security and companionship. Whether as a gift or a collectible, this plush toy offers both aesthetic appeal and functional comfort to users of all ages.
 
-## <a href="https://www.amazon.com/dp/B0CQTTM67M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Paysley Poodle Stuffed Animal </a>
+## <a href="https://www.amazon.com/dp/B0CQTTM67M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Paysley Poodle Stuffed Animal </a>
 
 
-<a href="https://www.amazon.com/dp/B0CQTTM67M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Paysley Poodle Stuffed Animal - Playful Ease - Timeless Companions - Brown 8 Inches" src="https://m.media-amazon.com/images/I/41J3VU2fJQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQTTM67M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Paysley Poodle Stuffed Animal - Playful Ease - Timeless Companions - Brown 8 Inches" src="https://m.media-amazon.com/images/I/41J3VU2fJQL._SL500_.jpg"/></a>
 
 
 The **Aurora® Adorable Mini Flopsie™ Paysley Poodle Stuffed Animal** is perfect for children, collectors, and anyone who loves soft, cuddly plush toys. Ideal for those looking to add a charming and playful companion to their collection, this **brown, 8-inch** stuffed poodle offers comfort and timeless appeal. Whether as a gift or a personal keepsake, it suits people who appreciate high-quality, adorable plush animals that bring joy and ease to everyday moments.
@@ -197,10 +197,10 @@ The **Aurora® Adorable Mini Flopsie™ Paysley Poodle** features a thoughtfully
 
 Beyond its playful appearance, the stuffed poodle’s high-quality craftsmanship ensures it will stand the test of time. The detailed design and rich brown color add to its timeless appeal, making it a perfect gift for dog lovers or anyone who appreciates adorable stuffed animals. Overall, this plush toy combines playful ease with lasting companionship, meeting the needs of users who value both aesthetics and comfort.
 
-## <a href="https://www.amazon.com/dp/B07V8CBB8X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mon Ami Designer Plush Poodle Dog Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B07V8CBB8X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mon Ami Designer Plush Poodle Dog Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B07V8CBB8X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mon Ami Designer Plush Poodle Dog Stuffed Animal– 13”, Fun Adorable Soft and Cuddly Stuffed Toy Gifts for Little Boys/Girls &amp; Kids of All Ages" src="https://m.media-amazon.com/images/I/41kAZUxKFML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V8CBB8X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mon Ami Designer Plush Poodle Dog Stuffed Animal– 13”, Fun Adorable Soft and Cuddly Stuffed Toy Gifts for Little Boys/Girls &amp; Kids of All Ages" src="https://m.media-amazon.com/images/I/41kAZUxKFML._SL500_.jpg"/></a>
 
 
 The **Mon Ami Designer Plush Poodle Dog Stuffed Animal** is perfect for parents, gift-givers, and collectors looking for a **soft, cuddly, and adorable stuffed toy** suitable for **kids of all ages**. If you want a charming companion that provides comfort and endless playtime fun, this **13-inch plush poodle** is an ideal choice for little boys and girls alike.
@@ -222,10 +222,10 @@ The **Mon Ami Designer Plush Poodle** stands out with its detailed and colorful 
 
 Made by the reputable **MON AMI** brand, this stuffed animal combines both quality and safety. The plush fabric is carefully selected to be soft and cuddly, ensuring a pleasant tactile experience for children. Its robust construction means it can withstand hours of play without losing shape or softness, making it a lasting addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B085754MT9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Dilly Dudu Cream Puppy Dog Stuffed Animal Poodle Plush Soft Toy </a>
+## <a href="https://www.amazon.com/dp/B085754MT9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Dilly Dudu Cream Puppy Dog Stuffed Animal Poodle Plush Soft Toy </a>
 
 
-<a href="https://www.amazon.com/dp/B085754MT9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DILLY DUDU Cream Puppy Dog Stuffed Animal Poodle Plush Soft Toy 4-Inch" src="https://m.media-amazon.com/images/I/31j4qx9POPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085754MT9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DILLY DUDU Cream Puppy Dog Stuffed Animal Poodle Plush Soft Toy 4-Inch" src="https://m.media-amazon.com/images/I/31j4qx9POPL._SL500_.jpg"/></a>
 
 
 The **DILLY DUDU Cream Puppy Dog Stuffed Animal Poodle Plush Soft Toy 4-Inch** is perfect for young children, collectors of plush toys, and anyone looking for a charming, small-sized companion. Ideal for those who appreciate soft, cuddly stuffed animals or need a comforting plush toy for a toddler, this item offers both cuteness and portability. Its compact size makes it easy to carry around, making it an excellent gift for kids and plush toy enthusiasts alike.
@@ -247,10 +247,10 @@ The **DILLY DUDU Cream Puppy Dog Stuffed Animal** stands out due to its attentio
 
 Crafted by the renowned **DILLY DUDU** manufacturer, this plush toy offers durability and quality that lasts. Its soft texture is gentle on sensitive skin, making it a safe choice for toddlers. Additionally, the toy’s light weight and compact dimensions make it easy to clean and maintain. Whether used as a comforting bedtime buddy or a decorative piece, this stuffed animal combines functionality with adorable aesthetics.
 
-## <a href="https://www.amazon.com/dp/B0894BKM19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aurora® Playful Teddy Pets™ Poodle Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B0894BKM19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aurora® Playful Teddy Pets™ Poodle Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B0894BKM19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Playful Teddy Pets™ Poodle Stuffed Animal - Unique Design - Endless Play - Brown 6.5 Inches" src="https://m.media-amazon.com/images/I/51BTemTetFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0894BKM19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Playful Teddy Pets™ Poodle Stuffed Animal - Unique Design - Endless Play - Brown 6.5 Inches" src="https://m.media-amazon.com/images/I/51BTemTetFL._SL500_.jpg"/></a>
 
 
 The **Aurora® Playful Teddy Pets™ Poodle Stuffed Animal** is ideal for children and collectors who appreciate a **soft, cuddly companion** with a **unique design**. Perfect for kids looking for a **portable plush toy** or adults who enjoy adding charming stuffed animals to their collection, this **6.5-inch brown poodle** combines playfulness with quality craftsmanship.

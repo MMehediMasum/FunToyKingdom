@@ -23,10 +23,10 @@ Some sets include storage buckets for easy cleanup. These toys suit boys and gir
 
 
 
-## <a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amor Present Army Men Military Playset</a>
+## <a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amor Present Army Men Military Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMOR PRESENT 307 PCS Army Men Military Playset, Army Toys Soldier Playset Plastic Toy Soldiers Figures and Accessories with Vehicles, Aircraft, Tanks, Missiles" src="https://m.media-amazon.com/images/I/61P3CcnbSlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMOR PRESENT 307 PCS Army Men Military Playset, Army Toys Soldier Playset Plastic Toy Soldiers Figures and Accessories with Vehicles, Aircraft, Tanks, Missiles" src="https://m.media-amazon.com/images/I/61P3CcnbSlL._SL500_.jpg"/></a>
 
 
 The **AMOR PRESENT 307 PCS Army Men Military Playset** is ideal for children and collectors who have a passion for military-themed toys and imaginative play. This set is perfect for kids who enjoy action-packed scenarios, as well as hobbyists looking to expand their collection of detailed army figures and accessories.
@@ -49,10 +49,10 @@ The **AMOR PRESENT 307 PCS Army Men Military Playset** offers an extensive colle
 
 With a wide range of items including soldiers, tanks, aircraft, and missiles, this playset provides a versatile experience that encourages strategic thinking and role-playing. Its compact size and lightweight design mean it can be easily stored or taken on the go. Whether for imaginative play or as a collector's item, this set combines quality and quantity to deliver excellent value.
 
-## <a href="https://www.amazon.com/dp/B092YSK3SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin 25 In 1 Green Military Big Truck Toys</a>
+## <a href="https://www.amazon.com/dp/B092YSK3SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin 25 In 1 Green Military Big Truck Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B092YSK3SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 25 in 1 Green Military Big Truck Toys, Army Men Tanks Set with Soldier Men, Mini Battle Car Toy in Carrier Truck with Lights and Sounds, Gifts for Toddler Kids Boys Ages 3+" src="https://m.media-amazon.com/images/I/51m5vnkRLiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092YSK3SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 25 in 1 Green Military Big Truck Toys, Army Men Tanks Set with Soldier Men, Mini Battle Car Toy in Carrier Truck with Lights and Sounds, Gifts for Toddler Kids Boys Ages 3+" src="https://m.media-amazon.com/images/I/51m5vnkRLiL._SL500_.jpg"/></a>
 
 
 The **JOYIN 25 in 1 Green Military Big Truck Toys** set is ideal for young children, especially **toddlers and boys aged 3 and above** who have a keen interest in army-themed play. Parents looking for an engaging, durable, and interactive toy that encourages imaginative play and motor skills development will find this set perfect. It’s also a great gift option for birthdays or special occasions, providing hours of entertainment with its multiple pieces and features.
@@ -75,10 +75,10 @@ The **JOYIN 25 in 1 Green Military Big Truck Toys** set is thoughtfully designed
 
 Additionally, the set’s dimensions and weight are well-suited for toddlers, allowing easy handling and transport. The robust **green military color** and detailed figures spark creativity and encourage kids to create their own imaginative battle scenarios. Overall, this toy set combines fun and developmental benefits, making it a valuable addition to any child’s playroom.
 
-## <a href="https://www.amazon.com/dp/B07KF5RRY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin 164 Piece Military Soldier Playset</a>
+## <a href="https://www.amazon.com/dp/B07KF5RRY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin 164 Piece Military Soldier Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B07KF5RRY6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 164 Piece Military Soldier Playset Army Men Play Bucket Army Action Figures Battle Group Deluxe Military Playset, Aircrafts, Helicopters, Tanks with Bucket" src="https://m.media-amazon.com/images/I/51Xfozqw1dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KF5RRY6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 164 Piece Military Soldier Playset Army Men Play Bucket Army Action Figures Battle Group Deluxe Military Playset, Aircrafts, Helicopters, Tanks with Bucket" src="https://m.media-amazon.com/images/I/51Xfozqw1dL._SL500_.jpg"/></a>
 
 
 The **JOYIN 164 Piece Military Soldier Playset** is perfect for children and collectors who have a passion for military-themed toys and imaginative play. Ideal for kids who enjoy action figures and battle scenarios, this set offers a comprehensive and engaging experience that encourages creativity and strategic thinking. Parents looking for a durable and diverse playset that sparks hours of entertainment will find this product an excellent choice.
@@ -100,10 +100,10 @@ The **JOYIN 164 Piece Military Soldier Playset** offers an extensive collection 
 
 Designed with durability in mind, the figures and vehicles are made from quality materials by **Joyin Inc**. The handy **bucket storage** makes it easy to keep all pieces organized and transportable, encouraging kids to take their playset anywhere. This combination of features makes the set a versatile and valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0D2TBWQ5X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Talgic Army Men Playset</a>
+## <a href="https://www.amazon.com/dp/B0D2TBWQ5X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Talgic Army Men Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2TBWQ5X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TALGIC Army Men Playset - Large Set Including Army Men Action Figures, Battle Mat, Army and Navy Weapon Gear Accessories, Military Combat Toys, Army Toys for Boys Age 4-12" src="https://m.media-amazon.com/images/I/61C5rBUfMiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2TBWQ5X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TALGIC Army Men Playset - Large Set Including Army Men Action Figures, Battle Mat, Army and Navy Weapon Gear Accessories, Military Combat Toys, Army Toys for Boys Age 4-12" src="https://m.media-amazon.com/images/I/61C5rBUfMiL._SL500_.jpg"/></a>
 
 
 The **TALGIC Army Men Playset** is perfect for young children aged 4-12 who have a passion for imaginative play and military-themed toys. This large set is ideal for boys who enjoy action figures and interactive battle scenarios, providing hours of creative fun and role-playing opportunities.
@@ -125,10 +125,10 @@ The **TALGIC Army Men Playset** offers a comprehensive collection of military-th
 
 Designed with quality and size in mind, the playset is easy for young hands to handle, promoting dexterity and coordination. This set not only entertains but also fosters social interaction, as children can team up to strategize and play together. Overall, the **TALGIC Army Men Playset** is a fantastic choice for parents seeking a durable, engaging, and educational toy for their young military enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haptime Classic Toy Soldiers Set</a>
+## <a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haptime Classic Toy Soldiers Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAPTIME Classic Toy Soldiers Set (50 pcs), Green Army Men Action Figures, Plastic Military Toys for Boys- Inspire Creative Play and Learning Adventures for Kids" src="https://m.media-amazon.com/images/I/51wxEsk9VwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAPTIME Classic Toy Soldiers Set (50 pcs), Green Army Men Action Figures, Plastic Military Toys for Boys- Inspire Creative Play and Learning Adventures for Kids" src="https://m.media-amazon.com/images/I/51wxEsk9VwL._SL500_.jpg"/></a>
 
 
 The **HAPTIME Classic Toy Soldiers Set** is ideal for young boys who enjoy imaginative play and military-themed adventures. This set is perfect for parents and gift-givers looking to inspire **creative play** and **learning opportunities** through hands-on interaction with durable, detailed action figures. It suits children who love to create stories and scenarios involving teamwork, strategy, and exploration.
@@ -150,10 +150,10 @@ The **HAPTIME Classic Toy Soldiers Set** features 50 miniature **green army men*
 
 Beyond entertainment, this toy set supports the development of essential skills such as **strategic thinking**, **fine motor coordination**, and **social interaction** when kids play together. With its affordable pricing and generous quantity, the set offers great value for parents seeking quality and creativity in children’s toys.
 
-## <a href="https://www.amazon.com/dp/B00QZERQJI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunny Days Entertainment Military Battle Group Bucket</a>
+## <a href="https://www.amazon.com/dp/B00QZERQJI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunny Days Entertainment Military Battle Group Bucket</a>
 
 
-<a href="https://www.amazon.com/dp/B00QZERQJI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sunny Days Entertainment Military Battle Group Bucket Over 100 Assorted Soldiers and 20 Accessories Toy Play Set for Kids, Boys and Girls | Plastic Army Men Figures with Storage Container" src="https://m.media-amazon.com/images/I/51UwP8NtqoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00QZERQJI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sunny Days Entertainment Military Battle Group Bucket Over 100 Assorted Soldiers and 20 Accessories Toy Play Set for Kids, Boys and Girls | Plastic Army Men Figures with Storage Container" src="https://m.media-amazon.com/images/I/51UwP8NtqoL._SL500_.jpg"/></a>
 
 
 The **Sunny Days Entertainment Military Battle Group Bucket** is perfect for young kids, both **boys and girls**, who love imaginative play and action-packed adventures. Ideal for children who enjoy creating their own battle scenarios and engaging in creative storytelling, this toy set offers hours of fun and learning through play. Parents seeking a durable and comprehensive toy set to encourage fine motor skills and social interaction will find this product especially suitable.
@@ -176,10 +176,10 @@ This **Military Battle Group Bucket** features a wide variety of **over 100 plas
 
 The lightweight and compact design, measuring just 9.1 inches in height and 7.0 inches in width and length, makes this set highly portable for playdates or travel. Manufactured by reputable brands, it promises safe, high-quality plastic construction that withstands rough handling. Overall, this set offers an excellent balance of quantity, quality, and convenience, making it a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B07TYT3WPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Life 95 Pcs Army Men Toys</a>
+## <a href="https://www.amazon.com/dp/B07TYT3WPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Life 95 Pcs Army Men Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B07TYT3WPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOY Life 95 PCS Army Men Toys, Toy Soldiers for Boys, Plastic Action Figures, Soldier Guys Military Playset, Gift for Boy" src="https://m.media-amazon.com/images/I/61JxptYp0MS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TYT3WPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOY Life 95 PCS Army Men Toys, Toy Soldiers for Boys, Plastic Action Figures, Soldier Guys Military Playset, Gift for Boy" src="https://m.media-amazon.com/images/I/61JxptYp0MS._SL500_.jpg"/></a>
 
 
 The **TOY Life 95 PCS Army Men Toys** set is perfect for young boys who enjoy imaginative play and action-packed adventures. This toy collection is ideal for parents looking to encourage creativity, strategic thinking, and role-playing in their children through a fun and interactive military-themed playset.
@@ -201,10 +201,10 @@ The **TOY Life 95 PCS Army Men Toys** set boasts a wide variety of soldier figur
 
 Beyond simple fun, this military playset promotes essential skills such as hand-eye coordination, problem-solving, and team-building as children strategize their moves and engage in cooperative play with friends or family. The **TOY Life** brand's focus on quality manufacturing guarantees a safe and enjoyable experience, making this set an excellent gift option for boys who love action figures and imaginative adventures.
 
-## <a href="https://www.amazon.com/dp/B089QNT54Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Divwa Army Men Toys For Boys 8-12</a>
+## <a href="https://www.amazon.com/dp/B089QNT54Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Divwa Army Men Toys For Boys 8-12</a>
 
 
-<a href="https://www.amazon.com/dp/B089QNT54Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Divwa Army Men Toys for Boys 8-12, Military Soldier Army Base 160 Pcs Set Including WW2 Khaki Green Plastic and Accessories with Handbag for Kid" src="https://m.media-amazon.com/images/I/61EULq3M4WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B089QNT54Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Divwa Army Men Toys for Boys 8-12, Military Soldier Army Base 160 Pcs Set Including WW2 Khaki Green Plastic and Accessories with Handbag for Kid" src="https://m.media-amazon.com/images/I/61EULq3M4WL._SL500_.jpg"/></a>
 
 
 The **Divwa Army Men Toys for Boys 8-12** is an ideal choice for young children, especially boys aged between 8 and 12, who have a keen interest in military-themed playsets and imaginative role-playing. This **160-piece set** is perfect for kids who enjoy building and organizing army bases, fostering creativity and strategic thinking in a fun and engaging way.
@@ -227,10 +227,10 @@ The **Divwa Army Men Toys** set offers a comprehensive and realistic military pl
 
 Designed with portability in mind, this set's compact size and lightweight design make it easy for children to carry and play anywhere. The high-quality plastic figures are durable enough for regular play, while the various accessories add depth and realism to the set. Overall, this toy set is a fantastic way to engage children in imaginative military scenarios, promoting both fun and developmental benefits.
 
-## <a href="https://www.amazon.com/dp/B0F7JQYZMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaelinda Army Men Action Figures</a>
+## <a href="https://www.amazon.com/dp/B0F7JQYZMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaelinda Army Men Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7JQYZMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaelinda Army Men Action Figures, Army Toys for Boys Age 4-7 6-8 8-12, Toy Soldiers Playset Including Military Action Figures, Battle Mat &amp; Weapon Gear Accessories, Green Army Guys Toys for Kids" src="https://m.media-amazon.com/images/I/61bpK8q1AeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7JQYZMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaelinda Army Men Action Figures, Army Toys for Boys Age 4-7 6-8 8-12, Toy Soldiers Playset Including Military Action Figures, Battle Mat &amp; Weapon Gear Accessories, Green Army Guys Toys for Kids" src="https://m.media-amazon.com/images/I/61bpK8q1AeL._SL500_.jpg"/></a>
 
 
 The **Kaelinda Army Men Action Figures** are perfect for young boys aged **4 to 12 years** who have a keen interest in imaginative play and military-themed toys. Ideal for children who enjoy creating battle scenarios and engaging in role-play, this set provides an exciting way to enhance creativity and fine motor skills. Parents looking for a durable, engaging, and educational toy will find this playset an excellent choice.
@@ -253,10 +253,10 @@ The **Kaelinda Army Men Action Figures** set features a comprehensive collection
 
 Additionally, the playset’s high-quality manufacturing by **Shantou Xinbailong Technology Co., Ltd** ensures durability and safety, giving parents peace of mind. The inclusion of a battle mat further enhances the interactive experience, providing a dedicated space for kids to stage their imaginative battles. This set not only entertains but also supports developmental skills such as creativity, problem-solving, and social interaction among peers.
 
-## <a href="https://www.amazon.com/dp/B0CWRT17D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tikonsyol 100 Pcs Army Men Toys For Boys</a>
+## <a href="https://www.amazon.com/dp/B0CWRT17D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tikonsyol 100 Pcs Army Men Toys For Boys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWRT17D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TikOnsYol 100 Pcs Army Men Toys for Boys with Map in Bucket World War II WW2 Green Gray Plastic Army Men Military Guy Toy Soldier Action Figures Battlefield Playset and Accessories" src="https://m.media-amazon.com/images/I/51nqWvyziQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWRT17D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TikOnsYol 100 Pcs Army Men Toys for Boys with Map in Bucket World War II WW2 Green Gray Plastic Army Men Military Guy Toy Soldier Action Figures Battlefield Playset and Accessories" src="https://m.media-amazon.com/images/I/51nqWvyziQL._SL500_.jpg"/></a>
 
 
 The **TikOnsYol 100 Pcs Army Men Toys** set is perfect for parents and gift-givers looking to inspire imaginative play in young boys who love military history and action figures. Ideal for children who enjoy role-playing and recreating epic battles, this playset offers a comprehensive World War II theme with a variety of soldier poses and accessories to engage young minds in creative storytelling.

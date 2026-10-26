@@ -20,10 +20,10 @@ Whether it's for a child's birthday or a collector's display, these toys make wo
 
 
 
-## <a href="https://www.amazon.com/dp/B089QHT6K8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dinobros Dog Figurines Playset</a>
+## <a href="https://www.amazon.com/dp/B089QHT6K8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dinobros Dog Figurines Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B089QHT6K8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DINOBROS Dog Figurines Playset 8PCS Realistic Detailed Plastic Puppy Figures Toy Dogs Cake Topper for Kids" src="https://m.media-amazon.com/images/I/51CBudjU5QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B089QHT6K8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DINOBROS Dog Figurines Playset 8PCS Realistic Detailed Plastic Puppy Figures Toy Dogs Cake Topper for Kids" src="https://m.media-amazon.com/images/I/51CBudjU5QL._SL500_.jpg"/></a>
 
 
 The **DINOBROS Dog Figurines Playset 8PCS** is ideal for children who love animals and imaginative play. This set is perfect for parents or gift-givers looking for a creative and educational toy that encourages storytelling and fine motor skills development. If you want a durable, detailed, and colorful collection of **plastic puppy figures** to enhance your child's playtime or to use as **cake toppers** for themed parties, this playset is a great choice.
@@ -46,10 +46,10 @@ The **DINOBROS Dog Figurines Playset** features eight intricately crafted puppy 
 
 Beyond play, these figurines serve as charming **cake toppers**, adding a playful and personalized touch to children’s birthday celebrations. The lightweight and durable plastic construction means they can be reused for multiple occasions, making them a practical and fun investment for families. Overall, this set combines aesthetics, functionality, and versatility, appealing to both kids and parents alike.
 
-## <a href="https://www.amazon.com/dp/B0C6Y918YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mini Pomeranian Pet Figures</a>
+## <a href="https://www.amazon.com/dp/B0C6Y918YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mini Pomeranian Pet Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6Y918YX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1pc Desk Decor Office Desk Decorations Office Desk Toys Custom Mini Pomeranian Pet Figures Mini Puppy Toy Pomeranian Model Dog Model Decor Statuette Collection Puzzle Child" src="https://m.media-amazon.com/images/I/31ExcgHFCgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6Y918YX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1pc Desk Decor Office Desk Decorations Office Desk Toys Custom Mini Pomeranian Pet Figures Mini Puppy Toy Pomeranian Model Dog Model Decor Statuette Collection Puzzle Child" src="https://m.media-amazon.com/images/I/31ExcgHFCgL._SL500_.jpg"/></a>
 
 
 The **1pc Desk Decor Office Desk Decorations** is perfect for individuals who want to add a touch of charm and personality to their workspace. Ideal customers include office workers, pet lovers, and collectors of unique miniatures who appreciate finely crafted **mini Pomeranian pet figures**. This item is also suitable for children who enjoy puzzles and small toys that stimulate creativity and provide decorative appeal.
@@ -72,10 +72,10 @@ The **1pc Desk Decor Office Desk Decorations** stands out as a delightful additi
 
 Beyond aesthetics, this **mini puppy toy** can also function as a stress-relief object, providing a tactile distraction during busy workdays. Its durable build by **TOYANDONA** means it can withstand occasional handling, making it suitable for both adults and children alike. Whether used as a collectible, a puzzle element, or a simple decorative statuette, this item enhances workspace ambiance with a playful yet elegant presence.
 
-## <a href="https://www.amazon.com/dp/B0CWYWMWKK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maomia Mini Dog Figure Animal Toys</a>
+## <a href="https://www.amazon.com/dp/B0CWYWMWKK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maomia Mini Dog Figure Animal Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWYWMWKK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAOMIA 12 Pcs Mini Dog Figure Animal Toys Cake Topper Puppy Figures Miniature Dog Figurines Collection Playset for Christmas Birthday Gift Desk Decorations" src="https://m.media-amazon.com/images/I/51aqfFCPwnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWYWMWKK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MAOMIA 12 Pcs Mini Dog Figure Animal Toys Cake Topper Puppy Figures Miniature Dog Figurines Collection Playset for Christmas Birthday Gift Desk Decorations" src="https://m.media-amazon.com/images/I/51aqfFCPwnL._SL500_.jpg"/></a>
 
 
 The **MAOMIA 12 Pcs Mini Dog Figure Animal Toys** are perfect for dog lovers, collectors of miniature figurines, and anyone looking to add charming decorations to their desk or cake. Ideal for those who enjoy detailed and colorful dog-themed collectibles, these miniatures also make thoughtful gifts for birthdays and Christmas. If you want a playful and adorable addition to your home, office, or party decorations, this set is an excellent choice.
@@ -96,10 +96,10 @@ Each **mini dog figure** in this set is meticulously crafted with vibrant colors
 
 Beyond their decorative appeal, these figures provide a fun and interactive way for collectors and dog enthusiasts to express their passion. The durable material and quality manufacturing by **MAOMIA** guarantee that these miniatures will last through many celebrations and displays. Whether used as a gift or a personal collectible, this set combines charm, quality, and versatility for users of all ages.
 
-## <a href="https://www.amazon.com/dp/B0DQF6QKRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Pomeranian</a>
+## <a href="https://www.amazon.com/dp/B0DQF6QKRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Pomeranian</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQF6QKRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Pomeranian - Realistic 2" and="" boys,="" dog="" educational="" figure="" for="" girls,="" kids="" src="https://m.media-amazon.com/images/I/41fixzj-nfL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B0DQF6QKRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Pomeranian - Realistic 2" and="" boys,="" dog="" educational="" figure="" for="" girls,="" kids="" src="https://m.media-amazon.com/images/I/41fixzj-nfL._SL500_.jpg" toy=""/></a>
 
 
 The **Safari Ltd. Pomeranian - Realistic 2" Dog Figure** is an ideal purchase for parents, educators, and collectors seeking a detailed and educational toy for children aged **3 and up**. This miniature figure is perfect for young kids who love animals and want to learn more about different dog breeds through hands-on play. It also suits those who appreciate high-quality, realistic animal models for display or educational purposes.
@@ -121,10 +121,10 @@ The **Safari Ltd. Pomeranian figure** stands out due to its meticulous craftsman
 
 Made by the trusted brand **Safari Ltd.**, this figure is crafted from durable materials that withstand everyday play, making it a reliable educational toy. Its realistic white coloring provides an authentic look, helping kids recognize and differentiate between dog breeds. Overall, this figure is an excellent tool for parents and educators aiming to inspire curiosity about animals while ensuring safe and engaging play.
 
-## <a href="https://www.amazon.com/dp/B09QG38KTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Besportble Pomeranian Miniature Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B09QG38KTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Besportble Pomeranian Miniature Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B09QG38KTD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BESPORTBLE Pomeranian Miniature Dog Figurine Light Brown Plastic Model for Home Decor, Fairy Garden, Cake Topper, Dollhouse, Photography Prop" src="https://m.media-amazon.com/images/I/41C2OyQdJGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QG38KTD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BESPORTBLE Pomeranian Miniature Dog Figurine Light Brown Plastic Model for Home Decor, Fairy Garden, Cake Topper, Dollhouse, Photography Prop" src="https://m.media-amazon.com/images/I/41C2OyQdJGL._SL500_.jpg"/></a>
 
 
 The **BESPORTBLE Pomeranian Miniature Dog Figurine** is ideal for pet lovers, collectors of miniatures, and those looking to enhance their **home decor** with charming accents. If you enjoy creating fairy gardens, decorating cakes, or adding unique props to dollhouses and photography setups, this finely crafted **plastic model** is a perfect choice. Its compact size and lifelike details make it suitable for anyone seeking a subtle yet delightful decorative piece.
@@ -147,10 +147,10 @@ The **BESPORTBLE Pomeranian Miniature Dog Figurine** stands out due to its reali
 
 Made from durable brown plastic, this figurine balances both aesthetics and longevity. It is lightweight, which means it can be easily moved and positioned according to your creative vision. The attention to detail in the design reflects a genuine love for the Pomeranian breed, making it a meaningful piece for dog enthusiasts and collectors alike. Overall, it offers a charming way to personalize and enhance your decorative projects with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B0DJ8Z6YYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newbee4 Miniature Stuffed Animals Tail Wagging Pomeranian Mascot</a>
+## <a href="https://www.amazon.com/dp/B0DJ8Z6YYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newbee4 Miniature Stuffed Animals Tail Wagging Pomeranian Mascot</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ8Z6YYX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Newbee4 Miniature Stuffed Animals Tail Wagging! Pomeranian gimmick Mascot,Adorable12cm Brown Dog,White Puppy Plush Toys with Ball Chain (Black Pomeranian)" src="https://m.media-amazon.com/images/I/41tPyDQsimL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ8Z6YYX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Newbee4 Miniature Stuffed Animals Tail Wagging! Pomeranian gimmick Mascot,Adorable12cm Brown Dog,White Puppy Plush Toys with Ball Chain (Black Pomeranian)" src="https://m.media-amazon.com/images/I/41tPyDQsimL._SL500_.jpg"/></a>
 
 
 The **Newbee4 Miniature Stuffed Animals Tail Wagging! Pomeranian gimmick Mascot** is perfect for collectors, children, and pet lovers who appreciate adorable, small plush toys. Ideal for those looking to add a charming and interactive piece to their collection or seeking a cute accessory to brighten up their space, this plush toy appeals especially to fans of **Pomeranian dogs** and miniature stuffed animals. Its compact size and tail-wagging feature make it a delightful gift or keepsake for any age.
@@ -173,10 +173,10 @@ The **Newbee4 Miniature Pomeranian Plush Toy** is crafted by **chang sha yi gu t
 
 Beyond its cute appearance, this plush toy provides emotional comfort and joy to users. Whether used as a stress-relief companion at work or a charming addition to a child’s toy collection, the softness of the plush material combined with the interactive feature creates a delightful sensory experience. The attached ball chain adds versatility, allowing it to be displayed or carried conveniently, making the **Newbee4 Miniature Stuffed Animals** a versatile and heartwarming accessory for any occasion.
 
-## <a href="https://www.amazon.com/dp/B0C5SWGQN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cu-mate 10 Inch Pomeranian Dog Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B0C5SWGQN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cu-mate 10 Inch Pomeranian Dog Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5SWGQN7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CU-MATE 10 inch Pomeranian Dog Stuffed Animal - Black and Tan Lifelike &amp; Realistic Plush Toy Puppy Dog Standing Present Gift" src="https://m.media-amazon.com/images/I/31b-0dUVV3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5SWGQN7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CU-MATE 10 inch Pomeranian Dog Stuffed Animal - Black and Tan Lifelike &amp; Realistic Plush Toy Puppy Dog Standing Present Gift" src="https://m.media-amazon.com/images/I/31b-0dUVV3L._SL500_.jpg"/></a>
 
 
 The **CU-MATE 10 inch Pomeranian Dog Stuffed Animal** in **Black and Tan** is perfect for dog lovers, children, and collectors who appreciate lifelike and realistic plush toys. Ideal as a gift or decorative piece, this plush toy appeals to those seeking a cuddly companion that closely resembles a real Pomeranian puppy.
@@ -198,10 +198,10 @@ The **CU-MATE Pomeranian stuffed animal** boasts a precise design with attention
 
 Crafted by **CU-MATE**, a reputable manufacturer known for quality plush toys, this item promises durability and long-lasting enjoyment. The lifelike appearance paired with soft materials offers emotional comfort and aesthetic value, making it a standout choice for anyone looking to own or gift a realistic and adorable Pomeranian plush toy.
 
-## <a href="https://www.amazon.com/dp/B0B4Y8Y32X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gund Boo, The World’s Cutest Dog, Boo &amp; Friends Collection Yorkie Puppy</a>
+## <a href="https://www.amazon.com/dp/B0B4Y8Y32X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gund Boo, The World’s Cutest Dog, Boo &amp; Friends Collection Yorkie Puppy</a>
 
 
-<a href="https://www.amazon.com/dp/B0B4Y8Y32X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GUND Boo, The World’s Cutest Dog, Boo &amp; Friends Collection Yorkie Puppy, Stuffed Animal for Ages 1 and Up, 5”" src="https://m.media-amazon.com/images/I/51025qKy6oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B4Y8Y32X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GUND Boo, The World’s Cutest Dog, Boo &amp; Friends Collection Yorkie Puppy, Stuffed Animal for Ages 1 and Up, 5”" src="https://m.media-amazon.com/images/I/51025qKy6oL._SL500_.jpg"/></a>
 
 
 The **GUND Boo, The World’s Cutest Dog** is an ideal choice for parents and gift-givers looking for a charming and safe stuffed animal for children aged 1 and up. This plush **Yorkie Puppy** from the **Boo & Friends Collection** is perfect for toddlers and young kids who enjoy cuddly companions that are both adorable and durable. Collectors of cute stuffed animals will also appreciate the detailed craftsmanship of this small yet lovable plush toy.
@@ -225,10 +225,10 @@ The **GUND Boo Yorkie Puppy** stands out for its exceptional attention to detail
 
 Additionally, this stuffed animal’s realistic Yorkie appearance adds to its charm, making it a delightful collectible for fans of the Boo & Friends series. Whether used as a snuggle buddy during naptime or a playful companion throughout the day, this plush toy offers both comfort and joy. Its compact size also makes it convenient for travel, providing familiarity and reassurance when away from home.
 
-## <a href="https://www.amazon.com/dp/B0B7JK33GY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Huqqi 12 Pcs Cute Miniature Dog Figure Animal Dog Characters Toys</a>
+## <a href="https://www.amazon.com/dp/B0B7JK33GY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Huqqi 12 Pcs Cute Miniature Dog Figure Animal Dog Characters Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7JK33GY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Huqqi 12 Pcs Cute Miniature Dog Figure Animal Dog Characters Toys, Figures Educational Dogs Animals for Birthday Christmas Easter Cake Topper Decorations" src="https://m.media-amazon.com/images/I/41d-a79pwpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7JK33GY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Huqqi 12 Pcs Cute Miniature Dog Figure Animal Dog Characters Toys, Figures Educational Dogs Animals for Birthday Christmas Easter Cake Topper Decorations" src="https://m.media-amazon.com/images/I/41d-a79pwpL._SL500_.jpg"/></a>
 
 
 The **Huqqi 12 Pcs Cute Miniature Dog Figure Animal Dog Characters Toys** are perfect for collectors, educators, and parents looking for engaging and charming **dog-themed toys**. Ideal for those who want to add a playful touch to birthday parties, Christmas, or Easter celebrations, these miniature figures also serve as excellent educational tools for teaching children about different dog breeds and animal care. If you enjoy decorative cake toppers or need small, durable animal figures for creative projects, this set is an excellent choice.
@@ -251,10 +251,10 @@ The **Huqqi 12 Pcs Miniature Dog Figures** stand out for their detailed craftsma
 
 Made by **Huqqi**, these figures guarantee high quality and durability, ensuring they withstand regular handling by children or use in craft projects. The uniform white color of the figures offers creative flexibility; users can leave them as is for a minimalist aesthetic or customize them with paints and markers. Overall, these miniature dog toys combine fun, learning, and decoration, making them a versatile addition to any collection or celebration.
 
-## <a href="https://www.amazon.com/dp/B0BRTBLVM4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Pom The Pup Stuffed Animal </a>
+## <a href="https://www.amazon.com/dp/B0BRTBLVM4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Pom The Pup Stuffed Animal </a>
 
 
-<a href="https://www.amazon.com/dp/B0BRTBLVM4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Pom The Pup™ Stuffed Animal - Playful Ease - Timeless Companions - White 8 Inches" src="https://m.media-amazon.com/images/I/31Ya2wSCuVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRTBLVM4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Pom The Pup™ Stuffed Animal - Playful Ease - Timeless Companions - White 8 Inches" src="https://m.media-amazon.com/images/I/31Ya2wSCuVL._SL500_.jpg"/></a>
 
 
 The **Aurora® Adorable Mini Flopsie™ Pom The Pup™ Stuffed Animal** is perfect for children, collectors, and anyone seeking a charming, cuddly companion. Ideal for those who appreciate soft, plush toys with a timeless appeal, this **white 8-inch** stuffed animal offers comfort and playfulness in one compact size. Whether as a gift or a personal keepsake, it suits individuals looking for a lovable and easy-to-handle plush pet.

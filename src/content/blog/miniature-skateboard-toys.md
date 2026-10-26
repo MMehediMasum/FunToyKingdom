@@ -23,10 +23,10 @@ Sets range from small packs of 12 to large bundles of 100 pieces, ideal for clas
 
 
 
-## <a href="https://www.amazon.com/dp/B0D2Z63FCL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poplay Mini Finger Skateboards</a>
+## <a href="https://www.amazon.com/dp/B0D2Z63FCL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poplay Mini Finger Skateboards</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2Z63FCL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POPLAY 50PCS Mini Finger Skateboards, Finger Boards Toy Mini Skateboard for Kids Party Favors, Birthday Goodie Bag Stuffers, Classroom Prizes Exchange Gifts" src="https://m.media-amazon.com/images/I/518sFF3W8VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2Z63FCL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POPLAY 50PCS Mini Finger Skateboards, Finger Boards Toy Mini Skateboard for Kids Party Favors, Birthday Goodie Bag Stuffers, Classroom Prizes Exchange Gifts" src="https://m.media-amazon.com/images/I/518sFF3W8VL._SL500_.jpg"/></a>
 
 
 The **POPLAY 50PCS Mini Finger Skateboards** are perfect for parents, teachers, and event organizers looking for fun, affordable, and engaging toys for children. Ideal for **kids' party favors**, **birthday goodie bag stuffers**, or **classroom prizes**, these mini skateboards capture the excitement of skateboarding in a compact, collectible form that kids will love. If you want to provide a playful and interactive gift that encourages creativity and dexterity, these finger boards are an excellent choice.
@@ -48,10 +48,10 @@ The **POPLAY Mini Finger Skateboards** boast a compact design that fits perfectl
 
 Made by the reputable **POPLAY** brand, these mini skateboards offer durability and consistent performance. Their lightweight and portable nature means children can carry them anywhere for quick play sessions. Ideal for social events or educational settings, these finger boards foster creativity and friendly competition, making them a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B003W0JXR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amscan Ultimate Finger Skateboard Value Pack</a>
+## <a href="https://www.amazon.com/dp/B003W0JXR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amscan Ultimate Finger Skateboard Value Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B003W0JXR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 0.5"="" 0.5"(pack="" 12)="" alt="Amscan Ultimate Finger Skateboard Value Pack - 1.87" collection"="" favors="" mini="" multicolor="" of="" party="" perfect="" plastic="" skateboards="" skill-boosting="" src="https://m.media-amazon.com/images/I/51sz9RrN+RL._SL500_.jpg" toy="" x=""/></a>
+<a href="https://www.amazon.com/dp/B003W0JXR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 0.5"="" 0.5"(pack="" 12)="" alt="Amscan Ultimate Finger Skateboard Value Pack - 1.87" collection"="" favors="" mini="" multicolor="" of="" party="" perfect="" plastic="" skateboards="" skill-boosting="" src="https://m.media-amazon.com/images/I/51sz9RrN+RL._SL500_.jpg" toy="" x=""/></a>
 
 
 Ideal for **kids, teens, and party planners**, the **Amscan Ultimate Finger Skateboard Value Pack** offers a fun and engaging way to enhance finger dexterity and creativity. This set is perfect for anyone looking to boost their **fine motor skills** or add a unique touch to party favors and toy collections.
@@ -74,10 +74,10 @@ The **Amscan Ultimate Finger Skateboard Value Pack** features a colorful and com
 
 Beyond entertainment, these finger skateboards serve as excellent tools for improving **manual dexterity, concentration, and creativity**. Whether used as party favors or as part of a skill-boosting collection, they provide endless fun and developmental benefits. The reputable **Amscan brand** ensures these mini skateboards are crafted with attention to detail and quality materials, providing lasting enjoyment for users.
 
-## <a href="https://www.amazon.com/dp/B07N3WD6VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Time4deals Fingerboard Mini Finger Skateboards Toys 12pcs Professional Finger Boards Set</a>
+## <a href="https://www.amazon.com/dp/B07N3WD6VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Time4deals Fingerboard Mini Finger Skateboards Toys 12pcs Professional Finger Boards Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07N3WD6VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIME4DEALS Fingerboard Mini Finger Skateboards Toys 12PCS Professional Finger Boards Set Creative Fingertips Movement, Mini Skateboard Starter Kit Finger Sports Party Favors Novelty Toy Gift for Kids" src="https://m.media-amazon.com/images/I/61FmO11aY5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N3WD6VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIME4DEALS Fingerboard Mini Finger Skateboards Toys 12PCS Professional Finger Boards Set Creative Fingertips Movement, Mini Skateboard Starter Kit Finger Sports Party Favors Novelty Toy Gift for Kids" src="https://m.media-amazon.com/images/I/61FmO11aY5L._SL500_.jpg"/></a>
 
 
 The **TIME4DEALS Fingerboard Mini Finger Skateboards Toys 12PCS Professional Finger Boards Set** is ideal for kids, teenagers, and hobbyists who enjoy creative and skillful play. It is perfect for those interested in **finger sports** or looking for a novel and engaging party favor. Whether you're a beginner wanting to learn fingerboarding tricks or a collector of mini skateboards, this set offers a versatile and fun experience.
@@ -99,10 +99,10 @@ The **TIME4DEALS Fingerboard Mini Finger Skateboards Set** is designed to offer 
 
 Beyond entertainment, these fingerboards encourage the development of fine motor skills and creativity. The precise dimensions make them comfortable to handle, promoting prolonged play without discomfort. Whether practicing new tricks or simply enjoying casual fun, users benefit from improved coordination and finger agility. This makes the set not only a toy but also a tool for skill development and engaging physical activity.
 
-## <a href="https://www.amazon.com/dp/B07N39GCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hometall Finger Skateboards For Kids Set Of 12</a>
+## <a href="https://www.amazon.com/dp/B07N39GCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hometall Finger Skateboards For Kids Set Of 12</a>
 
 
-<a href="https://www.amazon.com/dp/B07N39GCNB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMETALL Finger Skateboards for Kids Set of 12, Mini Skateboard Fingerboards 12 Pieces Finger Toys Pack, Gifts for Kids Children Finger Skater" src="https://m.media-amazon.com/images/I/61W2Tp4a2rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N39GCNB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMETALL Finger Skateboards for Kids Set of 12, Mini Skateboard Fingerboards 12 Pieces Finger Toys Pack, Gifts for Kids Children Finger Skater" src="https://m.media-amazon.com/images/I/61W2Tp4a2rL._SL500_.jpg"/></a>
 
 
 The **HOMETALL Finger Skateboards for Kids Set of 12** is ideal for young enthusiasts who love creative play and developing fine motor skills. Perfect for children who enjoy miniature sports toys or collectors of finger skateboards, this set offers a colorful and diverse range of options to explore fingerboarding tricks and fun. It’s also a great gift choice for birthdays or special occasions for kids who appreciate hands-on activities.
@@ -124,10 +124,10 @@ The **HOMETALL Finger Skateboards** come in a set of 12, each designed with brig
 
 Each skateboard is crafted with quality materials by **HOMETALL**, a reputable manufacturer known for creating safe and reliable toys. This ensures that the fingerboards withstand regular use, providing hours of fun without easily breaking. Overall, this finger skateboard set combines entertainment with developmental benefits, making it a valuable addition to any child’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B07G83K2RD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bisozer Mini Finger Skateboard</a>
+## <a href="https://www.amazon.com/dp/B07G83K2RD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bisozer Mini Finger Skateboard</a>
 
 
-<a href="https://www.amazon.com/dp/B07G83K2RD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BISOZER Mini Finger Skateboard – Wooden Finger Board Ultimate Sport Training Props in Light Brown with Ball Bearings -1 Pack (Random Color Bearing Wheels)" src="https://m.media-amazon.com/images/I/41Sb-yp-nhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G83K2RD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BISOZER Mini Finger Skateboard – Wooden Finger Board Ultimate Sport Training Props in Light Brown with Ball Bearings -1 Pack (Random Color Bearing Wheels)" src="https://m.media-amazon.com/images/I/41Sb-yp-nhL._SL500_.jpg"/></a>
 
 
 The **BISOZER Mini Finger Skateboard** is ideal for enthusiasts of fingerboarding, whether beginners or seasoned hobbyists looking to enhance their skills. Perfect for those interested in a compact, portable, and engaging sport training prop, this wooden finger board offers a realistic skateboarding experience in a miniature form. It is especially suited for kids, teenagers, and adults who enjoy dexterity-based challenges and finger sports.
@@ -150,10 +150,10 @@ The **BISOZER Mini Finger Skateboard** features a sturdy wooden deck that mimics
 
 With its compact size and lightweight design, this finger board is highly portable, allowing users to carry it conveniently for practice anywhere, whether at home, school, or work. The combination of quality materials and thoughtful design makes it an excellent training tool for developing finger dexterity and offering hours of entertainment. Overall, this finger skateboard is a great choice for anyone interested in finger sports or looking to sharpen their motor skills in a fun and engaging way.
 
-## <a href="https://www.amazon.com/dp/B08T64M74W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tech Deck Ultra Dlx Fingerboard 4-pack</a>
+## <a href="https://www.amazon.com/dp/B08T64M74W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tech Deck Ultra Dlx Fingerboard 4-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B08T64M74W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECH DECK, Ultra DLX Fingerboard 4-Pack, Element Skateboards, Collectible and Customizable Mini Skateboards, Kids Toy for Ages 6 and up" src="https://m.media-amazon.com/images/I/51pNzKGKuiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08T64M74W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECH DECK, Ultra DLX Fingerboard 4-Pack, Element Skateboards, Collectible and Customizable Mini Skateboards, Kids Toy for Ages 6 and up" src="https://m.media-amazon.com/images/I/51pNzKGKuiL._SL500_.jpg"/></a>
 
 
 The **TECH DECK Ultra DLX Fingerboard 4-Pack** is ideal for **kids aged 6 and up**, as well as collectors and enthusiasts of **mini skateboards**. This set is perfect for those who enjoy customizing and performing tricks with **fingerboards**, offering both a fun toy and a collectible item for young skateboard fans and hobbyists alike.
@@ -174,10 +174,10 @@ The **TECH DECK Ultra DLX Fingerboard 4-Pack** offers a versatile and engaging e
 
 Additionally, the compact size and lightweight build make it easy to carry and use anywhere, whether at home or on the go. The set encourages skill development by enabling users to practice various fingerboard tricks, improving hand-eye coordination and dexterity. Overall, this product combines fun, creativity, and collectible value, making it an excellent choice for young skateboard fans and fingerboard hobbyists.
 
-## <a href="https://www.amazon.com/dp/B0DFP9MCNT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xipegpa 100 Pcs Mini Finger Skateboards Finger Skateboard Toys</a>
+## <a href="https://www.amazon.com/dp/B0DFP9MCNT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xipegpa 100 Pcs Mini Finger Skateboards Finger Skateboard Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFP9MCNT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XIPEGPA 100 PCS Mini Finger Skateboards Finger Skateboard Toys for Birthday Party Favors Gift Props Decoration (100)" src="https://m.media-amazon.com/images/I/61mNdlsM3uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFP9MCNT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XIPEGPA 100 PCS Mini Finger Skateboards Finger Skateboard Toys for Birthday Party Favors Gift Props Decoration (100)" src="https://m.media-amazon.com/images/I/61mNdlsM3uL._SL500_.jpg"/></a>
 
 
 The **XIPEGPA 100 PCS Mini Finger Skateboards** are perfect for individuals who enjoy creative play, party planners looking for unique favors, and collectors of miniature toys. If you want an engaging and colorful set of **finger skateboard toys** that can serve as fun **birthday party favors, gift props, or decorations**, this product is an ideal choice.
@@ -200,10 +200,10 @@ The **XIPEGPA Mini Finger Skateboards** stand out due to their vibrant colors an
 
 Beyond play, these skateboards serve as excellent gift props and decorative items. Their lightweight and compact nature make them easy to distribute or incorporate into themed decorations. Whether you're organizing a skateboard-themed party, looking for creative giveaway items, or simply adding to a collection, the **XIPEGPA 100 PCS Mini Finger Skateboards** offer a blend of fun, functionality, and aesthetic appeal that caters to diverse needs.
 
-## <a href="https://www.amazon.com/dp/B0CSYJQC7J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tech Deck Dgk Handboard</a>
+## <a href="https://www.amazon.com/dp/B0CSYJQC7J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tech Deck Dgk Handboard</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSYJQC7J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECH DECK, DGK Handboard; Authentic Mini Skateboards, Kids Toys for Boys &amp; Girls, Ages 6 and up (Hands Use Only)" src="https://m.media-amazon.com/images/I/51FRiyWVenL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSYJQC7J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECH DECK, DGK Handboard; Authentic Mini Skateboards, Kids Toys for Boys &amp; Girls, Ages 6 and up (Hands Use Only)" src="https://m.media-amazon.com/images/I/51FRiyWVenL._SL500_.jpg"/></a>
 
 
 The **TECH DECK DGK Handboard** is perfect for **kids aged 6 and up** who love skateboarding and want to practice tricks using their hands. Ideal for both **boys and girls** who enjoy miniature skateboarding toys, this authentic mini skateboard offers a fun and engaging way to develop hand-eye coordination and finger dexterity. It’s also a great choice for collectors and fans of skate culture looking for a high-quality, branded handboard.
@@ -226,10 +226,10 @@ The **TECH DECK DGK Handboard** stands out due to its authentic design and high-
 
 This mini skateboard is not only a toy but also a tool to improve fine motor skills and coordination. Its focus on **hand use only** offers a unique way for children to engage with skateboarding culture safely indoors. Whether used for casual play or serious fingerboarding practice, the TECH DECK DGK Handboard provides endless entertainment and developmental benefits.
 
-## <a href="https://www.amazon.com/dp/B0CSYSPB55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tech Deck Team Usa Sk8 6-pack</a>
+## <a href="https://www.amazon.com/dp/B0CSYSPB55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tech Deck Team Usa Sk8 6-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSYSPB55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECH DECK, Team USA Sk8 6-Pack, Collectible and Customizable Mini Skateboards, Kids Toys for Ages 6 and up, Amazon Exclusive" src="https://m.media-amazon.com/images/I/51zfK1zUUpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSYSPB55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECH DECK, Team USA Sk8 6-Pack, Collectible and Customizable Mini Skateboards, Kids Toys for Ages 6 and up, Amazon Exclusive" src="https://m.media-amazon.com/images/I/51zfK1zUUpL._SL500_.jpg"/></a>
 
 
 The **TECH DECK Team USA Sk8 6-Pack** is perfect for kids aged 6 and up who love skateboarding or enjoy collectible and customizable toys. Ideal for young enthusiasts wanting to practice fingerboarding tricks or build a unique mini skateboard collection, this set appeals to both beginners and experienced players seeking a fun and engaging pastime.
@@ -253,10 +253,10 @@ The **TECH DECK Team USA Sk8 6-Pack** offers an exciting way for kids to explore
 
 Beyond entertainment, these collectible mini skateboards help develop hand-eye coordination and fine motor skills, while also encouraging imaginative play. Being an Amazon exclusive, this set provides a unique opportunity for collectors and young skateboard fans to own distinctive designs that celebrate Team USA pride, making it a valuable addition to any toy collection.
 
-## <a href="https://www.amazon.com/dp/B09V8CDQ14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beselley Mini Finger Skateboards For Kids Set Of 25</a>
+## <a href="https://www.amazon.com/dp/B09V8CDQ14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beselley Mini Finger Skateboards For Kids Set Of 25</a>
 
 
-<a href="https://www.amazon.com/dp/B09V8CDQ14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beselley Mini Finger Skateboards for Kids Set of 25, Light up Mini Finger Toys LED Fingerboard Hand Skateboard for Creative Fingertips Movement Sports Finger Skater Party Favor" src="https://m.media-amazon.com/images/I/51Qo-c89PKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09V8CDQ14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beselley Mini Finger Skateboards for Kids Set of 25, Light up Mini Finger Toys LED Fingerboard Hand Skateboard for Creative Fingertips Movement Sports Finger Skater Party Favor" src="https://m.media-amazon.com/images/I/51Qo-c89PKL._SL500_.jpg"/></a>
 
 
 The **Beselley Mini Finger Skateboards for Kids Set of 25** is perfect for young enthusiasts and creative kids who love engaging in fun, hands-on activities. Ideal for children who enjoy miniature toys and finger sports, this set encourages dexterity and imaginative play, making it a great choice for parents looking to foster fine motor skills and active playtime. These light-up, colorful finger skateboards also serve as exciting party favors and collectibles for young finger skaters.

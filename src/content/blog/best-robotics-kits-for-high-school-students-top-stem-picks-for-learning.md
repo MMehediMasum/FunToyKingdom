@@ -23,10 +23,10 @@ These kits fit school projects and home learning. Choosing the right kit depends
 
 
 
-## <a href="https://www.amazon.com/dp/B00SK5RUQY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Makeblock Mbot Robot Kit</a>
+## <a href="https://www.amazon.com/dp/B00SK5RUQY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Makeblock Mbot Robot Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B00SK5RUQY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Makeblock mBot Robot Kit, Robotics for Kids Ages 8-12 Learn to Code with Scratch &amp; Arduino, STEM Toys Science Kits for Kids Age 8-12 Boys and Girls Age 8+" src="https://m.media-amazon.com/images/I/51H9BCCzoWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00SK5RUQY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Makeblock mBot Robot Kit, Robotics for Kids Ages 8-12 Learn to Code with Scratch &amp; Arduino, STEM Toys Science Kits for Kids Age 8-12 Boys and Girls Age 8+" src="https://m.media-amazon.com/images/I/51H9BCCzoWL._SL500_.jpg"/></a>
 
 
 The **Makeblock mBot Robot Kit** is an ideal choice for young learners aged 8 to 12 who are eager to explore the exciting world of **robotics** and **coding**. Perfect for both boys and girls, this STEM toy is designed for kids who want to develop essential skills in **programming** using **Scratch** and **Arduino**. It is especially suitable for parents and educators looking to provide a hands-on, educational experience that combines science, technology, engineering, and math.
@@ -48,10 +48,10 @@ The **Makeblock mBot Robot Kit** features a thoughtfully designed framework that
 
 Beyond just coding, the mBot encourages users to develop problem-solving skills and logical thinking through hands-on experimentation. The compact dimensions and lightweight design make it easy for kids to handle and transport their robots. As a STEM toy, it supports educational growth by combining play with learning, making it a valuable tool for both home and classroom environments.
 
-## <a href="https://www.amazon.com/dp/B07FM2QFQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eudax School Physics Labs Basic Electricity Discovery Circuit And Magnetism Experiment Kits</a>
+## <a href="https://www.amazon.com/dp/B07FM2QFQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eudax School Physics Labs Basic Electricity Discovery Circuit And Magnetism Experiment Kits</a>
 
 
-<a href="https://www.amazon.com/dp/B07FM2QFQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EUDAX School Physics Labs Basic Electricity Discovery Circuit and Magnetism Experiment kits for High School Students Electromagnetism Elementary Electronics" src="https://m.media-amazon.com/images/I/51gjgDoCe+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07FM2QFQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EUDAX School Physics Labs Basic Electricity Discovery Circuit and Magnetism Experiment kits for High School Students Electromagnetism Elementary Electronics" src="https://m.media-amazon.com/images/I/51gjgDoCe+L._SL500_.jpg"/></a>
 
 
 The **EUDAX School Physics Labs Basic Electricity Discovery Circuit and Magnetism Experiment kits** are ideal for **high school students** and educators looking to provide hands-on learning experiences in **electromagnetism** and **elementary electronics**. This kit is perfect for students who want to deepen their understanding of basic electrical principles through practical experimentation, making complex physics concepts more accessible and engaging.
@@ -74,10 +74,10 @@ The **EUDAX School Physics Labs kit** offers a variety of experiments that cover
 
 With its carefully selected components and clear instructions, this kit supports educators in delivering engaging lessons that enhance student comprehension. The practical nature of the kit encourages experimentation and curiosity, fostering a deeper interest in physics and electronics. Overall, the **EUDAX experiment kits** provide an effective and interactive way for students to explore the fascinating principles of electricity and magnetism.
 
-## <a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Uno R3 Smart Robot Car Kit V4</a>
+## <a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Uno R3 Smart Robot Car Kit V4</a>
 
 
-<a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO UNO R3 Smart Robot Car Kit V4 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Gifts for 8 9 10 11 12 13 14 15 16 Year Old Boys Girls Teens Cool Engineering Building Toys" src="https://m.media-amazon.com/images/I/517CZ1WfvaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO UNO R3 Smart Robot Car Kit V4 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Gifts for 8 9 10 11 12 13 14 15 16 Year Old Boys Girls Teens Cool Engineering Building Toys" src="https://m.media-amazon.com/images/I/517CZ1WfvaL._SL500_.jpg"/></a>
 
 
 The **ELEGOO UNO R3 Smart Robot Car Kit V4** is an ideal choice for young learners aged **8 to 16** who are interested in exploring the exciting world of **Arduino robotics** and **STEM education**. This kit is perfect for kids, teens, and even beginners who want to develop coding skills, understand robotics concepts, and enjoy hands-on engineering projects. It serves as a fantastic educational gift that encourages creativity, problem-solving, and critical thinking.
@@ -100,10 +100,10 @@ The **ELEGOO UNO R3 Smart Robot Car Kit V4** features a well-designed robotic ca
 
 Beyond the educational value, the kit offers practical benefits such as enhancing logical thinking and boosting confidence in technology skills. Its sturdy construction and compact dimensions make it easy to handle and transport, which is great for classroom or home use. Overall, this kit is a well-rounded package that makes the complex world of robotics accessible and enjoyable for young STEM enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B09BZKJM6Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pica Toys Wireless Remote Control Car Kit F1</a>
+## <a href="https://www.amazon.com/dp/B09BZKJM6Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pica Toys Wireless Remote Control Car Kit F1</a>
 
 
-<a href="https://www.amazon.com/dp/B09BZKJM6Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pica Toys Wireless Remote Control Car Kit F1, Science Project Kit for Kids/Students/Education, STEM Project Model Car Kits to Build, Ideal Choice for Family and School" src="https://m.media-amazon.com/images/I/41I2G5itjKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BZKJM6Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pica Toys Wireless Remote Control Car Kit F1, Science Project Kit for Kids/Students/Education, STEM Project Model Car Kits to Build, Ideal Choice for Family and School" src="https://m.media-amazon.com/images/I/41I2G5itjKL._SL500_.jpg"/></a>
 
 
 The **Pica Toys Wireless Remote Control Car Kit F1** is an excellent choice for **kids, students, and educators** interested in **STEM education** and hands-on learning. It is ideal for families and schools looking to engage children in a fun and educational **science project** that encourages creativity, problem-solving, and technical skills.
@@ -126,10 +126,10 @@ The **Pica Toys Wireless Remote Control Car Kit F1** offers a rewarding experien
 
 Its compact size and lightweight construction make it easy to handle and store, while the step-by-step assembly process enhances the understanding of engineering and technology concepts. This kit is a valuable tool for families and schools aiming to foster interest in science and technology, providing a hands-on approach that helps children develop critical thinking and motor skills in an enjoyable way.
 
-## <a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Conqueror Robot Tank Kit With Uno R3 For Arduino Robotics</a>
+## <a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Conqueror Robot Tank Kit With Uno R3 For Arduino Robotics</a>
 
 
-<a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Conqueror Robot Tank Kit with UNO R3 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Robots Toys for 8+ Year Old Boys Girls Teens Circuits Engineering Building Project" src="https://m.media-amazon.com/images/I/61lF1Z1BQ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Conqueror Robot Tank Kit with UNO R3 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Robots Toys for 8+ Year Old Boys Girls Teens Circuits Engineering Building Project" src="https://m.media-amazon.com/images/I/61lF1Z1BQ1L._SL500_.jpg"/></a>
 
 
 The **ELEGOO Conqueror Robot Tank Kit** is an ideal choice for young learners aged 8 to 16 who are interested in **STEM education**, robotics, and coding. This kit is perfect for kids, teens, and beginners who want to explore **Arduino programming** and hands-on engineering projects in a fun and engaging way. Whether you're a parent seeking an educational toy or an educator looking for a practical classroom tool, this kit offers a comprehensive introduction to circuits, coding, and robotics.
@@ -152,10 +152,10 @@ The **ELEGOO Conqueror Robot Tank Kit** features a robust design with dimensions
 
 Furthermore, the kit is designed to be an engaging educational tool, combining mechanical assembly with electronic components. Kids and teens gain practical knowledge in robotics by constructing the tank and programming it to perform various functions. The process of building and coding the robot enhances their understanding of **STEM concepts**, making learning enjoyable and effective. Overall, the ELEGOO Conqueror Robot Tank Kit is a valuable resource for aspiring young engineers and coders looking to expand their skills in a playful and interactive environment.
 
-## <a href="https://www.amazon.com/dp/B00W6Y0Z4E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Makeblock Mbot Ultimate 10 In 1 Robot Building Toys</a>
+## <a href="https://www.amazon.com/dp/B00W6Y0Z4E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Makeblock Mbot Ultimate 10 In 1 Robot Building Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B00W6Y0Z4E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Makeblock mBot Ultimate 10 in 1 Robot Building Toys, Robotics Kit App Remote Control Robot Toys Compatible with Arduino C &amp; Raspberry Pi, STEM Educational DIY Robotics for Kids Ages 12-16" src="https://m.media-amazon.com/images/I/51Buz7Dt64L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00W6Y0Z4E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Makeblock mBot Ultimate 10 in 1 Robot Building Toys, Robotics Kit App Remote Control Robot Toys Compatible with Arduino C &amp; Raspberry Pi, STEM Educational DIY Robotics for Kids Ages 12-16" src="https://m.media-amazon.com/images/I/51Buz7Dt64L._SL500_.jpg"/></a>
 
 
 The **Makeblock mBot Ultimate 10 in 1 Robot Building Toy** is ideal for young enthusiasts aged 12-16 who are passionate about **STEM education**, robotics, and hands-on learning. This kit is perfect for kids who want to explore the world of **robotics** and programming, especially those interested in using platforms like **Arduino C** and **Raspberry Pi**. Parents and educators looking for an engaging and educational tool to inspire creativity and technical skills will also find this kit highly suitable.
@@ -179,10 +179,10 @@ The **Makeblock mBot Ultimate** offers a versatile and comprehensive robotics ex
 
 Additionally, the inclusion of **app remote control** functionality adds an interactive dimension to the learning process, making it more engaging and fun. The robust build quality ensures durability during extensive use, while the comprehensive instructions help users navigate the assembly and programming processes with ease. Overall, this robotics kit is a powerful resource for fostering STEM skills and inspiring the next generation of engineers and programmers.
 
-## <a href="https://www.amazon.com/dp/B07ZCJS4F6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eudax Physics Science Lab Learning Circuit Kit</a>
+## <a href="https://www.amazon.com/dp/B07ZCJS4F6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eudax Physics Science Lab Learning Circuit Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZCJS4F6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EUDAX Physics Science Lab Learning Circuit kit,Electricity Experiment Set,Building Circuits for Kids Junior Senior High School Students (Basic kit)" src="https://m.media-amazon.com/images/I/51aHE7J3JiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZCJS4F6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EUDAX Physics Science Lab Learning Circuit kit,Electricity Experiment Set,Building Circuits for Kids Junior Senior High School Students (Basic kit)" src="https://m.media-amazon.com/images/I/51aHE7J3JiL._SL500_.jpg"/></a>
 
 
 The **EUDAX Physics Science Lab Learning Circuit Kit** is ideal for **junior and senior high school students** who are eager to explore the fundamentals of **electricity** and **circuit building**. This kit is perfect for young learners who want a hands-on approach to understanding **basic electrical concepts** through practical experiments. It is also suitable for educators looking to provide interactive science lessons that engage students effectively.
@@ -205,10 +205,10 @@ The **EUDAX Physics Science Lab Learning Circuit Kit** offers an excellent intro
 
 Moreover, this kit helps to foster critical thinking and problem-solving skills by encouraging learners to experiment and troubleshoot circuits on their own. The hands-on approach enhances retention of complex concepts compared to theoretical study alone. Overall, the **EUDAX Physics Science Lab Learning Circuit Kit** is a valuable educational tool that combines fun and learning for young science enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0F886WQXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acebott Robot Kit</a>
+## <a href="https://www.amazon.com/dp/B0F886WQXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Acebott Robot Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F886WQXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACEBOTT Robot Kit, Robotics for Kids Ages 8-12 12-16, STEM Toys for Boys with Remote &amp; App Control, Arduino &amp; Scratch Compatible, Science Kits for Kids Age 8-12 12-16, Gift for Boys &amp; Girls(Yellow)" src="https://m.media-amazon.com/images/I/51ztXMIqnVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F886WQXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ACEBOTT Robot Kit, Robotics for Kids Ages 8-12 12-16, STEM Toys for Boys with Remote &amp; App Control, Arduino &amp; Scratch Compatible, Science Kits for Kids Age 8-12 12-16, Gift for Boys &amp; Girls(Yellow)" src="https://m.media-amazon.com/images/I/51ztXMIqnVL._SL500_.jpg"/></a>
 
 
 The **ACEBOTT Robot Kit** is ideal for children aged **8 to 16** who have a keen interest in **robotics, STEM learning, and coding**. This kit is perfect for both beginners and young enthusiasts looking to explore **Arduino** and **Scratch programming** in a fun, hands-on way. It's also a great gift for boys and girls who enjoy interactive educational toys that combine **remote and app control** with creative building opportunities.
@@ -231,10 +231,10 @@ The **ACEBOTT Robot Kit** offers a comprehensive introduction to **robotics and 
 
 Beyond the technical features, this robot kit fosters critical thinking, problem-solving, and creativity, which are essential skills in today's technology-driven world. The compact and colorful design makes it appealing and manageable for children, ensuring they stay engaged while developing their STEM knowledge. Overall, the ACEBOTT Robot Kit is a valuable investment for parents and educators aiming to inspire the next generation of innovators.
 
-## <a href="https://www.amazon.com/dp/B07ZCJRST7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eudax Physics Science Lab Learning Circuit Kit</a>
+## <a href="https://www.amazon.com/dp/B07ZCJRST7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eudax Physics Science Lab Learning Circuit Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZCJRST7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EUDAX Physics Science Lab Learning Circuit kit,Electricity Experiment Set,Building Circuits for Kids Junior Senior High School Students (Upgrade kit)" src="https://m.media-amazon.com/images/I/51hdRr2UFoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZCJRST7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EUDAX Physics Science Lab Learning Circuit kit,Electricity Experiment Set,Building Circuits for Kids Junior Senior High School Students (Upgrade kit)" src="https://m.media-amazon.com/images/I/51hdRr2UFoL._SL500_.jpg"/></a>
 
 
 The **EUDAX Physics Science Lab Learning Circuit Kit** is ideal for **junior and senior high school students** who are eager to explore the fundamentals of **electricity and circuit building**. This **upgrade kit** is perfect for young learners and educators seeking a hands-on, interactive approach to understanding physics concepts through practical experiments.
@@ -256,10 +256,10 @@ The **EUDAX Physics Science Lab Learning Circuit Kit** features a variety of com
 
 With its carefully selected parts and clear instructions, this kit not only encourages experimentation but also promotes critical thinking and problem-solving skills. The **upgrade edition** offers improved durability and functionality, making it a reliable educational tool for both classroom and home use. Overall, it provides a fun and practical way for students to grasp the basics of physics and electricity.
 
-## <a href="https://www.amazon.com/dp/B0BGLNCD2X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Robotics Science Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B0BGLNCD2X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Robotics Science Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGLNCD2X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Robotics Science Kits for Kids Age 8-12 8-10, STEM Toys for Boys Girls 6-8, Build Robot Building Kit Science Experiments Engineering Projects STEAM Activities Gifts 6 7 8 Year Old Boy Toys Crafts" src="https://m.media-amazon.com/images/I/51i44SSeNdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGLNCD2X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Robotics Science Kits for Kids Age 8-12 8-10, STEM Toys for Boys Girls 6-8, Build Robot Building Kit Science Experiments Engineering Projects STEAM Activities Gifts 6 7 8 Year Old Boy Toys Crafts" src="https://m.media-amazon.com/images/I/51i44SSeNdL._SL500_.jpg"/></a>
 
 
 The **STEM Robotics Science Kits for Kids Age 8-12** are perfect for young learners who are curious about **robotics, engineering, and science**. Ideal for both **boys and girls aged 6-12**, this kit is designed to spark creativity and critical thinking through hands-on **STEAM activities**. If you're looking for an educational gift that combines fun with learning, this **robot building kit** is an excellent choice to introduce children to basic **science experiments and engineering projects**.

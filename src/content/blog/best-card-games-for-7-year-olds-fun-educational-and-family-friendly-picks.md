@@ -23,10 +23,10 @@ Other games, like Seyal’s Guess The Superhero, spark imagination and excitemen
 
 
 
-## <a href="https://www.amazon.com/dp/B09H23YC3H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crystal Caper Card Game</a>
+## <a href="https://www.amazon.com/dp/B09H23YC3H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crystal Caper Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09H23YC3H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crystal Caper Card Game for Families and Kids, Easy, Hilarious, Competitive Card Games for Families, Family Games for 3-6 Players, Ages 7+" src="https://m.media-amazon.com/images/I/41goD6PH2hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09H23YC3H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crystal Caper Card Game for Families and Kids, Easy, Hilarious, Competitive Card Games for Families, Family Games for 3-6 Players, Ages 7+" src="https://m.media-amazon.com/images/I/41goD6PH2hL._SL500_.jpg"/></a>
 
 
 The **Crystal Caper Card Game for Families and Kids** is ideal for parents seeking an engaging and easy-to-learn game that brings the whole family together. Designed for children aged **7+** and suitable for **3-6 players**, this game is perfect for families who enjoy lighthearted competition and hilarious moments during game night. If you're looking for a fun, competitive card game that encourages interaction and laughter, this is a great choice.
@@ -48,10 +48,10 @@ The **Crystal Caper Card Game** features an engaging gameplay experience that ba
 
 Crafted by **Hasbro**, the game guarantees high-quality components that withstand repeated use, making it a reliable choice for families. The bright, colorful cards and straightforward mechanics make it accessible to children while still entertaining for adults. Overall, the Crystal Caper Card Game offers an enjoyable and memorable experience that promotes laughter, connection, and friendly rivalry among family members.
 
-## <a href="https://www.amazon.com/dp/B0D1ZVQSWD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gooroo Games' Jack Be Thimble Water Splashing Card Game</a>
+## <a href="https://www.amazon.com/dp/B0D1ZVQSWD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gooroo Games' Jack Be Thimble Water Splashing Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1ZVQSWD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Generic Gooroo Games' Jack Be Thimble Water Splashing Card Game - Word Guessing Party Game - Fun for 3+ Players - Ages 6 and Up - Funny Kids and Adults Group Game" src="https://m.media-amazon.com/images/I/51xjWCrfP0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1ZVQSWD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Generic Gooroo Games' Jack Be Thimble Water Splashing Card Game - Word Guessing Party Game - Fun for 3+ Players - Ages 6 and Up - Funny Kids and Adults Group Game" src="https://m.media-amazon.com/images/I/51xjWCrfP0L._SL500_.jpg"/></a>
 
 
 The **Generic Gooroo Games' Jack Be Thimble Water Splashing Card Game** is ideal for families, friends, and party enthusiasts looking for a lively and engaging group activity. Designed for **3+ players** and suitable for **ages 6 and up**, this game is perfect for both **kids and adults** who enjoy interactive word guessing challenges and lighthearted competition. If you're seeking a fun, fast-paced party game that combines humor with teamwork, this game is an excellent choice.
@@ -74,10 +74,10 @@ The **Jack Be Thimble Water Splashing Card Game** features a unique combination 
 
 By incorporating an element of surprise with water splashing, the game adds a refreshing twist that keeps players on their toes. This feature not only increases the excitement but also encourages laughter and bonding among participants. Overall, the game is a fantastic option for those seeking a lively, easy-to-learn activity that brings together people of all ages for memorable moments of fun.
 
-## <a href="https://www.amazon.com/dp/B0FJCHSYNH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arnbz Match Color Bingo Game Set</a>
+## <a href="https://www.amazon.com/dp/B0FJCHSYNH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Arnbz Match Color Bingo Game Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0FJCHSYNH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arnbz Match Color Bingo Game Set, Fast Bead Grabbing Gamea, 90 Beads &amp; 6 Code Cards, 1 Bell &amp; Bead Can for Group Party and Family 2-4 Players" src="https://m.media-amazon.com/images/I/516Tomr843L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FJCHSYNH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Arnbz Match Color Bingo Game Set, Fast Bead Grabbing Gamea, 90 Beads &amp; 6 Code Cards, 1 Bell &amp; Bead Can for Group Party and Family 2-4 Players" src="https://m.media-amazon.com/images/I/516Tomr843L._SL500_.jpg"/></a>
 
 
 The **Arnbz Match Color Bingo Game Set** is ideal for families and groups of 2-4 players who enjoy interactive and fast-paced games. Perfect for both casual gatherings and lively parties, this game encourages quick thinking and hand-eye coordination, making it a great choice for kids and adults alike looking for a fun and engaging activity.
@@ -100,10 +100,10 @@ The **Arnbz Match Color Bingo Game Set** features a vibrant collection of beads 
 
 Its compact size makes it convenient for storage and on-the-go entertainment, ideal for taking to parties or family outings. The game’s design by **SHANTOU CITY JIN XIU TOYS CO., LTD** ensures quality and durability, making it a reliable choice for repeated use. Overall, this game set offers a blend of fun, skill-building, and social interaction, making it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B004JPKFRU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">One Of A Kind</a>
+## <a href="https://www.amazon.com/dp/B004JPKFRU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">One Of A Kind</a>
 
 
-<a href="https://www.amazon.com/dp/B004JPKFRU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="One of a Kind: A Self-Esteem Card Game" src="https://m.media-amazon.com/images/I/412YlizfeTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004JPKFRU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="One of a Kind: A Self-Esteem Card Game" src="https://m.media-amazon.com/images/I/412YlizfeTL._SL500_.jpg"/></a>
 
 
 The **One of a Kind: A Self-Esteem Card Game** is ideal for individuals seeking to boost their **self-confidence** and improve their **mental well-being**. Whether you are a therapist, educator, or someone looking to enhance personal growth or support others in building **positive self-image**, this card game serves as a powerful tool for reflection and encouragement. It is especially beneficial for teens and adults wanting to explore self-esteem in a fun and interactive way.
@@ -124,10 +124,10 @@ The **One of a Kind: A Self-Esteem Card Game** features thoughtfully crafted pro
 
 Manufactured by the reputable **Creative Therapy Store**, this card game combines expert insights with practical application. The interactive nature of the game allows users to not only reflect privately but also share insights with others, fostering a supportive environment. Ultimately, this product helps transform abstract concepts of self-esteem into tangible, actionable steps toward greater personal empowerment and emotional resilience.
 
-## <a href="https://www.amazon.com/dp/B07GVJ6Z8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cocomoco Kids Flag Frenzy Educational Toy Geography Card Game</a>
+## <a href="https://www.amazon.com/dp/B07GVJ6Z8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cocomoco Kids Flag Frenzy Educational Toy Geography Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07GVJ6Z8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CocoMoco Kids Flag Frenzy Educational Toy Geography Card Game, Return Gift for Boys and Girls, 6-14 Year olds" src="https://m.media-amazon.com/images/I/41MBl9+nhmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GVJ6Z8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CocoMoco Kids Flag Frenzy Educational Toy Geography Card Game, Return Gift for Boys and Girls, 6-14 Year olds" src="https://m.media-amazon.com/images/I/41MBl9+nhmL._SL500_.jpg"/></a>
 
 
 The **CocoMoco Kids Flag Frenzy Educational Toy Geography Card Game** is an ideal purchase for parents and educators looking to engage children aged **6 to 14 years** in a fun and interactive way to learn about world geography. This game is perfect for boys and girls who enjoy challenges and want to improve their knowledge of country flags while developing memory and cognitive skills. It also makes an excellent return gift for birthday parties and educational events.
@@ -149,10 +149,10 @@ The **CocoMoco Kids Flag Frenzy** game features vibrant, multi-colored cards tha
 
 Playing this card game helps children improve their memory by matching flags while simultaneously learning the names and locations of countries worldwide. This dual focus on play and education fosters a deeper understanding of geography in an entertaining format. Additionally, the game's competitive aspect encourages social interaction and teamwork, making it a great tool for group learning environments and family bonding moments.
 
-## <a href="https://www.amazon.com/dp/B0DS8WBBKC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Seyal Guess The Superhero Card Game</a>
+## <a href="https://www.amazon.com/dp/B0DS8WBBKC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Seyal Guess The Superhero Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS8WBBKC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Seyal: Guess The Superhero Card Game – Perfect for Fans of Spiderman, Iron Man, and More! - Seyal Card Game" src="https://m.media-amazon.com/images/I/41qgowPlaLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS8WBBKC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Seyal: Guess The Superhero Card Game – Perfect for Fans of Spiderman, Iron Man, and More! - Seyal Card Game" src="https://m.media-amazon.com/images/I/41qgowPlaLL._SL500_.jpg"/></a>
 
 
 The **Seyal: Guess The Superhero Card Game** is ideal for **fans of Spiderman, Iron Man, and other popular superheroes** who enjoy interactive and engaging games. It is perfect for families, friends, and superhero enthusiasts looking for a fun way to test their knowledge and challenge each other in a casual setting. Whether you are hosting a game night or looking for an entertaining activity for kids and adults alike, this card game suits anyone eager to dive into the superhero universe.
@@ -175,10 +175,10 @@ The **Seyal: Guess The Superhero Card Game** comes with compact dimensions of **
 
 Beyond entertainment, this card game fosters cognitive skills such as memory recall and quick thinking. Players engage in friendly competition, enhancing social bonds and communication while having fun. Manufactured by **Gainex R&D Solutions LLC**, the quality and durability of the cards ensure lasting enjoyment. Overall, the **Seyal Guess The Superhero Card Game** offers a delightful blend of excitement and challenge for superhero fans of all ages.
 
-## <a href="https://www.amazon.com/dp/B0B3YXWCVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Djeco Dino Draft Card Games</a>
+## <a href="https://www.amazon.com/dp/B0B3YXWCVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Djeco Dino Draft Card Games</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3YXWCVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DJECO Dino Draft Card Games - Strategic Dinosaur Drafting Game with 60 Cards and Multi-Language Rules - Fun Learning Game for Family Bonding - Adult &amp; Children Playing Cards, 6+ Years" src="https://m.media-amazon.com/images/I/51FRVNMRPcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3YXWCVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DJECO Dino Draft Card Games - Strategic Dinosaur Drafting Game with 60 Cards and Multi-Language Rules - Fun Learning Game for Family Bonding - Adult &amp; Children Playing Cards, 6+ Years" src="https://m.media-amazon.com/images/I/51FRVNMRPcL._SL500_.jpg"/></a>
 
 
 The **DJECO Dino Draft Card Games** is perfect for families and individuals who enjoy strategic and educational gameplay. Ideal for children aged **6 years and above** as well as adults, this game fosters family bonding while encouraging critical thinking and decision-making skills. If you're looking for a fun, interactive way to engage with loved ones or introduce young players to strategic card games, this product is an excellent choice.
@@ -200,10 +200,10 @@ The **DJECO Dino Draft Card Games** combines vibrant visuals with strategic game
 
 Another key benefit is the inclusion of **multi-language rules**, which broadens its usability and makes it an excellent tool for families or groups with diverse language backgrounds. As a product from the reputable **DJECO brand**, the game assures quality and durability, ensuring it can be enjoyed for many sessions. Overall, this game offers both entertainment and educational value, making it a worthwhile addition to any family game collection.
 
-## <a href="https://www.amazon.com/dp/B0CQKN85L8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Go Fish Girl Power</a>
+## <a href="https://www.amazon.com/dp/B0CQKN85L8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Go Fish Girl Power</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQKN85L8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Go Fish Girl Power - Where Classic Go Fish Meets 13 Categories of Successful Women of All Industries! Ages 7 and up!" src="https://m.media-amazon.com/images/I/41TWTvP28gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQKN85L8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Go Fish Girl Power - Where Classic Go Fish Meets 13 Categories of Successful Women of All Industries! Ages 7 and up!" src="https://m.media-amazon.com/images/I/41TWTvP28gL._SL500_.jpg"/></a>
 
 
 Ideal for children ages 7 and up who love classic card games and are eager to learn about inspiring women across various industries, **Go Fish Girl Power** is perfect for families, educators, and young learners who want to combine fun and education. This game is designed for those who appreciate a mix of entertainment and empowerment, making it an excellent choice for anyone interested in celebrating **successful women** while enjoying a timeless card game.
@@ -225,10 +225,10 @@ Ideal for children ages 7 and up who love classic card games and are eager to le
 
 The game’s compact dimensions make it highly portable, perfect for family outings, classrooms, or travel. By combining simple gameplay mechanics with empowering themes, it encourages players to develop social skills, memory, and strategic thinking. Moreover, being manufactured by **KosoGames**, it promises a reliable build quality, ensuring the game withstands repeated use while maintaining vibrant and clear illustrations that capture attention and enhance the user experience.
 
-## <a href="https://www.amazon.com/dp/B0FCM19KJ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chess Opening Strategy Cards</a>
+## <a href="https://www.amazon.com/dp/B0FCM19KJ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chess Opening Strategy Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCM19KJ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chess Opening Strategy Cards (Defense Mastery): 52 Playing Cards with Classic Tactics for Training and Coaching, Fun and Educational, for Students, Beginners and Coaches" src="https://m.media-amazon.com/images/I/41zNkGpAUiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCM19KJ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chess Opening Strategy Cards (Defense Mastery): 52 Playing Cards with Classic Tactics for Training and Coaching, Fun and Educational, for Students, Beginners and Coaches" src="https://m.media-amazon.com/images/I/41zNkGpAUiL._SL500_.jpg"/></a>
 
 
 The **Chess Opening Strategy Cards (Defense Mastery)** are ideal for **students, beginners, and coaches** looking to improve their understanding of classic chess tactics. These cards are perfect for anyone wanting to develop strong defensive skills in chess through a fun and educational approach, making them a valuable tool for training and coaching sessions.
@@ -251,10 +251,10 @@ These **Chess Opening Strategy Cards** provide an effective and engaging way to 
 
 By focusing specifically on defense mastery, these cards help users build a solid foundation in protecting their position during the opening phase of the game. Coaches can easily incorporate them into lessons, while students and beginners benefit from the structured and visual learning format. Overall, this product bridges the gap between theory and practical application, enhancing the chess-playing experience for all skill levels.
 
-## <a href="https://www.amazon.com/dp/B09YQL99KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helvetiq Mada Card Game</a>
+## <a href="https://www.amazon.com/dp/B09YQL99KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helvetiq Mada Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09YQL99KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helvetiq Mada Card Game for 2 to 4 Players" src="https://m.media-amazon.com/images/I/41wkXodUpfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YQL99KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helvetiq Mada Card Game for 2 to 4 Players" src="https://m.media-amazon.com/images/I/41wkXodUpfL._SL500_.jpg"/></a>
 
 
 The **Helvetiq Mada Card Game** is ideal for individuals or families looking for a fun and engaging activity that accommodates **2 to 4 players**. Whether you're a casual gamer or someone who enjoys strategic card games, this compact and thoughtfully designed game suits both beginners and experienced players seeking a quick yet entertaining challenge.

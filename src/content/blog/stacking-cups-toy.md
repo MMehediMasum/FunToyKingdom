@@ -23,10 +23,10 @@ They come in different sets, like The First Years Stack & Count or Moonkie Stack
 
 
 
-## <a href="https://www.amazon.com/dp/B00005C5H4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The First Years Stack &amp; Count Stacking Cups</a>
+## <a href="https://www.amazon.com/dp/B00005C5H4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The First Years Stack &amp; Count Stacking Cups</a>
 
 
-<a href="https://www.amazon.com/dp/B00005C5H4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The First Years Stack &amp; Count Stacking Cups - Colorful Baby Stacking Water Toys Set - Stackable Cups for Learning - Baby Bath Toys - Toddler Water Table Toys - 8 Count" src="https://m.media-amazon.com/images/I/41+tceVy64L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00005C5H4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The First Years Stack &amp; Count Stacking Cups - Colorful Baby Stacking Water Toys Set - Stackable Cups for Learning - Baby Bath Toys - Toddler Water Table Toys - 8 Count" src="https://m.media-amazon.com/images/I/41+tceVy64L._SL500_.jpg"/></a>
 
 
 The **First Years Stack & Count Stacking Cups** are ideal for parents and caregivers looking to introduce their babies and toddlers to early learning through play. These colorful, stackable cups are perfect for little hands to grasp, stack, and explore, making them a great choice for children aged 6 months and up who are developing fine motor skills and cognitive abilities.
@@ -49,12 +49,12 @@ The **First Years Stack & Count Stacking Cups** feature a compact design with ea
 
 These stacking cups are also versatile enough to be used in various environments, including the bath or a water table, thanks to their lightweight and water-friendly plastic material. This adds a sensory dimension to playtime, allowing toddlers to experiment with pouring and scooping water, which supports fine motor skills and sensory exploration. Manufactured by TOMY Intl., these cups maintain a safe, durable standard suitable for young children, making them a valuable addition to any early learning toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00005C5H4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00005C5H4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0858X3VDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mushie Stacking Cups Toy</a>
+## <a href="https://www.amazon.com/dp/B0858X3VDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mushie Stacking Cups Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0858X3VDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="mushie Stacking Cups Toy | Made in Denmark (Original)" src="https://m.media-amazon.com/images/I/21kSQMDlfeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0858X3VDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="mushie Stacking Cups Toy | Made in Denmark (Original)" src="https://m.media-amazon.com/images/I/21kSQMDlfeL._SL500_.jpg"/></a>
 
 
 The **mushie Stacking Cups Toy | Made in Denmark (Original)** is ideal for parents and caregivers looking for a safe, engaging, and educational toy for infants and toddlers. This product is perfect for young children who are beginning to develop their motor skills and hand-eye coordination, providing a fun way to learn through play. If you value high-quality, non-toxic, and beautifully designed toys, this item is a great addition to your child's playtime essentials.
@@ -76,12 +76,12 @@ The **mushie Stacking Cups Toy** features a thoughtfully designed size that is e
 
 Beyond its design, the stacking cups serve as an excellent educational aid. Children can explore concepts such as size differentiation, balance, and spatial relationships while playing. The lightweight build means the toy is highly portable, enabling kids to take their learning and fun on the go. Overall, the **mushie Stacking Cups Toy** combines safety, functionality, and style, making it a valuable addition to any young child’s toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0858X3VDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0858X3VDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CMPB44WX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosaway Baby Stacking Nesting Cups Toys</a>
+## <a href="https://www.amazon.com/dp/B0CMPB44WX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosaway Baby Stacking Nesting Cups Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMPB44WX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cosaway Baby Stacking Nesting Cups Toys, Montessori Toys for Toddlers 6+ Months" src="https://m.media-amazon.com/images/I/41e8yhjC1zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMPB44WX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cosaway Baby Stacking Nesting Cups Toys, Montessori Toys for Toddlers 6+ Months" src="https://m.media-amazon.com/images/I/41e8yhjC1zL._SL500_.jpg"/></a>
 
 
 The **Cosaway Baby Stacking Nesting Cups Toys** are ideal for parents and caregivers looking for an engaging and educational toy for toddlers aged **6+ months**. These **Montessori toys** are perfect for little ones beginning to explore their motor skills, hand-eye coordination, and cognitive development in a safe and colorful way. If you want a versatile toy that grows with your child’s abilities, this set is an excellent choice.
@@ -103,12 +103,12 @@ The **Cosaway Baby Stacking Nesting Cups** set features multiple colorful cups t
 
 Each cup’s size and weight are carefully designed for little hands, making it easy for babies to hold, stack, and nest the cups. The multicolor palette not only attracts attention but also helps in teaching colors and patterns. Overall, this toy supports sensory development and cognitive growth, making it an excellent educational investment for parents seeking a fun and developmental toy for their toddlers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CMPB44WX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CMPB44WX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09PHJK3GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moonkie Stacking Cups Toy</a>
+## <a href="https://www.amazon.com/dp/B09PHJK3GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moonkie Stacking Cups Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09PHJK3GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Moonkie Stacking Cups Toy, Fun Educational Baby Toys Silicone Soft Teething Toy, Age 6+ Months, 7 Piece Set" src="https://m.media-amazon.com/images/I/41N3UCaHs+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PHJK3GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Moonkie Stacking Cups Toy, Fun Educational Baby Toys Silicone Soft Teething Toy, Age 6+ Months, 7 Piece Set" src="https://m.media-amazon.com/images/I/41N3UCaHs+L._SL500_.jpg"/></a>
 
 
 The **Moonkie Stacking Cups Toy** is ideal for parents and caregivers looking for a safe, engaging, and educational toy for babies aged **6 months and older**. This set is perfect for infants beginning to explore their surroundings, develop fine motor skills, and improve hand-eye coordination through interactive play.
@@ -131,12 +131,12 @@ The **Moonkie Stacking Cups Toy** features a set of **7 soft silicone cups** des
 
 With dimensions measuring approximately **2.56 inches in height** and **3.53 inches in width and length**, these cups are perfectly sized for little hands to hold and manipulate. The lightweight design ensures ease of use, while the **vibrant Fine Day colors** stimulate visual senses and encourage exploration. Overall, this toy supports early developmental milestones while ensuring safety and durability for everyday play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09PHJK3GR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09PHJK3GR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CQZFMD12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Tinker Stacking Cups Baby Toy</a>
+## <a href="https://www.amazon.com/dp/B0CQZFMD12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Tinker Stacking Cups Baby Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQZFMD12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Tinker Stacking Cups Baby Toy Educational Cup Stacking Set 8-Pc Stackable Cups with Number Rainbow Nesting Cups for Babies 6-12 Months Stacking Cups for Toddlers 1-3 Perfect for Indoor/Outdoor" src="https://m.media-amazon.com/images/I/412bvpsz3JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQZFMD12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Tinker Stacking Cups Baby Toy Educational Cup Stacking Set 8-Pc Stackable Cups with Number Rainbow Nesting Cups for Babies 6-12 Months Stacking Cups for Toddlers 1-3 Perfect for Indoor/Outdoor" src="https://m.media-amazon.com/images/I/412bvpsz3JL._SL500_.jpg"/></a>
 
 
 The **Tiny Tinker Stacking Cups Baby Toy Educational Cup Stacking Set** is ideal for parents and caregivers of babies aged **6 to 12 months** and toddlers up to **3 years**. This set is perfect for those looking to introduce their little ones to early learning concepts through play, including number recognition, color differentiation, and motor skill development. It’s also suitable for families who want a versatile indoor and outdoor toy that encourages creativity and hands-on engagement.
@@ -158,12 +158,12 @@ The **Tiny Tinker Stacking Cups** feature a vibrant **rainbow color palette** wh
 
 Beyond just stacking, these cups help develop **fine motor skills** as children grasp, hold, and balance the cups. The inclusion of numbers on the cups introduces basic counting concepts at an early age, fostering cognitive development in a fun and interactive way. This set’s compact size also makes it easy to carry around, making it a perfect educational toy for travel and playdates.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CQZFMD12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CQZFMD12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B06XX4D1LP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidsthrill Rainbow Colors Baby Stacking Cups</a>
+## <a href="https://www.amazon.com/dp/B06XX4D1LP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidsthrill Rainbow Colors Baby Stacking Cups</a>
 
 
-<a href="https://www.amazon.com/dp/B06XX4D1LP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KIDSTHRILL Rainbow Colors Baby Stacking Cups for Toddlers, Tall Baby Stacking Toys Nesting Cups, Drain Holes for Bath Toys, Educational &amp; Motor Skills Sorting &amp; Nesting for 1 2 3 Years Old" src="https://m.media-amazon.com/images/I/41CqkcaeVZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06XX4D1LP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KIDSTHRILL Rainbow Colors Baby Stacking Cups for Toddlers, Tall Baby Stacking Toys Nesting Cups, Drain Holes for Bath Toys, Educational &amp; Motor Skills Sorting &amp; Nesting for 1 2 3 Years Old" src="https://m.media-amazon.com/images/I/41CqkcaeVZL._SL500_.jpg"/></a>
 
 
 The **KIDSTHRILL Rainbow Colors Baby Stacking Cups** are perfect for parents and caregivers looking for an engaging and educational toy for toddlers aged **1 to 3 years old**. These cups are ideal for little ones who are beginning to develop their **motor skills**, hand-eye coordination, and cognitive abilities through playful learning. If you want a versatile toy that encourages sorting, stacking, and creative play both in and out of the bath, this product is a great choice.
@@ -185,12 +185,12 @@ The **KIDSTHRILL Rainbow Colors Baby Stacking Cups** come in a set of brightly c
 
 Thanks to their carefully sized dimensions—height of 6.0 inches, width and length of 4.0 inches, and a lightweight 0.58 pounds—these cups are easy for small hands to grasp and manipulate. This promotes the development of fine **motor skills** and hand-eye coordination. Additionally, the stacking and nesting features support cognitive growth by encouraging problem-solving and spatial awareness, making the toy both educational and entertaining for toddlers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B06XX4D1LP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B06XX4D1LP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BT6NDPS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Preferred World Of Eric Carle The Very Hungry Caterpillar Bath Time Silicone Stacking Cup Set</a>
+## <a href="https://www.amazon.com/dp/B0BT6NDPS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Preferred World Of Eric Carle The Very Hungry Caterpillar Bath Time Silicone Stacking Cup Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BT6NDPS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Preferred World of Eric Carle The Very Hungry Caterpillar Bath Time Silicone Stacking Cup Set with Caterpillar Head Squirty Perfect for Water Play Ages 18 Months and Up" src="https://m.media-amazon.com/images/I/417VB7m+G5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BT6NDPS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Preferred World of Eric Carle The Very Hungry Caterpillar Bath Time Silicone Stacking Cup Set with Caterpillar Head Squirty Perfect for Water Play Ages 18 Months and Up" src="https://m.media-amazon.com/images/I/417VB7m+G5L._SL500_.jpg"/></a>
 
 
 The **Kids Preferred World of Eric Carle The Very Hungry Caterpillar Bath Time Silicone Stacking Cup Set** is ideal for parents looking to make bath time more engaging and fun for toddlers aged **18 months and up**. This colorful and interactive set is perfect for little ones who enjoy water play and are fans of the beloved "Very Hungry Caterpillar" story, encouraging imaginative play while developing motor skills.
@@ -212,12 +212,12 @@ The **stacking cup set** offers an excellent combination of play and learning. E
 
 Beyond just stacking, the **caterpillar head squirty toy** adds an interactive element that encourages sensory exploration and creativity. Children can squirt water and engage with the toy in various ways, turning bath time into a playful and educational experience. Overall, this set is a thoughtful choice for parents seeking an engaging, safe, and multipurpose bath toy for their toddlers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BT6NDPS6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BT6NDPS6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08SQND4SV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hahaland Stacking Toys For Toddlers 1-3</a>
+## <a href="https://www.amazon.com/dp/B08SQND4SV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hahaland Stacking Toys For Toddlers 1-3</a>
 
 
-<a href="https://www.amazon.com/dp/B08SQND4SV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="hahaland Stacking Toys for Toddlers 1-3 - Stacking Cups - Toddler Toy Age 1-2 Learning Montessori Toys for 1 Year Old Boy Birthday Gift Baby Stacking Cups 12-18 Months" src="https://m.media-amazon.com/images/I/51SeUQ4CVkS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SQND4SV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="hahaland Stacking Toys for Toddlers 1-3 - Stacking Cups - Toddler Toy Age 1-2 Learning Montessori Toys for 1 Year Old Boy Birthday Gift Baby Stacking Cups 12-18 Months" src="https://m.media-amazon.com/images/I/51SeUQ4CVkS._SL500_.jpg"/></a>
 
 
 The **hahaland Stacking Toys for Toddlers 1-3** are perfect for parents looking to enhance their child's early developmental skills. Ideal for toddlers aged 1 to 3 years, these **stacking cups** serve as an engaging **Montessori toy** that promotes hand-eye coordination, fine motor skills, and problem-solving abilities. If you are searching for a colorful and educational birthday gift for a 1-year-old boy or girl, this set is an excellent choice.
@@ -239,12 +239,12 @@ The **hahaland Stacking Cups** offer a simple yet effective way to stimulate a t
 
 Additionally, the compact and lightweight nature of these stacking toys makes them highly portable, allowing parents to bring them along for on-the-go entertainment. Their sturdy construction ensures they withstand the rough handling common with toddlers, making them a lasting educational gift option. Overall, these **hahaland stacking toys** combine fun, learning, and safety into a single, appealing package for early childhood development.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08SQND4SV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08SQND4SV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C5Y27TFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosaway Baby Stacking Nesting Cups Toys</a>
+## <a href="https://www.amazon.com/dp/B0C5Y27TFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cosaway Baby Stacking Nesting Cups Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5Y27TFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cosaway Baby Stacking Nesting Cups Toys, Baby Toys 6 to 12 Months, Montessori Toys for Toddler Gifts 1 Year Old" src="https://m.media-amazon.com/images/I/41sJiokvpTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5Y27TFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cosaway Baby Stacking Nesting Cups Toys, Baby Toys 6 to 12 Months, Montessori Toys for Toddler Gifts 1 Year Old" src="https://m.media-amazon.com/images/I/41sJiokvpTL._SL500_.jpg"/></a>
 
 
 The **Cosaway Baby Stacking Nesting Cups Toys** are ideal for parents seeking an engaging and educational toy for their little ones aged **6 to 12 months**. These **Montessori-inspired toys** are perfect for toddlers around **1 year old** who are beginning to explore shapes, sizes, and hand-eye coordination. If you want to encourage early developmental skills through play, this set is a great choice.
@@ -267,12 +267,12 @@ The **Cosaway Baby Stacking Nesting Cups** feature a compact and lightweight des
 
 Additionally, these toys adhere to Montessori educational principles, promoting independent learning and creativity. The vibrant colors and varying cup sizes stimulate visual perception and cognitive growth, while also keeping babies entertained. Overall, this set offers a multifunctional play experience that supports early childhood development in a safe and engaging way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C5Y27TFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C5Y27TFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B93LSCJ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moontoy Stacking Cups Baby Toys</a>
+## <a href="https://www.amazon.com/dp/B0B93LSCJ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Moontoy Stacking Cups Baby Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0B93LSCJ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOONTOY Stacking Cups Baby Toys 6 10 12 18 Months, Montessori Toys for 1 Year Old Toddler Learning Toy with Numbers Shapes Patterns, Baby Bath Toy 6-12 Months, Gifts for 1 2 3 Year Old Boys Girls" src="https://m.media-amazon.com/images/I/51CFeAiLg6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B93LSCJ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOONTOY Stacking Cups Baby Toys 6 10 12 18 Months, Montessori Toys for 1 Year Old Toddler Learning Toy with Numbers Shapes Patterns, Baby Bath Toy 6-12 Months, Gifts for 1 2 3 Year Old Boys Girls" src="https://m.media-amazon.com/images/I/51CFeAiLg6L._SL500_.jpg"/></a>
 
 
 The **MOONTOY Stacking Cups Baby Toys** are ideal for parents looking to support their child's early development through play. Perfect for toddlers aged **6 to 18 months**, these toys are designed to engage young learners with colorful cups that feature **numbers, shapes, and patterns**. This set is especially suitable for those seeking **Montessori-inspired educational toys** that promote sensory and cognitive skills, making it a great gift for **1, 2, or 3 year old boys and girls**.
@@ -294,7 +294,7 @@ The **MOONTOY Stacking Cups** feature a variety of sizes and vibrant colors, mak
 
 Additionally, these cups double as an engaging bath toy, providing a multi-sensory experience that encourages learning through play. The durable, non-toxic materials ensure safety while allowing for repeated use both indoors and in water. Overall, this set serves as an excellent educational gift that combines entertainment with developmental benefits for young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B93LSCJ5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B93LSCJ5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -94,7 +94,7 @@ Educational toys encourage thinking and problem solving. They also build confide
 
 ### Stem Kits
 
-**[STEM kits](https://www.amazon.com/s?k=STEM+kits+for+8+year+olds&tag=gearcookware-20)** help kids explore science, technology, engineering, and math. These kits include materials for hands-on projects and experiments.
+**[STEM kits](https://www.amazon.com/s?k=STEM+kits+for+8+year+olds&tag=mofb05-20)** help kids explore science, technology, engineering, and math. These kits include materials for hands-on projects and experiments.
 
 * Build simple machines and robots
 * Create chemical reactions safely
@@ -103,7 +103,7 @@ Educational toys encourage thinking and problem solving. They also build confide
 
 ### Creative Art Sets
 
-**[Art Sets](https://www.amazon.com/s?k=non+toxic+art+sets+for+kids+8-12&tag=gearcookware-20)** encourage children to express their ideas with colors and shapes. These sets contain safe and non-toxic supplies suitable for 8 year olds.
+**[Art Sets](https://www.amazon.com/s?k=non+toxic+art+sets+for+kids+8-12&tag=mofb05-20)** encourage children to express their ideas with colors and shapes. These sets contain safe and non-toxic supplies suitable for 8 year olds.
 
 |  |  |  |
 | --- | --- | --- |
@@ -137,7 +137,7 @@ Safety gear protects children during active outdoor play. Proper equipment reduc
 |  |  |  |
 | --- | --- | --- |
 | Safety Gear | Purpose | Tips |
-| **[Helmet](https://www.amazon.com/s?k=kids+helmet+and+pads+set+8+year+old&tag=gearcookware-20)** | Protects the head from impacts | Choose one that fits snugly and meets safety standards |
+| **[Helmet](https://www.amazon.com/s?k=kids+helmet+and+pads+set+8+year+old&tag=mofb05-20)** | Protects the head from impacts | Choose one that fits snugly and meets safety standards |
 | Knee Pads | Protect knees during falls | Look for adjustable straps and cushioned pads |
 | Elbow Pads | Shield elbows from scrapes | Ensure they stay in place during movement |
 | Wrist Guards | Support wrists and prevent fractures | Pick flexible but sturdy designs |
@@ -188,7 +188,7 @@ Parents should know which toy makers are trusted. These brands follow strict rul
 Some manufacturers have earned trust by making safe and fun toys. These companies test their products for quality and safety before selling them.
 
 * LEGO: Known for strong plastic blocks that are safe and durable.
-* **[Melissa & Doug](https://www.amazon.com/s?k=Melissa+%26+Doug+toys+8+year+old&tag=gearcookware-20)**: Offers wooden toys with non-toxic paints.
+* **[Melissa & Doug](https://www.amazon.com/s?k=Melissa+%26+Doug+toys+8+year+old&tag=mofb05-20)**: Offers wooden toys with non-toxic paints.
 * Fisher-Price: Creates toys with child safety in mind and sturdy designs.
 * Green Toys: Uses recycled materials and avoids harmful chemicals.
 * Hasbro: Follows strict safety standards for all age groups.

@@ -22,10 +22,10 @@ Accessories like fuel tanks and power modules enhance the experience. These mode
 
 
 
-## <a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enginediy Toyan V8 Engine Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enginediy Toyan V8 Engine Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENGINEDIY TOYAN V8 Engine Model Kit That Works, FS-V800WGPC 1/10 Scale 28cc Water-Cooled Four-Stroke OHV Fully Functional Miniature V8 Engine Kit for Adults" src="https://m.media-amazon.com/images/I/41gs+MC0UGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENGINEDIY TOYAN V8 Engine Model Kit That Works, FS-V800WGPC 1/10 Scale 28cc Water-Cooled Four-Stroke OHV Fully Functional Miniature V8 Engine Kit for Adults" src="https://m.media-amazon.com/images/I/41gs+MC0UGL._SL500_.jpg"/></a>
 
 
 The **ENGINEDIY TOYAN V8 Engine Model Kit** is ideal for hobbyists, engineering enthusiasts, and adults who enjoy hands-on mechanical projects. If you are fascinated by internal combustion engines and want a fully functional miniature model to build and explore, this 1/10 scale **28cc water-cooled four-stroke OHV V8 engine kit** offers an engaging and educational experience. It’s perfect for those looking to deepen their understanding of engine mechanics while enjoying a challenging assembly process.
@@ -48,10 +48,10 @@ The **ENGINEDIY TOYAN V8 Engine Model Kit** features a precise **water-cooled fo
 
 Constructing this engine kit allows users to appreciate the engineering behind the V8 configuration, including how valves, pistons, and the camshaft work in synchronization. The fully functional design not only provides visual satisfaction but also a tactile learning opportunity, making it perfect for adults who enjoy technical projects or want to explore the principles of combustion engines. Its robust build and attention to detail mean it can serve as both a display piece and a working model, combining aesthetics with functionality.
 
-## <a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching V8 Engine Model Kit</a>
+## <a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching V8 Engine Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING v8 Engine Model kit That Works Metal Mechanical Metal Assembly DIY Car Engine Model Kit 500+Pcs Educational Experiment (8 Cylinder Engine)" src="https://m.media-amazon.com/images/I/51n6H3jWhRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING v8 Engine Model kit That Works Metal Mechanical Metal Assembly DIY Car Engine Model Kit 500+Pcs Educational Experiment (8 Cylinder Engine)" src="https://m.media-amazon.com/images/I/51n6H3jWhRL._SL500_.jpg"/></a>
 
 
 The **TECHING v8 Engine Model Kit** is perfect for enthusiasts, students, and hobbyists interested in mechanical engineering and automotive technology. Ideal for those who enjoy hands-on learning and DIY projects, this kit offers a detailed and functional model of an **8-cylinder engine**, providing an educational experience through assembly and experimentation.
@@ -74,10 +74,10 @@ The **TECHING v8 Engine Model Kit** stands out due to its detailed metal parts a
 
 Beyond the educational benefits, the model’s sturdy metal construction and elegant gold color make it a striking display piece once assembled. The compact dimensions ensure it fits well on desks or shelves, making it both a learning tool and a decorative item. Whether used in a classroom setting or as a personal project, this kit delivers an engaging blend of fun and education for anyone fascinated by engines and mechanics.
 
-## <a href="https://www.amazon.com/dp/B0DP4HFY76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Model Engine Kit For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DP4HFY76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Model Engine Kit For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP4HFY76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Model Engine Kit for Adults - L2 Mini Engine Build Kit That Runs on Gas, Twin Cylinder 4 Stroke Nitro Engine DIY Full Metal Car Engine Model Kit Educational Experiment, TOYAN FS L200AC (KIT)" src="https://m.media-amazon.com/images/I/412sGAJZ2eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP4HFY76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Model Engine Kit for Adults - L2 Mini Engine Build Kit That Runs on Gas, Twin Cylinder 4 Stroke Nitro Engine DIY Full Metal Car Engine Model Kit Educational Experiment, TOYAN FS L200AC (KIT)" src="https://m.media-amazon.com/images/I/412sGAJZ2eL._SL500_.jpg"/></a>
 
 
 The **Model Engine Kit for Adults** is ideal for hobbyists, engineering students, and DIY enthusiasts who have a keen interest in mechanical systems and want to gain hands-on experience with a real, functioning engine model. This kit is perfect for those looking to deepen their understanding of **internal combustion engines** through an engaging and educational project.
@@ -99,10 +99,10 @@ This **Model Engine Kit** features a meticulously crafted **twin cylinder 4 stro
 
 Beyond its educational value, this engine build kit also serves as an enjoyable and rewarding project for adults who enjoy hands-on challenges. By assembling the engine piece by piece, users develop patience, attention to detail, and a deeper appreciation for automotive engineering. The functional nature of the model means users can actually run the engine after assembly, providing a tangible sense of accomplishment and insight into how internal combustion engines operate.
 
-## <a href="https://www.amazon.com/dp/B0F1MCGNS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lynxpro Toyan Fs-v800 Engine Models Accessory Kit</a>
+## <a href="https://www.amazon.com/dp/B0F1MCGNS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lynxpro Toyan Fs-v800 Engine Models Accessory Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1MCGNS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LynxPro TOYAN FS-V800 Engine Models Accessory Kit inclucd F-Type Electric Plug 75ML Miniature Plastic Fuel Tank Oil Pipe &amp; 7.4-11.1V 3-in-1 Brush Start Ignition Power Module" src="https://m.media-amazon.com/images/I/41iCMQ3SaqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1MCGNS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LynxPro TOYAN FS-V800 Engine Models Accessory Kit inclucd F-Type Electric Plug 75ML Miniature Plastic Fuel Tank Oil Pipe &amp; 7.4-11.1V 3-in-1 Brush Start Ignition Power Module" src="https://m.media-amazon.com/images/I/41iCMQ3SaqL._SL500_.jpg"/></a>
 
 
 The **LynxPro TOYAN FS-V800 Engine Models Accessory Kit** is ideal for hobbyists and model enthusiasts who demand precision and reliability in their engine builds. If you are looking to enhance your model engine’s performance with high-quality components, this kit provides essential accessories that streamline your assembly process and improve overall functionality. Perfect for those working with miniature engines requiring efficient fuel management and ignition systems.
@@ -124,10 +124,10 @@ The **LynxPro TOYAN FS-V800 Engine Models Accessory Kit** is thoughtfully design
 
 Additionally, the **3-in-1 Brush Start Ignition Power Module** supports a voltage range of **7.4 to 11.1 volts**, offering versatility and compatibility with various engine models. This module simplifies the starting process and reduces the risk of engine stalls, providing a smoother experience for the user. Overall, this accessory kit combines functionality, ease of use, and reliable performance, making it a valuable addition for anyone serious about model engine building.
 
-## <a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching Mini Diesel Engine Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching Mini Diesel Engine Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING Mini Diesel Engine Model kit That Runs OHV 4-Cylinder Engine Mechanical Metal Assembly DIY Car Engine Model Kit 300+pcs DM-115" src="https://m.media-amazon.com/images/I/41KDdzfvfOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING Mini Diesel Engine Model kit That Runs OHV 4-Cylinder Engine Mechanical Metal Assembly DIY Car Engine Model Kit 300+pcs DM-115" src="https://m.media-amazon.com/images/I/41KDdzfvfOL._SL500_.jpg"/></a>
 
 
 The **TECHING Mini Diesel Engine Model Kit** is perfect for hobbyists, engineering students, and DIY enthusiasts who have a keen interest in mechanical models and automotive engines. If you enjoy hands-on projects that challenge your understanding of mechanics and want to explore the inner workings of a **4-cylinder OHV diesel engine**, this kit offers an engaging and educational experience. It’s ideal for those looking to build a functional, miniature engine from over 300 metal parts, combining learning with the satisfaction of assembly.
@@ -150,10 +150,10 @@ The **TECHING Mini Diesel Engine Model Kit** stands out due to its intricate des
 
 Beyond aesthetics, this kit provides an immersive educational opportunity for users to dive deep into the principles of engine mechanics. Building the model enhances fine motor skills and mechanical comprehension, while the working engine demonstrates concepts such as valve timing, piston movement, and fuel combustion cycles in a simplified manner. Overall, this kit is a rewarding project for anyone passionate about engineering, mechanics, or model building.
 
-## <a href="https://www.amazon.com/dp/B08TQBSGM4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Djuiinostar Vehicle Engine Model Assembly Kit</a>
+## <a href="https://www.amazon.com/dp/B08TQBSGM4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Djuiinostar Vehicle Engine Model Assembly Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08TQBSGM4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DjuiinoStar Vehicle Engine Model Assembly Kit (300+ Pieces Components, 5 Hours Assembly Time), Four-Stroke Straight-Four Gas Engine Working Model, 4 Cylinder Engine Kit DM13-1" src="https://m.media-amazon.com/images/I/51ffzJVsZbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08TQBSGM4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DjuiinoStar Vehicle Engine Model Assembly Kit (300+ Pieces Components, 5 Hours Assembly Time), Four-Stroke Straight-Four Gas Engine Working Model, 4 Cylinder Engine Kit DM13-1" src="https://m.media-amazon.com/images/I/51ffzJVsZbL._SL500_.jpg"/></a>
 
 
 The **DjuiinoStar Vehicle Engine Model Assembly Kit** is ideal for hobbyists, engineering students, and enthusiasts interested in understanding the mechanics of a **four-stroke straight-four gas engine**. This kit is perfect for those who enjoy hands-on projects and want to explore the inner workings of a **4-cylinder engine** through a detailed and interactive assembly experience. With over **300 components** and an estimated **5 hours assembly time**, it suits individuals looking for an educational yet engaging mechanical model.
@@ -176,10 +176,10 @@ The **DjuiinoStar Vehicle Engine Model Assembly Kit** offers a detailed and real
 
 Assembling this kit is both an educational journey and a rewarding challenge. The process highlights the mechanical relationships between pistons, crankshaft, valves, and other engine parts, allowing users to appreciate the complexity behind everyday vehicle engines. The hands-on experience gained from building this model can significantly enhance mechanical knowledge and inspire further interest in automotive engineering and STEM fields.
 
-## <a href="https://www.amazon.com/dp/B0CP58XPKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helixsun Engine Accessories</a>
+## <a href="https://www.amazon.com/dp/B0CP58XPKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helixsun Engine Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP58XPKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helixsun Engine Accessories, 75ML Miniature Plastic Fuel Tank for TOYAN FS-V800 Engine Model" src="https://m.media-amazon.com/images/I/310NoPLhiML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP58XPKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helixsun Engine Accessories, 75ML Miniature Plastic Fuel Tank for TOYAN FS-V800 Engine Model" src="https://m.media-amazon.com/images/I/310NoPLhiML._SL500_.jpg"/></a>
 
 
 The **Helixsun Engine Accessories, 75ML Miniature Plastic Fuel Tank** is ideal for hobbyists and model engine enthusiasts who require a reliable and compact fuel tank for their **TOYAN FS-V800 Engine Model**. If you are looking for a lightweight, durable, and specifically designed fuel tank to enhance your model engine’s performance, this product is a perfect choice.
@@ -202,10 +202,10 @@ The **Helixsun 75ML Miniature Plastic Fuel Tank** offers a well-balanced combina
 
 Additionally, the precise manufacturing by **Helixsun** guarantees that users receive a product that meets high standards of quality and performance. Whether you are a beginner or an experienced model engine user, this fuel tank supports efficient operation and maintenance of your engine, enhancing the overall experience. However, users should consider the fuel capacity and compatibility to ensure it fits their specific engine requirements.
 
-## <a href="https://www.amazon.com/dp/B0CJ8JZJTS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aetheria Semto Engine St-nf2 Diy Mini Metal Engine Kit</a>
+## <a href="https://www.amazon.com/dp/B0CJ8JZJTS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aetheria Semto Engine St-nf2 Diy Mini Metal Engine Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ8JZJTS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aetheria SEMTO Engine ST-NF2 DIY Mini Metal Engine Kit, L2 Inline 2-Cylinder Air-Cooled DIY Assembly Engine with Starter Kit, SEMTO Engine Model Kit That Works Experiment STEM Hobby Toy" src="https://m.media-amazon.com/images/I/41IhCNhjEAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ8JZJTS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aetheria SEMTO Engine ST-NF2 DIY Mini Metal Engine Kit, L2 Inline 2-Cylinder Air-Cooled DIY Assembly Engine with Starter Kit, SEMTO Engine Model Kit That Works Experiment STEM Hobby Toy" src="https://m.media-amazon.com/images/I/41IhCNhjEAL._SL500_.jpg"/></a>
 
 
 The **Aetheria SEMTO Engine ST-NF2 DIY Mini Metal Engine Kit** is perfect for hobbyists, STEM enthusiasts, and anyone interested in hands-on mechanical projects. This kit is ideal for individuals who enjoy building and understanding the workings of engines, especially students and educators looking for an interactive learning tool to demonstrate engine mechanics and principles.
@@ -228,10 +228,10 @@ The **Aetheria SEMTO Engine ST-NF2** offers a unique experience by allowing user
 
 Additionally, the kit's compact size and attractive **red color** make it an appealing display piece once assembled. The included starter kit ensures that all necessary parts are provided, which simplifies the assembly process and encourages users to explore mechanical engineering concepts. Overall, this engine model kit not only serves as an engaging hobby toy but also fosters curiosity and learning in STEM fields.
 
-## <a href="https://www.amazon.com/dp/B0CXT6MXPV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Plastic Fuel Tank</a>
+## <a href="https://www.amazon.com/dp/B0CXT6MXPV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Plastic Fuel Tank</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXT6MXPV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Generic 75ML Miniature Plastic Fuel Tank for TOYAN FS-V800 Engine Model, Internal Combustion Engine Accessories Spare Parts" src="https://m.media-amazon.com/images/I/310NoPLhiML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXT6MXPV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Generic 75ML Miniature Plastic Fuel Tank for TOYAN FS-V800 Engine Model, Internal Combustion Engine Accessories Spare Parts" src="https://m.media-amazon.com/images/I/310NoPLhiML._SL500_.jpg"/></a>
 
 
 The **Generic 75ML Miniature Plastic Fuel Tank** is ideal for hobbyists and professionals who work with the **TOYAN FS-V800 engine model** or similar internal combustion engines. If you need a reliable and compact fuel tank accessory to ensure smooth engine operation and easy replacement, this product is designed to meet your needs.
@@ -252,10 +252,10 @@ This **Generic 75ML Miniature Plastic Fuel Tank** offers a practical solution fo
 
 Additionally, the use of durable plastic material means this fuel tank can withstand the rigors of regular engine operation while maintaining its structural integrity. This reliability translates into less downtime and maintenance, enabling users to focus on their projects. Whether you are repairing a damaged fuel tank or upgrading to a more efficient spare part, this product combines quality and functionality tailored to your engine's needs.
 
-## <a href="https://www.amazon.com/dp/B00HGSG7V0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunnytech Mini Hot Air Stirling Engine Motor Model Educational Toy Kits Electricity</a>
+## <a href="https://www.amazon.com/dp/B00HGSG7V0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunnytech Mini Hot Air Stirling Engine Motor Model Educational Toy Kits Electricity</a>
 
 
-<a href="https://www.amazon.com/dp/B00HGSG7V0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sunnytech Mini Hot Air Stirling Engine Motor Model Educational Toy Kits Electricity HA001" src="https://m.media-amazon.com/images/I/41CHYFW+Y2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00HGSG7V0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sunnytech Mini Hot Air Stirling Engine Motor Model Educational Toy Kits Electricity HA001" src="https://m.media-amazon.com/images/I/41CHYFW+Y2L._SL500_.jpg"/></a>
 
 
 The **Sunnytech Mini Hot Air Stirling Engine Motor Model Educational Toy Kits Electricity HA001** is ideal for students, hobbyists, and educators interested in exploring basic principles of thermodynamics and mechanical engineering. This compact and lightweight kit is perfect for those who want a hands-on learning experience with a functional model that demonstrates the conversion of heat energy into mechanical work.

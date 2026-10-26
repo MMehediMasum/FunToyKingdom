@@ -23,10 +23,10 @@ Others like Castle Panic and Horrified test players’ problem-solving skills ag
 
 
 
-## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Forbidden Island</a>
+## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Forbidden Island</a>
 
 
-<a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
 
 
 The **Gamewright - Forbidden Island** board game is ideal for players who enjoy **cooperative strategy games** and want to engage in thrilling survival challenges with friends or family. Perfect for **2-4 players**, this game is suited for those who appreciate teamwork and tactical decision-making rather than competitive play. If you are looking for a game that fosters collaboration and strategic planning in a fun, immersive setting, this game is an excellent choice.
@@ -49,10 +49,10 @@ The **Gamewright - Forbidden Island** board game is ideal for players who enjoy 
 
 The gameplay balances strategy and chance, requiring players to adapt their plans as the island floods and changes with every turn. This dynamic environment keeps the game fresh and engaging with each playthrough. Overall, **Gamewright’s Forbidden Island** offers an exciting and rewarding cooperative experience that challenges players to think ahead and collaborate effectively to win.
 
-## <a href="https://www.amazon.com/dp/B08ZSK752P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Night Cage</a>
+## <a href="https://www.amazon.com/dp/B08ZSK752P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Night Cage</a>
 
 
-<a href="https://www.amazon.com/dp/B08ZSK752P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Night Cage by Smirk and Dagger, a Spooky Cooperative Strategy Game, 1-5 Players Lost in a Dark Maze with only a Candle, Fun Horror Themed Tile Laying and Perfect for Game Night, Adults, Teens 14+" src="https://m.media-amazon.com/images/I/41nx2FdeS5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08ZSK752P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Night Cage by Smirk and Dagger, a Spooky Cooperative Strategy Game, 1-5 Players Lost in a Dark Maze with only a Candle, Fun Horror Themed Tile Laying and Perfect for Game Night, Adults, Teens 14+" src="https://m.media-amazon.com/images/I/41nx2FdeS5L._SL500_.jpg"/></a>
 
 
 **The Night Cage by Smirk and Dagger** is ideal for **adults and teens aged 14+** who enjoy **cooperative strategy games** with a **horror theme**. This game is perfect for groups of **1-5 players** looking for an immersive experience where teamwork and strategic thinking are essential to escape a **dark maze** using only a **candle**. If you love atmospheric, tile-laying games that bring suspense and excitement to game night, this is a great choice.
@@ -75,10 +75,10 @@ The gameplay balances strategy and chance, requiring players to adapt their plan
 
 Designed for up to five players, this game provides flexibility for solo play or group sessions. Its compact size and sturdy build make it easy to bring along for game nights or weekend gatherings. With its combination of strategic depth, cooperative challenge, and eerie ambiance, **The Night Cage** is an excellent addition to any game collection focused on fun, horror, and teamwork.
 
-## <a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ravensburger Horrified Games - Greek Monsters</a>
+## <a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ravensburger Horrified Games - Greek Monsters</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ravensburger Horrified Games - Greek Monsters - Strategy Board Game - Boost Critical Thinking &amp; Teamwork - Cooperative Gameplay - Unique Monster Challenges - 1 to 5 Players - Adults &amp; Kids 10+" src="https://m.media-amazon.com/images/I/61I+n0edsvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ravensburger Horrified Games - Greek Monsters - Strategy Board Game - Boost Critical Thinking &amp; Teamwork - Cooperative Gameplay - Unique Monster Challenges - 1 to 5 Players - Adults &amp; Kids 10+" src="https://m.media-amazon.com/images/I/61I+n0edsvL._SL500_.jpg"/></a>
 
 
 The **Ravensburger Horrified Games - Greek Monsters** is ideal for families and groups looking to enhance their **critical thinking** and **teamwork** skills through engaging and cooperative gameplay. Perfect for both **adults and kids aged 10+**, this strategy board game is designed for 1 to 5 players who enjoy unique challenges and immersive experiences involving classic Greek mythology.
@@ -101,10 +101,10 @@ The **Ravensburger Horrified Greek Monsters** game stands out with its captivati
 
 This board game’s focus on **teamwork and critical thinking** benefits players by enhancing communication and decision-making skills. The cooperative nature means players win or lose together, encouraging collaboration rather than competition. Additionally, the game's flexibility in accommodating solo to small group play makes it versatile for various social settings and player preferences.
 
-## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
+## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
 
 
 The **Asmodee Mysterium Board Game** is ideal for families and friends who enjoy immersive, cooperative gameplay filled with mystery and intrigue. Designed for players aged 10 and up, this game suits groups of 2 to 7 players looking to engage in a unique, ghostly investigation experience that challenges communication and deduction skills in a fun, social setting.
@@ -127,10 +127,10 @@ The **Mysterium Board Game** features an intriguing setup where one player assum
 
 Players benefit from the game's accessible rules and balanced difficulty, which make it suitable for both kids and adults. The cooperative format strengthens group interaction and problem-solving skills, while the relatively short playtime allows for multiple rounds in one sitting. Overall, this game offers a captivating and enjoyable experience that brings friends and family together through shared mystery-solving adventures.
 
-## <a href="https://www.amazon.com/dp/B08V15HLRD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">There's Been A Murder</a>
+## <a href="https://www.amazon.com/dp/B08V15HLRD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">There's Been A Murder</a>
 
 
-<a href="https://www.amazon.com/dp/B08V15HLRD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="There's Been A Murder - A Collaborative Card Game of Death and Deduction (Packaging May Vary) by Pressman, for Ages 14 and up" src="https://m.media-amazon.com/images/I/51a53Fr1zmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08V15HLRD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="There's Been A Murder - A Collaborative Card Game of Death and Deduction (Packaging May Vary) by Pressman, for Ages 14 and up" src="https://m.media-amazon.com/images/I/51a53Fr1zmL._SL500_.jpg"/></a>
 
 
 The **There's Been A Murder - A Collaborative Card Game of Death and Deduction** is ideal for players aged **14 and up** who enjoy immersive, cooperative gameplay with a focus on mystery and strategy. This game is perfect for friends, families, or gaming groups looking to engage in a challenging and interactive experience that encourages teamwork and critical thinking.
@@ -153,10 +153,10 @@ The game features a well-designed set of cards that challenge players to work to
 
 Players benefit from the game's emphasis on **strategic deduction and teamwork**, which not only makes gameplay more engaging but also encourages social interaction and problem-solving skills. Manufactured by Pressman under the trusted Goliath brand, the game promises high-quality components that withstand repeated play, ensuring lasting enjoyment for all participants.
 
-## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
+## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
 
 
 The **Scorpion Masqué Sky Team** is perfect for gamers aged 14 and up who enjoy cooperative gameplay and quick, engaging sessions. If you’re looking for the **best 2 player game** that challenges teamwork and strategic thinking, this award-winning title is an excellent choice. Ideal for friends, couples, or family members seeking a fun and collaborative experience, this game is designed to keep players engaged for around **20 minutes** per round.
@@ -179,10 +179,10 @@ The **Scorpion Masqué Sky Team** offers a thrilling cooperative experience wher
 
 Beyond its enjoyable gameplay, the game's recognition as **Game of The Year 2024** highlights its innovative mechanics and quality production by **Hachette Boardgames USA**. Whether you’re a casual player or a seasoned strategist, this game provides a refreshing challenge that fosters collaboration and quick thinking in just about **20 minutes**.
 
-## <a href="https://www.amazon.com/dp/B07JCB7DH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stellar Factory Ravine</a>
+## <a href="https://www.amazon.com/dp/B07JCB7DH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stellar Factory Ravine</a>
 
 
-<a href="https://www.amazon.com/dp/B07JCB7DH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Stellar Factory Ravine: A Crafty and Cooperative Card Game" src="https://m.media-amazon.com/images/I/41ddsWbrJ6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JCB7DH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Stellar Factory Ravine: A Crafty and Cooperative Card Game" src="https://m.media-amazon.com/images/I/41ddsWbrJ6L._SL500_.jpg"/></a>
 
 
 The **Stellar Factory Ravine: A Crafty and Cooperative Card Game** is perfect for board game enthusiasts who enjoy collaborative gameplay and strategic thinking. Ideal for families, friend groups, or casual gamers looking to engage in a fun and challenging experience that encourages teamwork and creativity. If you appreciate games that require planning and communication, this game is a great choice.
@@ -205,10 +205,10 @@ The **Stellar Factory Ravine** offers a unique blend of strategy and cooperation
 
 Featuring a vibrant **multicolor design**, the cards and components are visually engaging, adding to the overall gaming experience. The sturdy build and quality manufacturing by **Stellar Factory** ensure durability and longevity. Whether you're a seasoned gamer or new to cooperative card games, this product offers an enjoyable and rewarding experience that can bring people closer through shared goals and clever tactics.
 
-## <a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Castle Panic 2nd Edition</a>
+## <a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Castle Panic 2nd Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Castle Panic 2nd Edition | Cooperative Board Game for Adults and Family | Ages 8+ | for 1 to 6 Players | Average Playtime 45 Minutes | Made by Fireside Games" src="https://m.media-amazon.com/images/I/61K+5Al2fLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Castle Panic 2nd Edition | Cooperative Board Game for Adults and Family | Ages 8+ | for 1 to 6 Players | Average Playtime 45 Minutes | Made by Fireside Games" src="https://m.media-amazon.com/images/I/61K+5Al2fLL._SL500_.jpg"/></a>
 
 
 The **Castle Panic 2nd Edition** is perfect for families and groups of friends looking for a cooperative board game that is both engaging and challenging. Ideal for players aged **8 and up**, this game supports **1 to 6 players**, making it a versatile choice for both casual game nights and more strategic play sessions. If you enjoy teamwork and defending your castle from relentless attacks, this game is designed for you.
@@ -232,10 +232,10 @@ The **Castle Panic 2nd Edition** boasts a well-designed cooperative structure wh
 
 With its balance of strategy and luck, **Castle Panic** offers an immersive experience that strengthens communication and problem-solving skills among players. The quick average playtime of **45 minutes** allows for multiple rounds in a single session, keeping the excitement high without demanding a large time commitment. Whether you’re playing solo or with a group of up to six, this game provides endless entertainment and a great way to bond over a shared goal.
 
-## <a href="https://www.amazon.com/dp/B0CSY92HXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Solidroots Escaping Extinction</a>
+## <a href="https://www.amazon.com/dp/B0CSY92HXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Solidroots Escaping Extinction</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSY92HXS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, SolidRoots Escaping Extinction, Cooperative Strategy Board Game from The Makers of Mind The Gap, for Kids &amp; Family, 1-4 Players, for Ages 12 &amp; Up" src="https://m.media-amazon.com/images/I/51VQ4N7AcYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSY92HXS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, SolidRoots Escaping Extinction, Cooperative Strategy Board Game from The Makers of Mind The Gap, for Kids &amp; Family, 1-4 Players, for Ages 12 &amp; Up" src="https://m.media-amazon.com/images/I/51VQ4N7AcYL._SL500_.jpg"/></a>
 
 
 The **Spin Master Games SolidRoots Escaping Extinction** is ideal for families and groups of friends who enjoy cooperative strategy board games. Designed for **kids aged 12 and up** as well as adults, this game is perfect for players who appreciate teamwork, critical thinking, and engaging gameplay that challenges players to work together to overcome obstacles. Whether you're a casual gamer or someone looking to enhance family game nights, this board game offers a fun and immersive experience for 1 to 4 players.
@@ -258,10 +258,10 @@ The **SolidRoots Escaping Extinction** board game features a well-thought-out co
 
 Additionally, the game's compact size, measuring roughly 10.24 inches in height and length with a lightweight of 0.75 pounds, makes it easy to transport and set up anywhere. Whether playing solo or with up to four players, the game offers an immersive experience that balances challenge and fun. The cooperative nature of the game helps players build social skills and fosters a sense of accomplishment when working together to escape extinction.
 
-## <a href="https://www.amazon.com/dp/B09H23M384?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avalon Hill Hasbro Gaming Betrayal At The House On The Hill 3rd Edition</a>
+## <a href="https://www.amazon.com/dp/B09H23M384?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avalon Hill Hasbro Gaming Betrayal At The House On The Hill 3rd Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B09H23M384?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avalon Hill Hasbro Gaming Betrayal at The House on The Hill 3rd Edition Cooperative Board Game,Ages 12 and Up,3-6 Players,50 Chilling Scenarios" src="https://m.media-amazon.com/images/I/41JlSXva2QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09H23M384?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avalon Hill Hasbro Gaming Betrayal at The House on The Hill 3rd Edition Cooperative Board Game,Ages 12 and Up,3-6 Players,50 Chilling Scenarios" src="https://m.media-amazon.com/images/I/41JlSXva2QL._SL500_.jpg"/></a>
 
 
 The **Avalon Hill Hasbro Gaming Betrayal at The House on The Hill 3rd Edition Cooperative Board Game** is ideal for board game enthusiasts aged **12 and up** who enjoy immersive, story-driven gameplay. Perfect for groups of **3 to 6 players**, this game is designed for those who love cooperative challenges combined with thrilling, unpredictable scenarios. Families, friends, and gaming groups seeking a dynamic and chilling experience will find this game a perfect addition to their collection.

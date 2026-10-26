@@ -23,10 +23,10 @@ Features such as automatic balance gyros and LED lights improve control and visi
 
 
 
-## <a href="https://www.amazon.com/dp/B0FKNCJC5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amitasha Rc Airplane Jet Epp Foam Rc Aircraft</a>
+## <a href="https://www.amazon.com/dp/B0FKNCJC5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amitasha Rc Airplane Jet Epp Foam Rc Aircraft</a>
 
 
-<a href="https://www.amazon.com/dp/B0FKNCJC5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amitasha RC Airplane Jet Epp Foam RC Aircraft, Remote Control Airplane for Kids &amp; Adults, RC Glider Automatic Balance Gyro Foam Plane with Night Light, Stunt RC Airplane Gift for Boys (Blue)" src="https://m.media-amazon.com/images/I/418p0wtZ7yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FKNCJC5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Amitasha RC Airplane Jet Epp Foam RC Aircraft, Remote Control Airplane for Kids &amp; Adults, RC Glider Automatic Balance Gyro Foam Plane with Night Light, Stunt RC Airplane Gift for Boys (Blue)" src="https://m.media-amazon.com/images/I/418p0wtZ7yL._SL500_.jpg"/></a>
 
 
 The **Amitasha RC Airplane Jet Epp Foam RC Aircraft** is an excellent choice for both **kids and adults** who are enthusiasts of remote control flying gadgets. Ideal for beginners and experienced flyers alike, this **remote control airplane** offers an engaging way to learn and enjoy **RC gliding** with the added fun of stunt capabilities and night flying. If you are looking for a durable, easy-to-control, and visually appealing RC plane, this model is tailored for you.
@@ -50,10 +50,10 @@ The **Amitasha RC Airplane Jet** features a robust **EPP foam construction** tha
 
 Additionally, the inclusion of a **night light** expands the usability of this airplane, enabling flights in dusk or low-light environments, which adds a unique visual appeal and makes flying more exciting. The compact dimensions and lightweight design contribute to easy handling and portability, making it convenient to carry and fly anywhere. Overall, the Amitasha RC Airplane Jet combines innovative features with user-friendly design to deliver an engaging remote control flying experience for all ages.
 
-## <a href="https://www.amazon.com/dp/B0CN6425ML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yangun Su37 Rc Airplane</a>
+## <a href="https://www.amazon.com/dp/B0CN6425ML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yangun Su37 Rc Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN6425ML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YANGUN SU37 RC Airplane, 2.4GHz RC Airplane, RC Airplane, Outdoor Remote Control Airplane, Anti-Crash Design, Flexible and Unbreakable, for Adults, Children, Boys, Beginners" src="https://m.media-amazon.com/images/I/51i2MlJWNJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN6425ML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YANGUN SU37 RC Airplane, 2.4GHz RC Airplane, RC Airplane, Outdoor Remote Control Airplane, Anti-Crash Design, Flexible and Unbreakable, for Adults, Children, Boys, Beginners" src="https://m.media-amazon.com/images/I/51i2MlJWNJL._SL500_.jpg"/></a>
 
 
 The **YANGUN SU37 RC Airplane** is ideal for both **beginners** and **enthusiasts** looking for a durable and easy-to-fly outdoor remote control airplane. Whether you are an **adult**, **child**, or a **boy** interested in exploring the world of RC flying, this model offers a perfect balance of performance and resilience. Its **anti-crash design** makes it especially suitable for those new to flying, ensuring a forgiving experience during learning and practice.
@@ -75,10 +75,10 @@ The **YANGUN SU37 RC Airplane** boasts a compact size with a length of approxima
 
 Thanks to its **anti-crash design**, beginners gain confidence as they practice basic maneuvers without worrying about immediate damage. Additionally, the lightweight construction helps improve flight time and maneuverability, making it fun and engaging for users of all ages. Whether flying in a park or an open field, the YANGUN SU37 offers an accessible and enjoyable introduction to RC aviation, making it a valuable choice for families and hobbyists alike.
 
-## <a href="https://www.amazon.com/dp/B0DZ6YMDNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tonictoys 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
+## <a href="https://www.amazon.com/dp/B0DZ6YMDNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tonictoys 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZ6YMDNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TONICTOYS 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41jSWB9rm4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZ6YMDNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TONICTOYS 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41jSWB9rm4L._SL500_.jpg"/></a>
 
 
 The **TONICTOYS 2.4GHz 2CH Remote Control Airplane RC Glider** is ideal for beginners, both adults and kids, who are looking for an easy-to-fly and durable remote control aircraft. Whether you're a hobbyist starting out or a parent seeking a fun and educational toy for your child, this **EPP foam RC glider** offers a great balance of simplicity and performance. Its lightweight design and intuitive controls make it perfect for first-time flyers.
@@ -101,10 +101,10 @@ The **TONICTOYS RC Glider** features a 2.4GHz remote control system with 2 chann
 
 With compact dimensions of approximately 5.1 inches in height, 3.1 inches in width, and 4.7 inches in length, this glider is perfect for flying in a variety of environments, including parks and open indoor spaces. Its user-friendly controls are designed to help beginners quickly learn how to pilot an RC aircraft, making it a great choice for those new to remote control flying. The combination of durability, ease of use, and vibrant lighting ensures an enjoyable flying experience for all ages.
 
-## <a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Epipgale Su-35 Rc Plane</a>
+## <a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Epipgale Su-35 Rc Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Epipgale Su-35 Rc Plane, 2Ch Remote Control Airplane, Hobby Rc Glider, Ready &amp; Easy To Fly For Beginners, Rc Aircraft Jet With Luminous Strip, Yellow" src="https://m.media-amazon.com/images/I/416eHaEMcHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09VNZVYPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Epipgale Su-35 Rc Plane, 2Ch Remote Control Airplane, Hobby Rc Glider, Ready &amp; Easy To Fly For Beginners, Rc Aircraft Jet With Luminous Strip, Yellow" src="https://m.media-amazon.com/images/I/416eHaEMcHL._SL500_.jpg"/></a>
 
 
 The **Epipgale Su-35 Rc Plane** is ideal for **beginners** and hobbyists looking to explore the exciting world of remote control aircraft. Its **ready-to-fly design** and **easy controls** make it perfect for those who want a straightforward and enjoyable flying experience without complicated setups. If you are passionate about RC planes and want a reliable, visually appealing model to start with, this **2Ch remote control airplane** in vibrant **yellow** is a great choice.
@@ -126,10 +126,10 @@ The **Epipgale Su-35 Rc Plane** features a compact and lightweight body measurin
 
 Equipped with a simple **2-channel control system**, this RC glider offers intuitive operation to help beginners build confidence quickly. The bright **yellow color** enhances visibility, reducing the risk of losing sight of the aircraft mid-flight. Overall, the Epipgale Su-35 combines user-friendly features with an attractive design, delivering a fun and accessible flying experience for hobbyists at any skill level.
 
-## <a href="https://www.amazon.com/dp/B0FJM6MSPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiudtoy 2.4ghz 2ch Remote Control Airplane</a>
+## <a href="https://www.amazon.com/dp/B0FJM6MSPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiudtoy 2.4ghz 2ch Remote Control Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B0FJM6MSPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIUDTOY2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41jSWB9rm4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FJM6MSPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIUDTOY2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41jSWB9rm4L._SL500_.jpg"/></a>
 
 
 The **TIUDTOY 2.4GHz 2CH Remote Control Airplane RC Glider** is perfect for **beginners, adults, and kids** who are interested in learning how to pilot an RC aircraft. Its user-friendly design and durable construction make it an ideal choice for those new to remote-controlled flying or anyone looking for an **easy-to-fly** and enjoyable glider experience.
@@ -152,10 +152,10 @@ The **TIUDTOY RC Glider** features a robust **EPP foam body** that is lightweigh
 
 Equipped with vibrant **LED lights**, this glider not only provides a visually appealing flying experience but also enhances visibility during low-light conditions, making it safer and more enjoyable to fly at dusk or indoors. Overall, the combination of beginner-friendly controls, durable construction, and eye-catching features makes the TIUDTOY RC Glider a fantastic choice for anyone starting their journey into remote-controlled aviation.
 
-## <a href="https://www.amazon.com/dp/B0DH8H6W9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Razzes 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
+## <a href="https://www.amazon.com/dp/B0DH8H6W9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Razzes 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
 
 
-<a href="https://www.amazon.com/dp/B0DH8H6W9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RAZZES 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41dp-5BAdcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DH8H6W9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RAZZES 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41dp-5BAdcL._SL500_.jpg"/></a>
 
 
 The **RAZZES 2.4GHz 2CH Remote Control Airplane RC Glider** is an excellent choice for **beginners**, both adults and kids, who are interested in exploring the world of remote control flying. Designed with ease of use in mind, this **easy to fly EPP foam RC aircraft fighter** provides an ideal starting point for those new to RC planes, offering a fun and safe flying experience. Its lightweight design and durable materials make it perfect for hobbyists looking to enjoy outdoor flying without the hassle of complicated controls.
@@ -178,10 +178,10 @@ The **RAZZES RC Glider** features a 2.4GHz frequency control system, which ensur
 
 This remote control airplane’s compact dimensions (approximately 5.1 inches in height and 4.7 inches in length) make it highly portable and easy to handle, while its multicolor design adds an element of fun and excitement. The **RAZZES brand** has focused on creating a user-friendly flying experience that encourages learning and skill development. Whether you are a parent looking to introduce your child to RC flying or an adult seeking a relaxing outdoor hobby, this airplane offers an engaging and enjoyable way to get started.
 
-## <a href="https://www.amazon.com/dp/B0FJ1X81C7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiudtoy 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
+## <a href="https://www.amazon.com/dp/B0FJ1X81C7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiudtoy 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
 
 
-<a href="https://www.amazon.com/dp/B0FJ1X81C7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIUDTOY 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41tHdsuBxJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FJ1X81C7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TIUDTOY 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41tHdsuBxJL._SL500_.jpg"/></a>
 
 
 The **TIUDTOY 2.4GHz 2CH Remote Control Airplane RC Glider** is ideal for both **beginners** and **kids** as well as **adults** looking for an easy-to-fly, durable, and visually appealing RC aircraft. If you are new to remote-controlled airplanes or want a lightweight and user-friendly glider with impressive features, this model is perfect for you. Its simple controls and robust design make it a great choice for anyone eager to enjoy flying RC planes without complicated setups.
@@ -205,10 +205,10 @@ The **TIUDTOY RC Glider** features a **2.4GHz 2-channel remote control system** 
 
 Additionally, the inclusion of vibrant **LED lights** not only enhances the plane’s aesthetic appeal but also improves visibility during dusk or low-light conditions, adding an exciting visual element to flights. Overall, this remote control airplane combines ease of use, durability, and fun features, making it an excellent choice for anyone starting their RC flying journey or seeking a reliable and entertaining glider.
 
-## <a href="https://www.amazon.com/dp/B0FLQD1F51?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tocexy 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
+## <a href="https://www.amazon.com/dp/B0FLQD1F51?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tocexy 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
 
 
-<a href="https://www.amazon.com/dp/B0FLQD1F51?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tocexy 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/412gm82sa-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FLQD1F51?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tocexy 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/412gm82sa-L._SL500_.jpg"/></a>
 
 
 The **Tocexy 2.4GHz 2CH Remote Control Airplane RC Glider** is an ideal choice for **beginners, adults, and kids** who are looking to explore the exciting world of remote control flying. Its **easy-to-fly design** and durable construction make it perfect for those new to RC aircraft as well as hobbyists seeking a reliable and fun glider. If you want a lightweight, user-friendly, and visually appealing RC plane, this multicolor model is tailored for you.
@@ -231,10 +231,10 @@ The **Tocexy RC Glider** features a **2.4GHz remote control system** that ensure
 
 Built from **high-quality EPP foam**, the glider is both lightweight and resilient against crashes, reducing the risk of damage during learning flights. The inclusion of **bright LED lights** not only makes the plane visually appealing but also improves visibility during dusk or cloudy conditions. Overall, this RC glider combines ease of use, durability, and attractive design, providing a rewarding flying experience for users of all skill levels.
 
-## <a href="https://www.amazon.com/dp/B0FDR8N7CN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Frowwy 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
+## <a href="https://www.amazon.com/dp/B0FDR8N7CN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Frowwy 2.4ghz 2ch Remote Control Airplane Rc Glider</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDR8N7CN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FROWWY 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41z3bT5e3fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDR8N7CN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FROWWY 2.4GHz 2CH Remote Control Airplane RC Glider for Beginner Adult Kids, Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multicolor)" src="https://m.media-amazon.com/images/I/41z3bT5e3fL._SL500_.jpg"/></a>
 
 
 The **FROWWY 2.4GHz 2CH Remote Control Airplane RC Glider** is ideal for **beginners, both adults and kids**, who are interested in learning how to fly remote control aircraft. Its simple controls and lightweight **EPP foam construction** make it perfect for those new to the hobby or looking for an easy-to-fly, durable model. The added **LED lights** enhance visibility, making it a fun choice for flying during dusk or low-light conditions.
@@ -257,10 +257,10 @@ The **FROWWY RC Glider** features a **2.4GHz remote control** system that offers
 
 Additionally, the inclusion of **LED lights** not only improves the visual appeal but also enhances flight visibility during low light or dusk, making flights safer and more enjoyable. The **multicolor design** adds a vibrant and attractive look, making this model stand out among other remote-controlled gliders. Overall, this airplane offers a great balance of simplicity, durability, and fun, perfect for anyone starting their journey in RC aircraft flying.
 
-## <a href="https://www.amazon.com/dp/B0FFT6W3JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tometoy Remote Control Airplane Rc Glider</a>
+## <a href="https://www.amazon.com/dp/B0FFT6W3JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tometoy Remote Control Airplane Rc Glider</a>
 
 
-<a href="https://www.amazon.com/dp/B0FFT6W3JG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOMETOY Remote Control Airplane RC Glider for Beginner Adult Kids,2.4GHz 2CH Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multi Color)" src="https://m.media-amazon.com/images/I/41yOeIITU4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FFT6W3JG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOMETOY Remote Control Airplane RC Glider for Beginner Adult Kids,2.4GHz 2CH Easy to Fly EPP Foam RC Aircraft Fighter with LED Light (Multi Color)" src="https://m.media-amazon.com/images/I/41yOeIITU4L._SL500_.jpg"/></a>
 
 
 The **TOMETOY Remote Control Airplane RC Glider** is an excellent choice for **beginners**, both **adults and kids**, who want to explore the exciting world of remote control aircraft. This **easy-to-fly** glider is designed for those looking to learn basic flying skills while enjoying a fun and engaging hobby. Its **2.4GHz 2CH** system offers stable control, making it ideal for first-time flyers seeking a reliable and durable RC airplane.

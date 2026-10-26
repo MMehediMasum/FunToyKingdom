@@ -23,10 +23,10 @@ It dries clear and is safe for kids. Weldbond Wood Glue provides a heavy-duty ho
 
 
 
-## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver (8-Ounce), CS15068** is ideal for puzzle enthusiasts who want to preserve their completed puzzles as artwork or keepsakes. This product is perfect for hobbyists, families, and crafters looking to protect and display puzzles without the risk of pieces falling apart. If you love completing puzzles and want a long-lasting way to showcase your work, this item is designed for you.
@@ -49,10 +49,10 @@ The **Mod Podge Puzzle Saver** is manufactured by Plaid Enterprises, Inc., a tru
 
 Beyond its protective qualities, the product’s white base color helps enhance the vibrancy of the puzzle image, making colors pop and details clearer. Its non-toxic nature ensures safety during use, which is especially important for families with children. Overall, the Mod Podge Puzzle Saver combines ease of use with effective preservation, making it an essential tool for anyone looking to keep their puzzle creations intact and visually appealing for years to come.
 
-## <a href="https://www.amazon.com/dp/B00178QQJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer, Glue &amp; Finish</a>
+## <a href="https://www.amazon.com/dp/B00178QQJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer, Glue &amp; Finish</a>
 
 
-<a href="https://www.amazon.com/dp/B00178QQJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41zs6k410RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00178QQJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41zs6k410RL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Gloss Sealer, Glue & Finish** is ideal for crafters and DIY enthusiasts looking for a versatile, all-in-one solution to seal, glue, and finish projects. Whether you work with **wood, paper, fabric**, or other materials, this product is perfect for those who want a reliable, quick-drying, and non-toxic option to enhance and protect their creations.
@@ -75,10 +75,10 @@ The **Mod Podge Gloss Sealer, Glue & Finish** offers a seamless crafting experie
 
 Additionally, the product’s quick drying time helps minimize waiting periods, speeding up the overall crafting process. Since it is non-toxic and easy to clean with water, it encourages safe and stress-free creativity, especially important for projects involving children or group activities. Its compact size and trusted **Mod Podge** brand reputation make it a reliable choice for both beginners and seasoned artisans alike.
 
-## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish** is ideal for puzzle enthusiasts and crafters who want to preserve and display their completed puzzles. If you are someone who enjoys assembling puzzles and wishes to turn them into a lasting piece of art without worrying about pieces falling apart, this product is perfect for you. It is also suitable for DIY hobbyists looking for a reliable adhesive and finish that provides a professional matte look.
@@ -101,10 +101,10 @@ The **Mod Podge Puzzle Saver** is designed to provide a seamless solution for pr
 
 Additionally, the clear finish preserves the original colors and intricate details of your puzzle artwork, allowing it to maintain its visual appeal for years. The all-in-one nature of this product saves time and effort by eliminating the need to purchase separate adhesives and sealers, making it an excellent choice for both beginners and seasoned crafters. With its trusted brand, **Mod Podge**, users can feel confident in the quality and performance of this puzzle saver.
 
-## <a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Datum Labs Jigsaw Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Datum Labs Jigsaw Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="[240mL] Datum Labs Jigsaw Puzzle Glue | Easy Sponge Head and Scaper | Adults and Children | Clear Water-Soluble Special Craft Puzzle Glue Quick-Dry | Non-Toxic | 1000/1500/3000 Pieces Per Bottle" src="https://m.media-amazon.com/images/I/51nIIzf1BgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="[240mL] Datum Labs Jigsaw Puzzle Glue | Easy Sponge Head and Scaper | Adults and Children | Clear Water-Soluble Special Craft Puzzle Glue Quick-Dry | Non-Toxic | 1000/1500/3000 Pieces Per Bottle" src="https://m.media-amazon.com/images/I/51nIIzf1BgL._SL500_.jpg"/></a>
 
 
 The **Datum Labs Jigsaw Puzzle Glue** is ideal for both **adults and children** who enjoy assembling puzzles ranging from **1000 to 3000 pieces**. If you want to preserve your completed puzzles as a keepsake or display, this **clear, water-soluble, non-toxic glue** provides a safe and effective solution. It is perfect for hobbyists, families, and craft enthusiasts looking for a quick-drying adhesive that simplifies puzzle finishing.
@@ -126,10 +126,10 @@ The **Datum Labs Jigsaw Puzzle Glue** comes in a thoughtfully designed bottle fe
 
 Additionally, the **clear, water-soluble formula** ensures the original colors and details of the puzzle remain vibrant without any discoloration over time. Being **non-toxic** also allows safe use around children, making it a great choice for family puzzle projects. Whether you are a casual puzzler or a dedicated hobbyist, this glue offers a reliable, high-quality finish that protects your hard work and transforms your puzzle into a lasting piece of art.
 
-## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
 
 
 The **PHILODOGS Puzzle Glue** is ideal for both **kids and adults** who want to preserve their completed jigsaw puzzles as lasting keepsakes. Whether you're a casual puzzler looking to display your artwork or a dedicated enthusiast aiming to protect intricate designs, this **clear, quick-drying, and non-toxic glue** offers a reliable solution for securing your puzzle pieces together seamlessly.
@@ -151,10 +151,10 @@ The **PHILODOGS Puzzle Glue** features a user-friendly design with a compact bot
 
 Designed as part of the **Family Edition** by PHILODOGS, this puzzle glue is versatile enough for various puzzle types and sizes. It provides a durable bond that keeps your puzzle intact, enabling you to frame or display your creation confidently. With its easy application and effective preservation qualities, it transforms your completed puzzles into cherished decorations or gifts, adding value beyond just the assembling experience.
 
-## <a href="https://www.amazon.com/dp/B088NN5GD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearly Art Precision Craft Glue - The Mini</a>
+## <a href="https://www.amazon.com/dp/B088NN5GD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearly Art Precision Craft Glue - The Mini</a>
 
 
-<a href="https://www.amazon.com/dp/B088NN5GD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearly Art Precision Craft Glue - The Mini - 2fl oz with Tip Kit - Acid Free Archival - Strong Hold Adhesive - Ideal for Fine Paper Crafting Scrapbooking and Card Making - Made in USA" src="https://m.media-amazon.com/images/I/417dgxV3dfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B088NN5GD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearly Art Precision Craft Glue - The Mini - 2fl oz with Tip Kit - Acid Free Archival - Strong Hold Adhesive - Ideal for Fine Paper Crafting Scrapbooking and Card Making - Made in USA" src="https://m.media-amazon.com/images/I/417dgxV3dfL._SL500_.jpg"/></a>
 
 
 The **Bearly Art Precision Craft Glue - The Mini** is perfect for crafters who demand precision and reliability in their adhesive products. Ideal for those involved in **fine paper crafting, scrapbooking, and card making**, this glue caters to hobbyists and professionals alike who need a strong, archival-quality bond that won’t damage delicate materials. If you value a clean, easy-to-use glue with a fine tip for detailed work, this product is an excellent choice.
@@ -176,10 +176,10 @@ The **Bearly Art Precision Craft Glue** stands out for its meticulous design tai
 
 Additionally, the glue’s **acid-free and archival properties** protect your projects from damage caused by discoloration or degradation. This quality is essential for preserving cherished memories and artworks. The product’s compact size and lightweight design make it easy to carry and store, allowing for crafting on the go or in small spaces. Overall, the Bearly Art Precision Craft Glue - The Mini combines quality, precision, and convenience, making it a must-have for anyone serious about fine paper crafting.
 
-## <a href="https://www.amazon.com/dp/B0F7XT4KZ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wood Glue</a>
+## <a href="https://www.amazon.com/dp/B0F7XT4KZ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wood Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7XT4KZ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wood Glue 1.23 oz - Clear, Waterproof Adhesive for Furniture Repair, DIY, Crafts– Ultra Strong, Fast-Drying Glue for Wood, Metal, Plastic &amp; More" src="https://m.media-amazon.com/images/I/51BCMIBaw4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7XT4KZ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wood Glue 1.23 oz - Clear, Waterproof Adhesive for Furniture Repair, DIY, Crafts– Ultra Strong, Fast-Drying Glue for Wood, Metal, Plastic &amp; More" src="https://m.media-amazon.com/images/I/51BCMIBaw4L._SL500_.jpg"/></a>
 
 
 The **Wood Glue 1.23 oz** by GleamGlee is ideal for DIY enthusiasts, furniture repair experts, and craft hobbyists who require a reliable and versatile adhesive. Whether you're fixing a broken chair, assembling a wooden craft project, or bonding different materials, this **clear, waterproof adhesive** offers an ultra-strong hold, making it perfect for those who need a fast-drying and durable glue for various surfaces including **wood, metal, and plastic**.
@@ -201,10 +201,10 @@ The **Wood Glue 1.23 oz** from GleamGlee stands out with its impressive ability 
 
 Additionally, the compact size of the glue bottle makes it easy to handle and store, perfect for hobbyists and professionals alike who value precision and tidiness in their workspace. The versatility to work on materials like wood, metal, and plastic adds great value for anyone looking for an all-in-one adhesive solution. Overall, this product combines strength, speed, and versatility, making it a dependable choice for a variety of repair and craft tasks.
 
-## <a href="https://www.amazon.com/dp/B001IKES5O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
+## <a href="https://www.amazon.com/dp/B001IKES5O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
 
 
-<a href="https://www.amazon.com/dp/B001IKES5O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41-iDD8CrqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001IKES5O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41-iDD8CrqL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Matte Sealer, Glue & Finish** is ideal for crafters, DIY enthusiasts, and artists looking for a versatile, all-in-one solution to protect and enhance their projects. Whether you work with **wood, paper, fabric**, or other materials, this product is perfect for those who want a **quick-drying**, **easy-to-clean**, and **non-toxic** crafting sealer and adhesive. If you value convenience and professional-quality finishes in your creative work, this product is designed for you.
@@ -229,10 +229,10 @@ The **Mod Podge Matte Sealer, Glue & Finish** combines multiple crafting needs i
 
 Beyond convenience, the **non-toxic** composition ensures a safer crafting environment, especially for families with children or beginners who might be concerned about harsh chemicals. The matte finish adds a professional, subtle look that reduces glare and enhances the appearance of your artwork or craft. Because it works effectively on various surfaces like **wood, paper, and fabric**, it offers great versatility, encouraging creativity without worrying about compatibility. Overall, this sealer, glue, and finish combo provides a reliable, user-friendly experience that supports both casual and serious crafters.
 
-## <a href="https://www.amazon.com/dp/B09GYSG15X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weldbond Wood Glue</a>
+## <a href="https://www.amazon.com/dp/B09GYSG15X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weldbond Wood Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B09GYSG15X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weldbond Wood Glue for Furniture Heavy Duty, Wood Glue for Woodworking, Bonds Most Anything Including Glass Crafts Ceramic Tile Mosaic Stones Pottery Jewelry &amp; More. Non-Toxic PVA 5.4 oz / 160ml" src="https://m.media-amazon.com/images/I/514XgMRhv3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09GYSG15X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weldbond Wood Glue for Furniture Heavy Duty, Wood Glue for Woodworking, Bonds Most Anything Including Glass Crafts Ceramic Tile Mosaic Stones Pottery Jewelry &amp; More. Non-Toxic PVA 5.4 oz / 160ml" src="https://m.media-amazon.com/images/I/514XgMRhv3L._SL500_.jpg"/></a>
 
 
 The **Weldbond Wood Glue for Furniture Heavy Duty** is ideal for DIY enthusiasts, professional woodworkers, and craft lovers looking for a reliable and versatile adhesive. Whether you are working on furniture repair, woodworking projects, or intricate crafts involving materials like glass, ceramic, or pottery, this glue is designed to meet your bonding needs effectively. Its non-toxic formula also makes it a great choice for hobbyists who prioritize safety and eco-friendliness in their workspace.
@@ -254,10 +254,10 @@ The **Weldbond Wood Glue** stands out due to its impressive versatility and heav
 
 Additionally, the **non-toxic PVA composition** adds an extra layer of safety, particularly important for users who work in environments with children or pets. While it may require a bit more time to fully cure, this slow setting allows for adjustments and precise positioning during assembly. Overall, the Weldbond Wood Glue is a dependable and versatile adhesive that caters to a wide range of creative and professional applications.
 
-## <a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ainiv Jigsaw Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ainiv Jigsaw Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ainiv 2 Pack 120ml Jigsaw Puzzle Glue with Sponge Head, PVA Clear Quick Dry Craft Puzzle Glue, Non-Toxic Water-Soluble Puzzle Saver, Suitable for 1000/1500/3000 Pieces Puzzle of Paper/Wood(Blue)" src="https://m.media-amazon.com/images/I/41IFuymauJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ainiv 2 Pack 120ml Jigsaw Puzzle Glue with Sponge Head, PVA Clear Quick Dry Craft Puzzle Glue, Non-Toxic Water-Soluble Puzzle Saver, Suitable for 1000/1500/3000 Pieces Puzzle of Paper/Wood(Blue)" src="https://m.media-amazon.com/images/I/41IFuymauJL._SL500_.jpg"/></a>
 
 
 Ideal for puzzle enthusiasts who frequently work on large puzzles ranging from 1000 to 3000 pieces, the **Ainiv 2 Pack 120ml Jigsaw Puzzle Glue** is perfect for those looking to preserve their completed puzzles. Whether you are a hobbyist or a serious collector wanting to showcase or store your puzzles without damage, this product offers an easy and effective solution.

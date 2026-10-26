@@ -23,10 +23,10 @@ Greenlight also creates special editions like the United States Postal Service d
 
 
 
-## <a href="https://www.amazon.com/dp/B00YBC5JRC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Ford Shelby Mustang Gt500</a>
+## <a href="https://www.amazon.com/dp/B00YBC5JRC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Ford Shelby Mustang Gt500</a>
 
 
-<a href="https://www.amazon.com/dp/B00YBC5JRC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (blue)"="" alt="KiNSMART - 1967 Ford Shelby Mustang GT500 1:38 Scale 5" car="" cast="" die="" metal="" model="" muscle="" src="https://m.media-amazon.com/images/I/41nM9Wt6HHL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B00YBC5JRC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (blue)"="" alt="KiNSMART - 1967 Ford Shelby Mustang GT500 1:38 Scale 5" car="" cast="" die="" metal="" model="" muscle="" src="https://m.media-amazon.com/images/I/41nM9Wt6HHL._SL500_.jpg" toy=""/></a>
 
 
 The **KiNSMART - 1967 Ford Shelby Mustang GT500 1:38 Scale 5" Die Cast Metal Model Toy Muscle Car (Blue)** is ideal for collectors, car enthusiasts, and children who love classic muscle cars. This detailed model appeals to those who appreciate authentic design and craftsmanship in miniature form, making it a perfect gift or addition to any collection.
@@ -49,12 +49,12 @@ The **KiNSMART Shelby Mustang GT500** model boasts an impressive level of detail
 
 Additionally, the vivid **blue color** adds to the visual appeal, making the model stand out on any shelf or desk. The precise manufacturing ensures that even at a smaller scale, key design elements such as the body shape and contours are faithfully replicated. For users, this means enjoying a high-quality miniature muscle car that combines aesthetic appeal with durability, whether it’s part of a collection or a child's toy.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00YBC5JRC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00YBC5JRC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DNY1WVMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1994 Ford F-150 Svt Lightning Diecast Model</a>
+## <a href="https://www.amazon.com/dp/B0DNY1WVMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1994 Ford F-150 Svt Lightning Diecast Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNY1WVMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pack 1994 Ford F-150 SVT Lightning with Tonneau Bed Cover - White Diecast 1:64 Scale Model - Greenlight" src="https://m.media-amazon.com/images/I/31-Pc4S1+WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNY1WVMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pack 1994 Ford F-150 SVT Lightning with Tonneau Bed Cover - White Diecast 1:64 Scale Model - Greenlight" src="https://m.media-amazon.com/images/I/31-Pc4S1+WL._SL500_.jpg"/></a>
 
 
 The **12 Pack 1994 Ford F-150 SVT Lightning with Tonneau Bed Cover - White Diecast 1:64 Scale Model** by **Greenlight** is ideal for **diecast collectors**, **Ford enthusiasts**, and **model car hobbyists** looking to expand their collection with a highly detailed miniature. This set is perfect for those who appreciate classic American trucks and want to showcase an iconic vehicle in a compact, collectible form.
@@ -78,12 +78,12 @@ The **Greenlight 12 Pack 1994 Ford F-150 SVT Lightning** models are crafted with
 
 Beyond aesthetics, these models offer a tangible connection to automotive history, especially for fans of the Ford F-150 SVT Lightning series. The durable diecast materials ensure that the models withstand handling and display over time, maintaining their value and appeal. Whether used for personal enjoyment, educational purposes, or as gifts, this set delivers both quality and authenticity, making it a worthwhile addition for anyone passionate about miniature vehicles and classic trucks.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DNY1WVMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DNY1WVMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07611BZC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight 29888 United States Postal Service (usps) Long Live Postal Mail Delivery Vehicle</a>
+## <a href="https://www.amazon.com/dp/B07611BZC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight 29888 United States Postal Service (usps) Long Live Postal Mail Delivery Vehicle</a>
 
 
-<a href="https://www.amazon.com/dp/B07611BZC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Greenlight 29888 United States Postal Service (USPS) Long Live Postal Mail Delivery Vehicle (Llv) with Mailbox Accessory Hobby Exclusive 1/64 Diecast Model Car by, White" src="https://m.media-amazon.com/images/I/41T-vnsME+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07611BZC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Greenlight 29888 United States Postal Service (USPS) Long Live Postal Mail Delivery Vehicle (Llv) with Mailbox Accessory Hobby Exclusive 1/64 Diecast Model Car by, White" src="https://m.media-amazon.com/images/I/41T-vnsME+L._SL500_.jpg"/></a>
 
 
 The **Greenlight 29888 United States Postal Service (USPS) Long Live Postal Mail Delivery Vehicle (LLV)** is ideal for collectors and hobbyists who appreciate detailed **1/64 diecast model cars**. This exclusive model, complete with a **mailbox accessory**, is perfect for fans of postal history, miniature vehicles, and those looking to add a unique piece to their collection. Its compact size and authentic design make it a must-have for enthusiasts of scale models and USPS memorabilia.
@@ -106,12 +106,12 @@ The **Greenlight USPS Long Live Postal Mail Delivery Vehicle** showcases impress
 
 Designed by **Greenlight**, a reputable manufacturer known for quality diecast models, this piece offers both aesthetic appeal and collector value. The vehicle’s lightweight construction ensures it can be safely handled and positioned in any display setting. Overall, this diecast model combines functionality, attention to detail, and exclusivity, making it an excellent addition for USPS enthusiasts and diecast collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07611BZC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07611BZC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CCYM17GX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight 1/64 1993 Bronco Xlt</a>
+## <a href="https://www.amazon.com/dp/B0CCYM17GX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight 1/64 1993 Bronco Xlt</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCYM17GX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Greenlight 1/64 1993 Bronco XLT, Oxford White, Hobby Exclusive 30452" src="https://m.media-amazon.com/images/I/41p7zw6w2XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCYM17GX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Greenlight 1/64 1993 Bronco XLT, Oxford White, Hobby Exclusive 30452" src="https://m.media-amazon.com/images/I/41p7zw6w2XL._SL500_.jpg"/></a>
 
 
 The **Greenlight 1/64 1993 Bronco XLT** in **Oxford White** is perfect for collectors and enthusiasts who appreciate detailed scale models, especially those with a passion for classic vehicles. If you are someone who values precision craftsmanship and limited edition collectibles, this **Hobby Exclusive 30452** model is an excellent addition to your collection.
@@ -133,12 +133,12 @@ This **Greenlight 1/64 1993 Bronco XLT** stands out due to its exceptional detai
 
 Manufactured by **Greenlight Collectibles**, a brand known for quality and attention to detail, this model offers durability and precision. The hobby exclusive nature of the item means you are obtaining a collectible that is not widely available, enhancing its value and appeal for serious collectors. Overall, it combines aesthetics, craftsmanship, and exclusivity for an outstanding collectible experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CCYM17GX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CCYM17GX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07NV5XBRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight Hollywood Christine 1958 Plymouth Fury</a>
+## <a href="https://www.amazon.com/dp/B07NV5XBRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight Hollywood Christine 1958 Plymouth Fury</a>
 
 
-<a href="https://www.amazon.com/dp/B07NV5XBRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New DIECAST Toys CAR Greenlight 1:43 Hollywood - Christine (1983) - 1958 Plymouth Fury 86529" src="https://m.media-amazon.com/images/I/31eBA6q-bkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NV5XBRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New DIECAST Toys CAR Greenlight 1:43 Hollywood - Christine (1983) - 1958 Plymouth Fury 86529" src="https://m.media-amazon.com/images/I/31eBA6q-bkL._SL500_.jpg"/></a>
 
 
 The **New DIECAST Toys CAR Greenlight 1:43 Hollywood - Christine (1983) - 1958 Plymouth Fury 86529** is ideal for collectors and enthusiasts of classic cars, movie memorabilia, and detailed diecast models. If you appreciate authentic replicas and want to own a piece of cinematic history, this finely crafted model is perfect for you. It also appeals to fans of the 1983 horror film "Christine" and those who enjoy showcasing miniature automobiles in their collections.
@@ -161,12 +161,12 @@ This **diecast model** impresses with its meticulous attention to detail, reflec
 
 The **New Greenlight** brand ensures that this model is crafted with precision and durability, making it a lasting collectible. Whether displayed alone or as part of a larger collection of Hollywood-themed cars, it offers both aesthetic appeal and nostalgic value. This model serves not only as a tribute to a cult classic but also as a high-quality representation of automotive design from the late 1950s.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07NV5XBRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07NV5XBRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DLQ3BCRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight 11611 2024 Indianapolis 500 All Penske Front Row 3-car Set</a>
+## <a href="https://www.amazon.com/dp/B0DLQ3BCRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight 11611 2024 Indianapolis 500 All Penske Front Row 3-car Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLQ3BCRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Greenlight 11611 2024 Indianapolis 500 All Penske Front Row 3-Car Set #3 Scott McLaughlin, 2 Josef Newgarden, 12 Will Power 1:64 Scale Indy 500 in Diorama Display Box" src="https://m.media-amazon.com/images/I/41R7KPUfQoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLQ3BCRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Greenlight 11611 2024 Indianapolis 500 All Penske Front Row 3-Car Set #3 Scott McLaughlin, 2 Josef Newgarden, 12 Will Power 1:64 Scale Indy 500 in Diorama Display Box" src="https://m.media-amazon.com/images/I/41R7KPUfQoL._SL500_.jpg"/></a>
 
 
 The **Greenlight 11611 2024 Indianapolis 500 All Penske Front Row 3-Car Set** is perfect for **motorsport enthusiasts**, **collectors of die-cast models**, and fans of the **Indy 500** racing event. If you appreciate detailed replicas and want to showcase the iconic front row trio of Penske drivers, this set offers an authentic and visually appealing addition to your collection.
@@ -189,12 +189,12 @@ This **3-car set** highlights the 2024 Indianapolis 500 front row lineup from Te
 
 Beyond aesthetics, the set offers tangible benefits to fans and collectors alike. Its compact size makes it ideal for display in limited spaces, while the durable construction ensures longevity. Whether you are commemorating the 2024 race or expanding your die-cast collection, this set combines authenticity with convenience, making it a standout choice for any motorsports memorabilia enthusiast.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DLQ3BCRN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DLQ3BCRN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07JN71YLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1983 Gmc Vandura, The A-team - Greenlight 84072</a>
+## <a href="https://www.amazon.com/dp/B07JN71YLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1983 Gmc Vandura, The A-team - Greenlight 84072</a>
 
 
-<a href="https://www.amazon.com/dp/B07JN71YLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1983 GMC Vandura, The A-Team - Greenlight 84072 - 1/24 Scale Diecast Model Toy Car for unisex-children" src="https://m.media-amazon.com/images/I/41C1yHt49rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JN71YLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1983 GMC Vandura, The A-Team - Greenlight 84072 - 1/24 Scale Diecast Model Toy Car for unisex-children" src="https://m.media-amazon.com/images/I/41C1yHt49rL._SL500_.jpg"/></a>
 
 
 The **1983 GMC Vandura, The A-Team - Greenlight 84072** is ideal for **unisex children** and collectors who appreciate detailed **1/24 scale diecast model toy cars**. This item is perfect for fans of classic TV shows, model car enthusiasts, and those looking to add a unique piece to their collection or gift to a young car lover.
@@ -217,12 +217,12 @@ The **1983 GMC Vandura Greenlight 84072** stands out with its authentic and high
 
 Additionally, the model’s weight and dimensions contribute to its portability and ease of use. Whether used as a display piece or as part of imaginative play, this model car offers lasting enjoyment. The **brand reliability of ModelToyCars** further assures buyers of the quality and attention to detail invested in this collectible item, making it a worthwhile investment for both fans and gift-givers alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07JN71YLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07JN71YLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BJXNG9J3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1972 Chevy C-30 Dually Wrecker Truck</a>
+## <a href="https://www.amazon.com/dp/B0BJXNG9J3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1972 Chevy C-30 Dually Wrecker Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJXNG9J3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ModelToyCars 1972 Chevy C-30 Dually Wrecker Truck, White and Blue - Greenlight 46100B - 1/64 Scale Diecast Car" src="https://m.media-amazon.com/images/I/31SD2IRpyqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJXNG9J3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ModelToyCars 1972 Chevy C-30 Dually Wrecker Truck, White and Blue - Greenlight 46100B - 1/64 Scale Diecast Car" src="https://m.media-amazon.com/images/I/31SD2IRpyqL._SL500_.jpg"/></a>
 
 
 The **ModelToyCars 1972 Chevy C-30 Dually Wrecker Truck** in **1/64 scale** is perfect for collectors and enthusiasts who appreciate detailed diecast models of classic vehicles. Ideal for those who enjoy showcasing vintage trucks or adding authentic replicas to their collection, this model offers an accurate representation of the iconic 1972 Chevy C-30 in a striking **white and blue** color scheme.
@@ -244,12 +244,12 @@ The **1972 Chevy C-30 Dually Wrecker Truck** by ModelToyCars showcases meticulou
 
 Beyond aesthetics, the diecast model offers durability and a quality finish, ensuring that it remains a valuable collectible over time. Its **1/64 scale** size makes it an ideal choice for those with limited display space but who still want a high level of detail. Whether displayed on a shelf or integrated into a diorama, this model delivers both visual appeal and lasting value for diecast enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BJXNG9J3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BJXNG9J3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09Y5CGVH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2019 F-350 Dually</a>
+## <a href="https://www.amazon.com/dp/B09Y5CGVH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2019 F-350 Dually</a>
 
 
-<a href="https://www.amazon.com/dp/B09Y5CGVH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2019 F-350 Dually, Ruby Red and Stone Gray - Greenlight 46070/48 - 1/32 Scale Diecast Model Toy Car" src="https://m.media-amazon.com/images/I/31XvngG7TwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Y5CGVH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2019 F-350 Dually, Ruby Red and Stone Gray - Greenlight 46070/48 - 1/32 Scale Diecast Model Toy Car" src="https://m.media-amazon.com/images/I/31XvngG7TwL._SL500_.jpg"/></a>
 
 
 The **2019 F-350 Dually, Ruby Red and Stone Gray** diecast model is perfect for collectors and enthusiasts who appreciate detailed replicas of iconic vehicles. Ideal for hobbyists, model car collectors, and fans of the Ford F-350 series, this **1/32 scale** model combines precision craftsmanship with vibrant colors, making it a must-have for anyone looking to enhance their collection with a high-quality miniature truck.
@@ -272,12 +272,12 @@ This **Greenlight 46070/48** model by **ModelToyCars** perfectly captures the ro
 
 Besides aesthetics, the model's manageable size and lightweight build make it easy to position in display cases or shelves without overwhelming the space. This makes it an excellent choice for enthusiasts who want to showcase their passion without sacrificing room. Additionally, the sturdy diecast material ensures that the model remains in pristine condition over time, making it a durable investment for long-term collectors.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09Y5CGVH3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09Y5CGVH3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08WCGK2XJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1982 Ford Mustang Ssp Black And White Chp California Highway Patrol</a>
+## <a href="https://www.amazon.com/dp/B08WCGK2XJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1982 Ford Mustang Ssp Black And White Chp California Highway Patrol</a>
 
 
-<a href="https://www.amazon.com/dp/B08WCGK2XJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1982 Ford Mustang SSP Black and White CHP California Highway Patrol Hot Pursuit Series 36 1/64 Diecast Model Car by Greenlight 42930 C" src="https://m.media-amazon.com/images/I/51AS0aWHGHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08WCGK2XJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1982 Ford Mustang SSP Black and White CHP California Highway Patrol Hot Pursuit Series 36 1/64 Diecast Model Car by Greenlight 42930 C" src="https://m.media-amazon.com/images/I/51AS0aWHGHL._SL500_.jpg"/></a>
 
 
 The **1982 Ford Mustang SSP Black and White CHP California Highway Patrol Hot Pursuit Series 36 1/64 Diecast Model Car** by **Greenlight** is ideal for collectors and enthusiasts of classic police vehicles and diecast model cars. If you appreciate detailed replicas of iconic law enforcement cars or want to enhance your collection with a piece that represents California Highway Patrol history, this model is a perfect choice.
@@ -300,7 +300,7 @@ The **Greenlight 1982 Ford Mustang SSP** model captures the essence of the class
 
 Thanks to its sturdy diecast build and attention to detail, this collectible offers both visual appeal and durability. Whether displayed on a shelf or part of a larger collection, it serves as a conversation piece and a reminder of the Mustang’s role in police pursuits. The model’s compact size makes it easy to showcase without requiring much space, making it ideal for enthusiasts with limited display areas.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08WCGK2XJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08WCGK2XJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

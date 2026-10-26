@@ -23,10 +23,10 @@ Classic brands provide safe, durable, and educational play experiences. Kids enj
 
 
 
-## <a href="https://www.amazon.com/dp/B01NCUSC7V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Stacking Toy</a>
+## <a href="https://www.amazon.com/dp/B01NCUSC7V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Stacking Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B01NCUSC7V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Stacking Toy Baby's First Blocks Set of 10 Shapes for Sorting Play for Infants Ages 6+ Months" src="https://m.media-amazon.com/images/I/31BpolMkD9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01NCUSC7V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Stacking Toy Baby's First Blocks Set of 10 Shapes for Sorting Play for Infants Ages 6+ Months" src="https://m.media-amazon.com/images/I/31BpolMkD9L._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Stacking Toy Baby's First Blocks Set** is ideal for parents and caregivers looking to introduce infants aged 6 months and older to early learning through play. This toy is perfect for babies beginning to explore shapes, colors, and hand-eye coordination, making it a great choice for those who want to foster cognitive and motor skill development in their little ones.
@@ -48,10 +48,10 @@ The **Fisher-Price Stacking Toy Baby's First Blocks Set** features a vibrant and
 
 Constructed with infant safety in mind, this set is lightweight and perfectly sized for little ones to explore independently or with a caregiver’s guidance. The stacking and sorting functions encourage early cognitive development by teaching cause and effect, as well as problem-solving techniques. Overall, this set provides a fun, educational, and tactile experience that supports multiple areas of infant growth while keeping playtime enjoyable and engaging.
 
-## <a href="https://www.amazon.com/dp/B00005RF5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Shape Sorting Cube</a>
+## <a href="https://www.amazon.com/dp/B00005RF5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Shape Sorting Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B00005RF5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Shape Sorting Cube - Classic Wooden Toy With 12 Shapes" src="https://m.media-amazon.com/images/I/41PJDB9m+9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00005RF5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Shape Sorting Cube - Classic Wooden Toy With 12 Shapes" src="https://m.media-amazon.com/images/I/41PJDB9m+9L._SL500_.jpg"/></a>
 
 
 The **Melissa & Doug Shape Sorting Cube** is ideal for parents and caregivers looking to introduce their toddlers to basic shapes and improve their fine motor skills. Designed for young children, this classic wooden toy is perfect for early learners eager to explore shape recognition, hand-eye coordination, and problem-solving through interactive play.
@@ -74,10 +74,10 @@ The **Melissa & Doug Shape Sorting Cube** features a sturdy wooden frame with pr
 
 Additionally, the toy’s size and weight are thoughtfully designed to suit toddler hands, enabling comfortable grasping and manipulation. Parents can appreciate how this toy combines fun with education, helping children develop essential **hand-eye coordination** and **fine motor skills** through engaging play. Its classic design and durable materials make it a valuable addition to any early childhood learning collection.
 
-## <a href="https://www.amazon.com/dp/B00CI8FI68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Learning Journey: Lift &amp; Learn Puzzle Colors &amp; Shapes</a>
+## <a href="https://www.amazon.com/dp/B00CI8FI68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Learning Journey: Lift &amp; Learn Puzzle Colors &amp; Shapes</a>
 
 
-<a href="https://www.amazon.com/dp/B00CI8FI68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Learning Journey: Lift &amp; Learn Puzzle Colors &amp; Shapes – Preschool Toys &amp; Activities for Children Ages 3 and Up – Award Winning Educational Toy" src="https://m.media-amazon.com/images/I/51uscuOOYQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00CI8FI68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Learning Journey: Lift &amp; Learn Puzzle Colors &amp; Shapes – Preschool Toys &amp; Activities for Children Ages 3 and Up – Award Winning Educational Toy" src="https://m.media-amazon.com/images/I/51uscuOOYQL._SL500_.jpg"/></a>
 
 
 The **The Learning Journey: Lift & Learn Puzzle Colors & Shapes** is an ideal educational toy for **preschool children aged 3 and up** who are beginning to explore basic concepts such as colors and shapes. Parents and educators seeking a fun, interactive, and award-winning activity to support early childhood development will find this toy particularly beneficial.
@@ -101,10 +101,10 @@ This **award-winning educational toy** features a lift-and-learn puzzle design t
 
 Additionally, being manufactured by **The Learning Journey International** guarantees quality and educational value. This toy not only entertains but also supports early cognitive development, making it a valuable tool for parents and teachers looking to foster foundational skills in young learners.
 
-## <a href="https://www.amazon.com/dp/B0CG8YD7L8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montessori Toys Wooden Learning Puzzles Shape Sorter Toy</a>
+## <a href="https://www.amazon.com/dp/B0CG8YD7L8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montessori Toys Wooden Learning Puzzles Shape Sorter Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CG8YD7L8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Montessori Toys for 1 2 3 Year Old Boy Girl, Toys for Ages 2-4 Toddlers Kids Baby, 1 2 Year Old Birthday Gifts, Wooden Learning Puzzles Shape Sorter Toy for Toddlers 1-3" src="https://m.media-amazon.com/images/I/41nHcEYftKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CG8YD7L8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Montessori Toys for 1 2 3 Year Old Boy Girl, Toys for Ages 2-4 Toddlers Kids Baby, 1 2 Year Old Birthday Gifts, Wooden Learning Puzzles Shape Sorter Toy for Toddlers 1-3" src="https://m.media-amazon.com/images/I/41nHcEYftKL._SL500_.jpg"/></a>
 
 
 The **Montessori Toys for 1 2 3 Year Old Boy Girl** are ideal for parents and caregivers seeking educational and engaging toys for toddlers aged **2-4 years**. These toys are perfect for young children who are beginning to develop their motor skills, shape recognition, and problem-solving abilities. If you want to provide a safe, colorful, and stimulating learning experience for your little one, these **wooden learning puzzles** and **shape sorter toys** are an excellent choice.
@@ -126,10 +126,10 @@ The **Montessori Toys by Tonberless** feature a thoughtfully designed set of **w
 
 Additionally, these toys serve as excellent birthday gifts for toddlers between the ages of **1 to 3 years**. By integrating the principles of Montessori education, they encourage independent learning and problem-solving skills. The shape sorter design promotes cognitive development by challenging toddlers to match shapes correctly, while the puzzle aspect fosters patience and concentration. Overall, this toy is a valuable investment in your child’s early education and sensory development.
 
-## <a href="https://www.amazon.com/dp/B00006JZCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Pattern Blocks And Boards</a>
+## <a href="https://www.amazon.com/dp/B00006JZCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Pattern Blocks And Boards</a>
 
 
-<a href="https://www.amazon.com/dp/B00006JZCG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Pattern Blocks and Boards - Classic Toy With 120 Solid Wood Shapes and 5 Double-Sided Panels" src="https://m.media-amazon.com/images/I/41FvngZaxVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00006JZCG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Pattern Blocks and Boards - Classic Toy With 120 Solid Wood Shapes and 5 Double-Sided Panels" src="https://m.media-amazon.com/images/I/41FvngZaxVL._SL500_.jpg"/></a>
 
 
 The **Melissa & Doug Pattern Blocks and Boards** are ideal for young children, especially those aged 3 and up, who are eager to develop their creativity and fine motor skills. This classic educational toy is perfect for parents and educators looking to provide a hands-on learning experience that promotes spatial reasoning and pattern recognition in a fun and engaging way.
@@ -152,10 +152,10 @@ The **Melissa & Doug Pattern Blocks and Boards** set offers a substantial collec
 
 Designed with both educational value and fun in mind, this toy supports early childhood development by promoting pattern recognition, spatial awareness, and problem-solving abilities. The multi-color blocks also introduce children to color differentiation and geometric concepts, making it a valuable addition to any playroom or classroom. Overall, this set is a thoughtfully designed tool that combines learning and play in a durable, easy-to-use format.
 
-## <a href="https://www.amazon.com/dp/B09YCFM93B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dailyfunn Montessori Toys Color&amp;shape Sorting Learning Matching Box</a>
+## <a href="https://www.amazon.com/dp/B09YCFM93B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dailyfunn Montessori Toys Color&amp;shape Sorting Learning Matching Box</a>
 
 
-<a href="https://www.amazon.com/dp/B09YCFM93B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dailyfunn Montessori Toys Color&amp;Shape Sorting Learning Matching Box for Baby Toddlers 1-3 Year Old" src="https://m.media-amazon.com/images/I/41aacHodNFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YCFM93B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dailyfunn Montessori Toys Color&amp;Shape Sorting Learning Matching Box for Baby Toddlers 1-3 Year Old" src="https://m.media-amazon.com/images/I/41aacHodNFL._SL500_.jpg"/></a>
 
 
 The **Dailyfunn Montessori Toys Color&Shape Sorting Learning Matching Box** is ideal for **parents and caregivers** of **babies and toddlers aged 1-3 years old** who want to encourage early development through engaging and educational play. This toy is perfect for those looking to support their child's **cognitive skills**, **hand-eye coordination**, and **color and shape recognition** in a fun and interactive way.
@@ -177,10 +177,10 @@ The **Dailyfunn Montessori Color & Shape Sorting Learning Matching Box** is thou
 
 Beyond its educational benefits, this sorting box offers an engaging way for toddlers to explore and learn through play. The Montessori-inspired approach encourages **problem-solving** and **independent thinking**, making it an excellent choice for parents who want to nurture their child’s curiosity and creativity. Its sturdy construction ensures it can withstand the energetic play of toddlers aged 1 to 3 years, providing lasting value and enjoyment.
 
-## <a href="https://www.amazon.com/dp/B0C3LZ218K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jumlys Montessori Toys For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0C3LZ218K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jumlys Montessori Toys For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3LZ218K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jumlys Montessori Toys for Toddlers 1, 2, 3 Year Old, Wooden Shape Learning Puzzles for Baby 12-18-24 Months, Early Educational Toys, Perfect Christmas Birthday Gifts for Boys &amp; Girls Age 1-3" src="https://m.media-amazon.com/images/I/51QGDQY7A2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3LZ218K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jumlys Montessori Toys for Toddlers 1, 2, 3 Year Old, Wooden Shape Learning Puzzles for Baby 12-18-24 Months, Early Educational Toys, Perfect Christmas Birthday Gifts for Boys &amp; Girls Age 1-3" src="https://m.media-amazon.com/images/I/51QGDQY7A2L._SL500_.jpg"/></a>
 
 
 The **Jumlys Montessori Toys for Toddlers** are ideal for parents and caregivers looking to support early childhood development in children aged **1 to 3 years**. These wooden shape learning puzzles are perfect for toddlers at the crucial stages of cognitive and motor skill growth, making them an excellent choice for those who want to combine play with education. If you are searching for a **colorful, durable, and engaging educational toy** that encourages hands-on learning, this product is tailored for you.
@@ -202,10 +202,10 @@ The **Jumlys Montessori Toys** feature a set of wooden puzzles designed to teach
 
 Beyond just shape recognition, these educational toys encourage problem-solving abilities and concentration, essential skills in early childhood development. The vibrant colors stimulate visual learning and keep toddlers engaged, while the wooden material provides a tactile experience different from plastic toys. Overall, the **Jumlys Montessori Wooden Shape Learning Puzzles** offer a balanced blend of education, fun, and safety, making them a valuable addition to any toddler’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B09BB1VS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mingkids Montessori Toys</a>
+## <a href="https://www.amazon.com/dp/B09BB1VS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mingkids Montessori Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B09BB1VS14?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MINGKIDS Montessori Toys for 1 Year Old, 6 Pc Multi Sensory Shape, Toddler Developmental Learning Birthday Gifts, Baby Toys 12 Month" src="https://m.media-amazon.com/images/I/41JyfRaiRWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BB1VS14?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MINGKIDS Montessori Toys for 1 Year Old, 6 Pc Multi Sensory Shape, Toddler Developmental Learning Birthday Gifts, Baby Toys 12 Month" src="https://m.media-amazon.com/images/I/41JyfRaiRWL._SL500_.jpg"/></a>
 
 
 The **MINGKIDS Montessori Toys for 1 Year Old** are perfect for parents and caregivers looking to support their toddler's early developmental milestones. Ideal for children around **12 months old**, these toys are designed to engage multi-sensory learning and help toddlers explore shapes, colors, and textures in a fun and educational way. If you want to encourage fine motor skills, cognitive growth, and sensory development through play, this set is a great choice.
@@ -227,10 +227,10 @@ The **MINGKIDS Montessori Toys** set focuses on providing a multi sensory experi
 
 Additionally, the use of **bright colors and varied textures** helps maintain the child’s interest and encourages longer playtime. This not only nurtures creativity but also supports cognitive skills like shape recognition and problem-solving. By aligning with the **Montessori educational approach**, the toy set promotes self-directed learning, making it a valuable investment for parents who want to nurture their child’s early developmental journey through purposeful play.
 
-## <a href="https://www.amazon.com/dp/B000MEB5LM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Educational Insights Shapes Bean Bags</a>
+## <a href="https://www.amazon.com/dp/B000MEB5LM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Educational Insights Shapes Bean Bags</a>
 
 
-<a href="https://www.amazon.com/dp/B000MEB5LM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Educational Insights Shapes Bean Bags - Toddler Learning Toys, Learn Shapes and Colors, Shape Sorting Toys for Toddlers, Preschool Classroom Must Haves, Tactile Manipulatives for Kids Ages 3+" src="https://m.media-amazon.com/images/I/51RFayuLxlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000MEB5LM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Educational Insights Shapes Bean Bags - Toddler Learning Toys, Learn Shapes and Colors, Shape Sorting Toys for Toddlers, Preschool Classroom Must Haves, Tactile Manipulatives for Kids Ages 3+" src="https://m.media-amazon.com/images/I/51RFayuLxlL._SL500_.jpg"/></a>
 
 
 The **Educational Insights Shapes Bean Bags** are perfect for parents and educators looking to enhance early childhood development. Ideal for toddlers aged 3 and above, these tactile manipulatives help young learners grasp fundamental concepts of **shapes** and **colors** through interactive play. If you want a fun, hands-on learning tool to support preschool classroom activities or home education, this product is an excellent choice.
@@ -252,10 +252,10 @@ These **Educational Insights Shapes Bean Bags** are designed with vibrant, assor
 
 Incorporating these bean bags into daily learning routines can significantly boost a child’s cognitive development. By sorting and matching shapes and colors, toddlers improve their problem-solving abilities and spatial awareness. Whether used in a group setting like a preschool classroom or during one-on-one playtime at home, these manipulatives offer an engaging and effective way to build foundational educational skills.
 
-## <a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shape Sorter Toddler Learning Toys</a>
+## <a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shape Sorter Toddler Learning Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shape Sorter Toddler Learning Toys - 19 Pcs Classic Kids Toys Blocks for Toddlers 1-3, Color Recognition, Sorting and Matching Activity Cube for Baby Games" src="https://m.media-amazon.com/images/I/41jm3ihGvNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shape Sorter Toddler Learning Toys - 19 Pcs Classic Kids Toys Blocks for Toddlers 1-3, Color Recognition, Sorting and Matching Activity Cube for Baby Games" src="https://m.media-amazon.com/images/I/41jm3ihGvNL._SL500_.jpg"/></a>
 
 
 The **Shape Sorter Toddler Learning Toys** are ideal for parents and caregivers looking to enhance the early developmental skills of children aged 1 to 3 years. This classic set is perfect for toddlers who are beginning to explore shapes, colors, and problem-solving activities, making it an excellent choice for fostering cognitive and motor skills through interactive play.

@@ -29,7 +29,7 @@ Rolling toys help babies practice moving their hands and fingers. They learn to 
 
 This practice builds strong muscles and improves coordination. Babies also start crawling or walking by following rolling toys.
 
-* Develop **[hand-eye coordination](https://www.amazon.com/s?k=infant+hand-eye+coordination+toys&tag=gearcookware-20)**
+* Develop **[hand-eye coordination](https://www.amazon.com/s?k=infant+hand-eye+coordination+toys&tag=mofb05-20)**
 * Strengthen arm and leg muscles
 * Encourage reaching and grasping
 
@@ -63,7 +63,7 @@ Good safety features protect babies from harm. This guide covers three important
 
 ### Non-toxic Materials
 
-Infants often put toys in their mouths. Toys made from **[non-toxic materials](https://www.amazon.com/s?k=non-toxic+infant+toys&tag=gearcookware-20)** keep babies safe from harmful chemicals. Look for toys labeled BPA-free and phthalate-free.
+Infants often put toys in their mouths. Toys made from **[non-toxic materials](https://www.amazon.com/s?k=non-toxic+infant+toys&tag=mofb05-20)** keep babies safe from harmful chemicals. Look for toys labeled BPA-free and phthalate-free.
 
 Paints and finishes should also be safe. Avoid toys with strong smells or peeling paint. These can be dangerous for infants.
 
@@ -91,7 +91,7 @@ Below are common types of rolling toys for infants. Each type offers unique play
 
 ### Push And Pull Toys
 
-**[Push and pull toys](https://www.amazon.com/s?k=infant+push+pull+toys&tag=gearcookware-20)** have wheels that move when the child pushes or pulls them. They often have strings or handles for easy grip. These toys help infants learn walking and balance.
+**[Push and pull toys](https://www.amazon.com/s?k=infant+push+pull+toys&tag=mofb05-20)** have wheels that move when the child pushes or pulls them. They often have strings or handles for easy grip. These toys help infants learn walking and balance.
 
 * Wooden animals on wheels
 * Cars with pull strings
@@ -113,7 +113,7 @@ Rolling balls and spheres come in many sizes and colors. They encourage infants 
 Ride-on rolling toys let infants sit and move using their feet. They build leg strength and balance. These toys often have sturdy wheels and low seats for safety.
 
 * Plastic scooters with wide bases
-* **[Wooden rocking cars with wheels](https://www.amazon.com/s?k=wooden+ride+on+toys+for+1+year+old&tag=gearcookware-20)**
+* **[Wooden rocking cars with wheels](https://www.amazon.com/s?k=wooden+ride+on+toys+for+1+year+old&tag=mofb05-20)**
 * Small wagons for toddlers
 
 ## Top Picks For Infants
@@ -237,7 +237,7 @@ Rolling toys for infants are interactive playthings that roll or move. They enco
 
 Infants can start playing with rolling toys around 3 to 6 months. At this age, babies begin to grasp objects and enjoy watching movement.
 
-### How Do Rolling Toys Benefit **[Infant Development](https://www.amazon.com/s?k=infant+developmental+toys&tag=gearcookware-20)**?
+### How Do Rolling Toys Benefit **[Infant Development](https://www.amazon.com/s?k=infant+developmental+toys&tag=mofb05-20)**?
 
 Rolling toys help improve infants’ motor skills, coordination, and spatial awareness. They also promote curiosity, problem-solving, and early cognitive growth.
 

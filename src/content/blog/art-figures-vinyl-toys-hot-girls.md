@@ -22,10 +22,10 @@ Another intriguing option is the JC Toys La Newborn Baby Doll. This anatomically
 
 
 
-## <a href="https://www.amazon.com/dp/B0B4ZR7K76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Art Cover: Brandalised - Flying Ballon Girl</a>
+## <a href="https://www.amazon.com/dp/B0B4ZR7K76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Art Cover: Brandalised - Flying Ballon Girl</a>
 
 
-<a href="https://www.amazon.com/dp/B0B4ZR7K76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Art Cover: Brandalised - Flying Ballon Girl - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Model Figure for Collectors and Display" src="https://m.media-amazon.com/images/I/41trTtltxXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B4ZR7K76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Art Cover: Brandalised - Flying Ballon Girl - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Model Figure for Collectors and Display" src="https://m.media-amazon.com/images/I/41trTtltxXL._SL500_.jpg"/></a>
 
 
 The **Funko POP! Art Cover: Brandalised - Flying Ballon Girl** is perfect for both **kids and adults** who appreciate unique **collectable vinyl figures** and seek a standout piece for their display or collection. Ideal for **art lovers**, **pop culture enthusiasts**, and **gift seekers**, this figure combines creativity with official merchandise quality, making it a great addition to any home or office.
@@ -47,10 +47,10 @@ The **Flying Ballon Girl** figure is crafted with attention to detail, highlight
 
 Made by the renowned **Funko brand**, this model figure promises durability and a high-quality finish, perfect for long-term collectors. Whether displayed individually or as part of a larger collection, it offers an artistic flair and pop culture edge that enhances any environment. Its appeal to both **kids and adults** makes it a thoughtful gift, especially for those who appreciate modern art and collectible figures.
 
-## <a href="https://www.amazon.com/dp/B07X9TPVH8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">La Newborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B07X9TPVH8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">La Newborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B07X9TPVH8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (18111)"="" +="" 2="" 9="" ages="" alt="JC Toys | La Newborn | All-Vinyl Anatomically Correct Real Girl 17" and="" baby="" berenguer="" by="" deluxe="" designed="" doll="" gift="" outfit="" piece="" pink="" set="" src="https://m.media-amazon.com/images/I/41GfKU15QJL._SL500_.jpg" white="" |=""/></a>
+<a href="https://www.amazon.com/dp/B07X9TPVH8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (18111)"="" +="" 2="" 9="" ages="" alt="JC Toys | La Newborn | All-Vinyl Anatomically Correct Real Girl 17" and="" baby="" berenguer="" by="" deluxe="" designed="" doll="" gift="" outfit="" piece="" pink="" set="" src="https://m.media-amazon.com/images/I/41GfKU15QJL._SL500_.jpg" white="" |=""/></a>
 
 
 The **JC Toys La Newborn All-Vinyl Anatomically Correct Real Girl 17" Baby Doll** is perfect for young children aged **2 and up** who enjoy nurturing play and realistic dolls. Ideal for parents and gift buyers looking for a high-quality, lifelike baby doll that encourages imaginative role-playing and care-taking skills, this doll is also suited for collectors of anatomically correct dolls designed with attention to detail.

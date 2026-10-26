@@ -23,10 +23,10 @@ Consider the number of channels; more channels mean better control over various 
 
 
 
-## <a href="https://www.amazon.com/dp/B0CR659BH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Flysky Fs-gt3b Rc Transmitter &amp; Fs-gr3e Receiver</a>
+## <a href="https://www.amazon.com/dp/B0CR659BH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Flysky Fs-gt3b Rc Transmitter &amp; Fs-gr3e Receiver</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR659BH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Flysky FS-GT3B Rc Transmitter &amp; FS-GR3E Receiver, 2.4Ghz 3 Channel Rc Car Remote Controller and Receiver" src="https://m.media-amazon.com/images/I/41WmYtjbCPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR659BH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Flysky FS-GT3B Rc Transmitter &amp; FS-GR3E Receiver, 2.4Ghz 3 Channel Rc Car Remote Controller and Receiver" src="https://m.media-amazon.com/images/I/41WmYtjbCPL._SL500_.jpg"/></a>
 
 
 The **Flysky FS-GT3B Rc Transmitter & FS-GR3E Receiver** is ideal for hobbyists and enthusiasts who are looking for a reliable and affordable **3 channel RC car remote controller**. Whether you are a beginner wanting to explore remote-controlled cars or an experienced user seeking a compact and efficient transmitter system, this set offers an excellent balance of performance and ease of use.
@@ -47,10 +47,10 @@ The **Flysky FS-GT3B transmitter** is designed to offer precise and responsive c
 
 Additionally, the compact dimensions make this transmitter highly portable and easy to handle, allowing users to enjoy extended periods of use without fatigue. The straightforward setup process means you can get your RC car up and running quickly, making it an excellent option for beginners as well as seasoned hobbyists looking for a no-fuss controller. Overall, the Flysky FS-GT3B and FS-GR3E combo offers solid functionality and value in a compact package.
 
-## <a href="https://www.amazon.com/dp/B07Q112TQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dumborc X6 6 Channel Rc Transmitter And Receiver</a>
+## <a href="https://www.amazon.com/dp/B07Q112TQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dumborc X6 6 Channel Rc Transmitter And Receiver</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q112TQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DUMBORC X6 6 Channel Rc Transmitter and Receiver P6FG Built-in Gyro Mixed Mode Out of Control Protection RC Controller for Remote Car/Boat/Tank" src="https://m.media-amazon.com/images/I/412nHSdQ1hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q112TQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DUMBORC X6 6 Channel Rc Transmitter and Receiver P6FG Built-in Gyro Mixed Mode Out of Control Protection RC Controller for Remote Car/Boat/Tank" src="https://m.media-amazon.com/images/I/412nHSdQ1hL._SL500_.jpg"/></a>
 
 
 The **DUMBORC X6 6 Channel Rc Transmitter and Receiver P6FG** is ideal for hobbyists and enthusiasts who demand precision and reliability in controlling their remote cars, boats, or tanks. Whether you're a beginner looking to upgrade your RC controller or an experienced user seeking advanced features like built-in gyro stabilization and mixed mode control, this device offers a comprehensive solution for enhanced maneuverability and safety.
@@ -73,10 +73,10 @@ The **DUMBORC X6** features a robust **6 channel transmitter and receiver system
 
 Additionally, the transmitter supports **mixed mode** operation, giving users the flexibility to customize control layouts according to their preferences or specific vehicle requirements. Safety is also prioritized with the **out of control protection** feature, which prevents accidents by automatically stopping the vehicle if the signal is lost. With its ergonomic dimensions and lightweight design, the **DUMBORC X6** offers comfort during extended use, making it a reliable choice for both casual and competitive RC enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0DY76BDKX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hobby Fans Rc Radio System 4ch 2.4g Rc Transmitter With Receiver And Lanyard</a>
+## <a href="https://www.amazon.com/dp/B0DY76BDKX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hobby Fans Rc Radio System 4ch 2.4g Rc Transmitter With Receiver And Lanyard</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY76BDKX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hobby Fans RC Radio System 4CH 2.4G RC Transmitter with Receiver and Lanyard Anti-Jamming Remote Controller for RC Car Crawler Boat, Blue" src="https://m.media-amazon.com/images/I/41SEeLaQbGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY76BDKX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hobby Fans RC Radio System 4CH 2.4G RC Transmitter with Receiver and Lanyard Anti-Jamming Remote Controller for RC Car Crawler Boat, Blue" src="https://m.media-amazon.com/images/I/41SEeLaQbGL._SL500_.jpg"/></a>
 
 
 The **Hobby Fans RC Radio System 4CH 2.4G RC Transmitter** is ideal for hobbyists and enthusiasts looking for a reliable and user-friendly remote controller for their **RC cars, crawlers, and boats**. Whether you are a beginner or an experienced user, this system offers precise control and durability, making it suitable for casual play or competitive use. Its anti-jamming feature ensures uninterrupted performance, perfect for those who want a seamless and responsive driving experience.
@@ -100,10 +100,10 @@ The **Hobby Fans RC Radio System** features a **4CH 2.4G transmitter** that offe
 
 Additionally, the system’s **anti-jamming remote controller** technology is designed to maintain a stable connection even in environments with potential signal interference. This is especially beneficial for users operating RC vehicles in groups or crowded areas. The ergonomic design and lightweight build of the transmitter, along with the handy lanyard, provide comfort and convenience during extended use, making it a practical choice for both casual hobbyists and serious RC enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0FCFHS7BL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meus Racing Me-8b Rc Transmitter 8 Channels 2.4ghz And Receiver</a>
+## <a href="https://www.amazon.com/dp/B0FCFHS7BL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meus Racing Me-8b Rc Transmitter 8 Channels 2.4ghz And Receiver</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCFHS7BL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEUS RACING ME-8B RC Transmitter 8 Channels 2.4GHz and Receiver for 1/8 1/10 1/18 1/24 RC Crawler Car Boat TRX4 TRX4M SCX10 SCX24 Upgrades Parts (Orange)" src="https://m.media-amazon.com/images/I/411330z-RAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCFHS7BL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEUS RACING ME-8B RC Transmitter 8 Channels 2.4GHz and Receiver for 1/8 1/10 1/18 1/24 RC Crawler Car Boat TRX4 TRX4M SCX10 SCX24 Upgrades Parts (Orange)" src="https://m.media-amazon.com/images/I/411330z-RAL._SL500_.jpg"/></a>
 
 
 The **MEUS RACING ME-8B RC Transmitter** with 8 channels and 2.4GHz frequency is ideal for hobbyists and enthusiasts who own 1/8, 1/10, 1/18, or 1/24 scale RC crawler cars, boats, or upgrade parts such as TRX4, TRX4M, SCX10, and SCX24 models. If you are looking for a reliable, versatile, and compact remote control system to enhance your RC vehicle's performance, this product is tailored for you.
@@ -126,10 +126,10 @@ The **MEUS RACING ME-8B RC Transmitter** stands out with its ability to support 
 
 Additionally, the transmitter's compatibility with a wide range of scales and models like the **TRX4** and **SCX10** series means it can be used across multiple vehicles, offering great value. The bright orange color not only adds a sporty look but also makes it easier to locate the device during use or in a crowded hobby area. Overall, this transmitter provides a balance of advanced features and practical design for enhanced RC vehicle control.
 
-## <a href="https://www.amazon.com/dp/B07DPNNTWT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Radiolink Rc6gs V3 7 Channels Rc Transmitter And Waterproof Gyro Receiver R7fg</a>
+## <a href="https://www.amazon.com/dp/B07DPNNTWT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Radiolink Rc6gs V3 7 Channels Rc Transmitter And Waterproof Gyro Receiver R7fg</a>
 
 
-<a href="https://www.amazon.com/dp/B07DPNNTWT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Radiolink RC6GS V3 7 Channels RC Transmitter and Waterproof Gyro Receiver R7FG, 30 Models Storage 2.4Ghz Voltage Telemetry Surface Remote Radio Controller for RC Crawler, Drifting, Car and Boat" src="https://m.media-amazon.com/images/I/41xzel85GZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DPNNTWT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Radiolink RC6GS V3 7 Channels RC Transmitter and Waterproof Gyro Receiver R7FG, 30 Models Storage 2.4Ghz Voltage Telemetry Surface Remote Radio Controller for RC Crawler, Drifting, Car and Boat" src="https://m.media-amazon.com/images/I/41xzel85GZL._SL500_.jpg"/></a>
 
 
 The **Radiolink RC6GS V3 7 Channels RC Transmitter** and **Waterproof Gyro Receiver R7FG** is ideal for hobbyists and enthusiasts who demand precise control and reliability in their RC vehicles. Whether you're into **RC crawling**, **drifting**, or operating **RC cars and boats**, this remote controller is designed for users who want advanced features combined with durable performance. If you need a versatile transmitter that supports multiple models and offers telemetry data, this product is an excellent choice.
@@ -152,10 +152,10 @@ The **Radiolink RC6GS V3** offers an impressive range of features tailored for s
 
 The compact design of the transmitter, measuring just under 9 inches in length and weighing less than a pound, makes it comfortable for extended use. The **waterproof gyro receiver R7FG** is a standout feature, providing enhanced stability and control in wet or challenging environments, which is especially beneficial for outdoor enthusiasts who often operate their RC cars or boats in varied conditions. Overall, the Radiolink RC6GS V3 is a versatile and reliable controller suited for intermediate to advanced RC hobbyists who value precision and durability.
 
-## <a href="https://www.amazon.com/dp/B07DPMVVKN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Radiolink Rc4gs V3 5 Channels Rc Transmitter And Receiver</a>
+## <a href="https://www.amazon.com/dp/B07DPMVVKN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Radiolink Rc4gs V3 5 Channels Rc Transmitter And Receiver</a>
 
 
-<a href="https://www.amazon.com/dp/B07DPMVVKN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Radiolink RC4GS V3 5 Channels RC Transmitter and Receiver, 2.4GHz Surface Remote Controller R6FG Gyro RX Combo, 30 Models Storage for RC Crawler, Drifting, Bash, Buggy Cars and Boats" src="https://m.media-amazon.com/images/I/41vLIm2EOQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DPMVVKN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Radiolink RC4GS V3 5 Channels RC Transmitter and Receiver, 2.4GHz Surface Remote Controller R6FG Gyro RX Combo, 30 Models Storage for RC Crawler, Drifting, Bash, Buggy Cars and Boats" src="https://m.media-amazon.com/images/I/41vLIm2EOQL._SL500_.jpg"/></a>
 
 
 The **Radiolink RC4GS V3 5 Channels RC Transmitter and Receiver** is ideal for RC enthusiasts who demand precision and versatility. Whether you're into **RC crawlers, drifting, bash, buggy cars, or boats**, this remote controller combo is designed for hobbyists seeking reliable performance and extensive model storage capabilities. Its user-friendly interface and robust build make it perfect for both beginners and seasoned RC pilots looking to upgrade their control systems.
@@ -178,10 +178,10 @@ The **Radiolink RC4GS V3** transmitter and receiver combo boasts an ergonomic de
 
 Another key advantage is the ability to store up to **30 different models**, which is especially beneficial for users who operate multiple RC vehicles. This feature allows seamless switching without the need to recalibrate or manually adjust settings for each vehicle. Coupled with its lightweight and compact form factor, the Radiolink RC4GS V3 offers a balanced combination of performance, flexibility, and user comfort, making it a great investment for anyone serious about RC hobbies.
 
-## <a href="https://www.amazon.com/dp/B0DDXWM2BW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hobby Fans Rc Radio System 4ch 2.4g Rc Transmitter With Receiver And Lanyard</a>
+## <a href="https://www.amazon.com/dp/B0DDXWM2BW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hobby Fans Rc Radio System 4ch 2.4g Rc Transmitter With Receiver And Lanyard</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDXWM2BW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hobby Fans RC Radio System 4CH 2.4G RC Transmitter with Receiver and Lanyard Anti-Jamming Remote Controller for RC Car Crawler Boat" src="https://m.media-amazon.com/images/I/41VnuinCpfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDXWM2BW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hobby Fans RC Radio System 4CH 2.4G RC Transmitter with Receiver and Lanyard Anti-Jamming Remote Controller for RC Car Crawler Boat" src="https://m.media-amazon.com/images/I/41VnuinCpfL._SL500_.jpg"/></a>
 
 
 The **Hobby Fans RC Radio System 4CH 2.4G RC Transmitter with Receiver and Lanyard** is ideal for hobbyists and enthusiasts who enjoy remote-controlled vehicles such as RC cars, crawlers, and boats. If you are looking for a reliable and easy-to-use remote controller with anti-jamming capabilities, this product is designed to meet your needs. Whether you're a beginner or an experienced RC operator, this system offers precise control and durability to enhance your RC experience.
@@ -204,10 +204,10 @@ The **Hobby Fans RC Radio System** stands out with its efficient use of the **2.
 
 With four channels available, this transmitter offers sufficient control options for various functions such as steering, throttle, and auxiliary controls. This flexibility is beneficial for users who want to customize their RC experience or control more complex vehicles like crawlers and boats. The sturdy construction and stylish **black and orange** colors not only provide durability but also make the device visually distinctive, reducing the chances of misplacing it during activities.
 
-## <a href="https://www.amazon.com/dp/B0BWMLC875?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dtxmx Rc Radio Transmitter Radiolink Rc6gs V3 7 Channels Controller And R7fg Gyro Receiver</a>
+## <a href="https://www.amazon.com/dp/B0BWMLC875?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dtxmx Rc Radio Transmitter Radiolink Rc6gs V3 7 Channels Controller And R7fg Gyro Receiver</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWMLC875?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DTXMX RC Radio Transmitter, Radiolink RC6GS V3 7 Channels Controller and R7FG Gyro Receiver, 2.4Ghz Voltage Telemetry &amp; Long Range Control 30 Models Storage for RC Car, Boat, Tanks, Crawler, Buggy" src="https://m.media-amazon.com/images/I/41++IauYfXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWMLC875?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DTXMX RC Radio Transmitter, Radiolink RC6GS V3 7 Channels Controller and R7FG Gyro Receiver, 2.4Ghz Voltage Telemetry &amp; Long Range Control 30 Models Storage for RC Car, Boat, Tanks, Crawler, Buggy" src="https://m.media-amazon.com/images/I/41++IauYfXL._SL500_.jpg"/></a>
 
 
 The **DTXMX RC Radio Transmitter** paired with the **Radiolink RC6GS V3 7 Channels Controller** and **R7FG Gyro Receiver** is ideal for RC enthusiasts who demand precision and versatility. Whether you are a hobbyist controlling an **RC car, boat, tank, crawler, or buggy**, this controller set offers advanced features that cater to both beginners and experienced users looking for long-range control and telemetry feedback.
@@ -230,10 +230,10 @@ The **DTXMX RC Radio Transmitter** features a robust and ergonomic design with d
 
 Additionally, the transmitter operates on a reliable **2.4Ghz frequency** that supports long-range connectivity, making it suitable for competitive or recreational RC use without signal loss. The inclusion of **voltage telemetry** allows users to monitor battery status in real-time, preventing unexpected power failures. With storage capacity for **30 different models**, users can quickly switch between different vehicles without needing to reconfigure settings, making this system highly versatile and user-friendly.
 
-## <a href="https://www.amazon.com/dp/B0CR1PC7TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dumborc Ddf-350</a>
+## <a href="https://www.amazon.com/dp/B0CR1PC7TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dumborc Ddf-350</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR1PC7TR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DUMBORC DDF-350 with P10F RC Radio Transmitter and Receiver 10 Channel HD Screen 10CH Remote Controller for RC Car Truck Crawler Boat Tank" src="https://m.media-amazon.com/images/I/41-17d+uoHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR1PC7TR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DUMBORC DDF-350 with P10F RC Radio Transmitter and Receiver 10 Channel HD Screen 10CH Remote Controller for RC Car Truck Crawler Boat Tank" src="https://m.media-amazon.com/images/I/41-17d+uoHL._SL500_.jpg"/></a>
 
 
 The **DUMBORC DDF-350 with P10F RC Radio Transmitter and Receiver** is ideal for hobbyists and enthusiasts who enjoy controlling **RC cars, trucks, crawlers, boats,** or **tanks**. Whether you're a beginner looking for a reliable remote controller or an experienced user seeking a versatile 10-channel system with an **HD screen**, this product offers the precision and functionality needed for enhanced control and performance.
@@ -256,10 +256,10 @@ The **DUMBORC DDF-350 with P10F** features a robust **10-channel remote controll
 
 This remote controller's compatibility with a wide range of RC vehicles such as cars, trucks, crawlers, boats, and tanks makes it a versatile choice. The dependable **radio transmitter and receiver** ensure minimal signal interference and a reliable connection, enabling precise and responsive maneuvering. Overall, the **DUMBORC DDF-350** combines advanced features with user-friendly operation to deliver excellent performance for both casual and competitive RC enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B099ZPGGS9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ata Hobby Radiolink Rc4gs V3 5 Channel Rc Radio Transmitter And 2pcs R6fg Receiver Kit</a>
+## <a href="https://www.amazon.com/dp/B099ZPGGS9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ata Hobby Radiolink Rc4gs V3 5 Channel Rc Radio Transmitter And 2pcs R6fg Receiver Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B099ZPGGS9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ATA HOBBY Radiolink RC4GS V3(V2 Upgrade) 5 Channel RC Radio Transmitter and 2Pcs R6FG Receiver with Gyro 2.4ghz 400M Remote Controller Kit for Car/Boat/Crawler/Tank/Drifting/Buggy with Lanyard" src="https://m.media-amazon.com/images/I/4134L38oR3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099ZPGGS9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ATA HOBBY Radiolink RC4GS V3(V2 Upgrade) 5 Channel RC Radio Transmitter and 2Pcs R6FG Receiver with Gyro 2.4ghz 400M Remote Controller Kit for Car/Boat/Crawler/Tank/Drifting/Buggy with Lanyard" src="https://m.media-amazon.com/images/I/4134L38oR3L._SL500_.jpg"/></a>
 
 
 The **ATA HOBBY Radiolink RC4GS V3(V2 Upgrade)** is ideal for remote control enthusiasts looking for a versatile and reliable transmitter kit. Whether you are a hobbyist controlling cars, boats, crawlers, tanks, drifting vehicles, or buggies, this 5-channel RC radio transmitter combined with two R6FG receivers is designed to meet your needs with precision and ease. Its integrated gyro functionality and 2.4GHz frequency ensure smooth control over a wide range, making it suitable for both beginners and experienced RC users.

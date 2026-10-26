@@ -23,10 +23,10 @@ Younger fans can enjoy the 12-inch Riddler action figure, perfect for imaginativ
 
 
 
-## <a href="https://www.amazon.com/dp/B0D3FN3F82?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Multiverse The Riddler</a>
+## <a href="https://www.amazon.com/dp/B0D3FN3F82?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Multiverse The Riddler</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3FN3F82?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - DC Multiverse The Riddler (Batman Forever) 7in Build-A Figure" src="https://m.media-amazon.com/images/I/31xxFxRuLLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3FN3F82?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - DC Multiverse The Riddler (Batman Forever) 7in Build-A Figure" src="https://m.media-amazon.com/images/I/31xxFxRuLLL._SL500_.jpg"/></a>
 
 
 The **McFarlane Toys - DC Multiverse The Riddler (Batman Forever) 7in Build-A Figure** is ideal for collectors and fans of the **Batman Forever** series who appreciate detailed and articulated action figures. If you enjoy building custom figures or are looking to expand your **DC Multiverse** collection with a character as iconic as **The Riddler**, this item is perfect for you. It’s also suitable for those who value high-quality craftsmanship in their collectibles.
@@ -49,12 +49,12 @@ The **McFarlane Toys - DC Multiverse The Riddler (Batman Forever) 7in Build-A Fi
 
 Another notable feature is the inclusion of **Build-A-Figure** parts, which allow collectors to assemble another figure by combining components from multiple figures in the series. This adds an interactive and rewarding element to the purchase. Crafted by **McFarlane Toys**, the figure benefits from the brand’s expertise in producing high-quality, articulated collectibles that are both durable and visually appealing. Overall, this figure offers both aesthetic and functional value for fans and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D3FN3F82?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D3FN3F82?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DJDNXLHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Forever Dc Multiverse Batman And Riddler Action Figures</a>
+## <a href="https://www.amazon.com/dp/B0DJDNXLHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Forever Dc Multiverse Batman And Riddler Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJDNXLHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys Batman Forever DC Multiverse 7-Inch Batman and Riddler Action Figures (2 Items)" src="https://m.media-amazon.com/images/I/41sASFuaGnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJDNXLHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys Batman Forever DC Multiverse 7-Inch Batman and Riddler Action Figures (2 Items)" src="https://m.media-amazon.com/images/I/41sASFuaGnL._SL500_.jpg"/></a>
 
 
 The **McFarlane Toys Batman Forever DC Multiverse 7-Inch Batman and Riddler Action Figures** are perfect for collectors and fans of the iconic Batman franchise, especially those who appreciate detailed and high-quality action figures. Ideal for both adults and older children, these figures offer a nostalgic connection to the **Batman Forever** movie and make excellent additions to any superhero collection.
@@ -77,12 +77,12 @@ The **McFarlane Toys Batman Forever DC Multiverse 7-Inch Batman and Riddler Acti
 
 Aside from their visual appeal, these action figures are crafted with durable materials to ensure longevity. Fans will appreciate the inclusion of both **Batman** and **Riddler** in one set, allowing for interactive play scenarios or a more complete collection. Manufactured by **McFarlane Toys**, a brand renowned for its commitment to quality and authenticity, these figures bring the excitement of the **DC Multiverse** to life in a tangible and collectible form.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DJDNXLHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DJDNXLHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001K5X2L8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jim Carrey As The Riddler Action Figure</a>
+## <a href="https://www.amazon.com/dp/B001K5X2L8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jim Carrey As The Riddler Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B001K5X2L8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" action="" alt="5" as="" batman="" brain-drain="" carrey="" figure="" forever:="" helmet!="" jim="" movie"="" riddler="" src="https://m.media-amazon.com/images/I/41fj74y6wkL._SL500_.jpg" the="" trapping="" with=""/></a>
+<a href="https://www.amazon.com/dp/B001K5X2L8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" action="" alt="5" as="" batman="" brain-drain="" carrey="" figure="" forever:="" helmet!="" jim="" movie"="" riddler="" src="https://m.media-amazon.com/images/I/41fj74y6wkL._SL500_.jpg" the="" trapping="" with=""/></a>
 
 
 The **5" Jim Carrey As the Riddler Action Figure with Trapping Brain-Drain Helmet** is perfect for avid collectors and fans of the **Batman Forever** movie. Ideal for those who appreciate detailed memorabilia and want to own a piece of cinematic history, this figure is a must-have for enthusiasts of superhero action figures and Jim Carrey’s iconic portrayal of the Riddler.
@@ -104,12 +104,12 @@ The **5" Jim Carrey As the Riddler Action Figure** stands out with its faithful 
 
 One of the key features of this action figure is the **Trapping Brain-Drain Helmet**, which adds an interactive element for fans. This helmet not only enhances the figure’s authenticity but also offers a fun way to engage with the toy, reflecting the Riddler’s mischievous personality. Overall, this figure delivers both aesthetic appeal and collectible value for fans of the Batman franchise and Jim Carrey alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001K5X2L8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001K5X2L8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08GQ8MRGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman The Riddler Action Figure</a>
+## <a href="https://www.amazon.com/dp/B08GQ8MRGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman The Riddler Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B08GQ8MRGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Batman 12-inch The Riddler Action Figure, Kids Toys for Boys Aged 3 and up" src="https://m.media-amazon.com/images/I/31C4xX21FwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GQ8MRGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Batman 12-inch The Riddler Action Figure, Kids Toys for Boys Aged 3 and up" src="https://m.media-amazon.com/images/I/31C4xX21FwL._SL500_.jpg"/></a>
 
 
 Ideal for **young Batman fans** and collectors alike, the **Batman 12-inch The Riddler Action Figure** is perfect for **boys aged 3 and up** who enjoy imaginative play and superhero adventures. This figure appeals to those who appreciate detailed craftsmanship combined with the excitement of DC Comics characters.
@@ -132,12 +132,12 @@ The **Batman 12-inch The Riddler Action Figure** stands out with its impressive 
 
 Additionally, the figure’s dimensions and build make it a versatile piece for display on shelves or in collections. Being a **First Edition** release adds exclusivity and potential future value. Overall, this action figure balances playability and collectibility, making it a great gift choice for young fans of Batman and DC Comics.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08GQ8MRGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08GQ8MRGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07ZZP35NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Heroes: Batman Forever - Riddler</a>
+## <a href="https://www.amazon.com/dp/B07ZZP35NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Heroes: Batman Forever - Riddler</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZZP35NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko Pop! Heroes: Batman Forever- Riddler" src="https://m.media-amazon.com/images/I/41Y21+euVeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZZP35NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko Pop! Heroes: Batman Forever- Riddler" src="https://m.media-amazon.com/images/I/41Y21+euVeL._SL500_.jpg"/></a>
 
 
 The **Funko Pop! Heroes: Batman Forever - Riddler** is ideal for collectors and fans of the Batman franchise, especially those who appreciate unique and vibrant representations of iconic characters. This item is perfect for individuals looking to add a playful yet detailed figure to their collection, or for gifting to superhero enthusiasts who enjoy displaying their fandom in a stylish way.
@@ -158,12 +158,12 @@ The **Funko Pop! Heroes: Batman Forever - Riddler** figure showcases a meticulou
 
 Beyond aesthetics, this collectible offers fans a tangible connection to the Batman universe, making it more than just a decorative piece. Its lightweight and durable construction by **Funko** means it can be safely handled or transported, ideal for collectors who attend conventions or swap meets. Overall, this figure blends quality, design, and fandom appeal, making it a smart purchase for superhero enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07ZZP35NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07ZZP35NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DGY49F3J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Riddler</a>
+## <a href="https://www.amazon.com/dp/B0DGY49F3J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Riddler</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGY49F3J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - The New Batman Adventures The Riddler 6in Scale Action Figure" src="https://m.media-amazon.com/images/I/310g9sJsfhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGY49F3J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - The New Batman Adventures The Riddler 6in Scale Action Figure" src="https://m.media-amazon.com/images/I/310g9sJsfhL._SL500_.jpg"/></a>
 
 
 The **McFarlane Toys - The New Batman Adventures The Riddler 6in Scale Action Figure** is ideal for collectors and fans of the iconic Batman series, especially those who appreciate detailed and high-quality action figures. If you enjoy displaying memorabilia from classic animated shows or are looking for a unique gift for a superhero enthusiast, this figure is an excellent choice. Its size and craftsmanship make it perfect for both casual collectors and dedicated fans.
@@ -185,12 +185,12 @@ This **6-inch scale action figure** stands at 11 inches tall and measures 6 inch
 
 Beyond its visual appeal, the figure’s size and weight—approximately 0.22 pounds—make it easy to display or carry to conventions or meetups. While the standard edition lacks extra accessories, its high-quality construction and faithful representation provide great value for collectors looking to expand their Batman universe collection. Whether displayed on a shelf or used in photography, this action figure offers a blend of nostalgia and craftsmanship that appeals to fans of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DGY49F3J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DGY49F3J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CPK54GF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Retro The Riddler</a>
+## <a href="https://www.amazon.com/dp/B0CPK54GF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Retro The Riddler</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPK54GF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - DC Retro The Riddler (The New Adventures of Batman) 6in Action Figure" src="https://m.media-amazon.com/images/I/31m-0SY6mnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPK54GF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - DC Retro The Riddler (The New Adventures of Batman) 6in Action Figure" src="https://m.media-amazon.com/images/I/31m-0SY6mnL._SL500_.jpg"/></a>
 
 
 The **McFarlane Toys - DC Retro The Riddler (The New Adventures of Batman) 6in Action Figure** is perfect for collectors and fans of classic superhero memorabilia. Ideal for those who appreciate detailed craftsmanship and nostalgic representation of iconic characters, this figure is a must-have for enthusiasts of **DC Comics**, especially fans of **The Riddler** and **Batman**. Whether you're a seasoned collector or a casual fan looking to enhance your display, this action figure offers both aesthetic appeal and collectible value.
@@ -213,12 +213,12 @@ This **action figure** stands out with its faithful representation of the classi
 
 Beyond its visual appeal, the figure serves as a nostalgic reminder of the beloved era of The New Adventures of Batman, bringing a sense of excitement and connection to fans of the series. While the Standard Edition does not include extra accessories, its high-quality build and detailed sculpting provide excellent value for those looking to celebrate the legacy of one of DC’s most enigmatic villains. Overall, this figure is a great blend of design, authenticity, and collectible worth for any fan.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CPK54GF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CPK54GF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D3FNPDNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcfarlane Toys - Dc Multiverse Two-face (batman Forever) 7in Build-a Figure</a>
+## <a href="https://www.amazon.com/dp/B0D3FNPDNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mcfarlane Toys - Dc Multiverse Two-face (batman Forever) 7in Build-a Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3FNPDNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - DC Multiverse Two-Face (Batman Forever) 7in Build-A Figure" src="https://m.media-amazon.com/images/I/31uGqmRA35L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3FNPDNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="McFarlane Toys - DC Multiverse Two-Face (Batman Forever) 7in Build-A Figure" src="https://m.media-amazon.com/images/I/31uGqmRA35L._SL500_.jpg"/></a>
 
 
 The **McFarlane Toys - DC Multiverse Two-Face (Batman Forever) 7in Build-A Figure** is ideal for avid collectors and fans of the **Batman Forever** series who appreciate detailed action figures. This item is perfect for those who want to add a unique and high-quality piece to their **DC Multiverse** collection or for enthusiasts looking to recreate iconic scenes with precision. Its standard edition status and build-a-figure feature make it a must-have for both casual fans and serious collectors.
@@ -241,12 +241,12 @@ The **McFarlane Toys - DC Multiverse Two-Face (Batman Forever) 7in Build-A Figur
 
 Measuring **11 inches tall** and weighing only **0.1 pounds**, this figure strikes a balance between size and convenience, making it ideal for display in various settings. The lightweight design allows for easy posing and repositioning, giving users the flexibility to showcase Two-Face in dynamic stances or classic poses. Overall, this figure is a fantastic addition for anyone looking to celebrate the legacy of **Batman Forever** and the DC Multiverse series.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D3FNPDNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D3FNPDNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08SBLJNFJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Batman 2021 Riddler 4-inch Action Figure</a>
+## <a href="https://www.amazon.com/dp/B08SBLJNFJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Batman 2021 Riddler 4-inch Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B08SBLJNFJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Batman 2021 Riddler 4-inch Action Figure by Spin Master" src="https://m.media-amazon.com/images/I/51v27X-lnIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08SBLJNFJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Batman 2021 Riddler 4-inch Action Figure by Spin Master" src="https://m.media-amazon.com/images/I/51v27X-lnIL._SL500_.jpg"/></a>
 
 
 The **DC Batman 2021 Riddler 4-inch Action Figure by Spin Master** is perfect for **collectors**, **Batman enthusiasts**, and **children** who enjoy imaginative play with superhero toys. If you are looking for a detailed and compact figure that represents the iconic Riddler character from the Batman universe, this item is an excellent choice. It’s also ideal for fans who appreciate officially licensed merchandise with quality craftsmanship.
@@ -268,12 +268,12 @@ The **DC Batman 2021 Riddler 4-inch Action Figure** boasts a well-crafted design
 
 Beyond its aesthetic appeal, the action figure is manufactured by **Spin Master**, a trusted name known for producing durable and high-quality toys. This ensures that users receive a product that can withstand regular handling and play. Whether used as a display piece or part of imaginative superhero battles, the figure offers versatility and durability. Its size also makes it easy to carry around, making it a great companion for on-the-go entertainment or collector meetups.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08SBLJNFJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08SBLJNFJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09N3KP8C2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Dc's Batman Forever The Riddler</a>
+## <a href="https://www.amazon.com/dp/B09N3KP8C2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Dc's Batman Forever The Riddler</a>
 
 
-<a href="https://www.amazon.com/dp/B09N3KP8C2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! DC's Batman Forever The Riddler Art Series with Protector" src="https://m.media-amazon.com/images/I/41xlpEjfFWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09N3KP8C2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! DC's Batman Forever The Riddler Art Series with Protector" src="https://m.media-amazon.com/images/I/41xlpEjfFWL._SL500_.jpg"/></a>
 
 
 The **Funko POP! DC's Batman Forever The Riddler Art Series with Protector** is perfect for avid collectors and fans of the **DC Universe**, especially those who admire the iconic character **The Riddler**. If you are someone who values detailed, stylized collectibles that showcase your favorite superheroes and villains, this item is a must-have addition to your collection.
@@ -295,7 +295,7 @@ The **Funko POP! The Riddler Art Series** stands out with its meticulous craftsm
 
 Beyond aesthetics, the inclusion of a **protector case** adds significant value by preserving the figure's condition against dust and accidental damage. This makes it an excellent choice for collectors who prioritize maintaining the mint state of their collectibles. Whether displayed individually or as part of a broader **DC collectibles** lineup, this Funko POP! figure offers both visual appeal and lasting durability.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09N3KP8C2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09N3KP8C2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

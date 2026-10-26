@@ -23,10 +23,10 @@ Classic games like Monopoly and Battleship mix strategy and luck, perfect for al
 
 
 
-## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
+## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
 
 
 **The Original TAPPLE** is perfect for families and friends who enjoy fast-paced, interactive games that challenge their quick thinking and vocabulary skills. Ideal for players aged 8 and up, this game suits those looking to engage in a fun, educational activity that promotes word recall and mental agility while accommodating groups of 2 to 8 players.
@@ -50,10 +50,10 @@ The **Original TAPPLE** stands out with its innovative category wheel and timer 
 
 Designed by **USAOPOLY**, the game is compact and lightweight, making it easy to set up and carry anywhere. Its vibrant **blue color** and sturdy construction ensure it appeals visually while withstanding repeated use. The short **15-20 minute playtime** allows for multiple rounds without losing players’ attention, perfect for family game nights or casual gatherings.
 
-## <a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
+## <a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
 
 
 The **Wavelength Party Game – A Mind Reading Party Game** is perfect for groups of friends, family gatherings, and party enthusiasts who enjoy interactive and engaging games. If you are someone who loves to challenge your intuition and communication skills while having fun, this game is an ideal choice. It is designed for players who appreciate a mix of creativity, strategy, and social interaction in their game nights.
@@ -76,10 +76,10 @@ The **Wavelength Party Game**, manufactured by **Palm Court** under the **CMYK**
 
 One of the standout features of this game is its ability to blend psychological insight with fun, making it more than just a typical party game. Players take turns giving clues to help others guess a target concept on a spectrum, encouraging strategic thinking and intuition. This not only makes for an entertaining experience but also builds trust and cooperation within groups. Overall, the **Wavelength Party Game** offers a memorable and enriching way to bring people together and spark lively conversations.
 
-## <a href="https://www.amazon.com/dp/B084D2XQ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hues And Cues</a>
+## <a href="https://www.amazon.com/dp/B084D2XQ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hues And Cues</a>
 
 
-<a href="https://www.amazon.com/dp/B084D2XQ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUES and CUES - Vibrant Color Guessing Board Game for 3-10 Players Ages 8+, Connect Clues and Guess from 480 Color Squares" src="https://m.media-amazon.com/images/I/51T6eBQpNnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084D2XQ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUES and CUES - Vibrant Color Guessing Board Game for 3-10 Players Ages 8+, Connect Clues and Guess from 480 Color Squares" src="https://m.media-amazon.com/images/I/51T6eBQpNnL._SL500_.jpg"/></a>
 
 
 The **HUES and CUES** board game is ideal for families, friends, and social groups who enjoy interactive and creative party games. Designed for **3-10 players aged 8 and up**, this game is perfect for those who love exploring colors, testing their perception skills, and engaging in fun, competitive guessing challenges. Whether you're hosting a game night or looking for an educational yet entertaining activity, this vibrant color guessing game offers something for everyone.
@@ -102,10 +102,10 @@ The **HUES and CUES** game stands out with its innovative concept that blends co
 
 Crafted by **USAOPOLY**, the game boasts a durable build with a sleek, multicolor palette that appeals visually and functionally. Its compact dimensions make it easy to store and transport, ideal for gatherings at home or on the go. Overall, **HUES and CUES** offers an engaging, educational experience that brings people together through the universal language of color.
 
-## <a href="https://www.amazon.com/dp/B001FA22DC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pressman Toys Mancala</a>
+## <a href="https://www.amazon.com/dp/B001FA22DC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pressman Toys Mancala</a>
 
 
-<a href="https://www.amazon.com/dp/B001FA22DC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PRESSMAN TOYS PRE442606 MANCALA-AGES 6 TO ADULT; 2-4 PLAYERS" src="https://m.media-amazon.com/images/I/51uFtYxncJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001FA22DC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PRESSMAN TOYS PRE442606 MANCALA-AGES 6 TO ADULT; 2-4 PLAYERS" src="https://m.media-amazon.com/images/I/51uFtYxncJL._SL500_.jpg"/></a>
 
 
 The **PRESSMAN TOYS PRE442606 MANCALA** is ideal for families and friends seeking a classic strategy game that is both educational and entertaining. Designed for **ages 6 to adult** and accommodating **2-4 players**, it suits game nights, classrooms, and social gatherings where players can develop critical thinking and counting skills while having fun.
@@ -126,10 +126,10 @@ The **PRESSMAN TOYS PRE442606 MANCALA** offers a timeless gameplay experience, c
 
 Additionally, its capacity for up to **4 players** makes it a great choice for small groups, enhancing social interaction and cooperative play. Whether used at home, in a classroom, or on the go, this Mancala set delivers an engaging and educational pastime that appeals to both children and adults alike.
 
-## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
+## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
 
 
 The **Monopoly Game, Family Board Games for 2 to 6 Players & Kids Ages 8 and Up**, is ideal for families and friends looking to enjoy a classic, engaging board game together. Perfect for children aged 8 and above, this game encourages strategic thinking and social interaction, making it a great choice for game nights and family gatherings. Whether you are an experienced player or new to Monopoly, this edition offers fun and excitement for all skill levels.
@@ -151,10 +151,10 @@ The **Monopoly Game Token Vote Edition** offers classic gameplay combined with a
 
 With easy-to-understand rules and a setup that accommodates up to six players, this board game fosters social skills, strategic thinking, and friendly competition. Its compact size and sturdy components make it convenient for both home use and travel. Overall, the Monopoly Token Vote Edition is a versatile and enjoyable choice for families and groups looking to create lasting memories through fun and interactive gameplay.
 
-## <a href="https://www.amazon.com/dp/B0C4CDZ818?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Taboo Uncensored Board Game</a>
+## <a href="https://www.amazon.com/dp/B0C4CDZ818?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Taboo Uncensored Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4CDZ818?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Taboo Uncensored Board Game for Adults Only | Ages 17+ | 4+ Players | 20 Mins. Avg. | Hilarious NSFW Party Games for Adults" src="https://m.media-amazon.com/images/I/410sgcgtgAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4CDZ818?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Taboo Uncensored Board Game for Adults Only | Ages 17+ | 4+ Players | 20 Mins. Avg. | Hilarious NSFW Party Games for Adults" src="https://m.media-amazon.com/images/I/410sgcgtgAL._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Taboo Uncensored Board Game for Adults Only** is ideal for groups of friends or adult party-goers looking to spice up their game night with a hilarious and edgy twist. Designed specifically for players aged **17+**, this game is perfect for those who enjoy fast-paced, entertaining challenges that push the boundaries of typical party games. If you are seeking a fun, interactive experience that encourages creativity and laughter among **4 or more players**, this game is a great choice.
@@ -177,10 +177,10 @@ The **Hasbro Gaming Taboo Uncensored** game features a dynamic and engaging form
 
 This game’s design promotes lively interaction and quick thinking, making every round unpredictable and entertaining. Its multicolor theme adds visual appeal, enhancing the overall gaming experience. Whether you’re looking to break the ice or create memorable moments with friends, the **Hasbro Gaming Taboo Uncensored Board Game** delivers a perfect balance of challenge and laughter, ensuring your adult game nights are anything but boring.
 
-## <a href="https://www.amazon.com/dp/B0BKTMPNFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Adult Party Board Game Ruin It</a>
+## <a href="https://www.amazon.com/dp/B0BKTMPNFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Adult Party Board Game Ruin It</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKTMPNFF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Adult Party Board Game Ruin IT Hilariously Funny Game for Ages 18 +" src="https://m.media-amazon.com/images/I/41+cdxJbvwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKTMPNFF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Adult Party Board Game Ruin IT Hilariously Funny Game for Ages 18 +" src="https://m.media-amazon.com/images/I/41+cdxJbvwL._SL500_.jpg"/></a>
 
 
 The **Adult Party Board Game Ruin IT Hilariously Funny Game for Ages 18 +** is perfect for those who enjoy lively social gatherings and want to add a dose of laughter to their game nights. Ideal for groups of friends, couples, or party hosts looking to break the ice and entertain guests with a humorous and engaging activity. If you’re seeking a game that sparks fun conversations and unpredictable moments, this game is a great choice.
@@ -203,10 +203,10 @@ The **Adult Party Board Game Ruin IT** features a unique blend of challenges and
 
 Thanks to its thoughtful size and weight, the game is easy to bring along wherever you go, from casual house parties to more formal adult gatherings. The high-quality components from **Inspiration Play** ensure that it can withstand repeated play sessions without losing its charm or functionality. Overall, this board game offers a perfect balance of humor, challenge, and social interaction, making it a standout choice for adult party entertainment.
 
-## <a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Scattergories Classic Game</a>
+## <a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Scattergories Classic Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Scattergories Classic Game, Party Game for Adults and Teens Ages 13 and up, Board Game for 2+ Players" src="https://m.media-amazon.com/images/I/51oPWgdEzjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Scattergories Classic Game, Party Game for Adults and Teens Ages 13 and up, Board Game for 2+ Players" src="https://m.media-amazon.com/images/I/51oPWgdEzjL._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Scattergories Classic Game** is perfect for individuals and groups who enjoy fast-paced, creative thinking and wordplay. Ideal for **adults and teens ages 13 and up**, this game suits families, friends, and party-goers looking for an engaging and interactive experience. If you appreciate games that challenge your imagination and vocabulary while fostering friendly competition, this is a great choice for you.
@@ -229,10 +229,10 @@ The **Hasbro Gaming Scattergories Classic Game** features a unique setup that sp
 
 Additionally, the game's **compact dimensions and lightweight build** ensure it can be easily transported and stored, perfect for those who want to bring fun on the go. The colorful components enhance the visual appeal and help maintain player engagement throughout the gameplay. Overall, this game combines entertainment with educational benefits, making it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B00000IVAK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sequence Original Sequence Game</a>
+## <a href="https://www.amazon.com/dp/B00000IVAK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sequence Original Sequence Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00000IVAK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2.31""="" 8.1"="" alt="SEQUENCE- Original SEQUENCE Game with Folding Board, Cards and Chips by Jax ( Packaging may Vary ) White, 10.3" src="https://m.media-amazon.com/images/I/51FvISoGhpL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B00000IVAK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2.31""="" 8.1"="" alt="SEQUENCE- Original SEQUENCE Game with Folding Board, Cards and Chips by Jax ( Packaging may Vary ) White, 10.3" src="https://m.media-amazon.com/images/I/51FvISoGhpL._SL500_.jpg" x=""/></a>
 
 
 The **SEQUENCE- Original SEQUENCE Game with Folding Board, Cards and Chips by Jax** is perfect for families, game night enthusiasts, and anyone looking to enjoy a strategic yet easy-to-learn board game. Ideal for both adults and kids, this game offers a fun way to engage multiple players while enhancing critical thinking and social interaction.
@@ -255,10 +255,10 @@ The **SEQUENCE Game** features a thoughtfully designed folding board measuring a
 
 With its multicolor design and dual editions targeting both family and kids, the game encourages social bonding and cognitive development. The lightweight construction and durable materials ensure that the game withstands repeated use while being easy to transport. Overall, the SEQUENCE game by Jax offers a timeless blend of fun and challenge, making it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
+## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
 
 
 The **Battleship Classic Board Game** is ideal for both **kids and adults** who enjoy strategic thinking and competitive gameplay. Perfect for families looking to engage in a fun, interactive activity, this game suits players aged **7 and up** and is designed for **2 players**. Whether you're seeking a way to bond with your child or challenge a friend, this timeless game offers an exciting experience for all skill levels.

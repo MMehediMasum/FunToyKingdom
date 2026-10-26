@@ -23,10 +23,10 @@ Airbrush paints give smooth, even coats for a professional finish. Popular brand
 
 
 
-## <a href="https://www.amazon.com/dp/B09BDDML9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Air Starter Set</a>
+## <a href="https://www.amazon.com/dp/B09BDDML9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Air Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09BDDML9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, Warpaints Air Starter Set, 12 x 18ml Pre-thinned Acrylic Airbrush Paints, incl. 1 Metallic &amp; 1 Grey 100ml Primer - Air brush Paint Kit for models and miniature painting" src="https://m.media-amazon.com/images/I/51GJvLR58GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BDDML9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, Warpaints Air Starter Set, 12 x 18ml Pre-thinned Acrylic Airbrush Paints, incl. 1 Metallic &amp; 1 Grey 100ml Primer - Air brush Paint Kit for models and miniature painting" src="https://m.media-amazon.com/images/I/51GJvLR58GL._SL500_.jpg"/></a>
 
 
 The **Army Painter Warpaints Air Starter Set** is ideal for hobbyists and miniature painters who want to achieve smooth, professional-quality finishes with ease. This set is perfect for beginners transitioning to airbrushing as well as experienced modelers looking for a reliable, pre-thinned acrylic paint solution. If you are passionate about tabletop games, scale models, or miniatures, and want to enhance your painting workflow, this kit offers a comprehensive starting point.
@@ -49,12 +49,12 @@ The **Warpaints Air Starter Set** features specially formulated acrylic paints t
 
 The compact dimensions of the set make it easy to store or take on the go, while the high pigmentation ensures that each layer delivers consistent coverage and brilliant color payoff. Whether you are painting intricate models or larger scale pieces, the uniform consistency of these paints reduces clogging and splattering, providing a seamless airbrushing experience. Overall, this kit streamlines the miniature painting process, helping users achieve professional results with minimal hassle.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09BDDML9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09BDDML9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DDH24SRM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Gamemaster Adventure Starter Role-playing Paint Set</a>
+## <a href="https://www.amazon.com/dp/B0DDH24SRM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Gamemaster Adventure Starter Role-playing Paint Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDH24SRM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, GameMaster: Adventure Starter Role-Playing Paint Set, 15 x 18ml Warpaints Fanatic Acrylic Paints, incl. a Brush-On Primer, 5 Free Miniatures &amp; 1 Brush - for Warhammer &amp; DND" src="https://m.media-amazon.com/images/I/51pSMFwwD4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDH24SRM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, GameMaster: Adventure Starter Role-Playing Paint Set, 15 x 18ml Warpaints Fanatic Acrylic Paints, incl. a Brush-On Primer, 5 Free Miniatures &amp; 1 Brush - for Warhammer &amp; DND" src="https://m.media-amazon.com/images/I/51pSMFwwD4L._SL500_.jpg"/></a>
 
 
 The **Army Painter GameMaster: Adventure Starter Role-Playing Paint Set** is ideal for tabletop gamers and hobbyists who enjoy painting miniatures for games like **Warhammer** and **Dungeons & Dragons (DND)**. Whether you are a beginner looking to start your miniature painting journey or an experienced painter wanting a comprehensive and convenient paint set, this product offers a perfect combination of quality and variety. It is especially suited for those who want to enhance their gaming experience with beautifully painted miniatures without the hassle of sourcing individual paints and tools.
@@ -77,12 +77,12 @@ This **Adventure Starter Paint Set** by **The Army Painter** brings together a t
 
 Additionally, the set's practicality extends beyond just paints. The 5 free miniatures offer a perfect canvas for users to apply what they learn and gain confidence in their painting skills. The single brush included is designed to handle fine details, making it easier for painters to bring their figures to life with precision. Overall, this paint set is a comprehensive starter kit that balances quality, convenience, and value, making it an excellent choice for anyone eager to enhance their miniature painting experience in popular tabletop games like **Warhammer** and **DND**.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DDH24SRM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DDH24SRM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CVGQ7BZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Fanatic Starter Set</a>
+## <a href="https://www.amazon.com/dp/B0CVGQ7BZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Fanatic Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVGQ7BZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter Warpaints Fanatic: Starter Set, 11 x 18 ml Acrylic Paints, incl. Metallics, Wash, Brush-On Primer, 1 Miniature &amp; 1 Brush - Miniature paint set for D&amp;D &amp; Warhammer Figures" src="https://m.media-amazon.com/images/I/51cqJSRcDxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVGQ7BZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter Warpaints Fanatic: Starter Set, 11 x 18 ml Acrylic Paints, incl. Metallics, Wash, Brush-On Primer, 1 Miniature &amp; 1 Brush - Miniature paint set for D&amp;D &amp; Warhammer Figures" src="https://m.media-amazon.com/images/I/51cqJSRcDxL._SL500_.jpg"/></a>
 
 
 The **Army Painter Warpaints Fanatic Starter Set** is ideal for hobbyists and gamers who want to bring their **DD** and **Warhammer figures** to life with professional-quality paint. Whether you're a beginner looking for an all-in-one solution or an experienced painter seeking a reliable starter kit, this set provides everything needed to start painting miniatures with precision and ease.
@@ -105,12 +105,12 @@ This **starter set** from The Army Painter offers a thoughtfully curated range o
 
 Additionally, the set's inclusion of a miniature and a brush means users can immediately begin practicing techniques without needing additional supplies. The acrylic formula dries quickly and is easy to work with, making it suitable for beginners while still meeting the quality demands of experienced painters. Overall, this set simplifies the miniature painting process, encouraging creativity and enhancing gaming experiences with beautifully painted figures.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CVGQ7BZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CVGQ7BZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CVHD9C9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Fanatic Washes Paint Set</a>
+## <a href="https://www.amazon.com/dp/B0CVHD9C9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Fanatic Washes Paint Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVHD9C9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, Warpaints Fanatic Washes Paint Set, 10 x 18 ml Acrylic Paint - Model Paint Washes and Shades for Miniature Models, Warhammer &amp; Dnd miniatures" src="https://m.media-amazon.com/images/I/51HkXjw4uwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVHD9C9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, Warpaints Fanatic Washes Paint Set, 10 x 18 ml Acrylic Paint - Model Paint Washes and Shades for Miniature Models, Warhammer &amp; Dnd miniatures" src="https://m.media-amazon.com/images/I/51HkXjw4uwL._SL500_.jpg"/></a>
 
 
 The **Army Painter Warpaints Fanatic Washes Paint Set** is ideal for hobbyists and miniature enthusiasts who want to add depth and realism to their models. Whether you are a seasoned painter working on **Warhammer** or **DnD miniatures**, or a beginner looking to enhance your painting skills, this set offers an easy and effective way to achieve professional-quality shading and detailing.
@@ -133,12 +133,12 @@ The **Army Painter Warpaints Fanatic Washes Paint Set** is specifically formulat
 
 Beyond its functional benefits, the set's durable acrylic formula ensures long-lasting color retention and compatibility with other paints and primers. Its compact size and lightweight design make it easy to handle and store, whether you're painting at home or on the go. Overall, this paint set offers both beginners and experienced painters an efficient solution for elevating their miniature painting projects.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CVHD9C9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CVHD9C9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F7H8DN12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vm Eco-friendly Water-based Pigments Wwii Armour &amp; Infantry Model Color Set</a>
+## <a href="https://www.amazon.com/dp/B0F7H8DN12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vm Eco-friendly Water-based Pigments Wwii Armour &amp; Infantry Model Color Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F7H8DN12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VM Eco-Friendly Water-Based Pigments WWII Armour &amp; Infantry Model Color Set Military Shades Paints For All Diorama/Figures Model Brush Acrylic Colors – 16 Bottles x 5ml (Military Color Set)" src="https://m.media-amazon.com/images/I/41uF6yUgAGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F7H8DN12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VM Eco-Friendly Water-Based Pigments WWII Armour &amp; Infantry Model Color Set Military Shades Paints For All Diorama/Figures Model Brush Acrylic Colors – 16 Bottles x 5ml (Military Color Set)" src="https://m.media-amazon.com/images/I/41uF6yUgAGL._SL500_.jpg"/></a>
 
 
 Ideal for **hobbyists**, **model painters**, and **diorama creators** seeking authentic and vibrant **military colors**, the **VM Eco-Friendly Water-Based Pigments WWII Armour & Infantry Model Color Set** offers a comprehensive palette tailored for **historical accuracy** and ease of use. Whether you're working on **WWII figures**, **armour models**, or detailed **miniature dioramas**, this set provides the perfect range of shades to bring your projects to life.
@@ -161,12 +161,12 @@ The **VM Eco-Friendly Water-Based Pigments WWII Armour & Infantry Model Color Se
 
 Furthermore, the compact design of the 5ml bottles allows for controlled usage, reducing waste and enabling painters to mix shades with ease. The eco-friendly nature of these pigments also reflects a conscious choice for sustainability, appealing to users who prioritize environmentally responsible products. Overall, this set delivers a professional-quality finish, making it a valuable addition to any modeler’s toolkit focused on **WWII dioramas and figures**.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F7H8DN12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F7H8DN12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07VRD195C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vallejo - Wwii British Armour &amp; Infantry Model Color Paint Set</a>
+## <a href="https://www.amazon.com/dp/B07VRD195C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vallejo - Wwii British Armour &amp; Infantry Model Color Paint Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07VRD195C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vallejo - WWII British Armour &amp; Infantry Model Color Paint Set | Historic Military Shades | Brush &amp; Airbrush Compatible Acrylic Colors | Pro Modeler Collection | 6 bottles x 18 ml. (0.6 fl.oz)" src="https://m.media-amazon.com/images/I/41ImhC9qDuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VRD195C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vallejo - WWII British Armour &amp; Infantry Model Color Paint Set | Historic Military Shades | Brush &amp; Airbrush Compatible Acrylic Colors | Pro Modeler Collection | 6 bottles x 18 ml. (0.6 fl.oz)" src="https://m.media-amazon.com/images/I/41ImhC9qDuL._SL500_.jpg"/></a>
 
 
 The **Vallejo - WWII British Armour & Infantry Model Color Paint Set** is ideal for hobbyists and modelers who are passionate about creating historically accurate military miniatures. Whether you are a professional modeler or an enthusiastic beginner, this paint set offers the perfect range of **historic military shades** to bring your WWII British armor and infantry models to life with authentic colors.
@@ -189,12 +189,12 @@ This paint set features premium **acrylic paints** from **Acrylicos Vallejo**, a
 
 Additionally, the paint's compatibility with both brush and airbrush applications allows users to choose their preferred method, enhancing control over texture and finish. The convenient 18 ml bottles are travel-friendly and reduce the risk of paint drying out between uses. Overall, this set offers an excellent balance of quality, convenience, and authenticity for anyone looking to accurately portray WWII British military models.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07VRD195C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07VRD195C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000PHCTO8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vallejo Amer Civil War Paint Set</a>
+## <a href="https://www.amazon.com/dp/B000PHCTO8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vallejo Amer Civil War Paint Set</a>
 
 
-<a href="https://www.amazon.com/dp/B000PHCTO8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vallejo Amer Civil War Paint Set #11, 17ml" src="https://m.media-amazon.com/images/I/51Y5ZeOSgzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000PHCTO8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vallejo Amer Civil War Paint Set #11, 17ml" src="https://m.media-amazon.com/images/I/51Y5ZeOSgzL._SL500_.jpg"/></a>
 
 
 The **Vallejo Amer Civil War Paint Set #11, 17ml** is ideal for hobbyists and miniature painters who are passionate about historical accuracy and detail, particularly those focusing on the American Civil War era. Whether you are a seasoned modeler or a beginner aiming to bring authenticity to your miniatures, this paint set offers a specialized palette tailored to the period's unique color schemes.
@@ -216,12 +216,12 @@ The **Vallejo Amer Civil War Paint Set #11** features a well-thought-out collect
 
 Beyond the quality and color accuracy, the paint set’s packaging is compact and lightweight, measuring just 1.0 inches in height and weighing approximately 1.1 pounds, which makes it easy to carry to workshops or hobby events. Manufactured by MMD Holdings, LLC under the trusted Vallejo brand, this set upholds a reputation for durability and consistent performance. Whether you are painting uniforms, weapons, or accessories from the Civil War period, this set provides the essential tools to bring your historical miniatures to life with authenticity and precision.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000PHCTO8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000PHCTO8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CVH9VC5M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Fanatic Metallics Miniature Paint Set Combo</a>
+## <a href="https://www.amazon.com/dp/B0CVH9VC5M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Army Painter Warpaints Fanatic Metallics Miniature Paint Set Combo</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVH9VC5M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, Warpaints Fanatic, Metallics Miniature Paint Set Combo, 10 Acrylic Metallics Paints 18ml incl. Gold, Copper, Metal, Bronze, Silver and 1 Dipit Brush" src="https://m.media-amazon.com/images/I/51-BmvRMv0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVH9VC5M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Army Painter, Warpaints Fanatic, Metallics Miniature Paint Set Combo, 10 Acrylic Metallics Paints 18ml incl. Gold, Copper, Metal, Bronze, Silver and 1 Dipit Brush" src="https://m.media-amazon.com/images/I/51-BmvRMv0L._SL500_.jpg"/></a>
 
 
 The **Army Painter Warpaints Fanatic Metallics Miniature Paint Set Combo** is ideal for hobbyists and miniature painters who seek a high-quality, versatile collection of metallic acrylic paints. Whether you're a beginner looking to enhance your miniatures or an experienced modeler aiming for realistic metallic finishes, this set offers the essential colors and tools to bring your creations to life.
@@ -243,12 +243,12 @@ The **Army Painter Warpaints Fanatic Metallics Set** offers a fantastic range of
 
 Beyond just color variety, the set’s compact size and inclusion of a practical **Dipit Brush** make it a convenient choice for hobbyists who paint at home or on the go. The water-based acrylic formula not only delivers strong pigmentation but also dries quickly, reducing wait times between coats. Overall, this paint set combines quality, convenience, and value, making it a must-have for anyone passionate about miniature painting and modeling.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CVH9VC5M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CVH9VC5M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D7S8967Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ingwetech 8 Pcs Wwii Toy Soldier Figures</a>
+## <a href="https://www.amazon.com/dp/B0D7S8967Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ingwetech 8 Pcs Wwii Toy Soldier Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7S8967Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INGWETECH 8 PCS WWII Toy Soldier Figures 1/10 3.7IN/9.5CM US/German Military Soldier Models for DIY Painting Assembly War Games" src="https://m.media-amazon.com/images/I/41UFV7VOVNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7S8967Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INGWETECH 8 PCS WWII Toy Soldier Figures 1/10 3.7IN/9.5CM US/German Military Soldier Models for DIY Painting Assembly War Games" src="https://m.media-amazon.com/images/I/41UFV7VOVNL._SL500_.jpg"/></a>
 
 
 The **INGWETECH 8 PCS WWII Toy Soldier Figures** are perfect for hobbyists, history enthusiasts, and collectors who enjoy assembling and painting detailed military models. Ideal customers include those interested in **DIY painting**, **model assembly**, and war game enthusiasts who appreciate realistic and historically inspired figures.
@@ -271,12 +271,12 @@ The **INGWETECH 8 PCS WWII Toy Soldier Figures** feature highly detailed designs
 
 These soldier models are designed for **DIY painting and assembly**, encouraging users to engage creatively with the product. This hands-on approach not only improves fine motor skills but also deepens users' appreciation for military history through detailed craftsmanship. The compact size and durable construction make the set versatile for collectors and gamers alike, blending historical authenticity with interactive enjoyment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D7S8967Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D7S8967Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01LM1Q4Z0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fantasy Battles Werewolf Set</a>
+## <a href="https://www.amazon.com/dp/B01LM1Q4Z0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fantasy Battles Werewolf Set</a>
 
 
-<a href="https://www.amazon.com/dp/B01LM1Q4Z0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fantasy Battles Werewolf Set 54 mm 1/32 - 4 Fantasy Figures Tehnolog Russian Toy Soldiers" src="https://m.media-amazon.com/images/I/513Bqkj6aqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01LM1Q4Z0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fantasy Battles Werewolf Set 54 mm 1/32 - 4 Fantasy Figures Tehnolog Russian Toy Soldiers" src="https://m.media-amazon.com/images/I/513Bqkj6aqL._SL500_.jpg"/></a>
 
 
 The **Fantasy Battles Werewolf Set 54 mm 1/32** by **Tehnolog** is perfect for collectors and hobbyists who appreciate detailed **Russian toy soldiers** and fantasy-themed figures. Ideal for enthusiasts of miniature wargaming, diorama creators, and fans of mythical creatures, this set offers a unique addition to any collection with its finely crafted **fantasy figures** in a striking **russet color**.
@@ -299,7 +299,7 @@ The **Fantasy Battles Werewolf Set** stands out due to its carefully sculpted 54
 
 Beyond aesthetics, the figures are manufactured by **Tehnolog**, a trusted name in the production of Russian toy soldiers, ensuring high-quality craftsmanship and durability. This makes the set a valuable investment for collectors looking for lasting pieces. Additionally, the set's size and detail level allow for easy customization, giving hobbyists the opportunity to paint and modify the figures to suit their personal style or gaming needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01LM1Q4Z0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01LM1Q4Z0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

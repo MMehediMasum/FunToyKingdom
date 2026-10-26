@@ -23,10 +23,10 @@ Some lamps also add fun designs, making the puzzle area more inviting. Selecting
 
 
 
-## <a href="https://www.amazon.com/dp/B0BG42HCTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loschen Night Light</a>
+## <a href="https://www.amazon.com/dp/B0BG42HCTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loschen Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0BG42HCTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOSCHEN Night Light,DIY Stackable LED 7 Colors Interlocking Induction Novelty Desk Lamp,3D Puzzle Magic Light Bright Toy for Kids Teens,Gamer Decor Ideal Gift" src="https://m.media-amazon.com/images/I/41xMn+C2ArL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BG42HCTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOSCHEN Night Light,DIY Stackable LED 7 Colors Interlocking Induction Novelty Desk Lamp,3D Puzzle Magic Light Bright Toy for Kids Teens,Gamer Decor Ideal Gift" src="https://m.media-amazon.com/images/I/41xMn+C2ArL._SL500_.jpg"/></a>
 
 
 The **LOSCHEN Night Light** is perfect for **kids, teens, gamers,** and anyone who loves unique and customizable lighting decor. If you are looking for a fun, interactive desk lamp that combines creativity with functionality, this **DIY stackable LED light** offers a playful and visually appealing solution. It’s especially ideal for those who enjoy **3D puzzles** and want to add a splash of multicolor illumination to their space.
@@ -50,10 +50,10 @@ The **LOSCHEN Night Light** stands out with its innovative **DIY stackable** des
 
 Beyond aesthetics, this lamp serves as a practical light source ideal for bedrooms, gaming setups, or study desks. Its compact size and light weight make it easy to move and reposition as needed. Whether used as a calming night light or a colorful desk accent, the **LOSCHEN Night Light** offers a blend of functionality and fun that appeals to a wide range of users. Its unique 3D puzzle aspect also makes it an engaging gift choice for children and teens interested in interactive decor.
 
-## <a href="https://www.amazon.com/dp/B09NZWWPWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Diy Iq Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit</a>
+## <a href="https://www.amazon.com/dp/B09NZWWPWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Diy Iq Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09NZWWPWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightingsky DIY IQ Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit with 15 Feet Hanging Light Cord (White, XL-16 inch)" src="https://m.media-amazon.com/images/I/41UDQLphLCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NZWWPWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightingsky DIY IQ Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit with 15 Feet Hanging Light Cord (White, XL-16 inch)" src="https://m.media-amazon.com/images/I/41UDQLphLCL._SL500_.jpg"/></a>
 
 
 The **Lightingsky DIY IQ Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit** is ideal for creative individuals who enjoy hands-on projects and want to add a personalized touch to their home decor. Perfect for DIY enthusiasts, interior decorators, and anyone looking to brighten up their living space with a unique and customizable lighting solution.
@@ -76,10 +76,10 @@ The **Lightingsky DIY IQ Jigsaw Puzzle Lampshade** offers a distinctive combinat
 
 Beyond its aesthetic appeal, this lampshade enhances lighting distribution thanks to its 16-inch size, which helps illuminate spaces evenly. The lightweight construction ensures ease of installation while maintaining durability. Overall, this kit is a smart choice for those looking to customize their lighting fixtures with a fun and engaging project.
 
-## <a href="https://www.amazon.com/dp/B0DMDHSY61?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vorathis Diy Wooden Puzzle With Night Light</a>
+## <a href="https://www.amazon.com/dp/B0DMDHSY61?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vorathis Diy Wooden Puzzle With Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMDHSY61?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VORATHIS DIY Wooden Puzzle with Night Light, Miniature House Kits, Stunning Bookshelf Insert Decor, Ideal Gift for Holidays, Birthdays, and Home Library Decoration(Dinosaur Museum)" src="https://m.media-amazon.com/images/I/51gbUSVPzyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMDHSY61?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VORATHIS DIY Wooden Puzzle with Night Light, Miniature House Kits, Stunning Bookshelf Insert Decor, Ideal Gift for Holidays, Birthdays, and Home Library Decoration(Dinosaur Museum)" src="https://m.media-amazon.com/images/I/51gbUSVPzyL._SL500_.jpg"/></a>
 
 
 The **VORATHIS DIY Wooden Puzzle with Night Light** is perfect for creative individuals who enjoy hands-on projects and unique home decor. It is especially ideal for those looking to add a charming, personalized touch to their **bookshelf** or **home library decoration**. This miniature house kit appeals to hobbyists, puzzle enthusiasts, and gift buyers searching for a thoughtful present for **holidays** or **birthdays**.
@@ -103,10 +103,10 @@ The **VORATHIS DIY Wooden Puzzle** stands out with its intricate design and mult
 
 Additionally, this kit's compact size and lightweight nature allow it to blend effortlessly into any **home library decoration** or display shelf. The **dinosaur museum** theme offers a unique twist, sparking curiosity and conversation among guests. Whether used as a decorative accent or a thoughtful gift, this puzzle kit brings both aesthetic value and creative satisfaction to its users.
 
-## <a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky 20" Iq Lamp Shade Toy</a>
+## <a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky 20" Iq Lamp Shade Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (white,="" alt="Lightingsky 20" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41nDw-jd0-L._SL500_.jpg" toy="" xxl-20=""/></a>
+<a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (white,="" alt="Lightingsky 20" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41nDw-jd0-L._SL500_.jpg" toy="" xxl-20=""/></a>
 
 
 The **Lightingsky 20" IQ Lamp Shade Toy** is an ideal choice for creative individuals and DIY enthusiasts looking to add a unique touch to their room décor. Perfect for those who enjoy assembling puzzle-like items and want a customizable lighting solution, this product caters to both adults and teens interested in combining fun with functionality.
@@ -129,10 +129,10 @@ The **Lightingsky 20" IQ Lamp Shade Toy** offers a unique combination of functio
 
 Crafted by **Lightingsky**, this lamp shade ensures reliable quality and durability. Its compact 10-inch height, width, and length make it convenient to position on desks, shelves, or bedside tables. While assembly requires some effort, the rewarding result is a stylish, eye-catching lamp shade that brightens the room and showcases personal creativity.
 
-## <a href="https://www.amazon.com/dp/B0B6FKLPDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tangram Stackable Night Light</a>
+## <a href="https://www.amazon.com/dp/B0B6FKLPDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tangram Stackable Night Light</a>
 
 
-<a href="https://www.amazon.com/dp/B0B6FKLPDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tangram Stackable Night Light, AVEKI LED 7 Colors Induction Interlocking Desk Lamp 3D DIY Magic Blocks Puzzles Toy for Bedroom Home Decor Ideal Gift for Birthday (US Plug)" src="https://m.media-amazon.com/images/I/41MJM2TBK0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B6FKLPDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tangram Stackable Night Light, AVEKI LED 7 Colors Induction Interlocking Desk Lamp 3D DIY Magic Blocks Puzzles Toy for Bedroom Home Decor Ideal Gift for Birthday (US Plug)" src="https://m.media-amazon.com/images/I/41MJM2TBK0L._SL500_.jpg"/></a>
 
 
 The **Tangram Stackable Night Light** by **AVEKI** is perfect for individuals who appreciate creative home decor and enjoy interactive lighting solutions. Ideal for children, teens, and adults alike, this product suits those looking for a unique **3D DIY magic blocks puzzle toy** that doubles as a stylish **desk lamp** or **night light**. It is especially great for anyone seeking a playful yet functional addition to their **bedroom** or living space, making it an excellent **gift for birthdays** or special occasions.
@@ -155,10 +155,10 @@ The **AVEKI Tangram Stackable Night Light** stands out with its innovative **3D 
 
 Beyond its playful design, the lamp offers practical benefits such as providing a soft, ambient glow ideal for bedrooms or workspaces. Its compact size and light weight make it an excellent choice for desks, bedside tables, or shelves, where space might be limited. As a product from the reputable **AVEKI** brand, it combines quality construction with visually appealing aesthetics, making it an ideal gift for those who enjoy functional decor with a twist of interactivity.
 
-## <a href="https://www.amazon.com/dp/B09TW22DKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fanbusa 3d Led Puzzle Ship Model Kit</a>
+## <a href="https://www.amazon.com/dp/B09TW22DKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fanbusa 3d Led Puzzle Ship Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09TW22DKP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fanbusa 3D LED Puzzle Ship Model Kit, Model Ship for Adults to Build, Decoration Sailboat Puzzle with Lights, Large Model Pirate Ship Kits Difficult Watercraft Family Puzzle Gift for Men Women" src="https://m.media-amazon.com/images/I/514u-k6c8SS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TW22DKP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fanbusa 3D LED Puzzle Ship Model Kit, Model Ship for Adults to Build, Decoration Sailboat Puzzle with Lights, Large Model Pirate Ship Kits Difficult Watercraft Family Puzzle Gift for Men Women" src="https://m.media-amazon.com/images/I/514u-k6c8SS._SL500_.jpg"/></a>
 
 
 The **Fanbusa 3D LED Puzzle Ship Model Kit** is ideal for **adults** who enjoy challenging and creative hobbies such as model building and puzzle solving. This intricate and detailed **pirate ship** model is perfect for those looking to combine a love of nautical themes with a decorative piece that lights up. It also makes an excellent gift for **men and women** who appreciate unique, hands-on activities and stylish home décor.
@@ -181,10 +181,10 @@ The **Fanbusa 3D LED Puzzle Ship Model Kit** features a meticulously crafted des
 
 Building this model offers multiple benefits beyond just the finished product. It encourages **focus, problem-solving, and fine motor skills** as users carefully follow the instructions and piece together the ship. Additionally, the process can be a relaxing and rewarding pastime, making it ideal for adults looking to unwind while engaging their creativity. Once completed, the ship makes a stunning display piece that reflects both the builder's effort and appreciation for detailed craftsmanship.
 
-## <a href="https://www.amazon.com/dp/B01N810Y42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Diy Puzzle Lamp Shade</a>
+## <a href="https://www.amazon.com/dp/B01N810Y42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Diy Puzzle Lamp Shade</a>
 
 
-<a href="https://www.amazon.com/dp/B01N810Y42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="kwmobile DIY Puzzle Lamp Shade - Modern IQ Jigsaw Light in 30 Pieces min. 15 Different Designs - Diameter Approx. 15.7 in / 40 cm - White in Size XL" src="https://m.media-amazon.com/images/I/41e-VHq3DpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N810Y42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="kwmobile DIY Puzzle Lamp Shade - Modern IQ Jigsaw Light in 30 Pieces min. 15 Different Designs - Diameter Approx. 15.7 in / 40 cm - White in Size XL" src="https://m.media-amazon.com/images/I/41e-VHq3DpL._SL500_.jpg"/></a>
 
 
 The **kwmobile DIY Puzzle Lamp Shade** is perfect for individuals who enjoy creative home décor and hands-on projects. Ideal for DIY enthusiasts, modern design lovers, and those looking to add a unique lighting feature to their living space, this lamp shade offers both style and customization. If you appreciate versatile design options and want a statement piece that reflects your personality, this product is a great choice.
@@ -207,10 +207,10 @@ The **kwmobile DIY Puzzle Lamp Shade** stands out for its innovative jigsaw desi
 
 Additionally, the lamp shade’s size and lightweight construction make it easy to mount and move if necessary. Its modular nature means users can experiment with different designs to optimize light diffusion and aesthetic appeal. Overall, this product offers a unique blend of functionality and creativity, making it an excellent choice for those wanting a distinctive, personalized lighting solution.
 
-## <a href="https://www.amazon.com/dp/B01BTZ61GG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Iq Lamp Shade Toy Self Diy Assembled Puzzle Lights</a>
+## <a href="https://www.amazon.com/dp/B01BTZ61GG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Iq Lamp Shade Toy Self Diy Assembled Puzzle Lights</a>
 
 
-<a href="https://www.amazon.com/dp/B01BTZ61GG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (red,="" alt="Lightingsky 10" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" m-10="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41xLQ1iVceL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B01BTZ61GG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (red,="" alt="Lightingsky 10" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" m-10="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41xLQ1iVceL._SL500_.jpg" toy=""/></a>
 
 
 The **Lightingsky 10" IQ Lamp Shade Toy Self DIY Assembled Puzzle Lights** in vibrant **red** are perfect for creative individuals who enjoy hands-on projects and want to add a unique touch to their **room decoration**. Ideal for DIY enthusiasts, puzzle lovers, and those looking to personalize their living space with a functional yet artistic lighting accessory.
@@ -233,10 +233,10 @@ The **Lightingsky IQ Lamp Shade** is designed to be both a fun and functional pi
 
 Crafted by **Lightingsky**, this lamp shade boasts a lightweight and compact design that fits easily on most standard lamp bases. The bold **red hue** adds a modern and energetic vibe, perfect for individuals looking to make a statement with their room decor. Additionally, the puzzle lamp shade is portable and easy to store when not in use, offering convenience alongside its aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B0DCG1PK9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aveki Night Light For Kids</a>
+## <a href="https://www.amazon.com/dp/B0DCG1PK9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aveki Night Light For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCG1PK9V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AVEKI Night Light for Kids, Tangram Stackable LED 7 Colors Induction Interlocking Desk Lamp, 3D DIY Magic Blocks Puzzles Bedroom Novelty Light Ideal Decor Gamer Gifts (Plug)" src="https://m.media-amazon.com/images/I/41MJM2TBK0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCG1PK9V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AVEKI Night Light for Kids, Tangram Stackable LED 7 Colors Induction Interlocking Desk Lamp, 3D DIY Magic Blocks Puzzles Bedroom Novelty Light Ideal Decor Gamer Gifts (Plug)" src="https://m.media-amazon.com/images/I/41MJM2TBK0L._SL500_.jpg"/></a>
 
 
 The **AVEKI Night Light for Kids** is perfect for parents and gift buyers looking for a creative and interactive lighting solution that doubles as a fun puzzle toy. Ideal for children who enjoy hands-on activities and for gamers or anyone seeking a unique and colorful desk lamp, this product offers both practicality and entertainment. It’s especially suited for bedrooms, study areas, or gaming setups where a customizable ambient light is desired.
@@ -259,10 +259,10 @@ The **AVEKI Night Light** combines innovative **LED technology** with an engagin
 
 Beyond aesthetics, this lamp serves as a practical night light, casting a soft and soothing glow that helps children feel secure during bedtime. Its compact and lightweight build means it fits neatly on desks or nightstands without taking up much space. Whether used as a decorative piece, a functional desk lamp, or a playful puzzle, the **AVEKI Night Light for Kids** is a versatile addition that combines fun, function, and style in one attractive package.
 
-## <a href="https://www.amazon.com/dp/B085SW9H8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Veeki Night Light For Kids</a>
+## <a href="https://www.amazon.com/dp/B085SW9H8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Veeki Night Light For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B085SW9H8N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VEEKI Night Light for Kids, Stackable LED 7 Colors 3D Puzzles Night Light Induction Interlocking Desk Lamp, DIY Tangram Light Blocks Puzzles lamp for Kids Teens Bedroom (US Plug)" src="https://m.media-amazon.com/images/I/41uBoWHjZVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085SW9H8N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VEEKI Night Light for Kids, Stackable LED 7 Colors 3D Puzzles Night Light Induction Interlocking Desk Lamp, DIY Tangram Light Blocks Puzzles lamp for Kids Teens Bedroom (US Plug)" src="https://m.media-amazon.com/images/I/41uBoWHjZVL._SL500_.jpg"/></a>
 
 
 The **VEEKI Night Light for Kids** is ideal for parents and guardians looking to create a cozy and interactive bedtime environment for their children or teens. This night light is perfect for those who want to combine functionality with fun, as it doubles as a **DIY Tangram Light Blocks Puzzle**, encouraging creativity and engagement while providing a comforting glow.

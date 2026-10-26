@@ -23,10 +23,10 @@ These toys appeal to children and adult collectors, making them great gifts. Whe
 
 
 
-## <a href="https://www.amazon.com/dp/B0D38BT1YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar Ct681 Day Cab With Lowboy &amp; 950g Wheel Loader</a>
+## <a href="https://www.amazon.com/dp/B0D38BT1YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar Ct681 Day Cab With Lowboy &amp; 950g Wheel Loader</a>
 
 
-<a href="https://www.amazon.com/dp/B0D38BT1YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/87 Caterpillar CT681 Day Cab with Lowboy &amp; 950G Wheel Loader 84418" src="https://m.media-amazon.com/images/I/31hKhVw+lYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D38BT1YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/87 Caterpillar CT681 Day Cab with Lowboy &amp; 950G Wheel Loader 84418" src="https://m.media-amazon.com/images/I/31hKhVw+lYL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/87 Caterpillar CT681 Day Cab with Lowboy & 950G Wheel Loader 84418** is ideal for collectors, construction enthusiasts, and model hobbyists who appreciate detailed and high-quality scale replicas. If you are someone who values precision craftsmanship in miniature construction vehicles or enjoys adding realistic pieces to a diorama, this model is perfect for your collection. Its compact size and authentic design make it suitable for both display and educational purposes.
@@ -49,12 +49,12 @@ The **Diecast Masters 1/87 Caterpillar CT681 Day Cab with Lowboy & 950G Wheel Lo
 
 Its compact size and lightweight build make it easy to showcase without requiring much space, while still retaining the fine details that enthusiasts seek. The bright yellow color and authentic markings enhance its visual appeal and authenticity. Whether used for display, photography, or educational demonstrations, this diecast model delivers both aesthetic and functional benefits to users looking for quality and realism in miniature construction equipment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D38BT1YT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D38BT1YT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pack City Diecast Semi Trucks Transport Set</a>
+## <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pack City Diecast Semi Trucks Transport Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0B728ZB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pack City Diecast Semi Trucks Transport Set - Big Toy Garbage Truck, Oil Tanker, &amp; Transport Vehicle Toy with Pull Back Action - 1/50 Scale Metal Collectible Model Alloy Car Vehicles" src="https://m.media-amazon.com/images/I/51fahenYRYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B728ZB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pack City Diecast Semi Trucks Transport Set - Big Toy Garbage Truck, Oil Tanker, &amp; Transport Vehicle Toy with Pull Back Action - 1/50 Scale Metal Collectible Model Alloy Car Vehicles" src="https://m.media-amazon.com/images/I/51fahenYRYL._SL500_.jpg"/></a>
 
 
 The **3 Pack City Diecast Semi Trucks Transport Set** is perfect for children and collectors who appreciate detailed, durable toy vehicles. Ideal for kids who love imaginative play involving trucks and transportation, as well as hobbyists seeking high-quality metal collectible models at a 1/50 scale. This set offers a diverse range of vehicles including a garbage truck, oil tanker, and transport vehicle, making it suitable for both playtime and display.
@@ -77,12 +77,12 @@ Each truck in this **3 Pack City Diecast Semi Trucks Transport Set** is crafted 
 
 The variety within the set, including a garbage truck, oil tanker, and transport vehicle, offers diverse play options and helps children learn about different types of trucks and their functions. The 1/50 scale size makes these models perfect for collectors who want to display them with other diecast vehicles, while the vibrant multicolour finishes increase their visual appeal. Overall, this set combines quality, functionality, and educational value, making it a great purchase for toy enthusiasts and collectors.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001VNC6ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Grain Semi Truck Toy Replica</a>
+## <a href="https://www.amazon.com/dp/B001VNC6ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Grain Semi Truck Toy Replica</a>
 
 
-<a href="https://www.amazon.com/dp/B001VNC6ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Grain Semi Truck Toy Replica - 1:64 Scale - Construction Toys - Die-Cast Metal and Plastic Material - Kids Toys Ages 8 Years and Up" src="https://m.media-amazon.com/images/I/41wTdMe7SbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001VNC6ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Grain Semi Truck Toy Replica - 1:64 Scale - Construction Toys - Die-Cast Metal and Plastic Material - Kids Toys Ages 8 Years and Up" src="https://m.media-amazon.com/images/I/41wTdMe7SbL._SL500_.jpg"/></a>
 
 
 The **ERTL John Deere Grain Semi Truck Toy Replica** is perfect for children aged **8 years and up** who have a passion for construction toys and farm machinery. This highly detailed **1:64 scale** model is ideal for young enthusiasts who enjoy realistic play and collectors who appreciate die-cast replicas. It is especially suitable for kids who love hands-on interaction with durable and authentic-looking toys.
@@ -104,12 +104,12 @@ The **ERTL John Deere Grain Semi Truck Toy Replica** showcases exceptional craft
 
 Additionally, the semi truck's precise dimensions make it a great addition to any toy collection or diorama setup. Its lightweight nature facilitates easy handling, enabling kids to transport the toy effortlessly during playtime. Overall, this replica toy bridges the gap between fun and educational value, encouraging children to learn about farming equipment while enjoying a high-quality construction toy.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001VNC6ZC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001VNC6ZC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0035LMGQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Ups Die Cast Tractor</a>
+## <a href="https://www.amazon.com/dp/B0035LMGQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Ups Die Cast Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B0035LMGQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron UPS Die Cast Tractor with 2 Trailers" src="https://m.media-amazon.com/images/I/4158pZxn8rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0035LMGQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron UPS Die Cast Tractor with 2 Trailers" src="https://m.media-amazon.com/images/I/4158pZxn8rL._SL500_.jpg"/></a>
 
 
 The **Daron UPS Die Cast Tractor with 2 Trailers** is ideal for collectors, children, and enthusiasts of miniature vehicles who appreciate detailed craftsmanship and authentic design. Whether you are looking to expand your die-cast collection or seeking a durable and realistic toy for imaginative play, this item offers a perfect balance of quality and functionality.
@@ -132,12 +132,12 @@ The **Daron UPS Die Cast Tractor with 2 Trailers** stands out for its precision 
 
 Designed by **Daron**, a trusted name in die-cast models, this tractor delivers a balance of aesthetics and durability. The authentic **brown and white color scheme** faithfully represents the UPS brand, appealing to brand enthusiasts and collectors alike. Overall, this miniature tractor offers an engaging and collectible experience that blends realistic design with practical size and weight, making it a great addition to any die-cast vehicle assortment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0035LMGQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0035LMGQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D262W4RZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Risopen Semi Truck Toy</a>
+## <a href="https://www.amazon.com/dp/B0D262W4RZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Risopen Semi Truck Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0D262W4RZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Risopen Semi Truck Toy, 1/64 Scale Alloy Metal Diecast Heavy Semi Truck Trailer Head Toy Model, International Lonestar Diecast Tow Traktor Gift for Boy Adult Model Car Collector -Red" src="https://m.media-amazon.com/images/I/419w1XqN2wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D262W4RZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Risopen Semi Truck Toy, 1/64 Scale Alloy Metal Diecast Heavy Semi Truck Trailer Head Toy Model, International Lonestar Diecast Tow Traktor Gift for Boy Adult Model Car Collector -Red" src="https://m.media-amazon.com/images/I/419w1XqN2wL._SL500_.jpg"/></a>
 
 
 The **Risopen Semi Truck Toy** is ideal for both **boy and adult model car collectors** who appreciate detailed and durable diecast models. If you are looking for a **1/64 scale alloy metal diecast heavy semi truck trailer head toy** that represents the iconic **International Lonestar** in vibrant red, this model is perfect for display, collection, or even as a thoughtful gift.
@@ -159,12 +159,12 @@ The **Risopen Semi Truck Toy** stands out with its meticulous attention to detai
 
 Beyond its impressive aesthetics, this model offers practical benefits such as durability and a high level of craftsmanship from **MAISTO**. Whether displayed on a shelf or used as a gentle play toy, it delivers a realistic experience. The **1/64 scale** ensures it fits well with other models and accessories, enhancing the overall collection. This makes it an excellent choice for enthusiasts looking to expand their inventory with a quality semi truck replica.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D262W4RZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D262W4RZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CGG6FNWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenworth T880s Sbfs 40in Sleeper Tandem Tractor With Lowboy &amp; Caterpillar 320d L Hydraulic Excavator</a>
+## <a href="https://www.amazon.com/dp/B0CGG6FNWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenworth T880s Sbfs 40in Sleeper Tandem Tractor With Lowboy &amp; Caterpillar 320d L Hydraulic Excavator</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGG6FNWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/87 Kenworth T880s SBFS 40in Sleeper Tandem Tractor w/Lowboy &amp; Caterpillar 320D L Hydraulic Excavator 84420" src="https://m.media-amazon.com/images/I/31Znowpud8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGG6FNWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/87 Kenworth T880s SBFS 40in Sleeper Tandem Tractor w/Lowboy &amp; Caterpillar 320D L Hydraulic Excavator 84420" src="https://m.media-amazon.com/images/I/31Znowpud8L._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/87 Kenworth T880s SBFS 40in Sleeper Tandem Tractor w/Lowboy & Caterpillar 320D L Hydraulic Excavator 84420** is ideal for collectors and enthusiasts of detailed scale models, particularly those passionate about construction and heavy machinery. This item is perfect for hobbyists who appreciate high-quality craftsmanship and realistic replicas, as well as for educational purposes to demonstrate construction equipment and transport vehicles in miniature form.
@@ -187,12 +187,12 @@ The **Diecast Masters Kenworth T880s SBFS 40in Sleeper Tandem Tractor with Lowbo
 
 Featuring the tandem tractor alongside a lowboy trailer and the hydraulic excavator, this set provides a comprehensive representation of heavy-duty construction transport and machinery. Users benefit from the realistic design, which aids in understanding the scale and function of such equipment. The vivid yellow color adds to the visual appeal, helping the models stand out in any collection or display. Overall, this model combines quality, detail, and practicality for enthusiasts and professionals alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CGG6FNWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CGG6FNWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D9D4178H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Corper Toys Diecast Semi Truck Toys </a>
+## <a href="https://www.amazon.com/dp/B0D9D4178H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Corper Toys Diecast Semi Truck Toys </a>
 
 
-<a href="https://www.amazon.com/dp/B0D9D4178H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CORPER TOYS Diecast Semi Truck Toys with Sounds and Lights Pull Back Play Truck Toy for Kids Boys Gift for Birthday Christmas (White)" src="https://m.media-amazon.com/images/I/51mNvoi-1kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9D4178H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CORPER TOYS Diecast Semi Truck Toys with Sounds and Lights Pull Back Play Truck Toy for Kids Boys Gift for Birthday Christmas (White)" src="https://m.media-amazon.com/images/I/51mNvoi-1kL._SL500_.jpg"/></a>
 
 
 The **CORPER TOYS Diecast Semi Truck Toys with Sounds and Lights** is ideal for young children, especially boys who are fascinated by vehicles and enjoy interactive play. This toy is perfect for parents or gift-givers looking for a durable, engaging, and fun birthday or Christmas present that stimulates imaginative play and sensory development. Kids who love trucks and want a realistic toy with added audio-visual effects will find this product particularly appealing.
@@ -215,12 +215,12 @@ The **CORPER TOYS Diecast Semi Truck** stands out with its authentic design and 
 
 Its compact dimensions make it easy for children to handle and carry around, promoting independence during play. Being a trusted product from **CORPER TOYS**, it assures safety and reliability, making it an excellent choice for parents. Overall, this semi truck toy combines fun and functionality, making it a memorable gift that sparks creativity and joy in young truck enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D9D4178H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D9D4178H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B079PT7JP9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Kenworth T700 Container Truck</a>
+## <a href="https://www.amazon.com/dp/B079PT7JP9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Kenworth T700 Container Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B079PT7JP9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART Kenworth T700 Container Truck, 1:68 Scale, Die Cast Metal Model, Blue with Decals, Pullback Action" src="https://m.media-amazon.com/images/I/51VZQg3peAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079PT7JP9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART Kenworth T700 Container Truck, 1:68 Scale, Die Cast Metal Model, Blue with Decals, Pullback Action" src="https://m.media-amazon.com/images/I/51VZQg3peAL._SL500_.jpg"/></a>
 
 
 The **KiNSMART Kenworth T700 Container Truck** is ideal for collectors of die-cast models and enthusiasts of detailed miniature vehicles. It is perfect for those who appreciate authentic design in a compact scale, as well as children who enjoy interactive play with durable toy trucks. This model offers a great combination of display quality and functional play features, making it suitable for hobbyists and young truck fans alike.
@@ -243,12 +243,12 @@ The **KiNSMART Kenworth T700 Container Truck** stands out due to its precise cra
 
 Beyond aesthetics, the **pullback action** adds a dynamic element, allowing users to engage with the model beyond static display. This feature offers children an enjoyable way to interact with the truck, promoting imaginative play and motor skills development. Overall, this model balances detailed design with practical functionality, making it a versatile addition to any collection or toy set.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B079PT7JP9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B079PT7JP9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DXFTQ8VC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Die-cast Construction Truck Toys Set</a>
+## <a href="https://www.amazon.com/dp/B0DXFTQ8VC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Die-cast Construction Truck Toys Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXFTQ8VC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Die-cast Construction Truck Toys Set w/Semi Truck, Excavator, Forklift, Alloy Engineering Construction Vehicles Toys w/Lights &amp; Sounds, Model Excavator,Model Forklift Toys for Boys Kids" src="https://m.media-amazon.com/images/I/51HMitjYRRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXFTQ8VC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Die-cast Construction Truck Toys Set w/Semi Truck, Excavator, Forklift, Alloy Engineering Construction Vehicles Toys w/Lights &amp; Sounds, Model Excavator,Model Forklift Toys for Boys Kids" src="https://m.media-amazon.com/images/I/51HMitjYRRL._SL500_.jpg"/></a>
 
 
 The **Die-cast Construction Truck Toys Set** is ideal for young boys and kids who have a fascination with construction vehicles and enjoy imaginative play. This set is perfect for parents looking to gift durable, engaging, and realistic construction toys that encourage creativity and motor skills development. It suits children who love hands-on activities and exploring the mechanics of heavy machinery through play.
@@ -270,12 +270,12 @@ The **Die-cast Construction Truck Toys Set** from **VijiSuki** offers a realisti
 
 Designed by **Shantou Zheshun Toys Co., Ltd**, this set balances durability with engaging features, ensuring it withstands rough play while keeping children entertained for hours. Its manageable size enables easy handling and storage, making it a convenient choice for parents and a favorite among kids who love construction-themed toys. Overall, this toy set supports imaginative development and fine motor skills through hands-on interaction with realistic construction vehicles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DXFTQ8VC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DXFTQ8VC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00BH0OWZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenworth W900 Double Dump Truck With Trailer</a>
+## <a href="https://www.amazon.com/dp/B00BH0OWZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kenworth W900 Double Dump Truck With Trailer</a>
 
 
-<a href="https://www.amazon.com/dp/B00BH0OWZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenworth W900 Double Dump Truck with Trailer in Red and Chrome, cab is die-cast Metal, Balance is high Impact Plastic,unisex-children" src="https://m.media-amazon.com/images/I/31ipycjGnEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00BH0OWZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kenworth W900 Double Dump Truck with Trailer in Red and Chrome, cab is die-cast Metal, Balance is high Impact Plastic,unisex-children" src="https://m.media-amazon.com/images/I/31ipycjGnEL._SL500_.jpg"/></a>
 
 
 The **Kenworth W900 Double Dump Truck with Trailer** in **Red and Chrome** is ideal for both **children and collectors** who appreciate detailed die-cast models. This **unisex item** is perfect for young enthusiasts interested in construction vehicles as well as adult hobbyists looking for a durable and visually striking addition to their collection.
@@ -298,7 +298,7 @@ The **Kenworth W900 Double Dump Truck** showcases exceptional craftsmanship with
 
 Additionally, the inclusion of a **trailer** adds versatility, allowing users to simulate real-world construction and hauling scenarios. This feature not only enhances imaginative play for children but also adds depth to collector displays. Manufactured by **NewRay**, a reputable brand known for durable and detailed models, this item promises long-lasting enjoyment and an impressive addition to any toy or collector's shelf.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00BH0OWZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00BH0OWZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

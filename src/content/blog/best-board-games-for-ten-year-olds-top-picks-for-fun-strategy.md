@@ -23,10 +23,10 @@ This list covers a variety of games, from quick party fun to deeper strategy cha
 
 
 
-## <a href="https://www.amazon.com/dp/B0F93GH13W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">45 Pcs Game Replacement Pieces</a>
+## <a href="https://www.amazon.com/dp/B0F93GH13W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">45 Pcs Game Replacement Pieces</a>
 
 
-<a href="https://www.amazon.com/dp/B0F93GH13W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="45 Pcs Game Replacement Pieces Compatible with Popular Board Game, Includes Hotels, Houses, and Bonus Jail Set" src="https://m.media-amazon.com/images/I/417l3z3ZUPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F93GH13W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="45 Pcs Game Replacement Pieces Compatible with Popular Board Game, Includes Hotels, Houses, and Bonus Jail Set" src="https://m.media-amazon.com/images/I/417l3z3ZUPL._SL500_.jpg"/></a>
 
 
 The **45 Pcs Game Replacement Pieces Compatible with Popular Board Game** is ideal for board game enthusiasts who need to replace lost or damaged tokens such as **hotels**, **houses**, and the **bonus jail set**. Whether you are a casual player or a dedicated collector, this set is perfect for anyone looking to restore their favorite board game to its original condition or enhance their gameplay experience with high-quality, reliable pieces.
@@ -49,10 +49,10 @@ The **45 Pcs Game Replacement Pieces** offer a practical and affordable solution
 
 Beyond compatibility, the vibrant colors and durable build enhance both the visual appeal and longevity of these replacement pieces. Players can easily distinguish their tokens on the board, which helps reduce confusion and speeds up turns. Overall, this set provides excellent value for anyone looking to breathe new life into their favorite board games while keeping the gameplay smooth and enjoyable.
 
-## <a href="https://www.amazon.com/dp/B09VMMHRBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Four Humours</a>
+## <a href="https://www.amazon.com/dp/B09VMMHRBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Four Humours</a>
 
 
-<a href="https://www.amazon.com/dp/B09VMMHRBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Four Humours - The Board Game for Plague Doctors and Medieval Psychologists by Adam's Apple Games | A Unique Experience for Strategy and Deduction Players. Ages 10 and Up" src="https://m.media-amazon.com/images/I/51gwQUOS41L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09VMMHRBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Four Humours - The Board Game for Plague Doctors and Medieval Psychologists by Adam's Apple Games | A Unique Experience for Strategy and Deduction Players. Ages 10 and Up" src="https://m.media-amazon.com/images/I/51gwQUOS41L._SL500_.jpg"/></a>
 
 
 The **Four Humours - The Board Game for Plague Doctors and Medieval Psychologists** by **Adam's Apple Games** is ideal for players aged 10 and up who enjoy **strategy** and **deduction**-based gameplay. This game is perfect for those fascinated by historical themes and looking for a unique board game experience that challenges their critical thinking and planning skills. Whether you are a casual gamer or a serious strategist, this title offers an engaging and intellectually stimulating adventure.
@@ -75,10 +75,10 @@ The game's design revolves around the fascinating concept of the **four humours*
 
 Additionally, the game's balance between strategy and accessibility makes it a great choice for both new and experienced players. By engaging with this board game, players not only enjoy competitive fun but also gain insight into an intriguing period of history. Overall, it offers a rich, thoughtful experience that stands out in the board game market.
 
-## <a href="https://www.amazon.com/dp/B0CPMBV6K4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mindclash Games Septima</a>
+## <a href="https://www.amazon.com/dp/B0CPMBV6K4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mindclash Games Septima</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPMBV6K4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mindclash Games Septima - Shapeshifting &amp; Omens Expansion | Transform into Animal Forms &amp; Face Omens | New Cards, Animal Tiles &amp; Modular Gameplay" src="https://m.media-amazon.com/images/I/41tbJHwNspL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPMBV6K4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mindclash Games Septima - Shapeshifting &amp; Omens Expansion | Transform into Animal Forms &amp; Face Omens | New Cards, Animal Tiles &amp; Modular Gameplay" src="https://m.media-amazon.com/images/I/41tbJHwNspL._SL500_.jpg"/></a>
 
 
 The **Mindclash Games Septima - Shapeshifting & Omens Expansion** is ideal for board game enthusiasts who enjoy strategic depth and thematic gameplay enhancements. If you are a fan of immersive fantasy settings and love adding modular expansions that introduce new mechanics such as transforming into animal forms and facing ominous challenges, this expansion is perfect for you. It is especially suited for players who already own the base game and want to enrich their gaming experience with fresh content and dynamic gameplay elements.
@@ -101,10 +101,10 @@ The **Mindclash Games Septima - Shapeshifting & Omens Expansion** introduces inn
 
 Additionally, the expansion's **modular gameplay** design allows players to customize their playthroughs by choosing which elements to include. This flexibility caters to different play styles and preferences, enabling both casual and hardcore gamers to tailor their experience. Manufactured by **Mindclash Games GmbH**, the expansion maintains a high standard of quality, combining visually appealing multi-color components with durable materials. Its compact size and lightweight nature make it a convenient addition to any board game collection.
 
-## <a href="https://www.amazon.com/dp/B0BVWLP6NZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ludic Seven Games Board Games</a>
+## <a href="https://www.amazon.com/dp/B0BVWLP6NZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ludic Seven Games Board Games</a>
 
 
-<a href="https://www.amazon.com/dp/B0BVWLP6NZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LUDIC Seven Games Board Games for Kids, Teens, Adults, Family, Friends Ages 8-99 Years Old, Party Games, Fun Party Games for 2 Players, Birthday" src="https://m.media-amazon.com/images/I/51E02gQz-WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BVWLP6NZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LUDIC Seven Games Board Games for Kids, Teens, Adults, Family, Friends Ages 8-99 Years Old, Party Games, Fun Party Games for 2 Players, Birthday" src="https://m.media-amazon.com/images/I/51E02gQz-WL._SL500_.jpg"/></a>
 
 
 The **LUDIC Seven Games Board Games** set is ideal for **families, friends, and game enthusiasts** looking to enjoy quality time together. Suitable for **kids, teens, and adults aged 8 to 99 years old**, this collection is perfect for those who appreciate a variety of **party games** that can be played by **two players or more**. Whether you're hosting a birthday party or just looking for fun indoor entertainment, this game set offers engaging options for all skill levels.
@@ -127,10 +127,10 @@ The **LUDIC Seven Games Board Games** set offers a versatile collection that bri
 
 With clear instructions and engaging gameplay, this board game set benefits users by providing entertainment that strengthens bonds among family members and friends. The durable design by **Ludic** ensures long-lasting use, while the age range and player count flexibility make it a valuable addition to any game collection, especially for those who love hosting game nights or celebrating special occasions.
 
-## <a href="https://www.amazon.com/dp/B0C24HGC16?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aeg Number Drop</a>
+## <a href="https://www.amazon.com/dp/B0C24HGC16?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aeg Number Drop</a>
 
 
-<a href="https://www.amazon.com/dp/B0C24HGC16?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AEG Number Drop | Retro Roll &amp; Write Polyomino Video Game Themed Board Game | Nostalgic &amp; Quick to Play | 1-6 Players | Ages 10+ | 20 Minute Playtime" src="https://m.media-amazon.com/images/I/4143QgDS1WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C24HGC16?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AEG Number Drop | Retro Roll &amp; Write Polyomino Video Game Themed Board Game | Nostalgic &amp; Quick to Play | 1-6 Players | Ages 10+ | 20 Minute Playtime" src="https://m.media-amazon.com/images/I/4143QgDS1WL._SL500_.jpg"/></a>
 
 
 The **AEG Number Drop** board game is perfect for fans of **retro roll & write** games and those who enjoy **video game-themed** challenges. Ideal for players aged **10 and up**, it suits individuals or groups looking for a **quick, engaging** game that combines nostalgia with strategic play. Whether you're a casual gamer or a board game enthusiast seeking a fast-paced option for **1 to 6 players**, this game offers accessible fun with a touch of classic charm.
@@ -153,10 +153,10 @@ The **AEG Number Drop** stands out with its clever integration of **polyomino** 
 
 Additionally, the game's compact size and ability to accommodate multiple players make it a great addition to any game night, whether at home or on the go. The short playtime ensures that it can fit into busy schedules without sacrificing entertainment value. With the backing of **Alderac Entertainment Group**, players can trust in the game's quality and replayability, making it a worthwhile choice for anyone looking to add a unique and lively title to their collection.
 
-## <a href="https://www.amazon.com/dp/B0DSF3SMKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alone Under The Ice</a>
+## <a href="https://www.amazon.com/dp/B0DSF3SMKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alone Under The Ice</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSF3SMKR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Backstories: Alone Under The Ice" src="https://m.media-amazon.com/images/I/41Mg-3Wmx1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSF3SMKR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Backstories: Alone Under The Ice" src="https://m.media-amazon.com/images/I/41Mg-3Wmx1L._SL500_.jpg"/></a>
 
 
 **Backstories: Alone Under The Ice** is ideal for fans of immersive storytelling and mystery games who enjoy piecing together narratives through creative clues. If you love engaging in thought-provoking challenges and uncovering hidden tales, this game by **LUCKY DUCK GAMES** offers a unique experience that blends intrigue with strategy. It’s perfect for solo players or small groups seeking a captivating and atmospheric adventure.
@@ -177,10 +177,10 @@ The game features a richly woven backstory that unfolds as players delve deeper 
 
 Additionally, the game’s design encourages players to think outside the box, enhancing problem-solving skills while immersing them in a captivating world. The combination of a visually appealing blue theme and thoughtfully constructed gameplay mechanics makes this a standout title for those who appreciate narrative depth and strategic play.
 
-## <a href="https://www.amazon.com/dp/B07ZTYBBRH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drako Knights And Trolls Board Game</a>
+## <a href="https://www.amazon.com/dp/B07ZTYBBRH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drako Knights And Trolls Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZTYBBRH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Drako Knights and Trolls Board Game | Fantasy Game with Tabletop Miniatures | Combat Strategy Game | Family Game for Kids and Adults | Ages 8+ | 2 Players | Average Playtime 30 Minutes | Made by Rebel" src="https://m.media-amazon.com/images/I/51z2+ZG1NYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZTYBBRH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Drako Knights and Trolls Board Game | Fantasy Game with Tabletop Miniatures | Combat Strategy Game | Family Game for Kids and Adults | Ages 8+ | 2 Players | Average Playtime 30 Minutes | Made by Rebel" src="https://m.media-amazon.com/images/I/51z2+ZG1NYL._SL500_.jpg"/></a>
 
 
 The **Drako Knights and Trolls Board Game** is ideal for families, fantasy enthusiasts, and strategy game lovers seeking an engaging and fast-paced tabletop experience. Designed for **kids and adults aged 8+**, this game is perfect for those who enjoy competitive **combat strategy games** with detailed miniatures and a fantasy theme. If you want a captivating two-player game that fits into an average playtime of **30 minutes**, this is a great choice.
@@ -203,10 +203,10 @@ The **Drako Knights and Trolls Board Game** features beautifully crafted multico
 
 Made by **Rebel Studio** and manufactured by **Asmodee**, this game combines quality production with well-balanced mechanics. The balance of accessibility and depth ensures that families and strategy enthusiasts alike can enjoy the game without a steep learning curve. Overall, it offers a fun and competitive experience that fits neatly into busy schedules, making it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B0D8BQB236?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thames &amp; Kosmos - Pacifica Strategy Game</a>
+## <a href="https://www.amazon.com/dp/B0D8BQB236?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thames &amp; Kosmos - Pacifica Strategy Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8BQB236?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thames &amp; Kosmos - Pacifica Strategy Game, Family Game Night Game, Board Game for Adults and Children, 2 Players, Ages 10+" src="https://m.media-amazon.com/images/I/61oXIzxT-KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8BQB236?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thames &amp; Kosmos - Pacifica Strategy Game, Family Game Night Game, Board Game for Adults and Children, 2 Players, Ages 10+" src="https://m.media-amazon.com/images/I/61oXIzxT-KL._SL500_.jpg"/></a>
 
 
 The **Thames & Kosmos - Pacifica Strategy Game** is ideal for families and friends looking for an engaging and thoughtful board game that suits both **adults and children aged 10 and above**. Perfect for those who enjoy strategic gameplay and want a stimulating activity for **two players**, this game is a great choice for **family game nights** or casual competitions between friends.
@@ -229,10 +229,10 @@ The **Pacifica Strategy Game** features a thoughtfully designed board and compon
 
 The benefit of this game lies in its ability to bring people together in an enjoyable, interactive environment while sharpening mental agility. Whether it's a casual evening at home or a special **family game night**, this board game offers a unique experience that balances fun and challenge, making it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B005NJ004O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxmind Taiga Brain Games</a>
+## <a href="https://www.amazon.com/dp/B005NJ004O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxmind Taiga Brain Games</a>
 
 
-<a href="https://www.amazon.com/dp/B005NJ004O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foxmind, Taiga, Brain Games" src="https://m.media-amazon.com/images/I/51sYVcS+dGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005NJ004O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foxmind, Taiga, Brain Games" src="https://m.media-amazon.com/images/I/51sYVcS+dGL._SL500_.jpg"/></a>
 
 
 The **Foxmind, Taiga, Brain Games** is ideal for individuals who enjoy challenging their cognitive skills and enhancing their problem-solving abilities. Perfect for puzzle enthusiasts, families looking for engaging activities, and anyone interested in improving mental agility, this game offers a stimulating experience that combines fun with brain training.
@@ -254,10 +254,10 @@ The **Foxmind, Taiga, Brain Games** features a thoughtfully crafted design by **
 
 With its focus on enhancing cognitive functions, this brain game offers numerous benefits such as improved logical thinking and spatial awareness. The **red color** of the set not only makes it visually appealing but also helps in maintaining user engagement. Although it is a classic brain game released in 1958, its timeless challenge continues to offer mental stimulation for players of all ages, making it a valuable tool for both entertainment and educational purposes.
 
-## <a href="https://www.amazon.com/dp/B00FUMSDKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Abundant Harvest Board Game</a>
+## <a href="https://www.amazon.com/dp/B00FUMSDKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Abundant Harvest Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00FUMSDKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Abundant Harvest Board Game for Teens &amp; Adults – Fun Social &amp; Communication Skills Games for Family Night, Therapy, School &amp; Couples - Character Building &amp; Deep Conversation, 2-8 Players, Ages 13+" src="https://m.media-amazon.com/images/I/61BZjnHHZZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00FUMSDKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Abundant Harvest Board Game for Teens &amp; Adults – Fun Social &amp; Communication Skills Games for Family Night, Therapy, School &amp; Couples - Character Building &amp; Deep Conversation, 2-8 Players, Ages 13+" src="https://m.media-amazon.com/images/I/61BZjnHHZZL._SL500_.jpg"/></a>
 
 
 The **Abundant Harvest Board Game** is ideal for **teens and adults** looking to enhance their **social and communication skills** in a fun and engaging way. Perfect for **family nights, therapy sessions, schools, and couples**, this game is designed to foster **deep conversations** and **character building** among players aged **13 and up**. If you want a meaningful yet entertaining activity that brings people closer, this game is for you.

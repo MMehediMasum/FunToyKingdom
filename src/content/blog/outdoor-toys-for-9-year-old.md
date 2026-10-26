@@ -57,7 +57,7 @@ STEM toys outdoors introduce science, technology, engineering, and math in a fun
 
 These toys might involve experiments, construction, or exploration tools to engage young minds.
 
-* [Solar-powered kits](https://www.amazon.com/s?k=solar+powered+kits+for+kids+age+9&tag=gearcookware-20) to build simple machines
+* [Solar-powered kits](https://www.amazon.com/s?k=solar+powered+kits+for+kids+age+9&tag=mofb05-20) to build simple machines
 * Bug catching and observation sets
 * Outdoor microscopes for examining plants
 * Weather stations to track temperature and rain
@@ -100,7 +100,7 @@ Popular frisbee types for kids include:
 
 * Soft foam discs for safety
 * Standard plastic frisbees for distance
-* [Glow-in-the-dark discs](https://www.amazon.com/s?k=glow+in+the+dark+frisbee&tag=gearcookware-20) for evening play
+* [Glow-in-the-dark discs](https://www.amazon.com/s?k=glow+in+the+dark+frisbee&tag=mofb05-20) for evening play
 
 ## Outdoor Games And Challenges
 
@@ -164,7 +164,7 @@ Bicycles are classic outdoor toys for children learning to ride. A bike with tra
 
 ### Electric Ride-ons
 
-[Electric ride-on toys](https://www.amazon.com/s?k=electric+ride+on+toys+for+9+year+olds&tag=gearcookware-20) add speed and excitement. They usually have a rechargeable battery and simple controls. Kids enjoy driving them in safe outdoor spaces.
+[Electric ride-on toys](https://www.amazon.com/s?k=electric+ride+on+toys+for+9+year+olds&tag=mofb05-20) add speed and excitement. They usually have a rechargeable battery and simple controls. Kids enjoy driving them in safe outdoor spaces.
 
 |  |  |  |
 | --- | --- | --- |
@@ -201,7 +201,7 @@ Outdoor art kits let kids paint, draw, and create in nature. These kits include 
 Kids can use natural items like leaves and stones to make unique art. This encourages them to see the beauty around them.
 
 * Washable paints and brushes
-* [Sidewalk chalk](https://www.amazon.com/s?k=sidewalk+chalk+set+bulk&tag=gearcookware-20) for drawing on paths
+* [Sidewalk chalk](https://www.amazon.com/s?k=sidewalk+chalk+set+bulk&tag=mofb05-20) for drawing on paths
 * Stamp pads with leaves and flowers
 * Sketch pads for drawing nature scenes
 
@@ -222,7 +222,7 @@ Nature tools help children explore outside safely and closely. These tools inclu
 
 Kids can discover insects, plants, and animals. This play teaches them about the environment and science.
 
-* [Binoculars](https://www.amazon.com/s?k=kids+binoculars+for+9+year+old&tag=gearcookware-20) for bird watching
+* [Binoculars](https://www.amazon.com/s?k=kids+binoculars+for+9+year+old&tag=mofb05-20) for bird watching
 * Magnifying glasses to see small details
 * Bug catchers with safe nets
 * Field guides for plants and animals

@@ -23,10 +23,10 @@ These kits also make great gifts for STEM enthusiasts. Exploring robotics can im
 
 
 
-## <a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Uno R3 Smart Robot Car Kit V4</a>
+## <a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Uno R3 Smart Robot Car Kit V4</a>
 
 
-<a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO UNO R3 Smart Robot Car Kit V4 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Gifts for 8 9 10 11 12 13 14 15 16 Year Old Boys Girls Teens Cool Engineering Building Toys" src="https://m.media-amazon.com/images/I/517CZ1WfvaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KPZ8RSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO UNO R3 Smart Robot Car Kit V4 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Gifts for 8 9 10 11 12 13 14 15 16 Year Old Boys Girls Teens Cool Engineering Building Toys" src="https://m.media-amazon.com/images/I/517CZ1WfvaL._SL500_.jpg"/></a>
 
 
 The **ELEGOO UNO R3 Smart Robot Car Kit V4** is an excellent choice for young learners and budding engineers, specifically designed for **kids ages 8-16** who are interested in **Arduino robotics, STEM education, and coding**. This kit is ideal for children and teens who want a hands-on, interactive experience with building and programming their own smart robot car, making it perfect for parents, educators, and hobbyists aiming to foster creativity and technical skills.
@@ -49,10 +49,10 @@ The **ELEGOO UNO R3 Smart Robot Car Kit V4** features a robust design with dimen
 
 Moreover, this kit encourages creativity and critical thinking by enabling kids and teens to customize their robot car’s behavior through programming. The hands-on experience fosters a deeper grasp of STEM concepts, making learning enjoyable and effective. Whether as a gift or educational tool, the ELEGOO Smart Robot Car Kit supports skill development that can inspire future innovation in technology and engineering fields.
 
-## <a href="https://www.amazon.com/dp/B01EWNUUUA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Mega R3 Project Starter Kit</a>
+## <a href="https://www.amazon.com/dp/B01EWNUUUA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Mega R3 Project Starter Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B01EWNUUUA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Mega R3 Project The Most Complete Ultimate Starter Kit with Tutorial Compatible with Arduino IDE" src="https://m.media-amazon.com/images/I/618+pR2ae4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01EWNUUUA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Mega R3 Project The Most Complete Ultimate Starter Kit with Tutorial Compatible with Arduino IDE" src="https://m.media-amazon.com/images/I/618+pR2ae4L._SL500_.jpg"/></a>
 
 
 The **ELEGOO Mega R3 Project The Most Complete Ultimate Starter Kit** is ideal for beginners, hobbyists, and students who want to dive into the world of electronics and programming. It is perfect for those looking to learn and experiment with **Arduino IDE**-compatible projects, offering a comprehensive set of components and a detailed tutorial to guide users step-by-step. If you are eager to build innovative projects or enhance your technical skills, this starter kit is designed for you.
@@ -75,10 +75,10 @@ The **ELEGOO Mega R3 Starter Kit** features a robust **Mega 2560** microcontroll
 
 Additionally, the included tutorial is an excellent resource that walks users through each project with clear instructions and explanations. This helps users not only build projects but also understand the underlying principles of electronics and programming. The kit’s compact design and lightweight dimensions make it convenient to store and carry, making it suitable for classroom use or personal study at home. Overall, this starter kit empowers users to develop practical skills and creativity in the exciting field of embedded systems and IoT development.
 
-## <a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Conqueror Robot Tank Kit With Uno R3 For Arduino Robotics</a>
+## <a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Conqueror Robot Tank Kit With Uno R3 For Arduino Robotics</a>
 
 
-<a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Conqueror Robot Tank Kit with UNO R3 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Robots Toys for 8+ Year Old Boys Girls Teens Circuits Engineering Building Project" src="https://m.media-amazon.com/images/I/61lF1Z1BQ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08CZ4MG5P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Conqueror Robot Tank Kit with UNO R3 for Arduino Robotics for Kids Ages 8-12 12-16 STEM Science Kits Coding Robots Toys for 8+ Year Old Boys Girls Teens Circuits Engineering Building Project" src="https://m.media-amazon.com/images/I/61lF1Z1BQ1L._SL500_.jpg"/></a>
 
 
 The **ELEGOO Conqueror Robot Tank Kit with UNO R3** is ideal for young enthusiasts aged **8 to 16 years** who are eager to explore the world of **robotics**, **coding**, and **STEM** learning. This kit is perfect for kids, teens, and beginners interested in hands-on projects that combine **engineering** with creative problem-solving, making it an excellent educational toy for both boys and girls.
@@ -101,10 +101,10 @@ The **ELEGOO Conqueror Robot Tank Kit** features an **Arduino UNO R3** microcont
 
 Additionally, the kit serves as a valuable educational tool by integrating **STEM learning** through interactive play. Assembling the robot tank improves fine motor skills and patience, while coding it encourages logical thinking and problem-solving. The compact dimensions and sturdy build make it a durable project that kids can proudly showcase. Overall, this kit offers a rewarding experience that blends fun with practical skill development in robotics and coding.
 
-## <a href="https://www.amazon.com/dp/B08R76QDNP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Osoyoo Smart Robot Car Kit For Arduino</a>
+## <a href="https://www.amazon.com/dp/B08R76QDNP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Osoyoo Smart Robot Car Kit For Arduino</a>
 
 
-<a href="https://www.amazon.com/dp/B08R76QDNP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OSOYOO Smart Robot Car kit for Arduino to Learn Programming and Get Hands on Experience of Robotic Assembly for Adults and Youths" src="https://m.media-amazon.com/images/I/51pSduiNN2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08R76QDNP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OSOYOO Smart Robot Car kit for Arduino to Learn Programming and Get Hands on Experience of Robotic Assembly for Adults and Youths" src="https://m.media-amazon.com/images/I/51pSduiNN2L._SL500_.jpg"/></a>
 
 
 The **OSOYOO Smart Robot Car kit for Arduino** is perfect for both **adults and youths** who are eager to dive into the world of **programming** and **robotic assembly**. Ideal for beginners and hobbyists, this kit offers a hands-on learning experience that combines coding with mechanical building, making it a great choice for students, educators, and tech enthusiasts looking to enhance their STEM skills.
@@ -127,10 +127,10 @@ The **OSOYOO Smart Robot Car kit** offers an engaging platform for users to deve
 
 Additionally, the compact and lightweight design ensures that the kit is portable and easy to manage, allowing learners to work on their projects anywhere. Whether used in classrooms, workshops, or at home, this smart robot car kit provides a valuable, interactive experience that encourages creativity and problem-solving in the fields of **robotics** and **STEM education**.
 
-## <a href="https://www.amazon.com/dp/B0D8TD8JXB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Demkia Robot Building Kit For Kids And Adults</a>
+## <a href="https://www.amazon.com/dp/B0D8TD8JXB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Demkia Robot Building Kit For Kids And Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8TD8JXB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Demkia Robot Building Kit for Kids and Adults, 4-in-1 Rechargeable RC Robotics Kit with Remote &amp; App Control, STEM Coding Toys &amp; Science Projects, Birthday Gifts for Boys Ages 8-12+ (588 Pcs)" src="https://m.media-amazon.com/images/I/51lPqRwl0XL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8TD8JXB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Demkia Robot Building Kit for Kids and Adults, 4-in-1 Rechargeable RC Robotics Kit with Remote &amp; App Control, STEM Coding Toys &amp; Science Projects, Birthday Gifts for Boys Ages 8-12+ (588 Pcs)" src="https://m.media-amazon.com/images/I/51lPqRwl0XL._SL500_.jpg"/></a>
 
 
 The **Demkia Robot Building Kit for Kids and Adults** is ideal for young learners aged 8-12 and hobbyists interested in exploring **STEM** concepts through hands-on projects. This kit is perfect for those who want to develop skills in **robotics, coding, and remote control technology**, making it a great educational gift for birthdays or science enthusiasts looking to build and program their own robots.
@@ -153,10 +153,10 @@ The **Demkia Robot Building Kit** offers a unique blend of creativity and techno
 
 Designed with **STEM education** in mind, this kit encourages users to engage in **coding and science projects** that develop critical thinking and technical skills. Its rechargeable feature ensures sustainability and long-lasting fun without the hassle of constant battery replacements. The compact size and manageable weight make it accessible for children while still challenging enough for adults, bridging the gap between learning and entertainment for all ages.
 
-## <a href="https://www.amazon.com/dp/B0CNPBNDC2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blonwiner Robot Car Kit</a>
+## <a href="https://www.amazon.com/dp/B0CNPBNDC2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blonwiner Robot Car Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNPBNDC2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLONWINER Robot Car Kit, 2 in 1 Smart Robotics Arm Building Toy for Raspberry Pi Python Coding, STEM Programming Tank Kits with Camera (Without RPi Board)" src="https://m.media-amazon.com/images/I/5110NcvaFwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNPBNDC2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLONWINER Robot Car Kit, 2 in 1 Smart Robotics Arm Building Toy for Raspberry Pi Python Coding, STEM Programming Tank Kits with Camera (Without RPi Board)" src="https://m.media-amazon.com/images/I/5110NcvaFwL._SL500_.jpg"/></a>
 
 
 The **BLONWINER Robot Car Kit** is perfect for **students, hobbyists, and tech enthusiasts** who are eager to dive into the world of **STEM programming** and robotics. Ideal for those looking to enhance their skills in **Python coding** and Raspberry Pi projects, this kit offers a hands-on experience in building and programming a smart robotic arm and tank combo.
@@ -179,10 +179,10 @@ The **BLONWINER Robot Car Kit** stands out with its dual functionality, offering
 
 With the included camera, users can engage in exciting applications such as remote monitoring and image recognition, enhancing the interactive aspect of learning robotics. The kit's emphasis on Python coding supports educational growth, enabling users to write and test scripts that control the robot's movements and functionalities. Overall, this kit offers a comprehensive introduction to robotics and programming, making it a valuable asset for anyone interested in advancing their technical skills.
 
-## <a href="https://www.amazon.com/dp/B01D8KOZF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Uno Project Super Starter Kit</a>
+## <a href="https://www.amazon.com/dp/B01D8KOZF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Uno Project Super Starter Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B01D8KOZF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO UNO Project Super Starter Kit with Tutorial and UNO R3 Board Compatible with Arduino IDE" src="https://m.media-amazon.com/images/I/61zO-B7DufL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01D8KOZF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO UNO Project Super Starter Kit with Tutorial and UNO R3 Board Compatible with Arduino IDE" src="https://m.media-amazon.com/images/I/61zO-B7DufL._SL500_.jpg"/></a>
 
 
 The **ELEGOO UNO Project Super Starter Kit** with Tutorial and UNO R3 Board is ideal for beginners and hobbyists eager to explore the world of electronics and programming. If you are someone looking to learn Arduino development with a comprehensive set of components, clear tutorials, and a reliable UNO R3 board compatible with the Arduino IDE, this kit is designed for you. It suits students, DIY enthusiasts, and educators seeking an all-in-one solution for hands-on learning.
@@ -205,10 +205,10 @@ The **ELEGOO UNO Project Super Starter Kit** features the highly compatible **UN
 
 Additionally, the included tutorials are designed to guide users step-by-step through multiple projects, ensuring that even those with no prior experience can follow along and create functioning devices. Its compact dimensions and lightweight design also make it convenient to carry around for classroom sessions or personal study. Overall, this starter kit offers a balanced combination of usability, educational value, and quality, making it a smart investment for anyone serious about learning electronics and Arduino programming.
 
-## <a href="https://www.amazon.com/dp/B081FG1JQ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lk Cokoino Robot Arm For Arduino</a>
+## <a href="https://www.amazon.com/dp/B081FG1JQ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lk Cokoino Robot Arm For Arduino</a>
 
 
-<a href="https://www.amazon.com/dp/B081FG1JQ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LK COKOINO Robot Arm for Arduino, Smart Robot Building Kit That can Memorize and Repeat Movements for Beginners/Teens/Adults to Learn Electronic, Programming, Math and Science" src="https://m.media-amazon.com/images/I/416YAUQPQCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081FG1JQ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LK COKOINO Robot Arm for Arduino, Smart Robot Building Kit That can Memorize and Repeat Movements for Beginners/Teens/Adults to Learn Electronic, Programming, Math and Science" src="https://m.media-amazon.com/images/I/416YAUQPQCL._SL500_.jpg"/></a>
 
 
 The **LK COKOINO Robot Arm for Arduino** is an ideal choice for **beginners, teens, and adults** who are eager to explore the fields of **electronics, programming, math, and science**. This smart robot building kit is perfect for those who want a hands-on learning experience with a device that can **memorize and repeat movements**, making it an engaging educational tool for STEM enthusiasts and hobbyists alike.
@@ -231,10 +231,10 @@ The **LK COKOINO Robot Arm** features a robust build with a sleek **black design
 
 Beyond just a toy, this robot arm serves as a practical educational tool that bridges theoretical concepts with real-world applications. By assembling and programming the arm, users gain hands-on experience in **electronics and mechanics**, enhancing problem-solving skills and fostering creativity. Whether used in a classroom setting or at home, the **LK COKOINO Robot Arm** provides a meaningful, fun, and engaging way to delve into STEM fields.
 
-## <a href="https://www.amazon.com/dp/B0D8149WMY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iatom Johnny 5 Robot Building Set With Remote Control</a>
+## <a href="https://www.amazon.com/dp/B0D8149WMY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Iatom Johnny 5 Robot Building Set With Remote Control</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8149WMY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iATOM 1176 Pieces Johnny 5 Robot Building Set with Remote Control - Rechargeable, Compatible with Lego for Adults, Tech Movie Action Figure Model Kit, Gift for Halloween &amp; Chirstmas" src="https://m.media-amazon.com/images/I/51nnlCPHrJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8149WMY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iATOM 1176 Pieces Johnny 5 Robot Building Set with Remote Control - Rechargeable, Compatible with Lego for Adults, Tech Movie Action Figure Model Kit, Gift for Halloween &amp; Chirstmas" src="https://m.media-amazon.com/images/I/51nnlCPHrJL._SL500_.jpg"/></a>
 
 
 The **iATOM 1176 Pieces Johnny 5 Robot Building Set with Remote Control** is ideal for **adults** and tech enthusiasts who enjoy complex model kits and robotics. Perfect for fans of iconic **tech movie action figures**, this set combines the joy of building with interactive features, making it a fantastic gift for **Halloween** and **Christmas** occasions. It is especially suited for those who appreciate detailed craftsmanship and want a rechargeable, remote-controlled model that is also **compatible with Lego** pieces.
@@ -258,10 +258,10 @@ The **iATOM Johnny 5 Robot Building Set** offers a highly detailed and immersive
 
 Designed with compatibility in mind, this set allows seamless integration with **Lego** bricks, encouraging creativity and customization. Its durable construction and authentic color scheme make it a standout collectible for fans of the classic Johnny 5 robot and tech movie memorabilia. Whether as a gift or a personal project, this building set combines technical challenge with rewarding playability, making it a unique addition to any adult builder's collection.
 
-## <a href="https://www.amazon.com/dp/B08276N3D9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keyestudio Smart Car Robot</a>
+## <a href="https://www.amazon.com/dp/B08276N3D9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Keyestudio Smart Car Robot</a>
 
 
-<a href="https://www.amazon.com/dp/B08276N3D9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KEYESTUDIO Smart Car Robot,4WD Programmable DIY Starter Kit for Arduino for Uno R3,Electronics Programming Project/STEM Educational/Science Coding Kit for Teens Adults,15+" src="https://m.media-amazon.com/images/I/51DO-GsIJjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08276N3D9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KEYESTUDIO Smart Car Robot,4WD Programmable DIY Starter Kit for Arduino for Uno R3,Electronics Programming Project/STEM Educational/Science Coding Kit for Teens Adults,15+" src="https://m.media-amazon.com/images/I/51DO-GsIJjL._SL500_.jpg"/></a>
 
 
 The **KEYESTUDIO Smart Car Robot** is an ideal choice for **teens and adults** interested in **STEM education**, **electronics programming**, and hands-on DIY projects. Whether you are a beginner looking to dive into **Arduino programming** or an enthusiast eager to build a **4WD programmable robot**, this kit offers a comprehensive starting point for learning and experimentation. It is perfect for those who want to enhance their coding skills and gain practical experience in robotics.

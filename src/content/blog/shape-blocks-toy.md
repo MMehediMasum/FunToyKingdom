@@ -22,10 +22,10 @@ For slightly older toddlers, the Melissa & Doug Shape Sorting Cube offers a clas
 
 
 
-## <a href="https://www.amazon.com/dp/B01NCUSC7V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Stacking Toy Baby's First Blocks</a>
+## <a href="https://www.amazon.com/dp/B01NCUSC7V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Stacking Toy Baby's First Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B01NCUSC7V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Stacking Toy Baby's First Blocks Set of 10 Shapes for Sorting Play for Infants Ages 6+ Months" src="https://m.media-amazon.com/images/I/31BpolMkD9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01NCUSC7V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Stacking Toy Baby's First Blocks Set of 10 Shapes for Sorting Play for Infants Ages 6+ Months" src="https://m.media-amazon.com/images/I/31BpolMkD9L._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Stacking Toy Baby's First Blocks Set of 10 Shapes** is ideal for infants aged **6 months and older** who are beginning to explore their motor skills and cognitive abilities. Parents and caregivers looking for a colorful, engaging, and educational toy to introduce basic shapes and sorting concepts to their little ones will find this set perfect for early developmental play.
@@ -47,12 +47,12 @@ This **stacking toy set** features a collection of 10 uniquely shaped blocks tha
 
 Beyond just stacking, the toy supports early cognitive development by introducing babies to fundamental concepts such as shape recognition and spatial awareness. The sturdy design ensures that the blocks can withstand frequent handling and teething, making it a reliable and safe choice for parents. Overall, this set serves as both an entertaining and educational tool that grows with your infant’s developmental milestones.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01NCUSC7V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01NCUSC7V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00005RF5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Shape Sorting Cube</a>
+## <a href="https://www.amazon.com/dp/B00005RF5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Shape Sorting Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B00005RF5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Shape Sorting Cube - Classic Wooden Toy With 12 Shapes" src="https://m.media-amazon.com/images/I/41PJDB9m+9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00005RF5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Shape Sorting Cube - Classic Wooden Toy With 12 Shapes" src="https://m.media-amazon.com/images/I/41PJDB9m+9L._SL500_.jpg"/></a>
 
 
 The **Melissa & Doug Shape Sorting Cube** is ideal for parents and caregivers seeking a classic, educational toy that encourages early childhood development. Perfect for toddlers aged 2 and up, this **classic wooden toy** helps little ones improve their hand-eye coordination, shape recognition, and problem-solving skills in a fun and engaging way. If you're looking for a durable, safe, and stimulating toy that grows with your child, this shape sorting cube is an excellent choice.
@@ -74,12 +74,12 @@ The **Melissa & Doug Shape Sorting Cube** features a sturdy wooden cube with 12 
 
 Beyond its educational value, this toy promotes essential developmental skills such as hand-eye coordination, spatial awareness, and problem-solving, which are crucial during early childhood. The durable wooden materials ensure that the toy withstands rough play, making it a reliable choice for active toddlers. Additionally, its timeless design appeals to both children and parents who prefer non-plastic, eco-friendly toys that combine learning and fun effectively.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00005RF5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00005RF5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B077H5G2Q3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Infant Toy Set</a>
+## <a href="https://www.amazon.com/dp/B077H5G2Q3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Infant Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B077H5G2Q3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Infant Toy Set, Baby’s First Blocks (10 Shapes) and Rock-a-Stack Ring Stacking Activity for Ages 6+ Months​ (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/416wq83f6mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077H5G2Q3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Infant Toy Set, Baby’s First Blocks (10 Shapes) and Rock-a-Stack Ring Stacking Activity for Ages 6+ Months​ (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/416wq83f6mL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Infant Toy Set**, featuring **Baby’s First Blocks** and the **Rock-a-Stack Ring Stacking Activity**, is ideal for parents and caregivers of babies aged **6 months and older**. This set is perfect for those looking to introduce their little ones to early learning through colorful, engaging, and safe toys that promote motor skills and cognitive development.
@@ -102,12 +102,12 @@ The **Fisher-Price Infant Toy Set** combines vibrant colors and engaging shapes 
 
 Made with safety and convenience in mind, this **Amazon Exclusive** set is lightweight and easy to handle, making it suitable for both home and travel. The design and materials used by **Fisher-Price** ensure that the toys are durable and safe, providing peace of mind for parents while their babies enjoy hours of developmental play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B077H5G2Q3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B077H5G2Q3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000068CKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Wooden Building Blocks Set</a>
+## <a href="https://www.amazon.com/dp/B000068CKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Wooden Building Blocks Set</a>
 
 
-<a href="https://www.amazon.com/dp/B000068CKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Wooden Building Blocks Set - 100 Blocks in 4 Colors and 9 Shapes - FSC Certified" src="https://m.media-amazon.com/images/I/41jBPZEtvML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000068CKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Wooden Building Blocks Set - 100 Blocks in 4 Colors and 9 Shapes - FSC Certified" src="https://m.media-amazon.com/images/I/41jBPZEtvML._SL500_.jpg"/></a>
 
 
 The **Melissa & Doug Wooden Building Blocks Set** is an ideal choice for parents and educators looking to foster creativity and fine motor skills in young children. Designed for kids who love hands-on play, this set encourages imaginative building and learning through colorful, safe, and durable wooden blocks. It is perfect for toddlers and preschoolers eager to explore shapes, colors, and spatial relationships.
@@ -129,12 +129,12 @@ The **Melissa & Doug Wooden Building Blocks Set** offers a comprehensive and col
 
 Crafted with smooth edges and durable wood, the blocks ensure a safe and long-lasting play experience. As children manipulate the blocks, they develop essential cognitive and physical skills such as spatial awareness, problem-solving, and dexterity. The simplicity of the set encourages limitless creativity, making it a valuable educational toy that grows with your child’s imagination.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000068CKY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000068CKY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C2PGJ543?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aprilwolf Montessori Toys</a>
+## <a href="https://www.amazon.com/dp/B0C2PGJ543?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aprilwolf Montessori Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2PGJ543?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aprilwolf Montessori Toys for 1 Year Old, Cube &amp; 6 Sensory Shape Blocks, Baby Toys 12-18 Months, Developmental Infant Birthday Gifts for Learning Toddler Age 1 2 3" src="https://m.media-amazon.com/images/I/41kXXYF0l-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2PGJ543?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aprilwolf Montessori Toys for 1 Year Old, Cube &amp; 6 Sensory Shape Blocks, Baby Toys 12-18 Months, Developmental Infant Birthday Gifts for Learning Toddler Age 1 2 3" src="https://m.media-amazon.com/images/I/41kXXYF0l-L._SL500_.jpg"/></a>
 
 
 The **Aprilwolf Montessori Toys for 1 Year Old** are ideal for parents and caregivers looking to support their toddler’s early development through engaging and educational play. Designed specifically for children aged **12-18 months**, these toys are perfect for little learners who are beginning to explore shapes, colors, and sensory experiences. If you want to provide a safe, stimulating, and interactive environment for your child’s growth, this set is an excellent choice.
@@ -156,12 +156,12 @@ The **Aprilwolf Montessori Toys** set is thoughtfully designed to nurture a todd
 
 Additionally, the toy’s multi-color palette not only makes it visually appealing but also aids in color recognition and sensory stimulation. Made by **Aprilwolf creation**, the set adheres to safety standards, giving parents peace of mind. While the toy is primarily aimed at children aged 1 to 3 years, it lays a strong foundation for future learning milestones by blending play with essential developmental benefits.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C2PGJ543?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C2PGJ543?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B076RHHRN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Play22 Baby Blocks Shape Sorter Toy</a>
+## <a href="https://www.amazon.com/dp/B076RHHRN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Play22 Baby Blocks Shape Sorter Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B076RHHRN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Play22 Baby Blocks Shape Sorter Toy - Childrens Blocks Includes 18 Shapes - Learning Color Recognition - Colorful Sorter Cube Box - My First Baby Toys - Toys Gift for Boys &amp; Girls" src="https://m.media-amazon.com/images/I/51PRXn5nJXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076RHHRN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Play22 Baby Blocks Shape Sorter Toy - Childrens Blocks Includes 18 Shapes - Learning Color Recognition - Colorful Sorter Cube Box - My First Baby Toys - Toys Gift for Boys &amp; Girls" src="https://m.media-amazon.com/images/I/51PRXn5nJXL._SL500_.jpg"/></a>
 
 
 The **Play22 Baby Blocks Shape Sorter Toy** is ideal for parents and caregivers looking to introduce their toddlers to early learning concepts such as **color recognition** and **shape identification**. This toy is perfect for children aged 1 to 3 years who are developing their fine motor skills and hand-eye coordination. It also serves as an excellent gift choice for both boys and girls, encouraging interactive play and cognitive development.
@@ -183,12 +183,12 @@ The **Play22 Baby Blocks Shape Sorter Toy** features a bright and **multicolor d
 
 Designed with safety and developmental benefits in mind, this toy supports early cognitive growth by teaching **color recognition** and **shape differentiation**. The durable materials ensure it withstands rough play, while the interactive nature of the toy encourages curiosity and focused playtime. Overall, the Play22 Shape Sorter is a practical and engaging first toy that fosters essential learning milestones in a fun and colorful way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B076RHHRN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B076RHHRN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09P9HNXTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Stacking Toy Baby’s First Blocks Set</a>
+## <a href="https://www.amazon.com/dp/B09P9HNXTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Stacking Toy Baby’s First Blocks Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09P9HNXTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Stacking Toy Baby’s First Blocks Set of 10 Shapes for Sorting Play for Infants Ages 6+ Months, Navy Fawn​" src="https://m.media-amazon.com/images/I/41s59SPI3bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09P9HNXTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Stacking Toy Baby’s First Blocks Set of 10 Shapes for Sorting Play for Infants Ages 6+ Months, Navy Fawn​" src="https://m.media-amazon.com/images/I/41s59SPI3bL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Stacking Toy Baby’s First Blocks Set of 10 Shapes** is ideal for parents and caregivers of infants aged **6+ months** who are looking to introduce their little ones to early learning through play. This toy is perfect for babies beginning to develop their motor skills and hand-eye coordination, offering a safe and engaging way to explore shapes, colors, and sorting.
@@ -211,12 +211,12 @@ The **Fisher-Price Stacking Toy** boasts a variety of shapes designed to stimula
 
 With dimensions of approximately **8.27 inches in height** and weighing just under a pound, this set is easy to handle and store, making it a convenient choice for busy parents. Its durable construction ensures it can withstand the rough play typical of infants, while the smooth edges provide safety during handling. Overall, this stacking toy offers a combination of fun and learning that supports early development in a simple yet effective way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09P9HNXTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09P9HNXTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09LCHBZ7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Likee Shape Sorter Toys For 1+ Years Old</a>
+## <a href="https://www.amazon.com/dp/B09LCHBZ7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Likee Shape Sorter Toys For 1+ Years Old</a>
 
 
-<a href="https://www.amazon.com/dp/B09LCHBZ7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LiKee Shape Sorter Toys for 1+ Years Old, 10pcs Montessori Baby Blocks, Sensory Toddler Learning Toy for Fine Motor Skills, Infant Developmental Toys Gift for Boys Girls Ages 18+ Months" src="https://m.media-amazon.com/images/I/41tLJFDEF8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09LCHBZ7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LiKee Shape Sorter Toys for 1+ Years Old, 10pcs Montessori Baby Blocks, Sensory Toddler Learning Toy for Fine Motor Skills, Infant Developmental Toys Gift for Boys Girls Ages 18+ Months" src="https://m.media-amazon.com/images/I/41tLJFDEF8L._SL500_.jpg"/></a>
 
 
 The **LiKee Shape Sorter Toys** are ideal for parents and caregivers seeking an engaging and educational toy for toddlers aged **18+ months**. This product is perfect for young children who are beginning to develop their **fine motor skills** and sensory awareness, making it a great choice for early childhood developmental stages. If you want a safe, colorful, and stimulating toy that encourages learning through play, this set is designed just for you.
@@ -239,12 +239,12 @@ The **LiKee Shape Sorter Toys** set features 10 brightly colored blocks that fit
 
 Besides enhancing physical skills, this sensory toddler learning toy also fosters cognitive development by encouraging problem-solving and logical thinking. The multicolor design stimulates visual perception, while the tactile experience of handling the wooden blocks engages sensory development. As a developmental gift suitable for both boys and girls, it provides a safe and enjoyable introduction to educational play, making it an excellent addition to any early learning environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09LCHBZ7P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09LCHBZ7P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shape Sorter Toddler Learning Toys</a>
+## <a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shape Sorter Toddler Learning Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shape Sorter Toddler Learning Toys - 19 Pcs Classic Kids Toys Blocks for Toddlers 1-3, Color Recognition, Sorting and Matching Activity Cube for Baby Games" src="https://m.media-amazon.com/images/I/41jm3ihGvNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shape Sorter Toddler Learning Toys - 19 Pcs Classic Kids Toys Blocks for Toddlers 1-3, Color Recognition, Sorting and Matching Activity Cube for Baby Games" src="https://m.media-amazon.com/images/I/41jm3ihGvNL._SL500_.jpg"/></a>
 
 
 The **Shape Sorter Toddler Learning Toys** are perfect for parents and caregivers looking to enhance early childhood development in children aged 1 to 3 years. This educational toy is ideal for toddlers beginning to explore shapes, colors, and spatial relationships, making it a valuable addition to any child's playtime routine.
@@ -266,12 +266,12 @@ The **Shape Sorter Toddler Learning Toys** feature a multicolor cube with 19 cla
 
 This toy also promotes **color recognition** and **sorting abilities**, which are foundational for early learning. The activity cube design encourages repeated play, enabling toddlers to practice **problem-solving** and **matching** in a hands-on environment. As a result, it supports early developmental milestones and keeps young children engaged in constructive play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DQCVQN8H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D95437VK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kiddie Play Shape Sorter Learning Toys</a>
+## <a href="https://www.amazon.com/dp/B0D95437VK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kiddie Play Shape Sorter Learning Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0D95437VK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kiddie Play Shape Sorter Learning Toys for Toddlers 16 pcs Baby Plastic Blocks Shape Sorting Cube" src="https://m.media-amazon.com/images/I/41OQUzcNVyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D95437VK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kiddie Play Shape Sorter Learning Toys for Toddlers 16 pcs Baby Plastic Blocks Shape Sorting Cube" src="https://m.media-amazon.com/images/I/41OQUzcNVyL._SL500_.jpg"/></a>
 
 
 The **Kiddie Play Shape Sorter Learning Toys for Toddlers 16 pcs Baby Plastic Blocks Shape Sorting Cube** is ideal for parents and caregivers looking to enhance their toddler's early development skills. This educational toy is perfect for children aged 1 to 3 years who are beginning to explore shapes, colors, and hand-eye coordination. If you want to provide a fun and interactive way for your child to learn problem-solving and fine motor skills, this shape sorter is an excellent choice.
@@ -294,7 +294,7 @@ The **Kiddie Play Shape Sorter** features a compact cube design with 16 brightly
 
 By engaging with this shape sorter, toddlers develop crucial **fine motor skills** as they grasp and manipulate the blocks. Additionally, the toy fosters early cognitive skills by encouraging children to think critically about which block fits into which slot. This combination of fun and learning makes the Kiddie Play Shape Sorter an invaluable educational tool for early childhood development.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D95437VK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D95437VK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

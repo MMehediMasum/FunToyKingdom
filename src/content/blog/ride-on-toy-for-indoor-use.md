@@ -67,7 +67,7 @@ Choosing the right type depends on the child's age and ability. Here are some co
 
 ### Push And Pedal Ride-ons
 
-[Push and pedal ride-ons](https://www.amazon.com/s?k=push+and+pedal+ride-on+toys&tag=gearcookware-20) are great for toddlers and young kids. They use the child’s own power to move.
+[Push and pedal ride-ons](https://www.amazon.com/s?k=push+and+pedal+ride-on+toys&tag=mofb05-20) are great for toddlers and young kids. They use the child’s own power to move.
 
 Push ride-ons let kids use their feet to move forward. Pedal ride-ons have pedals to push with their feet.
 
@@ -87,7 +87,7 @@ These toys move on their own with simple controls. They help kids learn steering
 
 ### Rocking And Balance Ride-ons
 
-[Rocking and balance ride-ons](https://www.amazon.com/s?k=kids+rocking+and+balance+ride-on+toys&tag=gearcookware-20) improve stability and focus. They do not have wheels but move with body motion.
+[Rocking and balance ride-ons](https://www.amazon.com/s?k=kids+rocking+and+balance+ride-on+toys&tag=mofb05-20) improve stability and focus. They do not have wheels but move with body motion.
 
 Rocking toys swing back and forth, while balance toys help kids stay steady while sitting or standing.
 
@@ -202,8 +202,8 @@ For kids who love speed, consider the following ride-on picks:
 
 Ride-on toys come in a variety of themes and character designs that kids love. From superheroes to cartoon characters, there's a ride-on toy to match every child's interests.
 
-* [Marvel Superhero Ride-On](https://www.amazon.com/s?k=marvel+superhero+ride-on+toy&tag=gearcookware-20): This ride-on toy features a Marvel superhero design and comes with sound effects and lights.
-* [Peppa Pig Ride-On](https://www.amazon.com/s?k=peppa+pig+ride-on+toy&tag=gearcookware-20): This adorable ride-on toy features Peppa Pig and her friends and is perfect for kids who love the popular TV show.
+* [Marvel Superhero Ride-On](https://www.amazon.com/s?k=marvel+superhero+ride-on+toy&tag=mofb05-20): This ride-on toy features a Marvel superhero design and comes with sound effects and lights.
+* [Peppa Pig Ride-On](https://www.amazon.com/s?k=peppa+pig+ride-on+toy&tag=mofb05-20): This adorable ride-on toy features Peppa Pig and her friends and is perfect for kids who love the popular TV show.
 
 ### Multi-functional Features
 
@@ -283,7 +283,7 @@ Any materials that can be a choking hazard or cause suffocation, such as small t
 
 Provide protective gear for children, including:
 
-[Soft, padded flooring](https://www.amazon.com/s?k=soft+padded+flooring+play+mat+for+kids&tag=gearcookware-20) to cushion falls and prevent head injuries.
+[Soft, padded flooring](https://www.amazon.com/s?k=soft+padded+flooring+play+mat+for+kids&tag=mofb05-20) to cushion falls and prevent head injuries.
 
 Mattresses or cushions to provide a safe landing in case of falls.
 

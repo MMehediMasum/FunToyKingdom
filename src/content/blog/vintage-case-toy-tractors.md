@@ -23,10 +23,10 @@ Ideal for both young enthusiasts and seasoned collectors, these models bring joy
 
 
 
-## <a href="https://www.amazon.com/dp/B0DDCKVXVK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih Out-lugger Vintage Pulling Tractor</a>
+## <a href="https://www.amazon.com/dp/B0DDCKVXVK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih Out-lugger Vintage Pulling Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDCKVXVK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case IH 1/64 Out-Lugger Vintage Pulling Tractor 47571" src="https://m.media-amazon.com/images/I/41t82hNDVOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDCKVXVK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case IH 1/64 Out-Lugger Vintage Pulling Tractor 47571" src="https://m.media-amazon.com/images/I/41t82hNDVOL._SL500_.jpg"/></a>
 
 
 The **Case IH 1/64 Out-Lugger Vintage Pulling Tractor 47571** is ideal for collectors and enthusiasts of agricultural models, especially those who appreciate vintage farm equipment. It is perfect for individuals who want to add a detailed, miniature replica to their collection or for children interested in farm machinery toys that combine both playability and authenticity.
@@ -49,12 +49,12 @@ The **Case IH 1/64 Out-Lugger Vintage Pulling Tractor 47571** captures the charm
 
 This miniature tractor's sturdy build ensures it will maintain its appearance over time, making it a lasting addition to any collection. While it may not feature movable parts, its realistic aesthetic offers significant value for those who appreciate agricultural history and model craftsmanship. Overall, this item combines style, authenticity, and convenience, making it a must-have for hobbyists and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DDCKVXVK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DDCKVXVK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DP7D63SS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih Steiger 715 Quadtrac &amp; Steiger 9380 Tractor Set</a>
+## <a href="https://www.amazon.com/dp/B0DP7D63SS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih Steiger 715 Quadtrac &amp; Steiger 9380 Tractor Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP7D63SS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Case IH Steiger 715 Quadtrac &amp; Steiger 9380 Tractor Set Prestige Collection 44410" src="https://m.media-amazon.com/images/I/31So6HncBWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP7D63SS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Case IH Steiger 715 Quadtrac &amp; Steiger 9380 Tractor Set Prestige Collection 44410" src="https://m.media-amazon.com/images/I/31So6HncBWL._SL500_.jpg"/></a>
 
 
 The **ERTL 1/64 Case IH Steiger 715 Quadtrac & Steiger 9380 Tractor Set Prestige Collection 44410** is ideal for collectors and farming enthusiasts who appreciate highly detailed scale models. This set is perfect for those who want to showcase realistic agricultural machinery in their collection or use it as an educational tool to understand modern farming equipment. If you value precision craftsmanship and authentic replicas, this tractor set is an excellent choice.
@@ -77,12 +77,12 @@ This **prestige collection** features two detailed replicas: the Steiger 715 Qua
 
 Beyond aesthetics, the compact size and sturdy build allow collectors to display these tractors in a variety of settings without requiring much space. The lightweight design also ensures ease of handling, whether for showcasing or safe storage. Overall, the **ERTL 1/64 Case IH Steiger Tractor Set** combines quality craftsmanship with practical dimensions, making it a valuable addition to any farming model collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DP7D63SS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DP7D63SS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DDCKTVK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl International 1066 Sixty-sixer Vintage Pulling Tractor</a>
+## <a href="https://www.amazon.com/dp/B0DDCKTVK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl International 1066 Sixty-sixer Vintage Pulling Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDCKTVK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 47572"="" alt="ERTL 1/64 International 1066 " pulling="" sixty-sixer="" src="https://m.media-amazon.com/images/I/41Mdhxg-vML._SL500_.jpg" tractor="" vintage=""/></a>
+<a href="https://www.amazon.com/dp/B0DDCKTVK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 47572"="" alt="ERTL 1/64 International 1066 " pulling="" sixty-sixer="" src="https://m.media-amazon.com/images/I/41Mdhxg-vML._SL500_.jpg" tractor="" vintage=""/></a>
 
 
 The **ERTL 1/64 International 1066 "Sixty-Sixer Vintage Pulling Tractor 47572** is perfect for collectors and enthusiasts of agricultural machinery, especially those who appreciate detailed scale models of classic tractors. Ideal for fans of the **Case IH** brand and vintage farm equipment, this item offers a compact yet highly detailed replica that fits well into any collection or display.
@@ -104,12 +104,12 @@ This **vintage pulling tractor model** stands out due to its precise craftsmansh
 
 Furthermore, being manufactured by **Case IH** adds authenticity and reliability to the product, which is important for serious collectors. The lightweight design enhances its portability, making it convenient to move or showcase in different settings. Overall, this model balances aesthetic appeal with practicality, making it a worthwhile purchase for vintage tractor aficionados and model enthusiasts alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DDCKTVK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DDCKTVK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D45HYTWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih 1/64 Farmall 400 Narrow Front Tractor With Flarebox Wagon</a>
+## <a href="https://www.amazon.com/dp/B0D45HYTWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih 1/64 Farmall 400 Narrow Front Tractor With Flarebox Wagon</a>
 
 
-<a href="https://www.amazon.com/dp/B0D45HYTWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case IH 1/64 Farmall 400 Narrow Front Tractor with Flarebox Wagon, Diecast Metal, Soft-feel Tires, Ages 3+" src="https://m.media-amazon.com/images/I/31Y6Ti-dAlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D45HYTWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case IH 1/64 Farmall 400 Narrow Front Tractor with Flarebox Wagon, Diecast Metal, Soft-feel Tires, Ages 3+" src="https://m.media-amazon.com/images/I/31Y6Ti-dAlL._SL500_.jpg"/></a>
 
 
 The **Case IH 1/64 Farmall 400 Narrow Front Tractor with Flarebox Wagon** is ideal for young collectors and children aged 3 and above who have an interest in farming equipment or enjoy detailed diecast models. This item is perfect for parents looking to introduce their kids to agricultural machinery through a durable and realistic toy that combines fun with educational value.
@@ -131,12 +131,12 @@ The **Case IH Farmall 400 Narrow Front Tractor** features a highly detailed diec
 
 Its soft-feel tires ensure smooth movement across surfaces while enhancing the tactile experience for young users. The compact size is thoughtfully designed to fit comfortably in small hands, encouraging fine motor skills development. Overall, this model offers both educational and entertainment benefits, making it a valuable addition to any young farmer’s toy collection or a collector’s display shelf.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D45HYTWR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D45HYTWR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B008LRCSHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl Big Farm Tractor Toy</a>
+## <a href="https://www.amazon.com/dp/B008LRCSHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl Big Farm Tractor Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B008LRCSHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case ERTL Big Farm Tractor Toy, Red" src="https://m.media-amazon.com/images/I/51DZRmGca4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008LRCSHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case ERTL Big Farm Tractor Toy, Red" src="https://m.media-amazon.com/images/I/51DZRmGca4L._SL500_.jpg"/></a>
 
 
 The **Case ERTL Big Farm Tractor Toy, Red** is perfect for children and collectors who appreciate realistic farm replicas. Ideal for young farming enthusiasts and hobbyists, this detailed toy tractor offers an engaging experience that encourages imaginative play and a deeper understanding of farm machinery.
@@ -157,12 +157,12 @@ The **Case ERTL Big Farm Tractor Toy** boasts impressive craftsmanship from **Er
 
 Additionally, the sturdy yet lightweight design ensures the tractor is durable without being cumbersome. This combination of size and weight makes it an excellent choice for children to carry around or for collectors to display proudly. Overall, this toy tractor brings both educational value and entertainment to users of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B008LRCSHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B008LRCSHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B001QX5AAA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tomy John Deere Tractor Toys</a>
+## <a href="https://www.amazon.com/dp/B001QX5AAA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tomy John Deere Tractor Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B001QX5AAA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOMY John Deere Tractor Toys - Value Set and Carrying Case - Portable Tractor-Shaped Carrying Case with 10 Compartments - Farm Toys - 18 Count - 3 Years and Up" src="https://m.media-amazon.com/images/I/51lU8HccerL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001QX5AAA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOMY John Deere Tractor Toys - Value Set and Carrying Case - Portable Tractor-Shaped Carrying Case with 10 Compartments - Farm Toys - 18 Count - 3 Years and Up" src="https://m.media-amazon.com/images/I/51lU8HccerL._SL500_.jpg"/></a>
 
 
 The **TOMY John Deere Tractor Toys - Value Set and Carrying Case** is perfect for young children aged **3 years and up** who have a keen interest in farm life and imaginative play. Ideal for parents and gift-givers looking to provide a durable, engaging, and educational toy, this set encourages creativity while being easy to organize and transport. Kids who love tractors and farm equipment will find this set especially appealing.
@@ -184,12 +184,12 @@ The **TOMY John Deere Tractor Toys Value Set** features a unique **tractor-shape
 
 Beyond the fun, this toy set supports developmental benefits such as enhancing **fine motor coordination** through handling small parts and boosting **imaginative play** by enabling children to create their own farm scenarios. Its sturdy construction from **TOMY Intl.** ensures long-lasting playtime, making it a valuable addition to any child's toy collection. The compact size and manageable weight also make it an ideal travel companion for kids on the go.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B001QX5AAA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B001QX5AAA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D2J78K5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih 8250 Combine Harvesting Tractor And Truck Set</a>
+## <a href="https://www.amazon.com/dp/B0D2J78K5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Case Ih 8250 Combine Harvesting Tractor And Truck Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2J78K5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case IH 1/64 8250 Combine Harvesting Tractor and Truck Set 44384" src="https://m.media-amazon.com/images/I/31cq+gYJpTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2J78K5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Case IH 1/64 8250 Combine Harvesting Tractor and Truck Set 44384" src="https://m.media-amazon.com/images/I/31cq+gYJpTL._SL500_.jpg"/></a>
 
 
 The **Case IH 1/64 8250 Combine Harvesting Tractor and Truck Set 44384** is ideal for collectors of agricultural models, farming enthusiasts, and children interested in realistic farm equipment toys. This detailed set offers an authentic miniature experience of a combine harvester and truck, perfect for display or imaginative play. If you appreciate precision craftsmanship and iconic farming machinery, this set is designed for you.
@@ -212,12 +212,12 @@ The **Case IH 1/64 8250 Combine Harvesting Tractor and Truck Set** offers a rema
 
 Manufactured by **TOMY**, a reputable name in model toys, this set balances realism with durability, ensuring it can withstand gentle handling and maintain its appearance over time. The inclusion of both a combine harvester and truck provides versatility, allowing users to simulate harvesting scenarios or create dynamic farm displays. Overall, this set combines educational value with aesthetic appeal, making it a valuable addition to any agricultural model enthusiast's collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D2J78K5H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D2J78K5H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0FCTLQ9TW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl 1/64 Case Ih Grain Bin Set With Tractor, Cattle, Hay Bales &amp; Fence</a>
+## <a href="https://www.amazon.com/dp/B0FCTLQ9TW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl 1/64 Case Ih Grain Bin Set With Tractor, Cattle, Hay Bales &amp; Fence</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCTLQ9TW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Case IH Grain Bin Set with Tractor, Cattle, Hay Bales &amp; Fence Everyday Play 44458" src="https://m.media-amazon.com/images/I/319R7BGRM1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCTLQ9TW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Case IH Grain Bin Set with Tractor, Cattle, Hay Bales &amp; Fence Everyday Play 44458" src="https://m.media-amazon.com/images/I/319R7BGRM1L._SL500_.jpg"/></a>
 
 
 The **ERTL 1/64 Case IH Grain Bin Set with Tractor, Cattle, Hay Bales & Fence Everyday Play 44458** is ideal for young farming enthusiasts and collectors of detailed agricultural models. This set is perfect for children who enjoy imaginative farm play as well as adults who appreciate realistic miniature farm equipment and accessories. If you are looking for a durable, detailed, and compact farm playset, this product is designed to meet those needs.
@@ -240,12 +240,12 @@ The **ERTL Case IH Grain Bin Set** stands out with its authentic detailing and i
 
 Additionally, the compact size of the set allows for easy display and portability, making it convenient for both playtime and storage. The included accessories like **cattle** and **hay bales** add variety and depth to play, encouraging creativity and storytelling. Overall, this set offers a balanced combination of quality, realism, and play value for farm enthusiasts of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0FCTLQ9TW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0FCTLQ9TW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C7L72WJF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl 1/64 Case Ih Afs Connect Magnum 310</a>
+## <a href="https://www.amazon.com/dp/B0C7L72WJF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl 1/64 Case Ih Afs Connect Magnum 310</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7L72WJF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Case IH AFS Connect Magnum 310 with Front &amp; Rear Duals, 44339" src="https://m.media-amazon.com/images/I/41jNq69yElL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7L72WJF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Case IH AFS Connect Magnum 310 with Front &amp; Rear Duals, 44339" src="https://m.media-amazon.com/images/I/41jNq69yElL._SL500_.jpg"/></a>
 
 
 The **ERTL 1/64 Case IH AFS Connect Magnum 310 with Front & Rear Duals, 44339** is ideal for collectors of agricultural scale models and enthusiasts who appreciate detailed replicas of farming machinery. This item is perfect for those who want to add a realistic and high-quality piece to their collection or use it as a teaching tool to demonstrate modern farming technology.
@@ -268,12 +268,12 @@ The **ERTL 1/64 Case IH AFS Connect Magnum 310** model offers impressive attenti
 
 Additionally, the bright red finish and realistic design highlight the iconic look of Case IH machinery, making it a standout addition to any collection. While it focuses on visual accuracy over interactive features, it serves as a valuable educational tool to showcase modern farming equipment technology. Overall, the model combines quality craftsmanship with authentic representation, appealing to both collectors and agricultural educators alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C7L72WJF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C7L72WJF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08NVKLM76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl Prestige Series Case Ih Afs Connect Steiger 580 4wd With Duals</a>
+## <a href="https://www.amazon.com/dp/B08NVKLM76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl Prestige Series Case Ih Afs Connect Steiger 580 4wd With Duals</a>
 
 
-<a href="https://www.amazon.com/dp/B08NVKLM76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Prestige Series Case IH AFS Connect Steiger 580 4WD with Duals 44235" src="https://m.media-amazon.com/images/I/41SNI++RYrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08NVKLM76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL 1/64 Prestige Series Case IH AFS Connect Steiger 580 4WD with Duals 44235" src="https://m.media-amazon.com/images/I/41SNI++RYrL._SL500_.jpg"/></a>
 
 
 The **ERTL 1/64 Prestige Series Case IH AFS Connect Steiger 580 4WD with Duals 44235** is ideal for collectors and enthusiasts of agricultural machinery models, especially those who appreciate detailed replicas of iconic farm equipment. This item is perfect for hobbyists who value precision and authenticity in their miniature collections, as well as for fans of the **Case IH** brand looking to add a high-quality piece to their display.
@@ -296,7 +296,7 @@ The **ERTL 1/64 Prestige Series Case IH AFS Connect Steiger 580 4WD with Duals**
 
 Beyond aesthetics, this collectible offers educational value by showcasing the advanced features of the original Steiger 580 tractor, including its robust design and functional enhancements like the AFS Connect system. Collectors and enthusiasts benefit from owning a piece that not only looks impressive but also symbolizes innovation in agricultural machinery. Its sturdy build ensures it can be enjoyed for years, making it a worthwhile investment for serious model collectors.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08NVKLM76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08NVKLM76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

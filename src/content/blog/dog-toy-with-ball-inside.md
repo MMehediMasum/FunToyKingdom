@@ -23,10 +23,10 @@ Some designs, such as the Barkbox 2-in-1 series, work well for aggressive chewer
 
 
 
-## <a href="https://www.amazon.com/dp/B07FYW5XQG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox Lady Liberty Ball 2-in-1 Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B07FYW5XQG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox Lady Liberty Ball 2-in-1 Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07FYW5XQG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox Lady Liberty Ball 2-in-1 Dog Toy - Plush Squeaky Toy for Large Dogs | Large" src="https://m.media-amazon.com/images/I/41cdRikuuEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07FYW5XQG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox Lady Liberty Ball 2-in-1 Dog Toy - Plush Squeaky Toy for Large Dogs | Large" src="https://m.media-amazon.com/images/I/41cdRikuuEL._SL500_.jpg"/></a>
 
 
 The **Barkbox Lady Liberty Ball 2-in-1 Dog Toy** is ideal for owners of large dogs who want a durable and engaging plush squeaky toy. This toy is perfect for dogs that love interactive play and need a robust toy that can withstand their size and strength while providing entertainment and comfort. If you are looking for a fun, patriotic-themed toy that combines both plush softness and a squeaky element, this product is an excellent choice.
@@ -49,10 +49,10 @@ The **Barkbox Lady Liberty Ball 2-in-1 Dog Toy** offers a combination of fun and
 
 Additionally, the toy’s size and design cater specifically to the needs of larger dogs, ensuring that it is neither too small to swallow nor too fragile to withstand rough play. The patriotic Lady Liberty design makes it a charming addition to your dog's toy collection, while also appealing to dog owners who appreciate themed toys. Overall, this product balances durability, entertainment, and style for large dog owners.
 
-## <a href="https://www.amazon.com/dp/B00KNWYFVK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kong Jumbler Ball</a>
+## <a href="https://www.amazon.com/dp/B00KNWYFVK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kong Jumbler Ball</a>
 
 
-<a href="https://www.amazon.com/dp/B00KNWYFVK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KONG Jumbler Ball - Interactive Toy for Dog &amp; Puppy Playtime - Fetch Toy with Tennis Ball - Dog Supplies for Engaging Play - for Medium/Large Dogs - Assorted Colors" src="https://m.media-amazon.com/images/I/41MSRZpseoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00KNWYFVK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KONG Jumbler Ball - Interactive Toy for Dog &amp; Puppy Playtime - Fetch Toy with Tennis Ball - Dog Supplies for Engaging Play - for Medium/Large Dogs - Assorted Colors" src="https://m.media-amazon.com/images/I/41MSRZpseoL._SL500_.jpg"/></a>
 
 
 The **KONG Jumbler Ball** is an ideal choice for dog owners who have medium to large dogs and are looking for a durable, engaging, and interactive toy to enhance their pet’s playtime. This toy is perfect for those who want to encourage active play and mental stimulation through fetch and tug activities, making it suitable for energetic dogs and puppies that need a reliable and fun way to expend their energy.
@@ -74,10 +74,10 @@ The **KONG Jumbler Ball** is designed with both durability and fun in mind. Its 
 
 Additionally, the interactive nature of the toy helps strengthen the bond between pet and owner through active play. The lightweight design allows for effortless throwing during fetch sessions, while the bright assorted colors add an extra layer of visual stimulation. Overall, this toy not only promotes physical exercise but also supports mental engagement, making it a valuable addition to any dog owner’s collection of pet supplies.
 
-## <a href="https://www.amazon.com/dp/B077Q3SVHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outward Hound Puzzle Cube</a>
+## <a href="https://www.amazon.com/dp/B077Q3SVHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outward Hound Puzzle Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B077Q3SVHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outward Hound Puzzle Cube Interactive Squeaky Dog Toy" src="https://m.media-amazon.com/images/I/41r8dlscQ5S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Q3SVHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outward Hound Puzzle Cube Interactive Squeaky Dog Toy" src="https://m.media-amazon.com/images/I/41r8dlscQ5S._SL500_.jpg"/></a>
 
 
 The **Outward Hound Puzzle Cube Interactive Squeaky Dog Toy** is ideal for dog owners who want to keep their pets mentally stimulated and entertained. This toy is perfect for dogs that enjoy interactive play and problem-solving challenges, helping to reduce boredom and destructive behavior. If you have a curious and energetic dog, this puzzle cube will provide hours of fun and engagement.
@@ -99,10 +99,10 @@ The **Outward Hound Puzzle Cube** is thoughtfully designed to challenge your dog
 
 Additionally, the built-in **squeaky feature** adds an auditory stimulus that attracts your dog’s attention and encourages continued play. Its compact and lightweight design makes it convenient for both indoor and outdoor use, allowing you to bring it along during walks or trips. Overall, this toy is an excellent choice for pet owners looking to enrich their dog's playtime with a fun and challenging activity.
 
-## <a href="https://www.amazon.com/dp/B07NVW6X6J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox 2 In 1 Interactive Plush Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B07NVW6X6J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox 2 In 1 Interactive Plush Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07NVW6X6J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox 2 in 1 Interactive Plush Dog Toy - Rip and Reveal Toy for Dogs and Puppies - Stimulating Squeaky Pet Toys | Consuela Cactus (Large)" src="https://m.media-amazon.com/images/I/41MsAsZEHFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NVW6X6J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox 2 in 1 Interactive Plush Dog Toy - Rip and Reveal Toy for Dogs and Puppies - Stimulating Squeaky Pet Toys | Consuela Cactus (Large)" src="https://m.media-amazon.com/images/I/41MsAsZEHFL._SL500_.jpg"/></a>
 
 
 The **Barkbox 2 in 1 Interactive Plush Dog Toy - Rip and Reveal Toy for Dogs and Puppies** in the **Consuela Cactus (Large)** design is ideal for pet owners who want to keep their dogs mentally stimulated and entertained. This toy is perfect for both puppies and adult dogs that enjoy interactive play and have a tendency to engage in gentle ripping and squeaking activities. If you're looking for a durable yet fun toy that encourages natural instincts and provides lasting engagement, this product is a great choice.
@@ -124,10 +124,10 @@ The **Barkbox 2 in 1 Interactive Plush Dog Toy** combines the fun of a squeaky t
 
 Additionally, the toy’s size and lightweight design make it suitable for a variety of dog breeds and sizes, especially puppies and medium to large dogs. The **Consuela Cactus** design adds a playful visual element that many pet owners will find charming. Overall, this interactive plush toy not only satisfies a dog’s desire to chew and squeak but also encourages healthy play habits that can reduce boredom and destructive behavior.
 
-## <a href="https://www.amazon.com/dp/B0BPCFFKQL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mewajump Squeaky Easter Dog Toys</a>
+## <a href="https://www.amazon.com/dp/B0BPCFFKQL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mewajump Squeaky Easter Dog Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPCFFKQL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MewaJump Squeaky Easter Dog Toys with Ball, 3-in-1 Plush Cute Dog Toy, Dog Chew Toy with 3 Layers, Dogs Puzzle Pet Toy for Teeth Cleaning, Puppy Enrichment Toys for Small and Medium Breed" src="https://m.media-amazon.com/images/I/41XSzjy+kDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BPCFFKQL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MewaJump Squeaky Easter Dog Toys with Ball, 3-in-1 Plush Cute Dog Toy, Dog Chew Toy with 3 Layers, Dogs Puzzle Pet Toy for Teeth Cleaning, Puppy Enrichment Toys for Small and Medium Breed" src="https://m.media-amazon.com/images/I/41XSzjy+kDL._SL500_.jpg"/></a>
 
 
 The **MewaJump Squeaky Easter Dog Toys with Ball** is ideal for pet owners looking for a multifunctional, engaging toy for their **small to medium breed dogs**. This toy is perfect for puppies and adult dogs who enjoy interactive play and benefit from mental stimulation and dental care. If you want to keep your furry friend entertained while promoting healthy chewing habits, this toy is an excellent choice.
@@ -150,10 +150,10 @@ The **MewaJump Squeaky Easter Dog Toy** features a clever 3-in-1 design that kee
 
 Beyond entertainment, this toy contributes to your pet’s oral health. The **three-layer chewable structure** helps clean teeth and massage gums as dogs gnaw on it, reducing plaque buildup and promoting fresh breath. Its size and weight are tailored specifically for **small to medium breed dogs**, ensuring that it is comfortable to chew and carry. Overall, the MewaJump toy provides a balanced blend of fun, enrichment, and dental benefits that support your dog’s well-being.
 
-## <a href="https://www.amazon.com/dp/B09ND7QNG3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dking 3pack Squeaky Dog Balls</a>
+## <a href="https://www.amazon.com/dp/B09ND7QNG3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dking 3pack Squeaky Dog Balls</a>
 
 
-<a href="https://www.amazon.com/dp/B09ND7QNG3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DKING 3Pack Squeaky Dog Balls,2 in1 Funny Puppy Ball Toys,Birthday Dog Toy for Small Medium Dogs (Monster Ball)" src="https://m.media-amazon.com/images/I/41B2AMsxKwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09ND7QNG3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DKING 3Pack Squeaky Dog Balls,2 in1 Funny Puppy Ball Toys,Birthday Dog Toy for Small Medium Dogs (Monster Ball)" src="https://m.media-amazon.com/images/I/41B2AMsxKwL._SL500_.jpg"/></a>
 
 
 The **DKING 3Pack Squeaky Dog Balls** are perfect for pet owners looking to entertain their **small to medium-sized dogs** with durable and fun toys. Ideal for puppies and active dogs who love to chew and play fetch, these **Monster Ball** toys are designed to keep your furry friend engaged and mentally stimulated. If you're searching for a birthday gift or an everyday plaything that combines excitement and safety, this product is an excellent choice.
@@ -175,10 +175,10 @@ The **DKING 3Pack Squeaky Dog Balls** feature a unique **2 in 1 design** that me
 
 These balls are lightweight and crafted to provide hours of fun while encouraging physical exercise and mental engagement for your dog. The squeaky feature stimulates your dog’s natural instincts, promoting interactive play and reducing boredom. Whether you’re using them for fetch, tug, or solo play, these balls are a practical and entertaining addition to any dog owner’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B00063432M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jolly Pets Teaser Ball Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B00063432M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jolly Pets Teaser Ball Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B00063432M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jolly Pets Teaser Ball Dog Toy, Medium/6 Inches, Red" src="https://m.media-amazon.com/images/I/41awROBOOJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00063432M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jolly Pets Teaser Ball Dog Toy, Medium/6 Inches, Red" src="https://m.media-amazon.com/images/I/41awROBOOJL._SL500_.jpg"/></a>
 
 
 The **Jolly Pets Teaser Ball Dog Toy** in medium size (6 inches) is ideal for active dog owners seeking a durable and engaging toy for their pets. Perfect for dogs who love to play fetch, chew, and interact with toys that stimulate their physical and mental activity, this toy suits medium to large breeds that require sturdy playthings to keep them entertained and exercised.
@@ -201,10 +201,10 @@ The **Jolly Pets Teaser Ball Dog Toy** is crafted with durability in mind, makin
 
 Additionally, this dog toy is designed to engage your pet’s instincts to chase and chew, which is beneficial for their overall well-being. By promoting physical activity, it helps maintain healthy weight and muscle tone, while mental stimulation from interactive play can alleviate anxiety and prevent boredom-related behaviors. The sturdy construction from **Jolly Pet** means the toy withstands regular use, making it a practical investment for dog owners looking for long-lasting play solutions.
 
-## <a href="https://www.amazon.com/dp/B0CLHHJ3LH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Jalousie 3 In 1 Dog Squeaky Toy </a>
+## <a href="https://www.amazon.com/dp/B0CLHHJ3LH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Jalousie 3 In 1 Dog Squeaky Toy </a>
 
 
-<a href="https://www.amazon.com/dp/B0CLHHJ3LH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jalousie 3 in 1 Dog Squeaky Toy, Three Dog Toys in One for Aggressive Chewers - Interactive Chew Toy for Medium Dogs, Large Breeds and Small Breeds - Squeaky Spiky TPR Ball Inside (Lion N' Piggy)" src="https://m.media-amazon.com/images/I/513JpwXHpDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLHHJ3LH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jalousie 3 in 1 Dog Squeaky Toy, Three Dog Toys in One for Aggressive Chewers - Interactive Chew Toy for Medium Dogs, Large Breeds and Small Breeds - Squeaky Spiky TPR Ball Inside (Lion N' Piggy)" src="https://m.media-amazon.com/images/I/513JpwXHpDL._SL500_.jpg"/></a>
 
 
 The **Jalousie 3 in 1 Dog Squeaky Toy** is ideal for dog owners seeking a durable and engaging toy for their pets, especially those with **aggressive chewers**. This toy is suitable for **medium, large, and small breeds**, making it a versatile choice for households with multiple dogs or varying sizes. If you want to keep your dog entertained while supporting their chewing needs, this interactive toy is a great investment.
@@ -226,10 +226,10 @@ The **Jalousie 3 in 1 Dog Squeaky Toy** features an innovative design that merge
 
 Constructed with durable materials, this toy is built to handle the tough chewing habits of many dogs. The size and shape are thoughtfully designed to accommodate **small to large breeds**, making it an excellent choice regardless of your dog’s size. Moreover, the variety of available colors allows you to pick one that matches your dog's personality or your home decor. Overall, this toy offers a robust, stimulating, and entertaining experience for dogs and peace of mind for their owners.
 
-## <a href="https://www.amazon.com/dp/B07N8HJLVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox Dog Toy Penny The Pineapple Large</a>
+## <a href="https://www.amazon.com/dp/B07N8HJLVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox Dog Toy Penny The Pineapple Large</a>
 
 
-<a href="https://www.amazon.com/dp/B07N8HJLVR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox Dog Toy 2 in 1 Interactive, Plush Exterior with Squeaker &amp; Crinkle Material, Tearable Dog Toy with Squeaky Spikey Ball Inside, Ideal for Toy Destroyers - Penny The Pineapple, Large" src="https://m.media-amazon.com/images/I/51JOccRKlrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N8HJLVR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox Dog Toy 2 in 1 Interactive, Plush Exterior with Squeaker &amp; Crinkle Material, Tearable Dog Toy with Squeaky Spikey Ball Inside, Ideal for Toy Destroyers - Penny The Pineapple, Large" src="https://m.media-amazon.com/images/I/51JOccRKlrL._SL500_.jpg"/></a>
 
 
 The **Barkbox Dog Toy 2 in 1 Interactive** is perfect for dog owners who have aggressive chewers or "toy destroyers." If you want a durable yet engaging toy that can withstand rough play while keeping your dog entertained, this toy is an ideal choice. Its unique design caters to dogs that love to chew, squeak, and interact with their toys.
@@ -252,10 +252,10 @@ The **Barkbox Dog Toy 2 in 1 Interactive** features a plush exterior combined wi
 
 Measuring 8 inches in height and weighing just over 0.3 pounds, this toy is built to accommodate large dogs. The bright and playful **Penny The Pineapple** design is visually stimulating for both pets and owners. Overall, this toy supports healthy chewing habits while entertaining dogs, making it a valuable addition to any pet owner's collection, especially for those with energetic, strong-chewing dogs.
 
-## <a href="https://www.amazon.com/dp/B07N8HXRK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox Dog Toy 2 In 1 Interactive - Monsieur Acorn, Large</a>
+## <a href="https://www.amazon.com/dp/B07N8HXRK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barkbox Dog Toy 2 In 1 Interactive - Monsieur Acorn, Large</a>
 
 
-<a href="https://www.amazon.com/dp/B07N8HXRK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox Dog Toy 2 in 1 Interactive, Plush Exterior with Squeaker &amp; Textured Material, Tearable Dog Toy with Squeaky Spikey Ball Inside, Ideal for Toy Destroyers - Monsieur Acorn, Large" src="https://m.media-amazon.com/images/I/51gZgKt3BPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N8HXRK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barkbox Dog Toy 2 in 1 Interactive, Plush Exterior with Squeaker &amp; Textured Material, Tearable Dog Toy with Squeaky Spikey Ball Inside, Ideal for Toy Destroyers - Monsieur Acorn, Large" src="https://m.media-amazon.com/images/I/51gZgKt3BPL._SL500_.jpg"/></a>
 
 
 The **Barkbox Dog Toy 2 in 1 Interactive** is perfect for dog owners whose pets are enthusiastic chewers and toy destroyers. If your dog needs a durable, engaging toy that can withstand rough play while providing multiple textures and sounds, this **interactive plush toy** is an excellent choice. Ideal for medium to large dogs who enjoy both chewing and interactive play, this toy keeps your furry friend entertained and mentally stimulated.

@@ -23,10 +23,10 @@ Suitable for boys and girls aged 3 to 12, it encourages imaginative play and car
 
 
 
-## <a href="https://www.amazon.com/dp/B0BV7HB49C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tokaxi 1/36 Scale 1978 Pontiac Firebird Trans Am Diecast Car Model</a>
+## <a href="https://www.amazon.com/dp/B0BV7HB49C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tokaxi 1/36 Scale 1978 Pontiac Firebird Trans Am Diecast Car Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0BV7HB49C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOKAXI 1/36 Scale 1978 Pontiac Firebird Trans Am Diecast Car Models,Smokey and The Bandit Pull Back Toy Cars,Cars Gifts for Boys Girls" src="https://m.media-amazon.com/images/I/41aDSeWBuJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BV7HB49C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOKAXI 1/36 Scale 1978 Pontiac Firebird Trans Am Diecast Car Models,Smokey and The Bandit Pull Back Toy Cars,Cars Gifts for Boys Girls" src="https://m.media-amazon.com/images/I/41aDSeWBuJL._SL500_.jpg"/></a>
 
 
 The **TOKAXI 1/36 Scale 1978 Pontiac Firebird Trans Am Diecast Car Model** is perfect for collectors, car enthusiasts, and fans of the classic movie **Smokey and The Bandit**. It is also an ideal gift for both boys and girls who have a passion for toy cars and model collections. This diecast car is a miniature replica that offers both nostalgia and a tangible connection to the iconic vehicle.
@@ -47,12 +47,12 @@ The **1978 Pontiac Firebird** edition of this diecast model captures the essence
 
 This model's **compact dimensions** (Height: 1.5 inches, Width: 1.78 inches, Length: 5.0 inches) make it perfect for display on shelves or desks, ensuring it doesn’t take up too much space. Despite its size, the diecast construction ensures durability, providing a long-lasting addition to any car model collection. Manufactured by **Xingxi Toys Technology Co., Ltd**, the car promises quality and attention to detail, making it a worthwhile investment for both collectors and young car lovers alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BV7HB49C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BV7HB49C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B089RNGTKB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sasbsc Toy Cars Model X</a>
+## <a href="https://www.amazon.com/dp/B089RNGTKB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sasbsc Toy Cars Model X</a>
 
 
-<a href="https://www.amazon.com/dp/B089RNGTKB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SASBSC Toy Cars Model X 1:32 Pull Back Vehicles Diecast Car Model Toys for Boys and Girls 3 to 12 Years Old" src="https://m.media-amazon.com/images/I/41Be5oObihL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B089RNGTKB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SASBSC Toy Cars Model X 1:32 Pull Back Vehicles Diecast Car Model Toys for Boys and Girls 3 to 12 Years Old" src="https://m.media-amazon.com/images/I/41Be5oObihL._SL500_.jpg"/></a>
 
 
 The **SASBSC Toy Cars Model X 1:32 Pull Back Vehicles Diecast Car Model Toys** are perfect for young enthusiasts aged **3 to 12 years old** who love cars and enjoy imaginative play. Ideal for both boys and girls, these toys are designed to engage children with their realistic look and interactive pull-back feature, making them a great choice for parents seeking durable and entertaining vehicles for their kids.
@@ -74,7 +74,7 @@ The **SASBSC Toy Cars Model X** features a robust diecast metal body that withst
 
 Additionally, the car's compact dimensions and lightweight nature ensure it is easy to handle and transport, whether at home or on the go. The sleek white finish adds an appealing aesthetic that stands out among other toy cars. This combination of features makes the SASBSC Toy Cars Model X a versatile and engaging toy that supports both fun and developmental benefits for young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B089RNGTKB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B089RNGTKB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -23,10 +23,10 @@ BABESIDE’s large soft body dolls bring a lifelike feel for pretend play. For f
 
 
 
-## <a href="https://www.amazon.com/dp/B0CX24138S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ms. Rachel Speak &amp; Sing Doll</a>
+## <a href="https://www.amazon.com/dp/B0CX24138S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ms. Rachel Speak &amp; Sing Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CX24138S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ms. Rachel Speak &amp; Sing Doll 16” Tall Interactive Toy with 4 Songs &amp; 16+ Phrases, Toddler Toys for Girls &amp; Boys Ages 6 Months to 3+ Years" src="https://m.media-amazon.com/images/I/41hJfmooL8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CX24138S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ms. Rachel Speak &amp; Sing Doll 16” Tall Interactive Toy with 4 Songs &amp; 16+ Phrases, Toddler Toys for Girls &amp; Boys Ages 6 Months to 3+ Years" src="https://m.media-amazon.com/images/I/41hJfmooL8L._SL500_.jpg"/></a>
 
 
 The **Ms. Rachel Speak & Sing Doll** is an ideal choice for parents and caregivers looking to engage toddlers aged **6 months to 3+ years** in interactive learning and play. This **16” tall** doll is perfect for both girls and boys who are beginning to explore language and music, making it a wonderful educational companion for early childhood development.
@@ -49,10 +49,10 @@ The **Ms. Rachel Speak & Sing Doll** is thoughtfully crafted to blend entertainm
 
 Designed by **Spin Master**, this doll offers both quality and durability, making it a reliable toy for daily use. The gender-neutral appearance broadens its appeal, making it a versatile gift option. Overall, this doll supports early learning milestones while providing fun, making it a valuable addition to any toddler’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0CY4X37RD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0CY4X37RD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CY4X37RD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Baby Dolls, 17inch Large Realistic Cute Soft Body Baby Doll Real Life Baby Dolls with Accessories for 3+ Year Old Girls Gifts, Pretend Play, Collection" src="https://m.media-amazon.com/images/I/51twxRYhs3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CY4X37RD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Baby Dolls, 17inch Large Realistic Cute Soft Body Baby Doll Real Life Baby Dolls with Accessories for 3+ Year Old Girls Gifts, Pretend Play, Collection" src="https://m.media-amazon.com/images/I/51twxRYhs3L._SL500_.jpg"/></a>
 
 
 The **BABESIDE Baby Dolls** are perfect for **3+ year old girls** who enjoy **pretend play** and **collecting realistic dolls**. These dolls are ideal for children who love nurturing and imaginative activities, making them a thoughtful gift to encourage creativity and emotional development.
@@ -74,10 +74,10 @@ The **BABESIDE Baby Dolls** feature a realistic and soft body that mimics a real
 
 Beyond aesthetics, the doll encourages **imaginative play** and social skills development as children engage in nurturing activities. The included accessories further enrich the playtime experience, allowing kids to role-play scenarios that build empathy and creativity. Overall, the **BABESIDE Baby Dolls** offer both fun and developmental benefits, making them a valuable gift for young girls.
 
-## <a href="https://www.amazon.com/dp/B07C9BC2N6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glitter Girls 14-inch Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B07C9BC2N6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glitter Girls 14-inch Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B07C9BC2N6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glitter Girls – 14-Inch Fashion Doll - Blonde Hair &amp; Blue Eyes - Pink Tunic, Striped Leggings, Hair Bow &amp; Ballet Shoes – Dolls For 3+ Years Year Old Girls – Lacy" src="https://m.media-amazon.com/images/I/31k56jjAd8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07C9BC2N6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glitter Girls – 14-Inch Fashion Doll - Blonde Hair &amp; Blue Eyes - Pink Tunic, Striped Leggings, Hair Bow &amp; Ballet Shoes – Dolls For 3+ Years Year Old Girls – Lacy" src="https://m.media-amazon.com/images/I/31k56jjAd8L._SL500_.jpg"/></a>
 
 
 The **Glitter Girls – 14-Inch Fashion Doll** with **Blonde Hair** and **Blue Eyes** is perfect for young girls aged 3 and above who love imaginative play and fashion. This doll is ideal for parents or gift-givers looking to encourage creativity, storytelling, and fine motor skills in children through engaging and stylish playtime companions.
@@ -99,10 +99,10 @@ The **Glitter Girls 14-Inch Fashion Doll** stands out with its detailed and colo
 
 Designed with quality materials by **Branford LTD**, this doll is both lightweight and sturdy, ensuring it can withstand hours of play. The outfit and accessories promote creativity, allowing children to explore different styles and scenarios. Overall, the **Glitter Girls Fashion Doll** fosters imaginative storytelling and can be a valuable addition to any child's toy collection, supporting their growth and development through engaging, hands-on play.
 
-## <a href="https://www.amazon.com/dp/B09QRYLDK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enjoyin 12'' Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B09QRYLDK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enjoyin 12'' Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRYLDK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Enjoyin 12'' Baby Doll in Gift Box with Pink Cloths, Pacifier, 13''x13'' Microfabric Blanket, and Feeding Bottle. Gift Idea for Ages 3+" src="https://m.media-amazon.com/images/I/419TvNolN1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRYLDK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Enjoyin 12'' Baby Doll in Gift Box with Pink Cloths, Pacifier, 13''x13'' Microfabric Blanket, and Feeding Bottle. Gift Idea for Ages 3+" src="https://m.media-amazon.com/images/I/419TvNolN1L._SL500_.jpg"/></a>
 
 
 The **Enjoyin 12'' Baby Doll** is an ideal gift for young children aged 3 and above who enjoy imaginative play and nurturing activities. This doll is perfect for parents, relatives, or friends looking to provide a charming and interactive toy that encourages creativity and role-playing in toddlers and preschoolers. It is especially suited for kids who love dolls with accessories and a cozy presentation.
@@ -125,10 +125,10 @@ The **Enjoyin 12'' Baby Doll** offers a delightful play experience with its thou
 
 Crafted by **Enjoyin**, this doll is designed with attention to detail, ensuring safety and durability for young users. The **pink cloths** add charm and encourage dress-up play, while the attractive gift box packaging makes it an excellent choice for birthdays, holidays, or special occasions. Overall, this baby doll set promotes imaginative play and emotional development in children, making it a thoughtful and engaging gift option.
 
-## <a href="https://www.amazon.com/dp/B00EWLNMGC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jc Toys Twins 13" Realistic Soft Body Baby Dolls Berenguer Boutique</a>
+## <a href="https://www.amazon.com/dp/B00EWLNMGC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jc Toys Twins 13" Realistic Soft Body Baby Dolls Berenguer Boutique</a>
 
 
-<a href="https://www.amazon.com/dp/B00EWLNMGC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2+"="" accessories="" ages="" alt="JC Toys Twins 13" and="" baby="" berenguer="" blue="" body="" boutique="" caucasian="" dolls="" gift="" outfits="" pink="" realistic="" removable="" set="" soft="" src="https://m.media-amazon.com/images/I/412uQ2PwcnL._SL500_.jpg" twins="" with="" |=""/></a>
+<a href="https://www.amazon.com/dp/B00EWLNMGC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2+"="" accessories="" ages="" alt="JC Toys Twins 13" and="" baby="" berenguer="" blue="" body="" boutique="" caucasian="" dolls="" gift="" outfits="" pink="" realistic="" removable="" set="" soft="" src="https://m.media-amazon.com/images/I/412uQ2PwcnL._SL500_.jpg" twins="" with="" |=""/></a>
 
 
 The **JC Toys Twins 13" Realistic Soft Body Baby Dolls Berenguer Boutique** are perfect for young children aged 2 and above who enjoy imaginative play and nurturing activities. Ideal for parents, grandparents, or gift-givers seeking a high-quality, lifelike doll set, this twins gift set appeals especially to those looking to foster empathy, care, and creativity in little ones. The **removable outfits and accessories** make these dolls engaging and versatile for role-playing.
@@ -151,10 +151,10 @@ These **JC Toys Twins baby dolls** feature a soft body that mimics the feel of a
 
 Crafted by the trusted **JC Toys Group, Inc.**, these dolls are designed with safety and durability in mind. Weighing just over a pound, they are lightweight enough for toddlers to manage but sturdy enough to withstand active play. The realistic features and soft body provide comfort and companionship, making them excellent tools for nurturing emotional development. Overall, this twins gift set is an excellent choice for anyone looking to inspire imaginative role play and caring behavior in young children.
 
-## <a href="https://www.amazon.com/dp/B0B2BPFHNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Frozen Elsa Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0B2BPFHNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Frozen Elsa Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2BPFHNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Frozen Toys, Elsa Fashion Doll &amp; Accessory with Signature Look, Inspired by the Movie" src="https://m.media-amazon.com/images/I/41Je644gPGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2BPFHNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Frozen Toys, Elsa Fashion Doll &amp; Accessory with Signature Look, Inspired by the Movie" src="https://m.media-amazon.com/images/I/41Je644gPGL._SL500_.jpg"/></a>
 
 
 The **Mattel Disney Frozen Toys, Elsa Fashion Doll & Accessory with Signature Look** is ideal for young children and fans of the **Frozen movie** who love imaginative play and collecting character dolls. This toy is perfect for kids who enjoy role-playing as their favorite characters and for parents seeking a high-quality, themed doll that captures the magic of Elsa’s iconic style.
@@ -177,10 +177,10 @@ The **Elsa Fashion Doll** features an accurate representation of Elsa’s signat
 
 Crafted by **Mattel**, a well-known manufacturer in the toy industry, this doll combines quality materials with safe construction standards. This ensures durability during active play while providing peace of mind to parents. The inclusion of a fashion accessory further enhances the doll’s appeal by allowing children to customize their play experience, fostering a sense of individuality and style. Overall, this **Frozen Elsa doll** is a delightful gift choice for fans of the franchise and children who appreciate dolls that inspire imaginative play.
 
-## <a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vip Girls Hair Makeover Quinn Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vip Girls Hair Makeover Quinn Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10="" 5="" accessories="" ages="" alt="VIP Girls Hair Makeover Quinn Fashion Doll with 11" and="" boys="" colorful="" doll"="" fashion="" girls="" hair="" inch="" long="" src="https://m.media-amazon.com/images/I/31az-+PIfJL._SL500_.jpg" styling="" toy,="" up,=""/></a>
+<a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10="" 5="" accessories="" ages="" alt="VIP Girls Hair Makeover Quinn Fashion Doll with 11" and="" boys="" colorful="" doll"="" fashion="" girls="" hair="" inch="" long="" src="https://m.media-amazon.com/images/I/31az-+PIfJL._SL500_.jpg" styling="" toy,="" up,=""/></a>
 
 
 The **VIP Girls Hair Makeover Quinn Fashion Doll** is ideal for children aged 5 and up who love imaginative play and enjoy styling dolls. Perfect for both girls and boys, this fashion toy encourages creativity and fine motor skills as kids experiment with the doll's colorful long hair and accessories. If you're looking for a fun and engaging gift that promotes artistic expression, this doll is an excellent choice.
@@ -203,10 +203,10 @@ The **VIP Girls Hair Makeover Quinn Fashion Doll** features vibrant, long hair t
 
 Manufactured by **IMC Toys Inc**, this doll meets high standards for safety and quality, ensuring parents can feel confident when their children play with it. The multi-colored hair and stylish design appeal to a wide audience, making it a versatile gift option. Overall, this doll not only entertains but also supports the development of creativity and fine motor skills in young children.
 
-## <a href="https://www.amazon.com/dp/B0B29N9D96?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Princess Rapunzel Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0B29N9D96?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Princess Rapunzel Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0B29N9D96?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Princess Toys, Rapunzel Fashion Doll, Sparkling Look with Blonde Hair, Blue Eyes &amp; Tiara Accessory, Inspired by the Movie Tangled" src="https://m.media-amazon.com/images/I/51JlUSz6wYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B29N9D96?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Princess Toys, Rapunzel Fashion Doll, Sparkling Look with Blonde Hair, Blue Eyes &amp; Tiara Accessory, Inspired by the Movie Tangled" src="https://m.media-amazon.com/images/I/51JlUSz6wYL._SL500_.jpg"/></a>
 
 
 The **Mattel Disney Princess Toys, Rapunzel Fashion Doll** is perfect for young fans of the **Disney movie Tangled** and children who love imaginative play with princess-themed toys. This doll is ideal for kids who enjoy dressing up dolls, storytelling, and recreating scenes from their favorite films, making it a great gift for birthdays or special occasions.
@@ -229,10 +229,10 @@ This **Rapunzel Fashion Doll** captures the charm and elegance of the beloved Di
 
 Crafted by **Mattel**, a leader in quality toy manufacturing, this doll offers durability and safe play for kids. Its manageable size and lightweight build make it easy for children to carry and pose the doll during their imaginative adventures. Whether for solo play or sharing stories with friends, this doll enhances the experience by providing a tangible connection to the magical world of Tangled.
 
-## <a href="https://www.amazon.com/dp/B086Q82S7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Liberty Imports Little Royal Princess Toddler Dolls</a>
+## <a href="https://www.amazon.com/dp/B086Q82S7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Liberty Imports Little Royal Princess Toddler Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B086Q82S7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Liberty Imports Little Royal Princess Toddler Dolls with Dresses, Girls Imaginative Pretend Play Small Dolls Party Favors Collection (Princess)" src="https://m.media-amazon.com/images/I/51QPZZ1Ym4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086Q82S7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Liberty Imports Little Royal Princess Toddler Dolls with Dresses, Girls Imaginative Pretend Play Small Dolls Party Favors Collection (Princess)" src="https://m.media-amazon.com/images/I/51QPZZ1Ym4L._SL500_.jpg"/></a>
 
 
 The **Liberty Imports Little Royal Princess Toddler Dolls** are perfect for young children who love **imaginative pretend play** and enjoy collecting **small dolls**. These dolls are ideal for parents or gift buyers looking to encourage creativity and role-playing in toddlers, especially those fascinated by princess themes and colorful accessories.
@@ -255,10 +255,10 @@ The **Liberty Imports Little Royal Princess Toddler Dolls** feature a charming d
 
 Beyond their aesthetic appeal, these dolls serve as excellent party favors or collectibles, encouraging social interaction among children during group play. The durable materials and trusted **Liberty Imports** manufacturing standards provide parents peace of mind regarding safety and longevity. Overall, these dolls combine fun, creativity, and practicality, making them a valuable addition to any toddler’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B002APDYV0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jc Toys La Baby 11-inch Caucasian Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B002APDYV0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jc Toys La Baby 11-inch Caucasian Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B002APDYV0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JC Toys La Baby 11-inch Caucasian Baby Doll with Blanket (BER13107)" src="https://m.media-amazon.com/images/I/41iJnUZ8CRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002APDYV0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JC Toys La Baby 11-inch Caucasian Baby Doll with Blanket (BER13107)" src="https://m.media-amazon.com/images/I/41iJnUZ8CRL._SL500_.jpg"/></a>
 
 
 The **JC Toys La Baby 11-inch Caucasian Baby Doll with Blanket (BER13107)** is ideal for young children, especially those who enjoy nurturing play and role-playing activities. This doll is perfect for parents and gift-givers looking for a realistic and cuddly companion that encourages imagination and emotional development in toddlers and preschoolers. Its manageable size makes it easy for little hands to hold and care for.

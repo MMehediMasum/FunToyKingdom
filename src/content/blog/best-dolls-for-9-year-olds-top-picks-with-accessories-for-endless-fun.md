@@ -23,10 +23,10 @@ Realistic baby dolls encourage nurturing play and care. Choosing dolls that matc
 
 
 
-## <a href="https://www.amazon.com/dp/B0FHB931HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For Doll 5-piece 17cm Clothes Set With Accessories</a>
+## <a href="https://www.amazon.com/dp/B0FHB931HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For Doll 5-piece 17cm Clothes Set With Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHB931HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for Doll, 5-Piece 17cm Clothes for Doll Set with Accessories – Includes Light Pink Velvet Heart Hat, Mini Camera, Glasses &amp; Canvas Shoes (Doll Not Included)(A)" src="https://m.media-amazon.com/images/I/41fwMtp1tUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHB931HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for Doll, 5-Piece 17cm Clothes for Doll Set with Accessories – Includes Light Pink Velvet Heart Hat, Mini Camera, Glasses &amp; Canvas Shoes (Doll Not Included)(A)" src="https://m.media-amazon.com/images/I/41fwMtp1tUL._SL500_.jpg"/></a>
 
 
 Ideal for **doll enthusiasts** and collectors looking to enhance their 17cm dolls with stylish and detailed accessories, the **Clothes for Doll, 5-Piece 17cm Clothes for Doll Set** is perfect for those who want to add a touch of personality and charm. This set appeals to both kids and adults who enjoy dressing up their dolls with unique and fashionable items.
@@ -48,10 +48,10 @@ This **5-piece doll clothes set** offers an array of charming accessories that p
 
 Each piece in the set is designed with attention to detail and size-appropriate dimensions, ensuring a snug and comfortable fit on your doll. This not only enhances the doll’s appearance but also encourages imaginative play and collection display. Whether for gifting or personal use, this set is an excellent accessory upgrade for anyone passionate about doll fashion.
 
-## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection Baby Starter Set</a>
+## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection Baby Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
 
 
 The **Dream Collection, Baby Starter Set** is perfect for children who love **realistic pretend play** and want to nurture their caregiving skills. Ideal for kids who enjoy engaging with lifelike toys, this **12-inch soft posable baby doll** offers an immersive experience that encourages imagination and empathy. Parents looking for a high-quality doll with accessories to enhance role-playing will find this set especially appealing.
@@ -73,10 +73,10 @@ The **Dream Collection Baby Starter Set** features a doll with a soft, posable b
 
 Measuring approximately **19.375 inches in height** and designed with child-friendly dimensions, this set is easy to handle for young users. The quality materials and realistic design promote imaginative play while ensuring durability. Overall, this starter set offers a comprehensive and satisfying experience for children who love to care for their own "baby," making it an excellent addition to any toy collection.
 
-## <a href="https://www.amazon.com/dp/B09PNTFF8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Heart Mary Janes</a>
+## <a href="https://www.amazon.com/dp/B09PNTFF8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Black Heart Mary Janes</a>
 
 
-<a href="https://www.amazon.com/dp/B09PNTFF8F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Heart Mary Janes Fits 18 Inch Kennedy and Friends Girl Dolls- 18 Inch Doll Shoes" src="https://m.media-amazon.com/images/I/319MeChWS0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PNTFF8F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Black Heart Mary Janes Fits 18 Inch Kennedy and Friends Girl Dolls- 18 Inch Doll Shoes" src="https://m.media-amazon.com/images/I/319MeChWS0L._SL500_.jpg"/></a>
 
 
 Ideal for collectors and parents looking to enhance their child's 18-inch doll collection, the **Black Heart Mary Janes** are specifically designed to fit **18 Inch Kennedy and Friends Girl Dolls**. These stylish **doll shoes** are perfect for those who want to add a touch of classic elegance to their dolls' wardrobe.
@@ -97,10 +97,10 @@ The **Black Heart Mary Janes** boast a sleek and durable design, crafted to comp
 
 Aside from their aesthetic appeal, these shoes offer practical benefits. Their precise dimensions (**2.0 inches height, 4.0 inches width, and 4.0 inches length**) ensure they fit perfectly without overwhelming the doll's proportions. This attention to detail enhances the overall look of the doll, while also providing durability for extended use. Whether for play or collection purposes, these shoes are a valuable addition to any doll enthusiast’s collection.
 
-## <a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sophia's Mini Dress Form Mannequin For 18-inch Doll Clothes</a>
+## <a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sophia's Mini Dress Form Mannequin For 18-inch Doll Clothes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sophia's Mini Dress Form Mannequin for 18-inch Doll Clothes with Pink Doll Hairbrush &amp; 10 Clothing Hangers, 18” Girl Doll Dressmaker Mannequin Playset, White/Cherry" src="https://m.media-amazon.com/images/I/312wa8yfPNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sophia's Mini Dress Form Mannequin for 18-inch Doll Clothes with Pink Doll Hairbrush &amp; 10 Clothing Hangers, 18” Girl Doll Dressmaker Mannequin Playset, White/Cherry" src="https://m.media-amazon.com/images/I/312wa8yfPNL._SL500_.jpg"/></a>
 
 
 The **Sophia's Mini Dress Form Mannequin** is ideal for children and hobbyists who love designing and playing with **18-inch doll clothes**. Perfect for young fashion enthusiasts and aspiring dressmakers, this playset allows users to explore creativity while organizing their doll wardrobe efficiently. If you enjoy crafting miniature outfits or want to enhance your doll's presentation, this dressmaker mannequin with accessories is a must-have.
@@ -122,10 +122,10 @@ The **Sophia's Mini Dress Form Mannequin** offers a practical and charming way t
 
 With **10 clothing hangers**, users can keep their doll wardrobe organized and easily accessible, promoting tidiness and care for doll accessories. The compact size and elegant white/cherry finish make this mannequin a stylish addition to any child's playroom or craft corner. Overall, this set combines functionality with fun, making it an excellent choice for doll lovers and budding fashion designers alike.
 
-## <a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doll House For Girls</a>
+## <a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doll House For Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doll House for Girls,6 Rooms Blue Doll House with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8 9 10 Year Old Girls Toys" src="https://m.media-amazon.com/images/I/51g1i1SWZvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGXKDCY4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doll House for Girls,6 Rooms Blue Doll House with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8 9 10 Year Old Girls Toys" src="https://m.media-amazon.com/images/I/51g1i1SWZvL._SL500_.jpg"/></a>
 
 
 The **Doll House for Girls** is an ideal gift for young children aged between **3 to 10 years old**, especially those who enjoy imaginative play and storytelling. Perfect for toddlers and young girls who love dolls, this playhouse offers a creative space to nurture their social skills and develop fine motor skills through interactive play. Parents looking for a comprehensive toy that combines fun and developmental benefits will find this item an excellent choice.
@@ -148,10 +148,10 @@ This **blue doll house** features six beautifully designed rooms, each equipped 
 
 Crafted by **OCTERIC**, this dollhouse is thoughtfully sized to fit comfortably in playrooms without taking up excessive space, making it convenient for both storage and transport. The lightweight design ensures toddlers can easily move and set up their playhouse wherever they choose. Overall, this dollhouse provides a safe, engaging, and delightful environment that supports developmental skills such as storytelling, hand-eye coordination, and social interaction, making it a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimidium Beach Sun Straw Hat For La Boo-boo Plush Dolls</a>
+## <a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimidium Beach Sun Straw Hat For La Boo-boo Plush Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="dimidium Beach Sun Straw Hat for La Boo-Boo Plush Dolls, Summer Doll Hat, Removable Doll Dress-Up Accessory (Collector Outfit Age 12+), Cute Plush Outfit,Cream" src="https://m.media-amazon.com/images/I/41HJiFx3B9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FC2FXLGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="dimidium Beach Sun Straw Hat for La Boo-Boo Plush Dolls, Summer Doll Hat, Removable Doll Dress-Up Accessory (Collector Outfit Age 12+), Cute Plush Outfit,Cream" src="https://m.media-amazon.com/images/I/41HJiFx3B9L._SL500_.jpg"/></a>
 
 
 The **dimidium Beach Sun Straw Hat** is an ideal accessory for collectors and enthusiasts of **La Boo-Boo Plush Dolls** aged 12 and above who want to enhance their doll’s summer look with a stylish, removable outfit piece. This **summer doll hat** is perfect for those seeking a cute and practical way to dress up their plush dolls, adding charm and personality to their collection.
@@ -173,10 +173,10 @@ The **dimidium Beach Sun Straw Hat** is crafted with fine straw material to prov
 
 Additionally, the hat’s removable feature offers flexibility for collectors and children alike to mix and match doll outfits with ease. This functionality encourages imaginative play and allows users to keep their dolls stylish and seasonally appropriate. The compact size and attention to detail by **dimidium** make this hat a charming addition that collectors will appreciate for its quality and design.
 
-## <a href="https://www.amazon.com/dp/B07DHZBQN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fun World Paper Doll Costume</a>
+## <a href="https://www.amazon.com/dp/B07DHZBQN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fun World Paper Doll Costume</a>
 
 
-<a href="https://www.amazon.com/dp/B07DHZBQN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fun World Paper Doll Costume, Medium 8-10, Multicolor" src="https://m.media-amazon.com/images/I/41cyX0GL8VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DHZBQN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fun World Paper Doll Costume, Medium 8-10, Multicolor" src="https://m.media-amazon.com/images/I/41cyX0GL8VL._SL500_.jpg"/></a>
 
 
 The **Fun World Paper Doll Costume, Medium 8-10, Multicolor** is ideal for children aged 8 to 10 who enjoy creative dress-up and imaginative play. This vibrant and playful costume is perfect for kids who want to stand out at parties, school events, or Halloween celebrations while embracing a fun and colorful style.
@@ -199,10 +199,10 @@ The **Fun World Paper Doll Costume** features a unique paper-based design that o
 
 Crafted by the reputable **Fun World** brand, this costume is made with attention to detail and quality materials appropriate for kids. The size specification ensures a proper fit for children aged 8 to 10, making it a great choice for parents seeking a hassle-free costume option. Overall, the combination of fun colors, ease of wear, and trusted manufacturing makes this paper doll costume an excellent choice for any child’s dress-up collection.
 
-## <a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xunwa Doll Bassinet</a>
+## <a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xunwa Doll Bassinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xunwa 2 Pieces Doll Bassinet for 5-6-7-8-9 Inch Mini and Small Newborn Reborn Baby Dolls" src="https://m.media-amazon.com/images/I/41txgUIEaCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2LG1QZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xunwa 2 Pieces Doll Bassinet for 5-6-7-8-9 Inch Mini and Small Newborn Reborn Baby Dolls" src="https://m.media-amazon.com/images/I/41txgUIEaCL._SL500_.jpg"/></a>
 
 
 The **Xunwa 2 Pieces Doll Bassinet** is ideal for collectors and parents who own **5-6-7-8-9 inch mini and small newborn reborn baby dolls**. If you are looking for a cozy, stylish, and appropriately sized sleeping accessory to enhance your doll display or play experience, this bassinet is a perfect choice. It caters especially to those who value quality and detailed accessories for their miniature doll collections.
@@ -223,10 +223,10 @@ The **Xunwa Doll Bassinet** features a compact and lightweight design that makes
 
 Additionally, the 2-piece set offers versatility for users, allowing them to use the bassinet separately or together depending on their needs. The quality materials and craftsmanship from the **Xunwa manufacturer** guarantee durability and long-lasting use, which is essential for both active play by children and careful display by collectors. Overall, this bassinet combines functionality and aesthetic appeal for doll enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0824ZNBGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sxfse Dollhouse Decoration Accessories</a>
+## <a href="https://www.amazon.com/dp/B0824ZNBGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sxfse Dollhouse Decoration Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0824ZNBGK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SXFSE Dollhouse Decoration Accessories, 1:12 Dollhouse Miniature Scene Model Articles Paint Palette Tool Pretend Play Toy" src="https://m.media-amazon.com/images/I/41PXJpBKXbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0824ZNBGK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SXFSE Dollhouse Decoration Accessories, 1:12 Dollhouse Miniature Scene Model Articles Paint Palette Tool Pretend Play Toy" src="https://m.media-amazon.com/images/I/41PXJpBKXbL._SL500_.jpg"/></a>
 
 
 The **SXFSE Dollhouse Decoration Accessories** are perfect for hobbyists and collectors who enjoy creating detailed miniature scenes. Ideal for those who own a **1:12 scale dollhouse** and want to add authentic, intricate touches to their displays, this paint palette tool enhances the realism and charm of any miniature setup. If you love crafting, designing, or simply enhancing your dollhouse with realistic accessories, this product is made for you.
@@ -248,10 +248,10 @@ The **SXFSE Dollhouse Decoration Accessories** stand out because of their meticu
 
 Beyond aesthetics, this accessory encourages imaginative play and creativity, allowing collectors and children alike to simulate painting activities within their dollhouse world. Its compact and lightweight design ensures easy placement and seamless integration with other miniature furniture and accessories, enhancing the overall visual appeal and storytelling potential of your dollhouse setup.
 
-## <a href="https://www.amazon.com/dp/B0C1WGPTZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xunwa 2 Pieces Floral Baby Doll Bassinet</a>
+## <a href="https://www.amazon.com/dp/B0C1WGPTZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xunwa 2 Pieces Floral Baby Doll Bassinet</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1WGPTZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xunwa 2 Pieces Floral Baby Doll Bassinet for 10-11-12 Inch Reborn Dolls,Toy Bassinet for Newborn Doll" src="https://m.media-amazon.com/images/I/51s-5UQfCfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1WGPTZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xunwa 2 Pieces Floral Baby Doll Bassinet for 10-11-12 Inch Reborn Dolls,Toy Bassinet for Newborn Doll" src="https://m.media-amazon.com/images/I/51s-5UQfCfL._SL500_.jpg"/></a>
 
 
 Ideal for collectors and children who love nurturing their **10-11-12 inch reborn dolls**, the **Xunwa 2 Pieces Floral Baby Doll Bassinet** offers a charming and practical accessory. This **toy bassinet** is perfect for those seeking a realistic and cozy resting place for their **newborn dolls**, enhancing imaginative play and doll display.

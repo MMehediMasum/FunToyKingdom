@@ -31,10 +31,10 @@ Using toys can make daily care more fun. They also help parents bond with their 
 
 Toys with bright colors, sounds, and textures help babies explore their senses. They learn to see, hear, and touch new things. This builds brain connections early on.
 
-* [Soft rattles](https://www.amazon.com/s?k=soft+baby+rattles&tag=gearcookware-20) with gentle sounds
+* [Soft rattles](https://www.amazon.com/s?k=soft+baby+rattles&tag=mofb05-20) with gentle sounds
 * Textured teething rings
 * Toys with contrasting colors
-* [Crinkly fabric books](https://www.amazon.com/s?k=crinkly+fabric+books+for+babies&tag=gearcookware-20)
+* [Crinkly fabric books](https://www.amazon.com/s?k=crinkly+fabric+books+for+babies&tag=mofb05-20)
 
 ### Encouraging Motor Skills
 
@@ -125,13 +125,13 @@ Look for rattles with bright colors and different textures to touch. These help 
 
 Newborns see high contrast patterns best. Black and white toys keep their eyes focused and alert.
 
-* [Black and white books](https://www.amazon.com/s?k=black+and+white+baby+books&tag=gearcookware-20) with simple shapes
+* [Black and white books](https://www.amazon.com/s?k=black+and+white+baby+books&tag=mofb05-20) with simple shapes
 * Soft blocks with bold patterns
 * Contrast cards for visual play
 
 ### Crib Mobiles
 
-[Crib mobiles](https://www.amazon.com/s?k=crib+mobiles+for+newborns&tag=gearcookware-20) hang above the baby’s bed. They move slowly to help babies watch and relax.
+[Crib mobiles](https://www.amazon.com/s?k=crib+mobiles+for+newborns&tag=mofb05-20) hang above the baby’s bed. They move slowly to help babies watch and relax.
 
 |  |  |  |
 | --- | --- | --- |
@@ -142,7 +142,7 @@ Newborns see high contrast patterns best. Black and white toys keep their eyes f
 
 ### Tummy Time Mats
 
-[Tummy time mats](https://www.amazon.com/s?k=tummy+time+mats&tag=gearcookware-20) give babies a safe space to strengthen muscles. They often include attached toys.
+[Tummy time mats](https://www.amazon.com/s?k=tummy+time+mats&tag=mofb05-20) give babies a safe space to strengthen muscles. They often include attached toys.
 
 Choose mats with features like:
 

@@ -23,10 +23,10 @@ Other games like Sail and Scorpion Masqué offer quick, engaging play that fits 
 
 
 
-## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
+## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
 
 
-<a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
 
 
 The **Gamewright - Forbidden Island** board game is ideal for players who enjoy **cooperative strategy games** and want an engaging experience with friends or family. Perfect for groups of **2 to 4 players**, this game appeals to those who appreciate teamwork, strategic planning, and survival challenges in a fun, interactive setting. If you are looking for a game that promotes collaboration and critical thinking, this multi-colored, compact board game is a great choice.
@@ -49,10 +49,10 @@ The **Gamewright - Forbidden Island** board game is ideal for players who enjoy 
 
 The game’s multi-colored components and compact dimensions make it both visually appealing and convenient to carry. Whether you are packing it for a trip or storing it on a shelf, its portability adds to its appeal. Additionally, being a product by **Gamewright**, it promises a quality gaming experience with clear rules and balanced gameplay that ensures players remain engaged. This combination of features results in a game that not only entertains but also strengthens strategic thinking and cooperation skills among participants.
 
-## <a href="https://www.amazon.com/dp/B0CF361DKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sail Board Game</a>
+## <a href="https://www.amazon.com/dp/B0CF361DKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sail Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF361DKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sail Board Game - Co-op Trick Taking Game - 2 Players - 20 Minute Play Time (Sail Base Game)" src="https://m.media-amazon.com/images/I/418g05+2m8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CF361DKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sail Board Game - Co-op Trick Taking Game - 2 Players - 20 Minute Play Time (Sail Base Game)" src="https://m.media-amazon.com/images/I/418g05+2m8L._SL500_.jpg"/></a>
 
 
 The **Sail Board Game - Co-op Trick Taking Game** is perfect for couples, close friends, or anyone looking for a quick yet engaging two-player experience. Ideal for players who enjoy strategic card games with a cooperative twist, this game offers a compact and colorful option for those seeking fun in just about 20 minutes. If you appreciate teamwork and clever tactics in a lightweight package, this game is designed for you.
@@ -75,10 +75,10 @@ The **Sail Board Game** offers a unique blend of cooperative gameplay within the
 
 Its compact dimensions and quick 20-minute playtime make it incredibly convenient for casual gaming sessions, whether at home or on the go. The multicolor design enhances the visual experience, making it appealing to players who value aesthetics alongside gameplay. Manufactured by **Allplay**, the game maintains a high standard of quality, ensuring that players receive a durable and well-crafted product. Overall, this game is a fantastic choice for those seeking a strategic yet accessible two-player card game.
 
-## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
+## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
 
 
 The **Scorpion Masqué Sky Team** board game is ideal for gamers aged 14 and up who enjoy cooperative challenges and fast-paced gameplay. Perfect for friends, couples, or family members looking for a thrilling two-player experience, this game emphasizes teamwork and strategic thinking to achieve a common goal. If you appreciate award-winning games and want to engage in a unique, interactive experience that lasts about 20 minutes, this is the perfect choice.
@@ -101,10 +101,10 @@ The **Scorpion Masqué Sky Team** features a compact design with dimensions appr
 
 One of the most appealing benefits of this game is its award-winning status as **Game of The Year 2024**, reflecting its popularity and positive reception among players and critics alike. The 20-minute playtime ensures quick, exciting sessions that fit well into any schedule, while the cooperative nature strengthens communication and collaboration between players. Overall, the **Scorpion Masqué Sky Team** offers a thrilling, immersive experience for two players looking for a challenging and rewarding game night.
 
-## <a href="https://www.amazon.com/dp/B00A2HD40E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Pandemic Board Game</a>
+## <a href="https://www.amazon.com/dp/B00A2HD40E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Pandemic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00A2HD40E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Pandemic Board Game (Base Game) - A Cooperative Battle to Save Humanity, Strategy Game for Kids and Adults, Ages 8+, 2-4 Players, 45 Minute Playtime" src="https://m.media-amazon.com/images/I/41RYUd9wRLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00A2HD40E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Pandemic Board Game (Base Game) - A Cooperative Battle to Save Humanity, Strategy Game for Kids and Adults, Ages 8+, 2-4 Players, 45 Minute Playtime" src="https://m.media-amazon.com/images/I/41RYUd9wRLL._SL500_.jpg"/></a>
 
 
 The **Asmodee Pandemic Board Game (Base Game)** is ideal for families, friends, and strategy game enthusiasts looking for a cooperative and engaging experience. Perfect for players aged 8 and above, this game suits those who enjoy teamwork, critical thinking, and a challenge that lasts about 45 minutes. Whether you are a casual gamer or someone who loves strategic planning, this game offers an exciting way to collaborate and save humanity from global outbreaks.
@@ -128,10 +128,10 @@ The **Asmodee Pandemic Board Game** stands out with its engaging cooperative mec
 
 With its compact size and quick playtime, the game is perfect for family game nights or casual gatherings. The multi-colored components not only provide visual appeal but also help players easily identify different parts of the game, streamlining gameplay. Moreover, the updated edition brings improved rules and enhanced components, offering a polished experience that appeals to both newcomers and seasoned players alike.
 
-## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
+## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
 
 
 The **Battleship Classic Board Game** is perfect for families and individuals looking for a fun and engaging way to develop **strategic thinking** and **critical planning skills**. Ideal for both **kids aged 7 and up** and adults, this game is a great choice for those who enjoy competitive, turn-based challenges that require logic and foresight. It’s also a fantastic option for **two players** seeking a classic, interactive game that promotes bonding and friendly rivalry.
@@ -154,10 +154,10 @@ The **Battleship Classic Board Game** features a well-designed, sturdy board tha
 
 Beyond its entertainment value, this strategy game also serves as an excellent educational tool, encouraging players to practice logical deduction and anticipate their opponent’s moves. The compact size and lightweight nature make it easy to carry and store, making it ideal for home use or travel. Whether you are a seasoned strategist or a casual gamer, the **Battleship Classic Board Game** offers hours of immersive fun that brings families and friends together.
 
-## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
+## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
 
 
 The **Asmodee Mysterium Board Game** is ideal for families and groups of friends looking for a captivating and cooperative gaming experience. Perfect for players aged 10 and up, this game suits both beginners and seasoned board game enthusiasts who enjoy solving mysteries together. Whether you want a fun activity for a family game night or a party game that encourages teamwork and creative thinking, this game fits the bill for 2 to 7 players seeking engaging entertainment with a touch of ghostly intrigue.
@@ -180,10 +180,10 @@ The **Asmodee Mysterium Board Game** features a unique blend of mystery and coop
 
 Thanks to its thoughtful balance of complexity and accessibility, the game offers an enjoyable challenge without overwhelming new players. The compact **dimensions** and manageable weight make it easy to transport, ideal for gatherings or game nights on the go. Overall, this board game delivers an engaging and memorable experience that fosters collaboration and sparks imagination among kids and adults alike.
 
-## <a href="https://www.amazon.com/dp/B077MZ2MPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Azul Board Game</a>
+## <a href="https://www.amazon.com/dp/B077MZ2MPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Azul Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B077MZ2MPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Azul Board Game - Award-Winning Tile-Placement Strategy Game, Beautiful Mosaic Art, Family Fun for Kids &amp; Adults, Ages 8+, 2-4 Players, 30-45 Minute Playtime" src="https://m.media-amazon.com/images/I/61N5Hys8OaS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077MZ2MPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Azul Board Game - Award-Winning Tile-Placement Strategy Game, Beautiful Mosaic Art, Family Fun for Kids &amp; Adults, Ages 8+, 2-4 Players, 30-45 Minute Playtime" src="https://m.media-amazon.com/images/I/61N5Hys8OaS._SL500_.jpg"/></a>
 
 
 The **Asmodee Azul Board Game** is ideal for families and friends looking to engage in a captivating and strategic gameplay experience. Perfect for players aged **8 and above**, this game suits both kids and adults who enjoy creative challenges and tactical thinking. Whether you are a casual gamer or a board game enthusiast, this tile-placement game offers a perfect balance of fun and competition for **2-4 players**.
@@ -206,10 +206,10 @@ The **Asmodee Azul Board Game** stands out with its beautifully crafted mosaic t
 
 Beyond its artistic qualities, the game promotes social interaction and cognitive skills, ideal for both younger players and adults. The manageable playtime of 30-45 minutes ensures that it holds players' attention without becoming a lengthy commitment. This combination of strategy, beauty, and accessibility makes Azul a beloved choice for families and game nights alike.
 
-## <a href="https://www.amazon.com/dp/B08KWND9SZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Couch Skeletons Card Game</a>
+## <a href="https://www.amazon.com/dp/B08KWND9SZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Couch Skeletons Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B08KWND9SZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Couch Skeletons Card Game - Quick and Easy 2 Player Game by The Dusty Top Hat" src="https://m.media-amazon.com/images/I/51MISBLzo1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08KWND9SZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Couch Skeletons Card Game - Quick and Easy 2 Player Game by The Dusty Top Hat" src="https://m.media-amazon.com/images/I/51MISBLzo1L._SL500_.jpg"/></a>
 
 
 The **Couch Skeletons Card Game** by **The Dusty Top Hat** is ideal for couples, friends, or family members looking for a **quick** and **engaging** two-player game. If you enjoy **lighthearted competition** and want a compact game that fits perfectly in cozy settings, this game is a perfect choice for you. Its easy-to-understand rules make it suitable for both casual gamers and beginners.
@@ -232,10 +232,10 @@ The **Couch Skeletons Card Game** features a compact size with dimensions approx
 
 Crafted by **The Dusty Tophat Ltd.**, this edition emphasizes simplicity without sacrificing fun. The game mechanics are designed to deliver fast-paced rounds that encourage replayability. Players benefit from quick setup and straightforward rules, allowing them to jump right into the action. Overall, this game is a delightful addition to any game collection for those who appreciate easy, two-player entertainment.
 
-## <a href="https://www.amazon.com/dp/B00486TI3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Catan Rivals For Catan Card Game</a>
+## <a href="https://www.amazon.com/dp/B00486TI3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Catan Rivals For Catan Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00486TI3M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CATAN Rivals for CATAN Card Game - Build, Trade and Conquer! Strategy Game, Family Fun for Kids and Adults, Ages 10+, 2 Players, 45-60 Minute Playtime" src="https://m.media-amazon.com/images/I/414Eq103E5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00486TI3M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CATAN Rivals for CATAN Card Game - Build, Trade and Conquer! Strategy Game, Family Fun for Kids and Adults, Ages 10+, 2 Players, 45-60 Minute Playtime" src="https://m.media-amazon.com/images/I/414Eq103E5L._SL500_.jpg"/></a>
 
 
 The **CATAN Rivals for CATAN Card Game** is ideal for both **kids and adults** aged 10 and above who enjoy strategic gameplay and competitive challenges. Perfect for **two players**, this game is a great choice for families, friends, or couples looking to engage in an exciting **strategy game** that combines elements of building, trading, and conquering. If you appreciate games that require thoughtful planning and interaction, this game will provide hours of **family fun** within a reasonable **45-60 minute playtime**.
@@ -258,10 +258,10 @@ The **CATAN Rivals for CATAN Card Game** stands out with its well-designed mecha
 
 With a typical playtime of 45 to 60 minutes, it balances depth and accessibility, making it an excellent option for those who want a fulfilling game without a lengthy time commitment. The game also supports player growth, as mastering the strategies involved can be deeply rewarding and keeps every playthrough fresh and challenging. Overall, it is a versatile and enjoyable addition to any game collection, especially for fans of the original CATAN series or anyone seeking a robust two-player strategy experience.
 
-## <a href="https://www.amazon.com/dp/B01JF4CHWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pressman The Oregon Trail Card Game</a>
+## <a href="https://www.amazon.com/dp/B01JF4CHWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pressman The Oregon Trail Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B01JF4CHWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pressman The Oregon Trail Card Game - Cooperative Gameplay Based on The Classic Computer Game, Ages 12 and Up, 2-6 Players" src="https://m.media-amazon.com/images/I/41tUBUMQsyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01JF4CHWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pressman The Oregon Trail Card Game - Cooperative Gameplay Based on The Classic Computer Game, Ages 12 and Up, 2-6 Players" src="https://m.media-amazon.com/images/I/41tUBUMQsyL._SL500_.jpg"/></a>
 
 
 The **Pressman The Oregon Trail Card Game** is ideal for fans of the classic computer game, families, and groups of friends looking for a fun and engaging cooperative experience. Suitable for ages 12 and up, and accommodating 2-6 players, this game is perfect for those who enjoy strategy, teamwork, and nostalgic gameplay. If you want to relive the adventurous journey of the Oregon Trail with a modern card game twist, this is the perfect choice.

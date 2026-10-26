@@ -23,10 +23,10 @@ With their small size, they fit perfectly in potted plants, micro landscapes, an
 
 
 
-## <a href="https://www.amazon.com/dp/B0C88SC4VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cidinge Mini Resin Ducks</a>
+## <a href="https://www.amazon.com/dp/B0C88SC4VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cidinge Mini Resin Ducks</a>
 
 
-<a href="https://www.amazon.com/dp/B0C88SC4VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cidinge 60 Pcs Mini Resin Ducks Luminous Tiny Ducks Miniature Duck Glow in The Dark for DIY Garden Dollhouse Duck Accessories Micro Landscape Aquarium Party Decor" src="https://m.media-amazon.com/images/I/61ZtlzjRs7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C88SC4VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cidinge 60 Pcs Mini Resin Ducks Luminous Tiny Ducks Miniature Duck Glow in The Dark for DIY Garden Dollhouse Duck Accessories Micro Landscape Aquarium Party Decor" src="https://m.media-amazon.com/images/I/61ZtlzjRs7L._SL500_.jpg"/></a>
 
 
 The **Cidinge 60 Pcs Mini Resin Ducks Luminous Tiny Ducks** are perfect for hobbyists and DIY enthusiasts who enjoy creating detailed miniature scenes. Ideal for those who work on **garden dollhouses, micro landscapes, aquariums**, or party decorations, these tiny glowing ducks add a charming and whimsical touch. If you want to enhance your creative projects with unique, luminous accents, this set is a great choice.
@@ -49,10 +49,10 @@ The **Cidinge Mini Resin Ducks** feature a compact and detailed design measuring
 
 Crafted from durable resin, these ducks are built to last while maintaining their intricate details. The variety of colors allows users to customize their projects, matching different themes or color schemes. Whether you're decorating a party table or assembling a micro landscape, these tiny glowing ducks bring a unique charm and creative flair. Their versatility and glow make them a standout accessory for anyone looking to add a subtle yet captivating element to their miniature designs.
 
-## <a href="https://www.amazon.com/dp/B0D2KYN3XG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gwahsa 240pcs Luminous Mini Resin Ducks</a>
+## <a href="https://www.amazon.com/dp/B0D2KYN3XG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gwahsa 240pcs Luminous Mini Resin Ducks</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2KYN3XG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GWAHSA 240pcs Luminous Mini Resin Ducks, Tiny Duck Bulk Glow in The Dark Small Plastic Miniature Ducks Figures for Dollhouse Decor Micro Garden Home Landscape Aquarium Craft Gifts Party Favors Toys" src="https://m.media-amazon.com/images/I/51gdTsm85+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2KYN3XG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GWAHSA 240pcs Luminous Mini Resin Ducks, Tiny Duck Bulk Glow in The Dark Small Plastic Miniature Ducks Figures for Dollhouse Decor Micro Garden Home Landscape Aquarium Craft Gifts Party Favors Toys" src="https://m.media-amazon.com/images/I/51gdTsm85+L._SL500_.jpg"/></a>
 
 
 Ideal for **craft enthusiasts**, **dollhouse collectors**, and those looking to add a unique touch to their **micro gardens** or **home decor**, the **GWAHSA 240pcs Luminous Mini Resin Ducks** are perfect for anyone who enjoys creative projects or decorative accents that glow in the dark. These tiny, colorful ducks are also great for **party favors** and **aquarium decorations**, making them a versatile choice for various applications.
@@ -75,10 +75,10 @@ The **GWAHSA 240pcs Luminous Mini Resin Ducks** boast an array of features tailo
 
 With a broad palette of over **13 colors**, these tiny ducks allow users to customize their projects, creating vibrant and eye-catching displays. Whether used as charming additions to aquariums or as whimsical party favors, their luminous quality ensures they stand out in any setting. The bulk packaging of 240 pieces provides ample quantity for large-scale projects or multiple uses, making it a cost-effective and fun accessory for decorators, hobbyists, and gift-givers alike.
 
-## <a href="https://www.amazon.com/dp/B0BWJ845HB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">100 Pcs Mini Resin Ducks Bulk Tiny Ducks Set</a>
+## <a href="https://www.amazon.com/dp/B0BWJ845HB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">100 Pcs Mini Resin Ducks Bulk Tiny Ducks Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWJ845HB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="100 Pcs Mini Resin Ducks Bulk Tiny Ducks Set for Potted Miniature Decoration Garden Dollhouse Cake Decoration DIY Slime Kit Craft Charms Party Toys" src="https://m.media-amazon.com/images/I/512XJ2QT0OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWJ845HB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="100 Pcs Mini Resin Ducks Bulk Tiny Ducks Set for Potted Miniature Decoration Garden Dollhouse Cake Decoration DIY Slime Kit Craft Charms Party Toys" src="https://m.media-amazon.com/images/I/512XJ2QT0OL._SL500_.jpg"/></a>
 
 
 The **100 Pcs Mini Resin Ducks Bulk Tiny Ducks Set** is ideal for craft enthusiasts, miniature collectors, and DIY lovers who want to add a charming touch to their projects. Whether you are decorating a **garden dollhouse**, creating a **potted miniature** scene, or enhancing a **cake decoration**, these tiny yellow ducks are perfect for adding playful detail. This set is also great for parents and teachers seeking fun **party toys** or **DIY slime kit** accessories for kids.
@@ -101,10 +101,10 @@ The **mini resin ducks** feature a compact dimension of **0.6 inches** in height
 
 Users benefit from the versatility of this set, as it caters to a wide range of creative applications. Whether you are a hobbyist looking to enhance your dollhouse scenery or a party organizer seeking charming favors, these tiny ducks add a unique touch. Their consistent size and vibrant color make them easy to integrate into various themes and styles, while the bulk quantity offers excellent value for crafting multiple projects or sharing with friends and family. This set supports imaginative play and artistic expression, making it a valuable addition to any DIY toolkit.
 
-## <a href="https://www.amazon.com/dp/B07X8NVY7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">100pcs Mini Resin Ducks</a>
+## <a href="https://www.amazon.com/dp/B07X8NVY7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">100pcs Mini Resin Ducks</a>
 
 
-<a href="https://www.amazon.com/dp/B07X8NVY7M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="100Pcs Mini Resin Ducks, Tiny Ducks Figurines Bulk for Miniature Dollhouse Decor Accessories Garden Aquarium Potted DIY Ornament Party Toys" src="https://m.media-amazon.com/images/I/51gCSUG7xiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07X8NVY7M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="100Pcs Mini Resin Ducks, Tiny Ducks Figurines Bulk for Miniature Dollhouse Decor Accessories Garden Aquarium Potted DIY Ornament Party Toys" src="https://m.media-amazon.com/images/I/51gCSUG7xiL._SL500_.jpg"/></a>
 
 
 The **100Pcs Mini Resin Ducks** are perfect for hobbyists, crafters, and decorators who want to add a charming touch to their miniature projects. Ideal for those who enjoy creating detailed **miniature dollhouse decor**, garden setups, aquariums, or DIY ornaments, these tiny yellow ducks bring life and personality to any small-scale scene. If you are looking for affordable and adorable accessories to enhance your creative displays or party decorations, this bulk set is an excellent choice.
@@ -127,10 +127,10 @@ These **mini resin ducks** are carefully crafted to offer detailed and charming 
 
 Beyond their aesthetic appeal, these ducks serve functional roles in DIY projects and decorations. For example, they can be used as fun party favors or table centerpieces, adding a whimsical element to celebrations. Garden enthusiasts can also incorporate them into fairy gardens or potted plant arrangements to create a playful atmosphere. Overall, these **tiny ducks figurines** provide both visual charm and versatile uses, making them a valuable accessory for creative individuals seeking unique miniature decor solutions.
 
-## <a href="https://www.amazon.com/dp/B0C8NB7K45?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dulefun Tiny Ducks</a>
+## <a href="https://www.amazon.com/dp/B0C8NB7K45?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dulefun Tiny Ducks</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8NB7K45?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DULEFUN 200pcs Tiny Ducks 10 Colors Little Duck Figures Mini Resin Ducks Plastic Small Miniature Ducks Bulk for Dollhouse Decor Micro Fairy Garden Landscape Aquarium Tiny Toys" src="https://m.media-amazon.com/images/I/516lQkLEHnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C8NB7K45?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DULEFUN 200pcs Tiny Ducks 10 Colors Little Duck Figures Mini Resin Ducks Plastic Small Miniature Ducks Bulk for Dollhouse Decor Micro Fairy Garden Landscape Aquarium Tiny Toys" src="https://m.media-amazon.com/images/I/516lQkLEHnL._SL500_.jpg"/></a>
 
 
 The **DULEFUN 200pcs Tiny Ducks** set is perfect for hobbyists and creative individuals looking to enhance their miniature scenes. Ideal for those who enjoy decorating **dollhouses**, **micro fairy gardens**, or **aquariums**, this collection of colorful **mini resin ducks** offers a fun and versatile way to add charm and personality to small-scale landscapes. If you appreciate detailed miniature accessories and want to bring life to your tiny setups, this product is a great choice.
@@ -153,10 +153,10 @@ The **DULEFUN 200pcs Tiny Ducks** feature a compact design with dimensions of ap
 
 Beyond their aesthetic contribution, these miniature ducks encourage creativity and personalization in your projects. Whether used to embellish a **micro fairy garden** or to populate an **aquarium**, they add a whimsical touch that can transform simple setups into captivating scenes. The bulk quantity provides ample figures for multiple projects or sharing among friends, making it a practical and enjoyable addition for any miniature enthusiast.
 
-## <a href="https://www.amazon.com/dp/B0DGXV89SV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwwpoo Mini Resin Animals</a>
+## <a href="https://www.amazon.com/dp/B0DGXV89SV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwwpoo Mini Resin Animals</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGXV89SV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWWPOO 70 Pcs Mini Resin Animals Tiny Animals Mini Ducks Garden Decor 70 Styles Tiny Resin Miniature Figurines Bulk for Dollhouse Slime Charm for Craft DIY Hide Crafts Decor Aquarium Toys" src="https://m.media-amazon.com/images/I/51iIVRTs2YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGXV89SV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWWPOO 70 Pcs Mini Resin Animals Tiny Animals Mini Ducks Garden Decor 70 Styles Tiny Resin Miniature Figurines Bulk for Dollhouse Slime Charm for Craft DIY Hide Crafts Decor Aquarium Toys" src="https://m.media-amazon.com/images/I/51iIVRTs2YL._SL500_.jpg"/></a>
 
 
 The **DWWPOO 70 Pcs Mini Resin Animals** set is perfect for crafters, hobbyists, and collectors who enjoy adding intricate details to their projects. Ideal for those who create **dollhouses, slime charms, garden decor**, or aquarium setups, this collection offers a wide variety of tiny animal figurines that enhance creativity and personalization. If you are someone who loves DIY crafts or needs unique miniature decorations, this bulk set is designed for you.
@@ -179,10 +179,10 @@ The **DWWPOO 70 Pcs Mini Resin Animals** set stands out due to its diverse colle
 
 Additionally, the versatility of the miniatures allows them to be used creatively across multiple applications like slime charms or DIY hide crafts. Their compact size makes placement easy without overwhelming the overall design, while the bulk packaging suits both individual enthusiasts and group crafting sessions. Overall, this set provides an excellent balance of quality, quantity, and artistic potential for anyone passionate about miniature crafting.
 
-## <a href="https://www.amazon.com/dp/B0D3PMFBBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">120pcs Mini Resin Ducks Luminous Mini Ducks Glow In The Dark</a>
+## <a href="https://www.amazon.com/dp/B0D3PMFBBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">120pcs Mini Resin Ducks Luminous Mini Ducks Glow In The Dark</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3PMFBBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="120Pcs Mini Resin Ducks Luminous Mini Ducks Glow in The Dark, Tiny Ducks to Hide, Little Ducks, Miniature Ducks for Garden Micro Landscape DIY Craft Accessories Ornament Charms Party Toys" src="https://m.media-amazon.com/images/I/51SHQLWRj2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3PMFBBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="120Pcs Mini Resin Ducks Luminous Mini Ducks Glow in The Dark, Tiny Ducks to Hide, Little Ducks, Miniature Ducks for Garden Micro Landscape DIY Craft Accessories Ornament Charms Party Toys" src="https://m.media-amazon.com/images/I/51SHQLWRj2L._SL500_.jpg"/></a>
 
 
 The **120Pcs Mini Resin Ducks Luminous Mini Ducks Glow in The Dark** are perfect for hobbyists and craft lovers who enjoy creating detailed **garden micro landscapes** or DIY projects. Ideal for those who want to add a whimsical and charming touch to their miniature setups, these tiny ducks also appeal to party planners and educators looking for engaging, glow-in-the-dark **ornaments and toys** that capture attention and spark creativity.
@@ -203,10 +203,10 @@ These **mini resin ducks** are thoughtfully designed to bring life and character
 
 Thanks to their durable construction and compact dimensions, these ducks are easy to place and rearrange within intricate settings. Whether used for educational purposes, as party favors, or as unique collectible charms, they offer a fun and engaging way to enhance creativity. The product's versatility and glowing feature make it an excellent choice for anyone looking to add a magical touch to their crafts or decorations.
 
-## <a href="https://www.amazon.com/dp/B0CLG8TNK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">200 Pcs Mini Resin Duck Colorful Miniature Figures</a>
+## <a href="https://www.amazon.com/dp/B0CLG8TNK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">200 Pcs Mini Resin Duck Colorful Miniature Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLG8TNK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="200 Pcs Mini Resin Duck Colorful Miniature Figures Micro Fairy Garden Landscape Aquarium Hide and Seek Dollhouse Cake Decoration Potted Plants DIY Slime Craft Charms for Party Toys Game Gift" src="https://m.media-amazon.com/images/I/51bLvtM3zPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLG8TNK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="200 Pcs Mini Resin Duck Colorful Miniature Figures Micro Fairy Garden Landscape Aquarium Hide and Seek Dollhouse Cake Decoration Potted Plants DIY Slime Craft Charms for Party Toys Game Gift" src="https://m.media-amazon.com/images/I/51bLvtM3zPL._SL500_.jpg"/></a>
 
 
 Ideal for **craft enthusiasts**, **fairy garden hobbyists**, and anyone looking to add a splash of color and charm to their **miniature landscapes**, the **200 Pcs Mini Resin Duck Colorful Miniature Figures** are perfect for those who enjoy detailed **DIY projects** and creative decorating. Whether you're designing a **fairy garden**, enhancing an **aquarium**, or customizing a **dollhouse**, these tiny ducks provide a whimsical touch that appeals to both adults and kids alike.
@@ -229,10 +229,10 @@ The **200 Pcs Mini Resin Duck Colorful Miniature Figures** are thoughtfully desi
 
 Thanks to their durable resin construction, these figures maintain their form and color over time, ensuring your miniature displays remain charming and intact. Whether placed in a **micro fairy garden** or used as charming accents in **slime crafts** or **dollhouse scenes**, they add a unique and delightful element that enriches the overall aesthetic. This set is an excellent gift choice for creative individuals who appreciate detailed and colorful miniatures.
 
-## <a href="https://www.amazon.com/dp/B0BWWSDY2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Louhua Mini Resin Ducks 220 Pack Tiny Duck Figurines</a>
+## <a href="https://www.amazon.com/dp/B0BWWSDY2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Louhua Mini Resin Ducks 220 Pack Tiny Duck Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWWSDY2K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOUHUA Mini Resin Ducks 220 Pack Tiny Duck Figurines Bulk for Miniature Dollhouse Decor Accessories Garden Aquarium Potted Ornament Party Toys DIY Charms Office Classroom Activity to Hide" src="https://m.media-amazon.com/images/I/51NF8WVd4pL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWWSDY2K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOUHUA Mini Resin Ducks 220 Pack Tiny Duck Figurines Bulk for Miniature Dollhouse Decor Accessories Garden Aquarium Potted Ornament Party Toys DIY Charms Office Classroom Activity to Hide" src="https://m.media-amazon.com/images/I/51NF8WVd4pL._SL500_.jpg"/></a>
 
 
 The **LOUHUA Mini Resin Ducks 220 Pack** is perfect for hobbyists, DIY enthusiasts, educators, and anyone looking to add charming miniature accents to their spaces. Whether you are decorating a **miniature dollhouse**, enhancing your **garden aquarium**, creating unique **party favors**, or organizing an **office or classroom activity**, this bulk set of tiny duck figurines offers a versatile and creative solution.
@@ -255,10 +255,10 @@ The **LOUHUA Mini Resin Ducks** stand out due to their compact size and detailed
 
 These figurines offer a tangible benefit by enhancing visual appeal and engagement in various settings. For instance, educators can use them in classroom activities to foster imaginative play, while crafters can incorporate them into personalized gifts or home decorations. Additionally, their lightweight and sturdy resin composition ensures they maintain their shape and appearance over time, providing lasting value to users.
 
-## <a href="https://www.amazon.com/dp/B0F189LL3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ysesoai Glitter Mini Resin Ducks</a>
+## <a href="https://www.amazon.com/dp/B0F189LL3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ysesoai Glitter Mini Resin Ducks</a>
 
 
-<a href="https://www.amazon.com/dp/B0F189LL3Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YsesoAi 100Pcs Glitter Mini Resin Ducks, Tiny Ducks Figurines Bulk for Miniature Dollhouse Decor Accessories Garden Aquarium Potted DIY Ornament Charms Office Classroom Activity to Hide Party Toys" src="https://m.media-amazon.com/images/I/51Q3Xg17lwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F189LL3Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YsesoAi 100Pcs Glitter Mini Resin Ducks, Tiny Ducks Figurines Bulk for Miniature Dollhouse Decor Accessories Garden Aquarium Potted DIY Ornament Charms Office Classroom Activity to Hide Party Toys" src="https://m.media-amazon.com/images/I/51Q3Xg17lwL._SL500_.jpg"/></a>
 
 
 The **YsesoAi 100Pcs Glitter Mini Resin Ducks** are perfect for hobbyists, crafters, and decorators looking to add a charming touch to their projects. Ideal for those who enjoy creating **miniature dollhouse decor**, enhancing **garden aquariums**, or organizing fun **office or classroom activities**, these tiny ducks offer versatility and whimsy. If you want to add a sparkly, playful element to your DIY ornaments or party favors, this bulk pack is an excellent choice.

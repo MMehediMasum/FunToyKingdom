@@ -23,10 +23,10 @@ Kids love the interactive features like pull-back mechanisms and openable doors.
 
 
 
-## <a href="https://www.amazon.com/dp/B0CS67G199?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sasbsc Toy Cars Lambo V12 Sports Car</a>
+## <a href="https://www.amazon.com/dp/B0CS67G199?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sasbsc Toy Cars Lambo V12 Sports Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0CS67G199?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SASBSC Toy Cars Lambo V12 Sports Car Toy with Light and Sound Diecast Metal Model Cars for 3+ Year Old Boys Pull Back Race Car Gift Toys for Kids Ages 3+ (Blue)" src="https://m.media-amazon.com/images/I/41OvTicASiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CS67G199?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SASBSC Toy Cars Lambo V12 Sports Car Toy with Light and Sound Diecast Metal Model Cars for 3+ Year Old Boys Pull Back Race Car Gift Toys for Kids Ages 3+ (Blue)" src="https://m.media-amazon.com/images/I/41OvTicASiL._SL500_.jpg"/></a>
 
 
 The **SASBSC Toy Cars Lambo V12 Sports Car Toy** is ideal for young boys aged 3 and above who have a passion for fast cars and interactive play. This diecast metal model is perfect for parents or gift-givers looking to inspire imaginative racing adventures and develop fine motor skills in toddlers. If you want a durable, visually appealing, and engaging toy car that lights up and makes sounds, this is an excellent choice.
@@ -49,12 +49,12 @@ The **SASBSC Lambo V12 Sports Car Toy** combines realistic design with interacti
 
 Measuring just 4 inches in length, this toy is perfectly sized for little hands to grip and race around. The vibrant blue color adds visual appeal, making it easy to spot among other toys. Overall, this model is a great gift option that balances durability, entertainment, and educational value for children aged 3 and up.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CS67G199?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CS67G199?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09289K3C2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sasbsc Lambo Toy Cars Sian Fkp37 Diecast Metal Model Car</a>
+## <a href="https://www.amazon.com/dp/B09289K3C2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sasbsc Lambo Toy Cars Sian Fkp37 Diecast Metal Model Car</a>
 
 
-<a href="https://www.amazon.com/dp/B09289K3C2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SASBSC Lambo Toy Cars Sian Fkp37 Diecast Metal Model Car with Light and Sound Pull Back Car Toys for Boys Age 3 + Year Old (Blue)" src="https://m.media-amazon.com/images/I/41m23r3rS5S._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09289K3C2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SASBSC Lambo Toy Cars Sian Fkp37 Diecast Metal Model Car with Light and Sound Pull Back Car Toys for Boys Age 3 + Year Old (Blue)" src="https://m.media-amazon.com/images/I/41m23r3rS5S._SL500_.jpg"/></a>
 
 
 The **SASBSC Lambo Toy Cars Sian Fkp37 Diecast Metal Model Car** is perfect for young children, especially boys aged 3 years and older, who have a passion for cars and enjoy interactive play. This toy is ideal for parents looking to gift a durable, exciting, and realistic model car that combines fun with educational value through imaginative play.
@@ -77,12 +77,12 @@ The **SASBSC Lambo Toy Cars Sian Fkp37** combines authentic design with interact
 
 With its compact and lightweight design, this model car is perfectly sized for young children to carry around and play with anywhere, whether at home or on the go. The vibrant blue finish is visually stimulating and can easily capture the interest of car enthusiasts at a young age. Overall, this toy offers a blend of entertainment, education, and quality craftsmanship that makes it a worthy addition to any child's collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09289K3C2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09289K3C2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08J4JJ8X3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Cars Set Of 10 Die-cast Mini Racers Vehicles</a>
+## <a href="https://www.amazon.com/dp/B08J4JJ8X3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Cars Set Of 10 Die-cast Mini Racers Vehicles</a>
 
 
-<a href="https://www.amazon.com/dp/B08J4JJ8X3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Cars Set of 10 Die-Cast Mini Racers Vehicles, Collectible Set of 1:55 Scale Toy Cars Inspired by Movies" src="https://m.media-amazon.com/images/I/41+EMNCdf2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08J4JJ8X3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Cars Set of 10 Die-Cast Mini Racers Vehicles, Collectible Set of 1:55 Scale Toy Cars Inspired by Movies" src="https://m.media-amazon.com/images/I/41+EMNCdf2L._SL500_.jpg"/></a>
 
 
 The **Mattel Disney and Pixar Cars Set of 10 Die-Cast Mini Racers Vehicles** is perfect for young fans of the popular **Cars movie franchise** and collectors of **die-cast toy cars**. This set is ideal for children who enjoy imaginative play with miniature vehicles as well as adults who appreciate detailed, collectible items inspired by beloved animated characters.
@@ -105,12 +105,12 @@ The **Mattel Disney and Pixar Cars Set** features a vibrant collection of 10 die
 
 In addition to their visual appeal, these mini racers are built to last with sturdy materials that withstand rough play. The lightweight and compact design allows for easy portability, so kids can take their favorite characters wherever they go. Whether used for collecting or interactive play, this set provides endless enjoyment and is a fantastic addition to any Disney or Pixar Cars collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08J4JJ8X3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08J4JJ8X3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D3DBLZBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidami Racing Cars Die-cast Metal Toy Cars Set</a>
+## <a href="https://www.amazon.com/dp/B0D3DBLZBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidami Racing Cars Die-cast Metal Toy Cars Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3DBLZBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KIDAMI Racing Cars Die-cast Metal Toy Cars Set, Mini Toddler Toy Vehicle with Openable Doors, Pull Back Car, Gift Pack for Kids (4 Pack)" src="https://m.media-amazon.com/images/I/51dASuoup9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3DBLZBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KIDAMI Racing Cars Die-cast Metal Toy Cars Set, Mini Toddler Toy Vehicle with Openable Doors, Pull Back Car, Gift Pack for Kids (4 Pack)" src="https://m.media-amazon.com/images/I/51dASuoup9L._SL500_.jpg"/></a>
 
 
 The **KIDAMI Racing Cars Die-cast Metal Toy Cars Set** is perfect for young children, especially toddlers who love cars and enjoy interactive play. This set is ideal for parents or gift buyers looking for a durable and engaging toy that can stimulate imaginative play and fine motor skills development in kids. It’s designed for little hands to easily grasp, making it suitable for children aged 3 and up.
@@ -133,12 +133,12 @@ The **KIDAMI Racing Cars Die-cast Metal Toy Cars Set** offers a fantastic combin
 
 Additionally, the innovative **pull back car feature** allows children to experience cause and effect by propelling the cars forward with a simple pull, adding an active component to their playtime. This helps develop coordination and motor skills while keeping kids entertained for hours. The compact dimensions and lightweight design make these cars easy to transport, perfect for playdates or travel. Overall, this set is a delightful gift pack that combines fun, learning, and durability for young car enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D3DBLZBD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D3DBLZBD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1957 Chevy Bel Air Coupe</a>
+## <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1957 Chevy Bel Air Coupe</a>
 
 
-<a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (rescue="" alt="KiNSMART 1957 Chevy Bel Air Coupe 1:40 Scale 5" car="" cast="" classic="" die="" metal="" police)"="" src="https://m.media-amazon.com/images/I/31OKfZ4SODL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (rescue="" alt="KiNSMART 1957 Chevy Bel Air Coupe 1:40 Scale 5" car="" cast="" classic="" die="" metal="" police)"="" src="https://m.media-amazon.com/images/I/31OKfZ4SODL._SL500_.jpg" toy=""/></a>
 
 
 The **KiNSMART 1957 Chevy Bel Air Coupe 1:40 Scale 5" Die Cast Metal Classic Toy Car (Rescue Police)** is perfect for collectors, classic car enthusiasts, and children who enjoy detailed and durable toy cars. This item is ideal for those who appreciate iconic automotive designs and want a high-quality, miniature replica that stands out both as a collectible and a plaything.
@@ -160,12 +160,12 @@ The **KiNSMART 1957 Chevy Bel Air Coupe** showcases the timeless design of a cla
 
 With dimensions measuring 5 inches in length and weighing only 0.2 pounds, this model is compact enough to fit on any shelf or desk without occupying much space. The sturdy construction ensures it can withstand regular handling, making it suitable for both display and interactive play. Overall, this toy car combines aesthetic appeal with functional durability, delivering an enjoyable experience for users of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00FYXBQZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BNLYL3VB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Mercedes-benz C63 Amg Coupe Black Series</a>
+## <a href="https://www.amazon.com/dp/B0BNLYL3VB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Mercedes-benz C63 Amg Coupe Black Series</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNLYL3VB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels 1/64 Scale Mercedes-Benz C63 AMG Coupe Black Series, Die-Cast Car Model, Orange, Medium, 2023, 3+ Years, Male, Sports Car, Kid, Children, Unisex" src="https://m.media-amazon.com/images/I/41yO2ALXwZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNLYL3VB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels 1/64 Scale Mercedes-Benz C63 AMG Coupe Black Series, Die-Cast Car Model, Orange, Medium, 2023, 3+ Years, Male, Sports Car, Kid, Children, Unisex" src="https://m.media-amazon.com/images/I/41yO2ALXwZL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels 1/64 Scale Mercedes-Benz C63 AMG Coupe Black Series** is ideal for children aged **3+** years who have a passion for **sports cars** and die-cast models. This **unisex** toy appeals to both boys and girls, making it a perfect collectible or plaything for young car enthusiasts and collectors alike. If you are looking for a detailed, durable, and visually striking model car that combines fun and realism, this item is a great choice.
@@ -188,12 +188,12 @@ This **Mercedes-Benz C63 AMG Coupe Black Series** model captures the sleek desig
 
 The bright **orange finish** adds a pop of color that appeals to children and collectors who want their models to stand out. Designed by **Mattel**, this model meets safety standards suitable for children aged three and older, providing parents with peace of mind. Whether used for imaginative play or as part of a collection, this car offers both entertainment and a glimpse into the world of high-performance sports cars.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BNLYL3VB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BNLYL3VB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00FXXXRVS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1964 1/2 Ford Mustang</a>
+## <a href="https://www.amazon.com/dp/B00FXXXRVS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1964 1/2 Ford Mustang</a>
 
 
-<a href="https://www.amazon.com/dp/B00FXXXRVS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (black)"="" alt="KiNSMART 1964 1/2 Ford Mustang 1:36 Scale 5" car="" cast="" classic="" die="" metal="" model="" src="https://m.media-amazon.com/images/I/41LJ1F8Y+WL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B00FXXXRVS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (black)"="" alt="KiNSMART 1964 1/2 Ford Mustang 1:36 Scale 5" car="" cast="" classic="" die="" metal="" model="" src="https://m.media-amazon.com/images/I/41LJ1F8Y+WL._SL500_.jpg" toy=""/></a>
 
 
 The **KiNSMART 1964 1/2 Ford Mustang 1:36 Scale 5" Die Cast Metal Model Classic Toy Car** is an ideal purchase for classic car enthusiasts, collectors of die-cast models, and anyone who appreciates detailed miniature replicas of iconic vehicles. Whether you are a hobbyist looking to expand your collection or searching for a unique gift for a Ford Mustang fan, this black model offers both aesthetic appeal and quality craftsmanship.
@@ -215,12 +215,12 @@ The **KiNSMART 1964 1/2 Ford Mustang** model impresses with its meticulous atten
 
 Beyond aesthetics, this model offers enthusiasts the opportunity to own a miniature replica of an automotive legend without the need for extensive space or maintenance. Its precise dimensions—2 inches in height and width, and 5 inches in length—make it an excellent choice for those looking to add to their collection without overwhelming their display area. Overall, the KiNSMART Mustang combines style, quality, and collectibility in one compact package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00FXXXRVS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00FXXXRVS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B093LWVBH6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - Toyota Gr Supra Concept Racing Edition Toy Car</a>
+## <a href="https://www.amazon.com/dp/B093LWVBH6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - Toyota Gr Supra Concept Racing Edition Toy Car</a>
 
 
-<a href="https://www.amazon.com/dp/B093LWVBH6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (yellow)"="" alt="KiNSMART - Toyota GR Supra Concept Racing Edition 1:36 Scale 5" car="" cast="" die="" metal="" sports="" src="https://m.media-amazon.com/images/I/4173c8zO4vS._SL500_.jpg" super="" toy=""/></a>
+<a href="https://www.amazon.com/dp/B093LWVBH6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (yellow)"="" alt="KiNSMART - Toyota GR Supra Concept Racing Edition 1:36 Scale 5" car="" cast="" die="" metal="" sports="" src="https://m.media-amazon.com/images/I/4173c8zO4vS._SL500_.jpg" super="" toy=""/></a>
 
 
 Ideal for **car enthusiasts**, **collectors**, and **children** who love detailed **die-cast model cars**, the **KiNSMART - Toyota GR Supra Concept Racing Edition** is perfect for those seeking a high-quality, miniature replica of the iconic **Toyota GR Supra**. Its vibrant **yellow color** and precise **1:36 scale** make it a standout addition to any collection or a fun, durable toy for playtime.
@@ -242,12 +242,12 @@ The **KiNSMART Toyota GR Supra Concept Racing Edition** boasts impressive crafts
 
 Beyond aesthetics, this model offers practical benefits for enthusiasts and kids alike. The compact size makes it easy to carry and showcase, while the quality metal construction ensures longevity. Whether used as a collectible or a toy, it delivers a satisfying tactile experience and adds a dynamic touch to any collection, highlighting the sporty essence of the **Toyota GR Supra Concept Racing Edition**.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B093LWVBH6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B093LWVBH6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B004XWXO9K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - 2006 Ford Mustang Gt Die Cast Model Toy Car</a>
+## <a href="https://www.amazon.com/dp/B004XWXO9K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart - 2006 Ford Mustang Gt Die Cast Model Toy Car</a>
 
 
-<a href="https://www.amazon.com/dp/B004XWXO9K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (green="" alt="Kinsmart - 2006 Ford Mustang GT 1:38 Scale 5" car="" cast="" die="" metal="" model="" race)"="" src="https://m.media-amazon.com/images/I/41or-YYRCkL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B004XWXO9K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (green="" alt="Kinsmart - 2006 Ford Mustang GT 1:38 Scale 5" car="" cast="" die="" metal="" model="" race)"="" src="https://m.media-amazon.com/images/I/41or-YYRCkL._SL500_.jpg" toy=""/></a>
 
 
 The **Kinsmart - 2006 Ford Mustang GT 1:38 Scale 5" Die Cast Metal Model Toy Car (Green Race)** is perfect for collectors, automotive enthusiasts, and children who appreciate detailed and durable model cars. If you are looking for a high-quality miniature replica that captures the iconic design of the 2006 Ford Mustang GT, this model is an excellent choice. It’s especially ideal for those who want a stylish display piece or a fun, realistic toy for imaginative play.
@@ -269,12 +269,12 @@ The **Kinsmart 2006 Ford Mustang GT model** offers an impressive combination of 
 
 Featuring a striking **green race color**, this model captures the sporty essence of the Mustang GT, appealing to those who admire racing aesthetics. Beyond looks, its lightweight design allows for easy transportation, so enthusiasts can take their model car anywhere. Overall, this Kinsmart die-cast model balances detailed design with practical usability, making it a versatile and attractive purchase.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B004XWXO9K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B004XWXO9K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B003XWX59A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1932 Ford 3-window Coupe</a>
+## <a href="https://www.amazon.com/dp/B003XWX59A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1932 Ford 3-window Coupe</a>
 
 
-<a href="https://www.amazon.com/dp/B003XWX59A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1932 Ford 3-Window Coupe 1:34 Scale 5" car"="" cast="" classic="" die="" metal="" model="" red="" src="https://m.media-amazon.com/images/I/41+RImmpS0L._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B003XWX59A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1932 Ford 3-Window Coupe 1:34 Scale 5" car"="" cast="" classic="" die="" metal="" model="" red="" src="https://m.media-amazon.com/images/I/41+RImmpS0L._SL500_.jpg" toy=""/></a>
 
 
 The **KiNSMART 1932 Ford 3-Window Coupe 1:34 Scale 5" Red Die Cast Metal Model Toy Classic Car** is perfect for **classic car enthusiasts**, **collectors**, and **kids** who appreciate detailed and durable model cars. If you are looking for a high-quality, visually appealing replica of an iconic vintage vehicle, this model offers both authenticity and playability.
@@ -297,7 +297,7 @@ The **KiNSMART 1932 Ford 3-Window Coupe** model stands out for its precise craft
 
 This model’s **1:34 scale** size strikes a perfect balance between being compact enough for collectors with limited space and large enough to appreciate the intricate details. Whether you are a collector seeking to enhance your classic car collection or a parent looking for a quality toy that sparks interest in automotive history, this model offers both aesthetic value and long-term enjoyment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B003XWX59A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B003XWX59A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -23,10 +23,10 @@ For those seeking a compact challenge, fidget cubes and maze balls help improve 
 
 
 
-## <a href="https://www.amazon.com/dp/B00KDGX7JW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Cylinder Hanayama Metal Brainteaser Puzzle</a>
+## <a href="https://www.amazon.com/dp/B00KDGX7JW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Cylinder Hanayama Metal Brainteaser Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B00KDGX7JW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled |Cylinder Hanayama Metal Brainteaser Puzzle Mensa Rated Level 4, for Ages 12 and Up" src="https://m.media-amazon.com/images/I/41Jnd+gwQAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00KDGX7JW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled |Cylinder Hanayama Metal Brainteaser Puzzle Mensa Rated Level 4, for Ages 12 and Up" src="https://m.media-amazon.com/images/I/41Jnd+gwQAL._SL500_.jpg"/></a>
 
 
 The **BePuzzled Cylinder Hanayama Metal Brainteaser Puzzle** is perfect for puzzle enthusiasts aged 12 and up who enjoy challenging their minds. Ideal for those who appreciate high-quality, Mensa-rated puzzles, this brainteaser offers a satisfying level 4 difficulty that will engage both teens and adults looking to improve their problem-solving skills and dexterity.
@@ -48,10 +48,10 @@ The **BePuzzled Cylinder Hanayama Metal Brainteaser Puzzle**, manufactured by **
 
 This puzzle’s moderate difficulty level challenges users to think creatively and persistently, offering a rewarding sense of accomplishment upon solving. The compact size and lightweight nature make it an ideal companion for travel or breaks, allowing users to engage their minds anytime and anywhere. Overall, the **BePuzzled Cylinder Hanayama** is a thoughtfully designed brainteaser that combines entertainment with intellectual stimulation for puzzle lovers of all skill levels.
 
-## <a href="https://www.amazon.com/dp/B0CD657V3T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gekeli Metal Wire Puzzle Set</a>
+## <a href="https://www.amazon.com/dp/B0CD657V3T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gekeli Metal Wire Puzzle Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CD657V3T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GEKELI Metal Wire Puzzle Set of 24 with Pouch,Brain Teaser IQ Test Disentanglemen Iron Link Unlock Interlock Game Chinese Ring Magic Trick Toy for Party Favor Kids Adults Challenge" src="https://m.media-amazon.com/images/I/51R-k3pSriL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CD657V3T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GEKELI Metal Wire Puzzle Set of 24 with Pouch,Brain Teaser IQ Test Disentanglemen Iron Link Unlock Interlock Game Chinese Ring Magic Trick Toy for Party Favor Kids Adults Challenge" src="https://m.media-amazon.com/images/I/51R-k3pSriL._SL500_.jpg"/></a>
 
 
 The **GEKELI Metal Wire Puzzle Set of 24** is perfect for individuals who enjoy challenging their minds and improving their problem-solving skills. This set is ideal for both **kids and adults** looking for a fun and engaging activity to stimulate cognitive function, enhance patience, and boost IQ. Whether you're a puzzle enthusiast or seeking a unique party favor, this set offers a versatile and entertaining experience.
@@ -74,10 +74,10 @@ The **GEKELI Metal Wire Puzzle Set** features 24 uniquely designed iron link puz
 
 Crafted by manufacturer **AUKEXIY** under the trusted **GEKELI** brand, this puzzle set doubles as a great party favor or a magic trick toy. Its metal construction ensures durability while providing a satisfying tactile experience. Whether you are looking to improve your IQ through play or searching for a unique gift, this puzzle set delivers both entertainment and mental exercise effectively.
 
-## <a href="https://www.amazon.com/dp/B000FGECAI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Educational Insights Kanoodle 3d Brain Teaser Puzzle Game</a>
+## <a href="https://www.amazon.com/dp/B000FGECAI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Educational Insights Kanoodle 3d Brain Teaser Puzzle Game</a>
 
 
-<a href="https://www.amazon.com/dp/B000FGECAI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Educational Insights Kanoodle 3D Brain Teaser Puzzle Game, Featuring 200 Challenges, Easter Basket Stuffers for Kids, Gift for Ages 7+" src="https://m.media-amazon.com/images/I/41o+miqQGmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000FGECAI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Educational Insights Kanoodle 3D Brain Teaser Puzzle Game, Featuring 200 Challenges, Easter Basket Stuffers for Kids, Gift for Ages 7+" src="https://m.media-amazon.com/images/I/41o+miqQGmL._SL500_.jpg"/></a>
 
 
 The **Educational Insights Kanoodle 3D Brain Teaser Puzzle Game** is ideal for **kids aged 7 and up** who enjoy challenging their minds and enhancing their problem-solving skills. It is perfect for parents and educators looking for an engaging and educational gift that stimulates critical thinking and spatial reasoning. Additionally, it makes a great **Easter basket stuffer** or a thoughtful present for young puzzle enthusiasts.
@@ -100,10 +100,10 @@ The **Kanoodle 3D Brain Teaser Puzzle Game** features a set of colorful, intrica
 
 Beyond the mental stimulation, the game’s compact and lightweight design makes it an excellent option for travel or quiet time at home. Its portability ensures that children can enjoy brain-teasing fun anywhere, while the multi-colored pieces provide visual stimulation and encourage pattern recognition. The Educational Insights Kanoodle game is more than just entertainment; it is a valuable educational tool that supports developmental milestones in a playful and rewarding way.
 
-## <a href="https://www.amazon.com/dp/B07XLWJ4Q8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kingou Hexagon Tangram Puzzle</a>
+## <a href="https://www.amazon.com/dp/B07XLWJ4Q8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kingou Hexagon Tangram Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B07XLWJ4Q8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KINGOU Hexagon Tangram Puzzle Wooden Brain Puzzles for Kids &amp; Adult Challenge Wooden Brain Teasers Puzzle Games for Family Party Gift - Brain Games for Kids" src="https://m.media-amazon.com/images/I/517+FOkzEuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07XLWJ4Q8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KINGOU Hexagon Tangram Puzzle Wooden Brain Puzzles for Kids &amp; Adult Challenge Wooden Brain Teasers Puzzle Games for Family Party Gift - Brain Games for Kids" src="https://m.media-amazon.com/images/I/517+FOkzEuL._SL500_.jpg"/></a>
 
 
 The **KINGOU Hexagon Tangram Puzzle Wooden Brain Puzzles** are ideal for both **kids and adults** who enjoy **challenging brain teasers** that stimulate creativity and problem-solving skills. This puzzle is perfect for families looking to engage in a fun and educational activity together, as well as for individuals who want to improve their cognitive abilities and spatial reasoning. If you appreciate **quality wooden puzzles** that offer a hands-on experience, this is an excellent choice.
@@ -125,10 +125,10 @@ The **KINGOU Hexagon Tangram Puzzle** features a well-crafted set of wooden piec
 
 Beyond the physical benefits, the puzzle acts as a social catalyst during family gatherings or parties, providing an engaging and interactive way to bond. The compact and lightweight design means it can be easily transported, making it a versatile option for travel or on-the-go entertainment. Whether used as a solo brain teaser or a group challenge, the **KINGOU Hexagon Tangram Puzzle** delivers both fun and mental stimulation, making it a valuable addition to any puzzle lover’s collection.
 
-## <a href="https://www.amazon.com/dp/B01MZE341P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Infinity Hanayama Metal Brainteaser Puzzle</a>
+## <a href="https://www.amazon.com/dp/B01MZE341P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Infinity Hanayama Metal Brainteaser Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B01MZE341P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled | Infinity Hanayama Metal Brainteaser Puzzle Mensa Rated Level 6, for Ages 12 and Up" src="https://m.media-amazon.com/images/I/41B9IwHAaiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MZE341P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled | Infinity Hanayama Metal Brainteaser Puzzle Mensa Rated Level 6, for Ages 12 and Up" src="https://m.media-amazon.com/images/I/41B9IwHAaiL._SL500_.jpg"/></a>
 
 
 The **BePuzzled Infinity Hanayama Metal Brainteaser Puzzle** is an excellent choice for puzzle enthusiasts aged **12 and up**, particularly those who enjoy challenging their problem-solving skills and logical thinking. Ideal for individuals who appreciate intricate and engaging mind games, this Mensa Rated Level 6 puzzle offers a stimulating experience for both beginners and seasoned puzzlers seeking a rewarding challenge.
@@ -151,10 +151,10 @@ The **Infinity Hanayama Metal Brainteaser Puzzle** features an intricate design 
 
 This puzzle is thoughtfully engineered to stimulate cognitive abilities while providing entertainment. By working through the complex metal interlocking pieces, users enhance their patience, concentration, and logical reasoning. Whether used as a personal pastime or a thoughtful gift, the BePuzzled Infinity Hanayama offers both a rewarding and intellectually enriching experience for puzzle lovers.
 
-## <a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Puzzle Cube</a>
+## <a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Puzzle Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Puzzle Cube for Kids and Adults - 6-Sided Wooden Puzzle Game Fidget Toy for Anxiety Relief - Handheld Maze Cube for Travel - 3D Brain Teaser Magic Cube for ADHD Autism Kids &amp; Teenage" src="https://m.media-amazon.com/images/I/41ThI0JMO+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Puzzle Cube for Kids and Adults - 6-Sided Wooden Puzzle Game Fidget Toy for Anxiety Relief - Handheld Maze Cube for Travel - 3D Brain Teaser Magic Cube for ADHD Autism Kids &amp; Teenage" src="https://m.media-amazon.com/images/I/41ThI0JMO+L._SL500_.jpg"/></a>
 
 
 The **Fidget Puzzle Cube for Kids and Adults** is ideal for individuals seeking a compact and engaging way to relieve stress and improve focus. Whether you are a child, teenager, or adult dealing with **anxiety**, **ADHD**, or **autism**, this handheld maze cube offers a fun and therapeutic outlet. It is perfect for those who enjoy brain teasers and want a portable solution for mental stimulation during travel or breaks.
@@ -176,10 +176,10 @@ The **Fidget Puzzle Cube** by **CHEROSIN**, manufactured by Shenzhen Zhiqin Trad
 
 Beyond its therapeutic benefits, this cube serves as an excellent travel companion. Its compact size makes it easy to slip into a bag or pocket, allowing users to engage their minds during commutes or downtime. The hands-on interaction promotes **fine motor skills** development in children and encourages adults to take mindful breaks from digital devices. Overall, this 3D puzzle cube is a versatile and effective tool for anyone looking to combine entertainment with mental wellness.
 
-## <a href="https://www.amazon.com/dp/B074J6KPWD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joeyank Fidget Cube New Version Fidget Finger Toys</a>
+## <a href="https://www.amazon.com/dp/B074J6KPWD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joeyank Fidget Cube New Version Fidget Finger Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B074J6KPWD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOEYANK Fidget Cube New Version Fidget Finger Toys - Metal Infinity Cube Prime for Stress and Anxiety Relief/ADHD, Ultra Durable Sensory Gifts for Adults and Teens Kids" src="https://m.media-amazon.com/images/I/41FXsv8f0lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B074J6KPWD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOEYANK Fidget Cube New Version Fidget Finger Toys - Metal Infinity Cube Prime for Stress and Anxiety Relief/ADHD, Ultra Durable Sensory Gifts for Adults and Teens Kids" src="https://m.media-amazon.com/images/I/41FXsv8f0lL._SL500_.jpg"/></a>
 
 
 The **JOEYANK Fidget Cube New Version** is ideal for individuals seeking an effective way to manage **stress**, **anxiety**, or symptoms of **ADHD**. Perfect for both **adults** and **teens**, this **metal infinity cube** offers a durable and sensory-rich experience that can help improve focus and provide a calming outlet during busy or stressful moments.
@@ -202,10 +202,10 @@ The **JOEYANK Fidget Cube New Version** stands out due to its **metal infinity c
 
 Additionally, the use of **durable metal** not only enhances the product’s lifespan but also provides a satisfying tactile sensation that plastic alternatives often lack. The simplicity of the design ensures that users are not overwhelmed by multiple functions, allowing them to focus solely on the calming benefits of the cube’s smooth, continuous motion.
 
-## <a href="https://www.amazon.com/dp/B07K1SCY3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Wooden Puzzle Games Brain Teasers Toy</a>
+## <a href="https://www.amazon.com/dp/B07K1SCY3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Wooden Puzzle Games Brain Teasers Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07K1SCY3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Wooden Puzzle Games Brain Teasers Toy- 3D Puzzles for Teens and Adults - Wooden Logic Puzzle Wood Snake Cube Magic Cube Magic Ball Brain Teaser Intellectual Removing Assembling Toy" src="https://m.media-amazon.com/images/I/416LFUfLZrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K1SCY3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Wooden Puzzle Games Brain Teasers Toy- 3D Puzzles for Teens and Adults - Wooden Logic Puzzle Wood Snake Cube Magic Cube Magic Ball Brain Teaser Intellectual Removing Assembling Toy" src="https://m.media-amazon.com/images/I/416LFUfLZrL._SL500_.jpg"/></a>
 
 
 The **4 Pack Wooden Puzzle Games Brain Teasers Toy** is ideal for **teens and adults** who enjoy stimulating their minds through challenging and engaging activities. If you are someone who loves **logic puzzles**, enhancing your cognitive skills, or simply looking for a fun and intellectual way to pass time, this set is perfect for you. It caters to individuals who appreciate **3D puzzles** and want to improve problem-solving abilities while enjoying a tactile, hands-on experience.
@@ -227,10 +227,10 @@ The **Rich Boxer 4 Pack Wooden Puzzle Games** offers an engaging collection of *
 
 These wooden puzzles are not just entertaining but also serve an educational purpose by enhancing **logic skills, patience, and concentration**. The 3D nature of the puzzles encourages users to think spatially and visualize solutions from different angles. Whether you are solving the **Magic Cube** or assembling the **Wood Snake Cube**, each task helps improve hand-eye coordination and cognitive function. This makes the set an excellent choice for anyone looking to combine fun with mental exercise.
 
-## <a href="https://www.amazon.com/dp/B0CMFTW23K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Legend Of Zelda Triforce Hanayama Cast Brain Teaser</a>
+## <a href="https://www.amazon.com/dp/B0CMFTW23K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Legend Of Zelda Triforce Hanayama Cast Brain Teaser</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMFTW23K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled, Legend of Zelda Triforce Hanayama Cast Brain Teaser Mensa Rated Level 5, for Ages 12 and Up" src="https://m.media-amazon.com/images/I/51OQCLQRgZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMFTW23K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled, Legend of Zelda Triforce Hanayama Cast Brain Teaser Mensa Rated Level 5, for Ages 12 and Up" src="https://m.media-amazon.com/images/I/51OQCLQRgZL._SL500_.jpg"/></a>
 
 
 The **BePuzzled Legend of Zelda Triforce Hanayama Cast Brain Teaser** is ideal for puzzle enthusiasts and fans of the iconic Legend of Zelda series, especially those aged **12 and up** who enjoy challenging their problem-solving skills. This **Mensa Rated Level 5** puzzle offers an engaging mental workout, making it perfect for individuals looking to enhance their cognitive abilities or collectors seeking a unique, themed brain teaser.
@@ -253,10 +253,10 @@ The **BePuzzled Legend of Zelda Triforce Hanayama Cast Brain Teaser** combines i
 
 Designed to push cognitive boundaries, this brain teaser helps enhance spatial reasoning, patience, and problem-solving abilities. The collaboration between **Hanayama** and **University Games** ensures quality craftsmanship and durability, making it a lasting addition to any puzzle lover’s collection. Whether as a gift or a personal challenge, this puzzle offers both entertainment and mental exercise in a uniquely themed package.
 
-## <a href="https://www.amazon.com/dp/B07YBV9JF2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yongnkids Amaze 3d Memory Sequential Maze Ball Puzzle Toy</a>
+## <a href="https://www.amazon.com/dp/B07YBV9JF2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yongnkids Amaze 3d Memory Sequential Maze Ball Puzzle Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07YBV9JF2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YongnKids Amaze 3D Memory Sequential Maze Ball Puzzle Toy Gifts for Kids Adults - Challenges Game Lover Tiny Balls Brain Teasers Game (Blue)" src="https://m.media-amazon.com/images/I/41WClXjyWdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YBV9JF2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YongnKids Amaze 3D Memory Sequential Maze Ball Puzzle Toy Gifts for Kids Adults - Challenges Game Lover Tiny Balls Brain Teasers Game (Blue)" src="https://m.media-amazon.com/images/I/41WClXjyWdL._SL500_.jpg"/></a>
 
 
 The **YongnKids Amaze 3D Memory Sequential Maze Ball Puzzle Toy** is ideal for both **kids and adults** who enjoy **brain teasers** and **challenge games**. Perfect for **game lovers** looking to improve their **memory** and **hand-eye coordination**, this puzzle toy offers engaging entertainment and mental stimulation for users of all ages.

@@ -40,7 +40,7 @@ Size affects how many people can ride the camel float. Choose a size that fits y
 Check the weight limit to ensure safety. Overloading can cause damage and accidents.
 
 * Small floats fit one rider
-* **[Larger floats](https://www.amazon.com/s?k=large+inflatable+camel+float&tag=gearcookware-20)** hold two or more riders
+* **[Larger floats](https://www.amazon.com/s?k=large+inflatable+camel+float&tag=mofb05-20)** hold two or more riders
 * Weight capacity ranges from 150 to 400 pounds
 
 ### Design And Features
@@ -64,7 +64,7 @@ Proper setup keeps the ride safe and enjoyable for everyone. Learn how to inflat
 
 ### Inflation Tips
 
-Inflating your ride correctly helps it hold shape and last longer. Use a **[good air pump](https://www.amazon.com/s?k=electric+air+pump+for+inflatables&tag=gearcookware-20)** and avoid overinflating.
+Inflating your ride correctly helps it hold shape and last longer. Use a **[good air pump](https://www.amazon.com/s?k=electric+air+pump+for+inflatables&tag=mofb05-20)** and avoid overinflating.
 
 * Place the ride on a flat surface before inflating.
 * Use an electric or manual pump for faster inflation.
@@ -105,7 +105,7 @@ Follow simple rules to keep all riders safe. This guide covers key safety tips t
 
 ### Supervision And Lifesaving Gear
 
-Always watch children and inexperienced swimmers closely. An adult should stay near the water to help if needed. Lifesaving gear like **[life jackets](https://www.amazon.com/s?k=Coast+Guard+approved+life+jackets&tag=gearcookware-20)** must be worn by all riders.
+Always watch children and inexperienced swimmers closely. An adult should stay near the water to help if needed. Lifesaving gear like **[life jackets](https://www.amazon.com/s?k=Coast+Guard+approved+life+jackets&tag=mofb05-20)** must be worn by all riders.
 
 * Keep an eye on all riders at all times
 * Use Coast Guard-approved life jackets
@@ -230,6 +230,6 @@ Yes, the camel inflatable float is suitable for pools, lakes, and calm beach wat
 
 ## Conclusion
 
-The **[outdoor camel inflatable ride-on float](https://www.amazon.com/s?k=giant+camel+pool+float&tag=gearcookware-20)** brings joy to any water day. Kids and adults enjoy its fun, unique design. It is easy to use and adds excitement to pools or lakes. This float creates lasting memories with family and friends.
+The **[outdoor camel inflatable ride-on float](https://www.amazon.com/s?k=giant+camel+pool+float&tag=mofb05-20)** brings joy to any water day. Kids and adults enjoy its fun, unique design. It is easy to use and adds excitement to pools or lakes. This float creates lasting memories with family and friends.
 
 Its bright colors and sturdy build catch attention quickly. Perfect for sunny days and warm weather fun. A great way to relax and play outdoors. Everyone deserves a float like this for summer fun.

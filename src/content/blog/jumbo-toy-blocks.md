@@ -23,10 +23,10 @@ Kids can build towers, houses, and other imaginative structures. Many jumbo bloc
 
 
 
-## <a href="https://www.amazon.com/dp/B007GE75HY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mega Bloks First Builders Toddler Blocks Toys Set</a>
+## <a href="https://www.amazon.com/dp/B007GE75HY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mega Bloks First Builders Toddler Blocks Toys Set</a>
 
 
-<a href="https://www.amazon.com/dp/B007GE75HY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEGA BLOKS First Builders Toddler Blocks Toys Set, Big Building Bag with 80 Pieces and Storage, Blue, Ages 1+ Years" src="https://m.media-amazon.com/images/I/51L0Ifbyt6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007GE75HY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEGA BLOKS First Builders Toddler Blocks Toys Set, Big Building Bag with 80 Pieces and Storage, Blue, Ages 1+ Years" src="https://m.media-amazon.com/images/I/51L0Ifbyt6L._SL500_.jpg"/></a>
 
 
 The **MEGA BLOKS First Builders Toddler Blocks Toys Set** is ideal for parents and caregivers looking to introduce their toddlers, aged **1+ years**, to the world of creative play and early learning. This set is perfect for young children developing motor skills, hand-eye coordination, and imaginative thinking through safe, large-sized building blocks.
@@ -49,12 +49,12 @@ The **MEGA BLOKS First Builders Toddler Blocks Toys Set** focuses on providing a
 
 With **80 colorful pieces**, this set offers ample opportunities for creative play, helping toddlers develop problem-solving skills and hand-eye coordination. The lightweight design and compact dimensions make it convenient for travel or playdates, ensuring that children can enjoy building fun wherever they go. Overall, this set is a reliable choice for parents seeking an educational, safe, and entertaining toy for their young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B007GE75HY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B007GE75HY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08MKVWCM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bankers Box At Play Heavy Duty Jumbo Cardboard Building Blocks</a>
+## <a href="https://www.amazon.com/dp/B08MKVWCM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bankers Box At Play Heavy Duty Jumbo Cardboard Building Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B08MKVWCM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bankers Box at Play Heavy Duty Jumbo Cardboard Building Blocks, 40 Pack, Large and Medium Toy Blocks for Kids and" src="https://m.media-amazon.com/images/I/51Kwhw6v5ZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08MKVWCM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bankers Box at Play Heavy Duty Jumbo Cardboard Building Blocks, 40 Pack, Large and Medium Toy Blocks for Kids and" src="https://m.media-amazon.com/images/I/51Kwhw6v5ZL._SL500_.jpg"/></a>
 
 
 The **Bankers Box at Play Heavy Duty Jumbo Cardboard Building Blocks** are perfect for parents and educators looking to inspire creativity and enhance motor skills in young children. Ideal for kids who love hands-on play and imaginative construction, these blocks offer a safe and engaging way to build large structures indoors or outdoors. If you're seeking a durable, lightweight, and versatile toy that encourages teamwork and problem-solving, this set is an excellent choice.
@@ -77,12 +77,12 @@ The **Bankers Box at Play Jumbo Cardboard Building Blocks** feature a thoughtful
 
 These blocks provide significant benefits beyond mere entertainment. They promote cognitive development by challenging children to think critically and plan their structures. The large size of the blocks reduces choking hazards and makes them accessible for younger children to grasp and stack confidently. Moreover, the set's versatility means it can be used in classrooms, playrooms, or at home, supporting social interaction and cooperative play among peers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08MKVWCM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08MKVWCM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B097QD9666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lolo Toys Large Building Foam Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B097QD9666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lolo Toys Large Building Foam Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B097QD9666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOLO TOYS Large Building Foam Blocks for Toddlers – Giant Jumbo Big Building Blocks (30 Pieces)" src="https://m.media-amazon.com/images/I/41IoFtjYq1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097QD9666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOLO TOYS Large Building Foam Blocks for Toddlers – Giant Jumbo Big Building Blocks (30 Pieces)" src="https://m.media-amazon.com/images/I/41IoFtjYq1L._SL500_.jpg"/></a>
 
 
 The **LOLO TOYS Large Building Foam Blocks for Toddlers** are ideal for parents and caregivers looking to encourage creativity, motor skills development, and imaginative play in young children. These **giant jumbo big building blocks** are perfect for toddlers who are beginning to explore stacking, building, and interactive play. If you want a safe, colorful, and engaging toy that supports early childhood development, this set is an excellent choice.
@@ -105,12 +105,12 @@ The **LOLO TOYS Large Building Foam Blocks** stand out for their oversized desig
 
 Beyond safety and educational benefits, these blocks foster imaginative play, allowing toddlers to create various structures and scenarios. This open-ended play is crucial for cognitive development and problem-solving skills. The easy-to-clean surface also means parents can maintain hygiene effortlessly, making it an ideal toy for everyday use both indoors and outdoors. Overall, the **LOLO TOYS Large Building Foam Blocks** provide a fun, safe, and educational environment for toddlers to learn and grow.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B097QD9666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B097QD9666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CW261JVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Liberty Imports 24 Pcs Giant Building Blocks Starter Set</a>
+## <a href="https://www.amazon.com/dp/B0CW261JVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Liberty Imports 24 Pcs Giant Building Blocks Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW261JVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Liberty Imports 24 PCS Giant Building Blocks Starter Set for Toddlers, Plastic Large Building Blocks for Kids Creative Play, Big Stacking Bricks for Children, Kids (Primary Colors)" src="https://m.media-amazon.com/images/I/41FV1WtcShL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW261JVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Liberty Imports 24 PCS Giant Building Blocks Starter Set for Toddlers, Plastic Large Building Blocks for Kids Creative Play, Big Stacking Bricks for Children, Kids (Primary Colors)" src="https://m.media-amazon.com/images/I/41FV1WtcShL._SL500_.jpg"/></a>
 
 
 The **Liberty Imports 24 PCS Giant Building Blocks Starter Set** is perfect for parents and caregivers looking to encourage **creative play** and **early development** in toddlers. Ideal for children who are just beginning to explore stacking and building, these large, colorful blocks help enhance fine motor skills, hand-eye coordination, and imaginative thinking. If you want a safe, engaging toy that supports learning through play, this set is an excellent choice.
@@ -133,12 +133,12 @@ The **Liberty Imports Giant Building Blocks Starter Set** features 24 large, stu
 
 Beyond the physical benefits, these blocks foster creativity and imagination as children experiment with different shapes and structures. The open-ended nature of the set allows kids to build anything from simple towers to complex designs, enhancing cognitive abilities and spatial awareness. Additionally, the easy-to-clean plastic ensures that the blocks remain hygienic after many play sessions, providing parents peace of mind. Overall, this set is a valuable educational toy that combines fun, safety, and skill development for young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CW261JVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CW261JVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B6YKHJLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Biggoblocks Big Blocks For Kids</a>
+## <a href="https://www.amazon.com/dp/B0B6YKHJLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Biggoblocks Big Blocks For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0B6YKHJLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BiggoBlocks Big Blocks for Kids Ages 4-8, Indoor &amp; Outdoor Blocks for Kids Jumbo Games, Large Building Blocks (24 PC) Beginner Set" src="https://m.media-amazon.com/images/I/41RBczCmTIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B6YKHJLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BiggoBlocks Big Blocks for Kids Ages 4-8, Indoor &amp; Outdoor Blocks for Kids Jumbo Games, Large Building Blocks (24 PC) Beginner Set" src="https://m.media-amazon.com/images/I/41RBczCmTIL._SL500_.jpg"/></a>
 
 
 The **BiggoBlocks Big Blocks for Kids Ages 4-8** are ideal for young children who love to engage in creative play both indoors and outdoors. This set is perfect for parents looking to encourage their child's imagination, motor skills, and spatial awareness through safe, large-scale building blocks. If you have a child between the ages of 4 and 8 who enjoys hands-on activities and constructive play, this beginner set offers an excellent way to foster learning and fun simultaneously.
@@ -160,12 +160,12 @@ The **BiggoBlocks Big Blocks** set features large, colorful blocks made by **Des
 
 Beyond just play, these blocks support educational benefits by encouraging children to experiment with balance, symmetry, and spatial relationships. The lightweight nature and durable plastic material make this set ideal for both indoor play areas and outdoor environments like backyards or parks. This versatility ensures that children can enjoy creative building anytime, enhancing their imagination and physical dexterity with every use.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B6YKHJLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B6YKHJLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D9RVTZ7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Burgkidz 150pcs Jumbo Building Blocks</a>
+## <a href="https://www.amazon.com/dp/B0D9RVTZ7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Burgkidz 150pcs Jumbo Building Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9RVTZ7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="burgkidz 150PCS Jumbo Building Blocks with Clear Storage Box &amp; Baseplate Lid - STEM Educational Toys for Toddlers 3+ Years, Compatible with Major Building Systems" src="https://m.media-amazon.com/images/I/51s0e9tN7TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9RVTZ7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="burgkidz 150PCS Jumbo Building Blocks with Clear Storage Box &amp; Baseplate Lid - STEM Educational Toys for Toddlers 3+ Years, Compatible with Major Building Systems" src="https://m.media-amazon.com/images/I/51s0e9tN7TL._SL500_.jpg"/></a>
 
 
 The **burgkidz 150PCS Jumbo Building Blocks** with Clear Storage Box & Baseplate Lid are perfect for parents and caregivers looking for an engaging and educational toy for toddlers aged **3+ years**. Ideal for young children who love to build and create, these blocks are designed to spark creativity while supporting early learning in STEM concepts. If you want a safe, durable, and compatible building set that grows with your child’s imagination, this product is an excellent choice.
@@ -187,12 +187,12 @@ The **burgkidz Jumbo Building Blocks** set is thoughtfully designed with toddler
 
 Beyond just fun, these blocks serve as a valuable **STEM educational tool**. They promote essential skills such as spatial awareness, hand-eye coordination, and creative thinking. The compatibility with other major building systems means that as your child grows, they can integrate these blocks with other sets, expanding the scope of their imaginative play and learning opportunities.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D9RVTZ7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D9RVTZ7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08FF6BDWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prextex 100-piece Building Blocks Set For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B08FF6BDWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Prextex 100-piece Building Blocks Set For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B08FF6BDWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PREXTEX 100-Piece Building Blocks Set for Toddlers - Jumbo Toy Blocks in 5 Colors for Kids 18 Months and Up, Encourages Creativity, Motor Skills, and Early Learning" src="https://m.media-amazon.com/images/I/41wAqeuWJAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08FF6BDWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PREXTEX 100-Piece Building Blocks Set for Toddlers - Jumbo Toy Blocks in 5 Colors for Kids 18 Months and Up, Encourages Creativity, Motor Skills, and Early Learning" src="https://m.media-amazon.com/images/I/41wAqeuWJAL._SL500_.jpg"/></a>
 
 
 The **PREXTEX 100-Piece Building Blocks Set for Toddlers** is ideal for parents and caregivers looking to provide young children aged **18 months and up** with a safe, colorful, and educational toy. This set is perfect for toddlers who are beginning to explore their creativity and develop essential motor skills through play. If you want to encourage early learning and imaginative play in a fun and interactive way, this building blocks set is a great choice.
@@ -214,12 +214,12 @@ The **PREXTEX 100-Piece Building Blocks Set** offers an excellent way for toddle
 
 Additionally, the lightweight nature and compact size of the blocks make them easy to store and transport, which is convenient for parents on the go. The blocks’ durable construction ensures they can withstand the rough play typical of toddlers. Overall, this building blocks set supports early developmental milestones in a fun and engaging way, making it an excellent educational toy for young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08FF6BDWV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08FF6BDWV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07RT71Z8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Jumbo Extra-thick Cardboard Building Blocks</a>
+## <a href="https://www.amazon.com/dp/B07RT71Z8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Jumbo Extra-thick Cardboard Building Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B07RT71Z8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Jumbo Extra-Thick Cardboard Building Blocks - 40 Blocks in 3 Sizes" src="https://m.media-amazon.com/images/I/41Len-2xzQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RT71Z8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Jumbo Extra-Thick Cardboard Building Blocks - 40 Blocks in 3 Sizes" src="https://m.media-amazon.com/images/I/41Len-2xzQL._SL500_.jpg"/></a>
 
 
 Ideal for young children who love to explore and build, the **Melissa & Doug Jumbo Extra-Thick Cardboard Building Blocks** are perfect for toddlers and preschoolers developing their motor skills and creativity. Parents and educators seeking a safe, durable, and engaging toy to encourage imaginative play will find this set highly beneficial.
@@ -242,12 +242,12 @@ The **Melissa & Doug Jumbo Extra-Thick Cardboard Building Blocks** come in a set
 
 These blocks are lightweight, making them easy for toddlers and preschoolers to carry and stack independently. Their large size not only makes them safer for younger children by reducing choking risks but also encourages collaborative play in group settings such as classrooms or playdates. Overall, this set promotes fine motor skills, hand-eye coordination, and creativity, making it a valuable addition to any child’s toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07RT71Z8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07RT71Z8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07RXX1GCL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Deluxe Jumbo Cardboard Blocks</a>
+## <a href="https://www.amazon.com/dp/B07RXX1GCL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Deluxe Jumbo Cardboard Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B07RXX1GCL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Deluxe Jumbo Cardboard Blocks (24 Pieces) - FSC Certified" src="https://m.media-amazon.com/images/I/41vu0WkNZgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RXX1GCL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Deluxe Jumbo Cardboard Blocks (24 Pieces) - FSC Certified" src="https://m.media-amazon.com/images/I/41vu0WkNZgL._SL500_.jpg"/></a>
 
 
 The **Melissa & Doug Deluxe Jumbo Cardboard Blocks (24 Pieces)** are perfect for parents, educators, and caregivers looking for a safe, engaging, and eco-friendly toy that encourages creative play in children. Ideal for kids who enjoy building and imaginative activities, these blocks provide an excellent way to develop fine motor skills, spatial awareness, and problem-solving abilities. If you want a versatile and sturdy set of blocks made from sustainable materials, this product is an excellent choice.
@@ -269,12 +269,12 @@ The **Melissa & Doug Deluxe Jumbo Cardboard Blocks** combine fun and functionali
 
 Crafted by **Melissa & Doug**, a trusted brand known for quality children's toys, these blocks are made from **FSC Certified** cardboard, which promotes environmental responsibility without compromising durability. The blocks’ sturdy yet lightweight design allows kids to experiment freely without frustration, fostering creativity and imaginative play. Although not intended for outdoor use, this set is an excellent indoor activity that supports learning and fun in equal measure.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07RXX1GCL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07RXX1GCL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D9HNDFWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Set Of 34 Jumbo Large Foam Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0D9HNDFWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Set Of 34 Jumbo Large Foam Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9HNDFWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 34 Jumbo Large Foam Blocks for Toddlers - Stacking Soft Blocks for Kids with Shapes &amp; Colors Learning - Construction Building Preschool Toys - Giant Foam Bath Blocks for Toddlers 3-5 &amp; above" src="https://m.media-amazon.com/images/I/41NW-zuINIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9HNDFWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 34 Jumbo Large Foam Blocks for Toddlers - Stacking Soft Blocks for Kids with Shapes &amp; Colors Learning - Construction Building Preschool Toys - Giant Foam Bath Blocks for Toddlers 3-5 &amp; above" src="https://m.media-amazon.com/images/I/41NW-zuINIL._SL500_.jpg"/></a>
 
 
 Ideal for parents and caregivers of toddlers aged 3 to 5 and above, the **Set of 34 Jumbo Large Foam Blocks for Toddlers** by **CRAFTY HAPPITOYS** is perfect for children who are developing their motor skills, creativity, and cognitive abilities. This set is designed for young kids who love to explore shapes, colors, and construction play in a safe and engaging environment.
@@ -298,7 +298,7 @@ The **CRAFTY HAPPITOYS jumbo foam blocks** offer a unique combination of educati
 
 Additionally, the pastel multicolor palette and diverse shapes stimulate visual learning and cognitive development. Parents will appreciate how these blocks seamlessly blend fun with foundational learning concepts such as shape recognition and color identification. The versatility of the blocks, including their use as bath toys, expands the playtime possibilities, keeping children engaged and eager to learn in multiple settings.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D9HNDFWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D9HNDFWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -36,7 +36,7 @@ You will need simple tools to cut and assemble the cardboard pieces. These tools
 
 Use safe and easy-to-handle supplies for a smooth building experience.
 
-* **[Scissors or craft knife](https://www.amazon.com/s?k=scissors+craft+knife&tag=gearcookware-20)**
+* **[Scissors or craft knife](https://www.amazon.com/s?k=scissors+craft+knife&tag=mofb05-20)**
 * Ruler and pencil for measuring
 * Glue stick or white craft glue
 * Cutting mat or a safe surface
@@ -48,7 +48,7 @@ Decorate your cardboard keyboard to make it look real and fun. Use simple items 
 
 These items add color and detail to your toy computer keyboard.
 
-* Colored **[markers](https://www.amazon.com/s?k=kids+craft+markers&tag=gearcookware-20)** or pens
+* Colored **[markers](https://www.amazon.com/s?k=kids+craft+markers&tag=mofb05-20)** or pens
 * Stickers or printed keyboard letters
 * Paints or crayons
 * Clear tape to protect decorations
@@ -152,7 +152,7 @@ Stickers and labels give your keyboard a quick style boost. They come in many sh
 
 | Sticker Type | Best Use |
 | --- | --- |
-| **[Alphabet stickers](https://www.amazon.com/s?k=alphabet+stickers+for+kids&tag=gearcookware-20)** | Labeling keys clearly |
+| **[Alphabet stickers](https://www.amazon.com/s?k=alphabet+stickers+for+kids&tag=mofb05-20)** | Labeling keys clearly |
 | Decorative stickers | Adding fun designs |
 | Glow-in-the-dark | Making your keyboard shine at night |
 | Patterned labels | Creating uniform style |
@@ -231,7 +231,7 @@ Choose materials that are safe and free from harmful chemicals. This keeps child
 | --- | --- |
 | Material | Safety Feature |
 | Cardboard | Natural and recyclable |
-| **[Non-toxic glue](https://www.amazon.com/s?k=non+toxic+craft+glue+for+kids&tag=gearcookware-20)** | Safe if touched or inhaled |
+| **[Non-toxic glue](https://www.amazon.com/s?k=non+toxic+craft+glue+for+kids&tag=mofb05-20)** | Safe if touched or inhaled |
 | Water-based paint | Low odor and safe for kids |
 | Child-safe scissors | Blunt edges reduce cuts |
 

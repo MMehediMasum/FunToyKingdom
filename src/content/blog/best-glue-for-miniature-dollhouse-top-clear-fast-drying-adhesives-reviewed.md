@@ -23,10 +23,10 @@ This guide covers popular options like Aleene’s Clear Gel Tacky Glue, BEACON 3
 
 
 
-## <a href="https://www.amazon.com/dp/B000BY6THS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's Clear Gel Tacky Glue</a>
+## <a href="https://www.amazon.com/dp/B000BY6THS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's Clear Gel Tacky Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B000BY6THS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's Clear Gel Tacky Glue 4oz" src="https://m.media-amazon.com/images/I/41V5j4q0+EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BY6THS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's Clear Gel Tacky Glue 4oz" src="https://m.media-amazon.com/images/I/41V5j4q0+EL._SL500_.jpg"/></a>
 
 
 The **Aleene's Clear Gel Tacky Glue 4oz** is ideal for crafters, hobbyists, and DIY enthusiasts looking for a reliable adhesive that offers a strong, clear bond. Whether you are working on intricate paper crafts, fabric projects, or mixed media art, this glue is designed to meet the needs of those who require precision and versatility in their adhesive products. Its clear gel formula makes it perfect for projects where a neat and invisible finish is essential.
@@ -49,10 +49,10 @@ The **Aleene's Clear Gel Tacky Glue** features a unique gel consistency that pro
 
 Manufactured by **iLoveToCreate** and branded under **Aleene's**, this adhesive has been trusted since its release in 2013. Its compact dimensions and lightweight design make it easy to handle and store, while the multicolor packaging helps users quickly locate the product among other crafting supplies. Whether you are a beginner or an experienced crafter, this glue offers reliability and performance that enhances your creative experience.
 
-## <a href="https://www.amazon.com/dp/B001683NAO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beacon 3-in-1 Advanced Craft Glue</a>
+## <a href="https://www.amazon.com/dp/B001683NAO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beacon 3-in-1 Advanced Craft Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B001683NAO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BEACON 3-in-1 Advanced Craft Glue - Fast-Drying, Crystal Clear Adhesive for Wood, Ceramics, Fabrics, and More, 4-Ounce" src="https://m.media-amazon.com/images/I/31cwr-m138L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001683NAO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BEACON 3-in-1 Advanced Craft Glue - Fast-Drying, Crystal Clear Adhesive for Wood, Ceramics, Fabrics, and More, 4-Ounce" src="https://m.media-amazon.com/images/I/31cwr-m138L._SL500_.jpg"/></a>
 
 
 The **BEACON 3-in-1 Advanced Craft Glue** is ideal for crafters, DIY enthusiasts, and hobbyists who require a reliable, fast-drying adhesive that works on a variety of materials. Whether you are working with **wood**, **ceramics**, **fabrics**, or other surfaces, this versatile glue is designed for those who need a strong bond without the wait.
@@ -75,10 +75,10 @@ The **BEACON 3-in-1 Advanced Craft Glue** boasts a fast-drying, crystal clear ad
 
 Designed with convenience in mind, the compact size and easy-to-use applicator make it perfect for precise gluing without mess. Users benefit from its strong bond that holds securely over time, making it an essential tool for both delicate fabric repairs and sturdy wood crafts. Overall, this adhesive offers both versatility and reliability for everyday crafting needs.
 
-## <a href="https://www.amazon.com/dp/B0DKP4TVSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">20g Thin Ca Glue</a>
+## <a href="https://www.amazon.com/dp/B0DKP4TVSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">20g Thin Ca Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKP4TVSF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="20g Thin CA Glue (2-3 CPS), 2-5 Second Cure Time - Ideal for Hobbies and Precision Work: Woodworking, Model Making (Cars, Airplanes), Pen Turning, Inlays, and Surface Stabilization" src="https://m.media-amazon.com/images/I/41lfreTWcEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKP4TVSF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="20g Thin CA Glue (2-3 CPS), 2-5 Second Cure Time - Ideal for Hobbies and Precision Work: Woodworking, Model Making (Cars, Airplanes), Pen Turning, Inlays, and Surface Stabilization" src="https://m.media-amazon.com/images/I/41lfreTWcEL._SL500_.jpg"/></a>
 
 
 The **20g Thin CA Glue (2-3 CPS)** with a rapid **2-5 second cure time** is perfect for enthusiasts and professionals engaged in detailed and delicate tasks. This product is ideal for those involved in **hobbies** and **precision work** such as **woodworking**, **model making** (including cars and airplanes), **pen turning**, **inlays**, and **surface stabilization**. If you require a reliable adhesive that bonds quickly and efficiently for intricate projects, this glue is designed specifically for your needs.
@@ -101,10 +101,10 @@ The **20g Thin CA Glue** by ALECPEA stands out with its notably thin consistency
 
 Additionally, this glue’s versatility enhances its appeal. Its ability to stabilize surfaces and secure inlays makes it a reliable choice for various woodworking applications. The compact 20g packaging is convenient for hobbyists and professionals alike, offering enough adhesive for multiple projects while maintaining freshness and usability. Overall, this product balances speed, precision, and strength, making it an essential adhesive for anyone focused on detailed craftwork.
 
-## <a href="https://www.amazon.com/dp/B001E5U76M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's Trial Pack Tacky Glue</a>
+## <a href="https://www.amazon.com/dp/B001E5U76M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's Trial Pack Tacky Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B001E5U76M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's 25115 Trial Pack Tacky Glue, 5pk" src="https://m.media-amazon.com/images/I/5129bkmnsCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001E5U76M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's 25115 Trial Pack Tacky Glue, 5pk" src="https://m.media-amazon.com/images/I/5129bkmnsCL._SL500_.jpg"/></a>
 
 
 Ideal for **crafters**, **DIY enthusiasts**, and anyone in need of a reliable adhesive for various projects, the **Aleene's 25115 Trial Pack Tacky Glue, 5pk** is perfect for those looking to test out this popular glue without committing to a large quantity. This pack suits users who want a **versatile, easy-to-use adhesive** for paper, fabric, and other craft materials.
@@ -127,10 +127,10 @@ The **Aleene's 25115 Trial Pack Tacky Glue** offers a dependable adhesive option
 
 Each bottle in this **5-pack** is compact and lightweight, making it perfect for storage or travel. The glue dries clear, which helps maintain the aesthetics of your work without visible residue. While it provides a strong bond, users should be aware that it is not suitable for heavy-duty or waterproof needs, but within its scope, it performs efficiently and reliably.
 
-## <a href="https://www.amazon.com/dp/B07Y6RWHP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearly Art Precision Craft Glue</a>
+## <a href="https://www.amazon.com/dp/B07Y6RWHP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearly Art Precision Craft Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B07Y6RWHP1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearly Art Precision Craft Glue - The Original - 4fl oz - Tip Kit Included - Dries Clear - Metal Tip - Wrinkle Resistant - Flexible and Crack Resistant - Strong Hold Adhesive - Made in USA" src="https://m.media-amazon.com/images/I/41B6C8VaOWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Y6RWHP1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearly Art Precision Craft Glue - The Original - 4fl oz - Tip Kit Included - Dries Clear - Metal Tip - Wrinkle Resistant - Flexible and Crack Resistant - Strong Hold Adhesive - Made in USA" src="https://m.media-amazon.com/images/I/41B6C8VaOWL._SL500_.jpg"/></a>
 
 
 The **Bearly Art Precision Craft Glue** is ideal for crafters, hobbyists, and DIY enthusiasts seeking a reliable adhesive that delivers a strong, flexible hold without mess. If you require a glue that dries clear, resists wrinkles and cracks, and comes with a precision metal tip for detailed application, this product is perfect for your creative projects. Whether you work with paper, fabric, or other craft materials, this glue ensures neat and durable results.
@@ -154,10 +154,10 @@ The **Bearly Art Precision Craft Glue** stands out with its unique metal tip tha
 
 Flexibility and crack resistance are key features that prevent your bonded materials from becoming brittle or damaged over time, making this glue an excellent choice for projects that require durability and longevity. The strong hold adhesive ensures that your creations stay intact, while the convenient bottle size and American manufacturing reflect a commitment to quality and user satisfaction. Overall, this craft glue offers a perfect balance of precision, performance, and ease of use.
 
-## <a href="https://www.amazon.com/dp/B000BY6TI2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's Fast Grab Tacky Glue</a>
+## <a href="https://www.amazon.com/dp/B000BY6TI2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's Fast Grab Tacky Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B000BY6TI2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's Fast Grab Tacky Glue 4oz" src="https://m.media-amazon.com/images/I/31Za+1jcK7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BY6TI2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's Fast Grab Tacky Glue 4oz" src="https://m.media-amazon.com/images/I/31Za+1jcK7L._SL500_.jpg"/></a>
 
 
 Ideal for **crafters**, DIY enthusiasts, and hobbyists looking for a reliable adhesive, **Aleene's Fast Grab Tacky Glue 4oz** is perfect for those who need a strong, quick-drying glue for various materials. Whether you’re working on paper, fabric, wood, or other craft projects, this glue is designed to provide a fast and secure bond, making it an excellent choice for both beginners and experienced users.
@@ -180,10 +180,10 @@ The **Aleene's Fast Grab Tacky Glue** boasts a unique formula that sets quickly,
 
 In addition to its performance, the compact **dimensions** (Height: 1.5 Inches, Width: 1.5 Inches, Length: 5.9 Inches) and lightweight design (0.328 Pounds) make this glue easy to handle and store without taking up much space. The trusted **Aleene's** brand and manufacturer **iLoveToCreate** assure users of quality and consistency, making it a dependable choice for everyday crafting needs.
 
-## <a href="https://www.amazon.com/dp/B09TR5TXYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Craft Model Glue</a>
+## <a href="https://www.amazon.com/dp/B09TR5TXYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Craft Model Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B09TR5TXYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Craft,Model Glue, Glue for Model, Instantly Strong Adhesive for DIY Craft, Model, Miniature, Scrapbooking, Card Making, Photo, Toy, Decor, Crystal, Dries Clear, Wrinkle Resistant, Crack Resistant" src="https://m.media-amazon.com/images/I/31kpAGVoKLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TR5TXYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Craft,Model Glue, Glue for Model, Instantly Strong Adhesive for DIY Craft, Model, Miniature, Scrapbooking, Card Making, Photo, Toy, Decor, Crystal, Dries Clear, Wrinkle Resistant, Crack Resistant" src="https://m.media-amazon.com/images/I/31kpAGVoKLL._SL500_.jpg"/></a>
 
 
 The **Craft Model Glue** by **Sdintar** is ideal for hobbyists, DIY enthusiasts, and professional crafters who require an **instantly strong adhesive** for detailed projects. Whether you are working on **models, miniatures, scrapbooking, card making, photo decorations**, or delicate toy and crystal crafts, this glue is designed to meet your precision bonding needs with ease and reliability.
@@ -205,10 +205,10 @@ This **Craft Model Glue** offers a precise and reliable bonding solution perfect
 
 Designed with user convenience in mind, the compact size allows for easy maneuverability and storage, making it an excellent choice for both casual hobbyists and dedicated model makers. The versatility of this adhesive extends to various materials like paper, plastic, crystal, and more, making it a multi-purpose tool in your crafting arsenal. Trusting the **Sdintar** brand guarantees consistent performance and quality, ensuring your delicate crafts are held together securely every time.
 
-## <a href="https://www.amazon.com/dp/B00178KLEY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's All Purpose Tacky Glue</a>
+## <a href="https://www.amazon.com/dp/B00178KLEY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aleene's All Purpose Tacky Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B00178KLEY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's All Purpose Tacky Glue, 8-Ounce, Clear (15599)" src="https://m.media-amazon.com/images/I/41qDpZVyMQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00178KLEY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aleene's All Purpose Tacky Glue, 8-Ounce, Clear (15599)" src="https://m.media-amazon.com/images/I/41qDpZVyMQL._SL500_.jpg"/></a>
 
 
 Ideal for **crafters, DIY enthusiasts, and hobbyists**, the **Aleene's All Purpose Tacky Glue, 8-Ounce, Clear (15599)** is perfect for those seeking a reliable adhesive for a variety of projects. Whether you're working with paper, fabric, wood, or other materials, this glue offers versatility and ease of use, making it an essential addition to any craft room or workshop.
@@ -230,10 +230,10 @@ The **Aleene's All Purpose Tacky Glue** stands out due to its **clear formula** 
 
 Manufactured by **iLoveToCreate** under the trusted **Aleene's** brand, this glue is a staple for anyone looking to create durable, long-lasting bonds. Its versatility extends across various crafting materials, allowing users to confidently tackle different projects without needing multiple adhesives. Overall, this product offers an excellent balance of performance, ease of use, and affordability.
 
-## <a href="https://www.amazon.com/dp/B0C8BPPQG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dispense All - Mini Precision Glue Applicator Kit</a>
+## <a href="https://www.amazon.com/dp/B0C8BPPQG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dispense All - Mini Precision Glue Applicator Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8BPPQG1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dispense All - Mini Precision Glue Applicator Kit for Thin Glues | Miniature Model Dollhouse Building Jewelry Figurines Ceramics Repair Decorate Accessory Crafting Fine Details" src="https://m.media-amazon.com/images/I/4163T-AiW3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C8BPPQG1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dispense All - Mini Precision Glue Applicator Kit for Thin Glues | Miniature Model Dollhouse Building Jewelry Figurines Ceramics Repair Decorate Accessory Crafting Fine Details" src="https://m.media-amazon.com/images/I/4163T-AiW3L._SL500_.jpg"/></a>
 
 
 Ideal for hobbyists, crafters, and professionals working with **miniature models**, **dollhouse building**, **jewelry making**, and **ceramics repair**, the **Dispense All - Mini Precision Glue Applicator Kit** is perfect for anyone needing precise control when applying **thin glues** to delicate or detailed projects.
@@ -256,10 +256,10 @@ The **Dispense All Mini Precision Glue Applicator Kit** is designed to offer exc
 
 Thanks to its lightweight and ergonomic dimensions, this kit is easy to maneuver, which is especially helpful when working on intricate crafts like **miniature model building** or **jewelry decoration**. The product’s focus on thin glues means users can achieve clean, professional-looking results on fragile surfaces such as ceramics and fine figurines. Overall, this applicator kit combines precision, convenience, and versatility, making it an excellent tool for both beginners and seasoned artisans alike.
 
-## <a href="https://www.amazon.com/dp/B088NN5GD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearly Art Precision Craft Glue - The Mini</a>
+## <a href="https://www.amazon.com/dp/B088NN5GD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearly Art Precision Craft Glue - The Mini</a>
 
 
-<a href="https://www.amazon.com/dp/B088NN5GD8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearly Art Precision Craft Glue - The Mini - 2fl oz with Tip Kit - Acid Free Archival - Strong Hold Adhesive - Ideal for Fine Paper Crafting Scrapbooking and Card Making - Made in USA" src="https://m.media-amazon.com/images/I/417dgxV3dfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B088NN5GD8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearly Art Precision Craft Glue - The Mini - 2fl oz with Tip Kit - Acid Free Archival - Strong Hold Adhesive - Ideal for Fine Paper Crafting Scrapbooking and Card Making - Made in USA" src="https://m.media-amazon.com/images/I/417dgxV3dfL._SL500_.jpg"/></a>
 
 
 The **Bearly Art Precision Craft Glue - The Mini** is perfect for crafters who demand precision and durability in their adhesive products. Ideal for enthusiasts of **fine paper crafting, scrapbooking, and card making**, this glue offers a strong hold and an acid-free formula, making it suitable for preserving delicate materials without damage. If you value neatness and longevity in your craft projects, this product is designed specifically for you.

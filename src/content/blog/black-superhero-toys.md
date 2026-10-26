@@ -23,10 +23,10 @@ They help children see heroes who look like them and teach important lessons abo
 
 
 
-## <a href="https://www.amazon.com/dp/B07H9RSKG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Titan Hero Series Black Panther Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07H9RSKG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Titan Hero Series Black Panther Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07H9RSKG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avengers Marvel Titan Hero Series Black Panther Action Figure, 12-Inch Toy, Inspired by Marvel Universe, for Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/41bzwDMMO+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07H9RSKG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avengers Marvel Titan Hero Series Black Panther Action Figure, 12-Inch Toy, Inspired by Marvel Universe, for Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/41bzwDMMO+L._SL500_.jpg"/></a>
 
 
 The **Avengers Marvel Titan Hero Series Black Panther Action Figure** is perfect for young fans of the **Marvel Universe** aged 4 and up who love to engage in imaginative play. Ideal for kids who admire superheroes and enjoy collecting action figures, this 12-inch toy brings the iconic **Black Panther** character to life, making it an excellent addition to any child's toy collection.
@@ -49,10 +49,10 @@ This **Black Panther action figure** stands at 12 inches tall, providing a subst
 
 Crafted by **Hasbro**, a leading name in toy manufacturing, this action figure is built with quality materials that ensure durability during playtime. The lightweight nature of the toy makes it easy for younger children to handle, while the realistic design adds excitement and engagement. Overall, the **Avengers Marvel Titan Hero Series Black Panther Action Figure** offers both entertainment and collectible value for Marvel fans.
 
-## <a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series X-men Wolverine Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series X-men Wolverine Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series X-Men Wolverine 12-Inch-Scale Action Figure, X-Men Toys, Super Hero Toys for Kids, Ages 4 and Up" src="https://m.media-amazon.com/images/I/41j3k7sy0ZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series X-Men Wolverine 12-Inch-Scale Action Figure, X-Men Toys, Super Hero Toys for Kids, Ages 4 and Up" src="https://m.media-amazon.com/images/I/41j3k7sy0ZL._SL500_.jpg"/></a>
 
 
 Ideal for **young Marvel enthusiasts** and collectors alike, the **Marvel Titan Hero Series X-Men Wolverine 12-Inch-Scale Action Figure** is perfect for kids aged 4 and up who love superhero adventures. This action figure is designed for those who want a durable, detailed, and poseable toy that brings the iconic **X-Men** character Wolverine to life, making it an excellent addition to any **superhero toy collection**.
@@ -74,10 +74,10 @@ The **Marvel Titan Hero Series Wolverine action figure** stands out with its imp
 
 Crafted by **Hasbro**, a leader in the toy industry, this Wolverine figure combines quality with striking aesthetics. The size and weight offer a comfortable grip for young hands, while the iconic design encourages a deeper connection to the **Marvel universe**. Whether used for role-playing or as part of a larger **X-Men toy collection**, this figure offers great value by blending fun and authenticity in one action-packed package.
 
-## <a href="https://www.amazon.com/dp/B08PHZJJ62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Endgame Titan Hero Series 12" Action Figures</a>
+## <a href="https://www.amazon.com/dp/B08PHZJJ62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Endgame Titan Hero Series 12" Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B08PHZJJ62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (4="" action="" alt="Avengers Marvel Endgame Titan Hero Series 12" america,="" and="" black="" captain="" figures="" figures)"="" iron="" man="" panther,="" spider,="" src="https://m.media-amazon.com/images/I/51OUqFChNxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PHZJJ62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (4="" action="" alt="Avengers Marvel Endgame Titan Hero Series 12" america,="" and="" black="" captain="" figures="" figures)"="" iron="" man="" panther,="" spider,="" src="https://m.media-amazon.com/images/I/51OUqFChNxL._SL500_.jpg"/></a>
 
 
 The **Avengers Marvel Endgame Titan Hero Series 12" Action Figures** are perfect for fans of the Marvel Cinematic Universe, especially collectors and children who enjoy imaginative play with their favorite superheroes. If you are looking to add iconic characters like **Captain America**, **Iron Spider**, **Black Panther**, and **Iron Man** to your collection, or if you want durable and detailed action figures for role-playing adventures, this set is an ideal choice.
@@ -100,10 +100,10 @@ These **12-inch Avengers action figures** bring the excitement of the Marvel End
 
 The figures' robust build ensures they withstand hours of imaginative play, making them suitable for younger fans who enjoy interactive toys. Being part of the regular edition from the reputable **Avengers manufacturer**, these figures balance quality and affordability. Overall, this set offers a fantastic way to celebrate your love for the Marvel franchise with iconic characters in a tangible, collectible form.
 
-## <a href="https://www.amazon.com/dp/B09H19YY77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spider-man Marvel Studios' Black Panther: Wakanda Forever Titan Hero Series Shuri Toy</a>
+## <a href="https://www.amazon.com/dp/B09H19YY77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spider-man Marvel Studios' Black Panther: Wakanda Forever Titan Hero Series Shuri Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09H19YY77?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spider-Man Marvel Studios' Black Panther: Wakanda Forever Titan Hero Series Shuri Toy, 12-Inch-Scale Action Figure, Marvel Toys Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/51KoeHC81gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09H19YY77?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spider-Man Marvel Studios' Black Panther: Wakanda Forever Titan Hero Series Shuri Toy, 12-Inch-Scale Action Figure, Marvel Toys Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/51KoeHC81gL._SL500_.jpg"/></a>
 
 
 The **Spider-Man Marvel Studios' Black Panther: Wakanda Forever Titan Hero Series Shuri Toy** is perfect for **kids ages 4 and up** who are fans of the Marvel Universe, especially those who admire the character Shuri from Black Panther. This **12-inch-scale action figure** is ideal for children who enjoy imaginative play and collectors looking to expand their Marvel action figure collection.
@@ -126,10 +126,10 @@ This **Spider-Man Marvel Studios' Black Panther: Wakanda Forever Titan Hero Seri
 
 Beyond play, the figure serves as a collectible item for Marvel enthusiasts. Its realistic design and faithful attention to detail make it a valuable piece for display. The lightweight nature of the figure adds to its versatility, allowing children to carry it around easily or add it to their collection without concern for bulkiness. Overall, this action figure combines entertainment and collectibility, making it a fantastic choice for young fans and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B07H9RMDLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Black Panther Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07H9RMDLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Black Panther Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07H9RMDLK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -scale="" action="" alt="Avengers Marvel Black Panther 6" figure="" hero="" marvel="" src="https://m.media-amazon.com/images/I/41z07wnMQcL._SL500_.jpg" super="" toy"=""/></a>
+<a href="https://www.amazon.com/dp/B07H9RMDLK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -scale="" action="" alt="Avengers Marvel Black Panther 6" figure="" hero="" marvel="" src="https://m.media-amazon.com/images/I/41z07wnMQcL._SL500_.jpg" super="" toy"=""/></a>
 
 
 The **Avengers Marvel Black Panther 6"-Scale Marvel Super Hero Action Figure Toy** is perfect for **Marvel fans**, collectors, and children who enjoy imaginative play with superhero figures. If you are looking to add a detailed and poseable **Black Panther action figure** to your collection or gift a young superhero enthusiast, this item is an ideal choice.
@@ -152,10 +152,10 @@ The **Black Panther 6"-Scale action figure** offers a solid blend of authenticit
 
 Thanks to its articulation points, users can pose Black Panther in various action stances, enhancing imaginative play or dynamic display options. Manufactured by **Hasbro**, this figure ensures quality construction and attention to detail. Overall, it’s a versatile, affordable choice for anyone wanting to celebrate the legacy of the **Marvel Super Hero Black Panther**.
 
-## <a href="https://www.amazon.com/dp/B09NP1PV78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics Aquaman Black Manta Action Figure</a>
+## <a href="https://www.amazon.com/dp/B09NP1PV78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics Aquaman Black Manta Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B09NP1PV78?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Aquaman, Black Manta Action Figure, 12-inch, Detailed Sculpting, Movie Styling, Easy to Pose, Collectible Superhero Kids Toys for Boys 3+" src="https://m.media-amazon.com/images/I/41RVikKLBiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NP1PV78?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Aquaman, Black Manta Action Figure, 12-inch, Detailed Sculpting, Movie Styling, Easy to Pose, Collectible Superhero Kids Toys for Boys 3+" src="https://m.media-amazon.com/images/I/41RVikKLBiL._SL500_.jpg"/></a>
 
 
 The **DC Comics Aquaman Black Manta Action Figure** is perfect for young superhero enthusiasts aged 3 and above, especially boys who love collecting detailed and movie-styled figures. Ideal for both playtime and display, this 12-inch figure appeals to fans of the Aquaman universe and those who appreciate quality collectible toys with easy-to-pose features.
@@ -179,10 +179,10 @@ This **Black Manta action figure** stands out with its intricate sculpting and a
 
 Additionally, the collectible nature of this **DC Comics superhero toy** makes it a valuable addition to any fan’s collection. Whether displayed on a shelf or used in daily play, the figure’s durable construction from Spin Master ensures lasting enjoyment. Its detailed design and faithful representation make it an ideal gift for young fans eager to dive into the Aquaman universe and bring their favorite characters to life.
 
-## <a href="https://www.amazon.com/dp/B0BRT8PK5Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics, Black Adam Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0BRT8PK5Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics, Black Adam Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRT8PK5Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Black Adam Action Figure with Cape, 12-inch, Easy to Pose, Collectible Superhero Kids Toys for Boys and Girls, Ages 3+" src="https://m.media-amazon.com/images/I/41NDabdOV2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRT8PK5Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Black Adam Action Figure with Cape, 12-inch, Easy to Pose, Collectible Superhero Kids Toys for Boys and Girls, Ages 3+" src="https://m.media-amazon.com/images/I/41NDabdOV2L._SL500_.jpg"/></a>
 
 
 The **DC Comics Black Adam Action Figure with Cape** is ideal for young superhero fans aged 3 and above who enjoy imaginative play and collectible toys. Perfect for both boys and girls, this figure appeals to those who admire the powerful character of Black Adam and want a dynamic, poseable toy to add to their collection.
@@ -205,10 +205,10 @@ This **Black Adam Action Figure** stands out with its impressive articulation an
 
 The figure’s lightweight yet sturdy build makes it perfect for active play, encouraging imaginative scenarios and role-playing. While its compact dimensions might limit some dynamic poses, the easy-to-pose joints compensate by offering a variety of display options. Overall, this action figure is a fantastic addition for any young superhero enthusiast looking to expand their collection with a quality, poseable Black Adam toy.
 
-## <a href="https://www.amazon.com/dp/B07GQDTRFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics Multiverse Black Lightning Figure</a>
+## <a href="https://www.amazon.com/dp/B07GQDTRFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics Multiverse Black Lightning Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07GQDTRFT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC COMICS Multiverse BLACK LIGHTNING Figure" src="https://m.media-amazon.com/images/I/31ru-3DH3TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GQDTRFT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC COMICS Multiverse BLACK LIGHTNING Figure" src="https://m.media-amazon.com/images/I/31ru-3DH3TL._SL500_.jpg"/></a>
 
 
 The **DC COMICS Multiverse BLACK LIGHTNING Figure** is perfect for avid collectors, superhero enthusiasts, and fans of the DC Universe looking to expand their action figure collection. If you appreciate detailed craftsmanship and iconic characters, this figure is an ideal addition to your display or playset. It’s especially suited for those who enjoy the dynamic presence of **Black Lightning** in their superhero lineup.
@@ -231,10 +231,10 @@ The **DC COMICS Multiverse BLACK LIGHTNING Figure** showcases impressive detaili
 
 Beyond aesthetics, this figure provides a tangible connection to the **Black Lightning** character, allowing fans to recreate scenes or invent new adventures. Its lightweight design makes it easy to pose or transport, which is beneficial for both display and play. While it may have fewer articulation points than some other figures, its overall build and detail make it a valuable piece for anyone passionate about DC superheroes.
 
-## <a href="https://www.amazon.com/dp/B07TP9HR35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Action Figures</a>
+## <a href="https://www.amazon.com/dp/B07TP9HR35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B07TP9HR35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Action Figures - Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine &amp; Falcon! (8)" src="https://m.media-amazon.com/images/I/51p3eKZ3adL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TP9HR35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Action Figures - Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine &amp; Falcon! (8)" src="https://m.media-amazon.com/images/I/51p3eKZ3adL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Action Figures** set is perfect for **fans of the Marvel universe**, collectors, and children who love imaginative play. Featuring iconic characters like **Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine, and Falcon**, this set is ideal for those who want to bring their favorite superheroes to life or start a dynamic collection. If you are looking for a high-quality, versatile, and visually appealing toy set, this is an excellent choice.
@@ -257,10 +257,10 @@ The **Marvel Avengers Action Figures** set offers an exciting way to engage with
 
 Beyond play, these figures serve as an excellent collector’s item, appealing to fans who appreciate detailed craftsmanship and official branding. The inclusion of major Avengers characters ensures a well-rounded set that can inspire creativity and storytelling. Whether used for imaginative play or as display pieces, this 8-figure set offers both versatility and value, making it a must-have for Marvel enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B07VKH2HWJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Titan Hero Series Blast Gear Deluxe Black Panther Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07VKH2HWJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Titan Hero Series Blast Gear Deluxe Black Panther Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07VKH2HWJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avengers Titan Hero Series Blast Gear Deluxe Black Panther Action Figure, 12-Inch Toy, Inspired by Marvel Comics, for Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/41ve8s1EG8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VKH2HWJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avengers Titan Hero Series Blast Gear Deluxe Black Panther Action Figure, 12-Inch Toy, Inspired by Marvel Comics, for Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/41ve8s1EG8L._SL500_.jpg"/></a>
 
 
 The **Avengers Titan Hero Series Blast Gear Deluxe Black Panther Action Figure** is ideal for young Marvel fans aged 4 and up who love action-packed playtime and collecting superhero toys. This 12-inch figure is perfect for kids who enjoy imaginative storytelling and want to bring the excitement of the Marvel Comics universe to life in their own playroom.

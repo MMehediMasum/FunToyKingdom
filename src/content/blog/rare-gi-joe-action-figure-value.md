@@ -139,7 +139,7 @@ Check the back of the figure’s neck, bottom of feet, or inside the clothes for
 
 Compare your figure with trusted images from official catalogs or collector guides. Look at details closely.
 
-Use a [magnifying glass](https://www.amazon.com/s?k=jewelers+magnifying+glass+loupe&tag=gearcookware-20) to see small marks. Ask experienced collectors or join online forums for opinions.
+Use a [magnifying glass](https://www.amazon.com/s?k=jewelers+magnifying+glass+loupe&tag=mofb05-20) to see small marks. Ask experienced collectors or join online forums for opinions.
 
 * Check paint quality and colors
 * Feel the plastic texture and weight
@@ -198,7 +198,7 @@ Proper care means protecting your figures from damage, dust, and fading. This gu
 
 Store your GI Joe figures in a dry, cool place. Avoid direct sunlight to stop colors from fading.
 
-Use airtight containers or [display cases](https://www.amazon.com/s?k=action+figure+display+cases&tag=gearcookware-20) to keep out dust and moisture. This prevents rust and mold.
+Use airtight containers or [display cases](https://www.amazon.com/s?k=action+figure+display+cases&tag=mofb05-20) to keep out dust and moisture. This prevents rust and mold.
 
 * Keep away from heat sources and windows
 * Use soft padding like foam or cloth inside boxes
@@ -211,7 +211,7 @@ Clean your figures gently to avoid damage. Use a soft brush or cloth to remove d
 
 Avoid water and harsh chemicals. Use mild soap and water only if needed and dry immediately.
 
-* Dust regularly with a [soft brush](https://www.amazon.com/s?k=soft+detailing+brush+for+collectibles&tag=gearcookware-20)
+* Dust regularly with a [soft brush](https://www.amazon.com/s?k=soft+detailing+brush+for+collectibles&tag=mofb05-20)
 * Spot clean with a damp cloth and mild soap
 * Do not soak figures in water
 * Check joints and parts for wear or damage
@@ -222,7 +222,7 @@ Show your GI Joe figures in glass cases to keep them safe and visible. Use stand
 
 Arrange figures by series or year to create a neat display. Good lighting helps show details.
 
-* Use [UV-protected glass cases](https://www.amazon.com/s?k=uv+protected+acrylic+display+case+for+action+figures&tag=gearcookware-20)
+* Use [UV-protected glass cases](https://www.amazon.com/s?k=uv+protected+acrylic+display+case+for+action+figures&tag=mofb05-20)
 * Place figures on shelves with soft mats
 * Group by themes or release dates
 * Use LED lights for bright, cool lighting
@@ -252,7 +252,7 @@ Online platforms make buying and selling easy. You can find many rare GI Joe fig
 These marketplaces connect buyers and sellers globally. They often have competitive prices.
 
 * eBay
-* [Amazon](https://www.amazon.com/s?k=vintage+gi+joe+action+figures&tag=gearcookware-20)
+* [Amazon](https://www.amazon.com/s?k=vintage+gi+joe+action+figures&tag=mofb05-20)
 * Mercari
 
 ### Collector Communities

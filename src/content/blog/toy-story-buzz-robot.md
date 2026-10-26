@@ -23,10 +23,10 @@ Plush versions provide a soft, cuddly option for younger fans. Whether acting ou
 
 
 
-## <a href="https://www.amazon.com/dp/B07N4PG6XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Preschool Toy Disney Pixar Toy Story Buzz Lightyear Robot Playset</a>
+## <a href="https://www.amazon.com/dp/B07N4PG6XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Imaginext Preschool Toy Disney Pixar Toy Story Buzz Lightyear Robot Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B07N4PG6XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext Preschool Toy Disney Pixar Toy Story Buzz Lightyear Robot Playset with Spaceship for Pretend Play Kids Ages 3+ Years" src="https://m.media-amazon.com/images/I/417MLds6s8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N4PG6XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Imaginext Preschool Toy Disney Pixar Toy Story Buzz Lightyear Robot Playset with Spaceship for Pretend Play Kids Ages 3+ Years" src="https://m.media-amazon.com/images/I/417MLds6s8L._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Imaginext Preschool Toy Disney Pixar Toy Story Buzz Lightyear Robot Playset** is perfect for young children aged 3 and above who love imaginative play and are fans of the iconic Toy Story character, Buzz Lightyear. This playset is ideal for parents and caregivers looking to encourage creativity, storytelling, and fine motor skills in their preschoolers through interactive and engaging toys.
@@ -49,12 +49,12 @@ The **Buzz Lightyear Robot Playset** features a vibrant, multicolor design that 
 
 Additionally, the playset's size and weight make it easy for kids to handle independently, promoting dexterity and coordination. The set encourages social interaction when children play together, fostering communication skills and cooperative play. Overall, this toy is a fantastic addition to any preschooler's collection, blending fun, learning, and beloved characters into one engaging package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07N4PG6XC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07N4PG6XC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07PQFT83F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Buzz Lightyear Interactive Talking Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07PQFT83F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Buzz Lightyear Interactive Talking Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07PQFT83F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Store Official Buzz Lightyear Interactive Talking Action Figure from Toy Story, Features 10+ English Phrases, Interacts with Other Figures and Toys" src="https://m.media-amazon.com/images/I/41--i+HDHxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PQFT83F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Store Official Buzz Lightyear Interactive Talking Action Figure from Toy Story, Features 10+ English Phrases, Interacts with Other Figures and Toys" src="https://m.media-amazon.com/images/I/41--i+HDHxL._SL500_.jpg"/></a>
 
 
 The **Disney Store Official Buzz Lightyear Interactive Talking Action Figure** is perfect for young **Toy Story fans** and collectors who want to bring the magic of the beloved movie to life. Ideal for children aged 3 and up, this action figure offers engaging playtime with its interactive features, making it a fantastic gift for kids who enjoy imaginative adventures and interactive toys. Parents looking for a high-quality, durable, and entertaining figure will also find this item a great addition to their child's collection.
@@ -77,12 +77,12 @@ This **Buzz Lightyear action figure** stands out with its interactive talking fe
 
 Made by **Disney**, this action figure guarantees authenticity and quality, ensuring long-lasting fun. Its robust design and attention to detail reflect Buzz Lightyear's iconic look, appealing to fans of all ages. Whether used for imaginative play or as part of a collection, this interactive toy offers an engaging and entertaining experience that sparks creativity and nostalgia.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07PQFT83F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07PQFT83F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00EICQSG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Story Disney Advanced Talking Buzz Lightyear Action Figure</a>
+## <a href="https://www.amazon.com/dp/B00EICQSG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Story Disney Advanced Talking Buzz Lightyear Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B00EICQSG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Story Disney Advanced Talking Buzz Lightyear Action Figure 12''" src="https://m.media-amazon.com/images/I/51zRV2030WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00EICQSG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Story Disney Advanced Talking Buzz Lightyear Action Figure 12''" src="https://m.media-amazon.com/images/I/51zRV2030WL._SL500_.jpg"/></a>
 
 
 The **Toy Story Disney Advanced Talking Buzz Lightyear Action Figure 12''** is perfect for young fans of the Toy Story franchise and collectors alike. If you are looking for a highly interactive and detailed action figure that brings the beloved character Buzz Lightyear to life, this item is ideal. It caters to children who enjoy imaginative play and adults who appreciate authentic memorabilia from the Toy Story series.
@@ -105,12 +105,12 @@ The **Buzz Lightyear Action Figure** stands out with its advanced talking functi
 
 This action figure is crafted with attention to detail by the reputable **Toy Story** manufacturer, ensuring a durable and high-quality product. The lightweight design allows for comfortable handling without sacrificing sturdiness. While the talking feature requires batteries, it significantly enriches the user experience by bringing Buzz Lightyear’s character to life. This makes it an excellent gift choice for fans and collectors seeking both fun and authenticity.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00EICQSG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00EICQSG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09CG2HPH5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Lightyear Action Figure</a>
+## <a href="https://www.amazon.com/dp/B09CG2HPH5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Lightyear Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B09CG2HPH5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Lightyear Action Figure &amp; Accessories, Battle Equipped Zyclops Robot Toy with Projectiles, Blasting &amp; Eject Action" src="https://m.media-amazon.com/images/I/41ANKHbPtwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09CG2HPH5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Lightyear Action Figure &amp; Accessories, Battle Equipped Zyclops Robot Toy with Projectiles, Blasting &amp; Eject Action" src="https://m.media-amazon.com/images/I/41ANKHbPtwL._SL500_.jpg"/></a>
 
 
 Ideal for **Disney Pixar fans** and collectors of action figures, the **Mattel Disney and Pixar Lightyear Action Figure & Accessories, Battle Equipped Zyclops Robot Toy** is perfect for children and enthusiasts who enjoy immersive play and dynamic battles. This toy is designed for those who appreciate detailed figures with interactive features and want to recreate exciting scenes from the **Lightyear** universe.
@@ -133,12 +133,12 @@ The **Mattel Disney and Pixar Lightyear Battle Equipped Zyclops Figure** stands 
 
 Light and compact, this action figure is easy to handle and perfect for on-the-go play or display. The inclusion of multiple **projectiles and accessories** enhances the imaginative experience, allowing users to create a variety of battle scenarios. Overall, this figure delivers both entertainment and collectible value, making it an excellent addition to any **Mattel** or Disney Pixar collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09CG2HPH5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09CG2HPH5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CBNN8FF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Toy Story Talking Action Figure Rocket Rescue Buzz Lightyear</a>
+## <a href="https://www.amazon.com/dp/B0CBNN8FF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Toy Story Talking Action Figure Rocket Rescue Buzz Lightyear</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBNN8FF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Toy Story Talking Action Figure, Rocket Rescue Buzz Lightyear with 20+ Sounds &amp; Phrases &amp; Moving Helmet Visor, 12-inch Scale" src="https://m.media-amazon.com/images/I/51mA6CUwN4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBNN8FF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Toy Story Talking Action Figure, Rocket Rescue Buzz Lightyear with 20+ Sounds &amp; Phrases &amp; Moving Helmet Visor, 12-inch Scale" src="https://m.media-amazon.com/images/I/51mA6CUwN4L._SL500_.jpg"/></a>
 
 
 The **Mattel Disney and Pixar Toy Story Talking Action Figure, Rocket Rescue Buzz Lightyear** is ideal for children who are fans of the Toy Story franchise and enjoy interactive play. This action figure is perfect for kids aged 3 and above who love imaginative adventures and want a toy that brings their favorite character to life with sounds and phrases. Parents looking for a durable, engaging, and educational toy will also find this product a great choice.
@@ -161,12 +161,12 @@ This **Buzz Lightyear talking action figure** by **Mattel** features over 20 sou
 
 Made with quality materials and a vibrant multicolor design, this action figure stands out on any shelf or playroom. Its lightweight build ensures that kids can easily carry and pose Buzz Lightyear during their adventures. Overall, it is a fantastic toy that combines entertainment, nostalgia, and interactive features, making it a wonderful addition to any Toy Story fan’s collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CBNN8FF9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CBNN8FF9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C162X36F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Imaginext Replacement Parts Toy Story 4 Buzz Lightyear Robot</a>
+## <a href="https://www.amazon.com/dp/B0C162X36F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Imaginext Replacement Parts Toy Story 4 Buzz Lightyear Robot</a>
 
 
-<a href="https://www.amazon.com/dp/B0C162X36F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Imaginext Replacement Parts Toy Story 4 Buzz Lightyear Robot - GBG65 ~ Replacement Removable Spaceship for Buzz Robot" src="https://m.media-amazon.com/images/I/31KJ+E3BttL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C162X36F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Imaginext Replacement Parts Toy Story 4 Buzz Lightyear Robot - GBG65 ~ Replacement Removable Spaceship for Buzz Robot" src="https://m.media-amazon.com/images/I/31KJ+E3BttL._SL500_.jpg"/></a>
 
 
 The **Imaginext Replacement Parts Toy Story 4 Buzz Lightyear Robot - GBG65** is ideal for young fans of the **Toy Story** franchise and collectors who want to maintain or enhance their **Buzz Lightyear** robot. This replacement removable spaceship is perfect for those who need to repair or customize their **Buzz Lightyear** toy, ensuring continued play and display value. Parents, gift givers, and toy enthusiasts seeking authentic **Imaginext** parts will find this product especially useful.
@@ -189,12 +189,12 @@ The **Imaginext Replacement Parts Toy Story 4 Buzz Lightyear Robot - GBG65** off
 
 Additionally, the spaceship’s vibrant **white and green** color scheme matches the beloved character’s design, making it visually appealing and consistent. The lightweight and compact dimensions make it easy for children to handle, encouraging hands-on engagement. Overall, this replacement part enhances both the functionality and aesthetic of the **Buzz Lightyear** robot, making it a valuable addition for anyone looking to keep their Toy Story collection complete and playable.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C162X36F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C162X36F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07R489HNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bandai Spirits Toy Story Buzz Lightyear</a>
+## <a href="https://www.amazon.com/dp/B07R489HNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bandai Spirits Toy Story Buzz Lightyear</a>
 
 
-<a href="https://www.amazon.com/dp/B07R489HNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bandai Spirits Toy Story Buzz Lightyear, Bandai Cinema-Rise Standard" src="https://m.media-amazon.com/images/I/41msT-+8GML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07R489HNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bandai Spirits Toy Story Buzz Lightyear, Bandai Cinema-Rise Standard" src="https://m.media-amazon.com/images/I/41msT-+8GML._SL500_.jpg"/></a>
 
 
 The **Bandai Spirits Toy Story Buzz Lightyear**, part of the **Bandai Cinema-Rise Standard** series, is ideal for collectors and fans of the iconic Toy Story franchise who appreciate detailed and high-quality action figures. This item is perfect for those who want a durable, display-worthy model that captures the essence of Buzz Lightyear with precision and vibrant colors. Whether you’re a dedicated collector, a Toy Story enthusiast, or looking for a unique gift, this figure offers a blend of nostalgia and craftsmanship.
@@ -215,12 +215,12 @@ The **Bandai Spirits Toy Story Buzz Lightyear** stands out due to its precise cr
 
 Constructed by **Bandai Spirits**, a trusted name in collectible figures, this item is crafted with durable materials ensuring longevity for collectors. Its lightweight nature allows for easy handling and repositioning. While it may not offer extensive articulation for dynamic poses, it excels as a detailed display piece, making it a perfect addition for anyone looking to celebrate the beloved Toy Story character with a finely crafted collectible.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07R489HNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07R489HNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C15571GQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Imaginext Replacement Part Toy Story 4 Buzz Lightyear Robot</a>
+## <a href="https://www.amazon.com/dp/B0C15571GQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Imaginext Replacement Part Toy Story 4 Buzz Lightyear Robot</a>
 
 
-<a href="https://www.amazon.com/dp/B0C15571GQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Imaginext Replacement Part Toy Story 4 Buzz Lightyear Robot - GBG65 ~ Replacement Poseable Buzz Lightyear Figure" src="https://m.media-amazon.com/images/I/31j2CZU6ihL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C15571GQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Imaginext Replacement Part Toy Story 4 Buzz Lightyear Robot - GBG65 ~ Replacement Poseable Buzz Lightyear Figure" src="https://m.media-amazon.com/images/I/31j2CZU6ihL._SL500_.jpg"/></a>
 
 
 The **Imaginext Replacement Part Toy Story 4 Buzz Lightyear Robot - GBG65** is ideal for collectors and children who own the original **poseable Buzz Lightyear figure** and need a replacement part to restore or enhance their toy. This replacement part is perfect for fans of **Toy Story 4** who want to maintain the playability and appearance of their Buzz Lightyear figure without purchasing a completely new toy.
@@ -241,12 +241,12 @@ The **Imaginext Replacement Buzz Lightyear Robot** offers a high-quality solutio
 
 Designed with durability in mind, this replacement part is crafted by **Mattel**, a reputable manufacturer known for producing reliable toy components. Whether you're a dedicated collector or a parent looking to extend the life of a beloved child's toy, this replacement Buzz Lightyear part provides an affordable and practical option to keep the magic of Toy Story alive.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C15571GQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C15571GQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BL8Q24G4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Toy Story Plush, Buzz Lightyear</a>
+## <a href="https://www.amazon.com/dp/B0BL8Q24G4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Toy Story Plush, Buzz Lightyear</a>
 
 
-<a href="https://www.amazon.com/dp/B0BL8Q24G4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DISNEY STORE Official Toy Story Plush, Buzz Lightyear, Iconic Cuddly Toy Character with Embroidered Eyes and Soft Plush Features, Suitable for All Ages" src="https://m.media-amazon.com/images/I/4152GqjInkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BL8Q24G4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DISNEY STORE Official Toy Story Plush, Buzz Lightyear, Iconic Cuddly Toy Character with Embroidered Eyes and Soft Plush Features, Suitable for All Ages" src="https://m.media-amazon.com/images/I/4152GqjInkL._SL500_.jpg"/></a>
 
 
 The **DISNEY STORE Official Toy Story Plush** featuring **Buzz Lightyear** is ideal for fans of all ages who cherish the beloved **Toy Story** franchise. Whether you are a collector, a child looking for a comforting cuddly toy, or a parent seeking a safe and soft companion for your little one, this plush toy is designed to delight and entertain. Its vibrant colors and iconic character design make it a perfect gift for birthdays, holidays, or special occasions.
@@ -268,12 +268,12 @@ The **Buzz Lightyear plush** showcases excellent attention to detail, including 
 
 Additionally, the official **Disney Store** branding guarantees authenticity, giving buyers peace of mind regarding quality and durability. The vibrant and multicolored appearance accurately represents the iconic character, enhancing the nostalgic and playful experience for fans of the **Toy Story** series. Overall, this plush toy offers a delightful blend of comfort, safety, and character charm that will appeal to a broad audience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BL8Q24G4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BL8Q24G4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09CFSTBGQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Buzz Lightyear Action Figure</a>
+## <a href="https://www.amazon.com/dp/B09CFSTBGQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Buzz Lightyear Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B09CFSTBGQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Pixar Toy Story Large Action Figure, Posable Buzz Lightyear Collectible in Spacesuit Look, 12-inch Scale" src="https://m.media-amazon.com/images/I/41waJS+VJEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09CFSTBGQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Pixar Toy Story Large Action Figure, Posable Buzz Lightyear Collectible in Spacesuit Look, 12-inch Scale" src="https://m.media-amazon.com/images/I/41waJS+VJEL._SL500_.jpg"/></a>
 
 
 The **Mattel Disney Pixar Toy Story Large Action Figure** is perfect for collectors and fans of the Toy Story franchise, especially those who admire the iconic character **Buzz Lightyear**. Ideal for children aged 3 and up who enjoy imaginative play, as well as adults seeking a detailed **12-inch collectible** to display, this action figure offers both playability and visual appeal.
@@ -295,7 +295,7 @@ This **Mattel Toy Story Buzz Lightyear action figure** features meticulous atten
 
 Beyond its impressive aesthetics, the figure’s durable construction by **Mattel** ensures it can withstand regular handling, making it a practical addition to any Toy Story fan’s collection. Whether used for imaginative play or as a centerpiece in a display case, this action figure brings the beloved character Buzz Lightyear to life, offering hours of enjoyment and nostalgia for users of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09CFSTBGQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09CFSTBGQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

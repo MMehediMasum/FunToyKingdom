@@ -23,10 +23,10 @@ Flexible arms or goosenecks let you direct light exactly where you need it. Lamp
 
 
 
-## <a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
 
 
 The **WioMio LED Floor Lamp** is ideal for individuals seeking a versatile and eye-friendly lighting solution for their **living room** or **bedroom**. Whether you want to create a cozy ambiance for reading, working, or relaxing, this lamp suits users who value convenience and customizable lighting options, especially those concerned about eye strain.
@@ -49,10 +49,10 @@ The **WioMio LED Floor Lamp** boasts an innovative design featuring a **stepless
 
 Additionally, the lamp’s **adjustable gooseneck** provides precise control over the direction of the light, making it adaptable to various activities and room layouts. Its elegant **matte black finish** and slim profile (10 inches width and length, 69 inches height) make it a stylish yet unobtrusive addition to any modern home. Lightweight at just 5.5 pounds, it is easy to move and position according to your needs, enhancing both functionality and aesthetic appeal.
 
-## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
 
 
 The **Lepro LED Desk Lamp** is ideal for individuals seeking a versatile and efficient lighting solution for their **home office** or creative workspace. Whether you are a student, a professional who works late hours, a craft enthusiast, or someone who enjoys detailed tasks like sewing, puzzle-solving, or nail art, this lamp is designed to meet your diverse lighting needs with precision and style.
@@ -76,10 +76,10 @@ Featuring **five adjustable color modes** including warm, cool, and natural ligh
 
 The lamp’s robust **metal build** not only adds a contemporary aesthetic to any desk but also guarantees durability for years of use. Its **energy-efficient LED technology** produces a bright 800 lumens output while consuming minimal power, helping users save on electricity bills. The compact and lightweight design makes it easy to position or relocate on any desktop, enhancing user convenience. Overall, this lamp combines functionality, style, and energy efficiency to create an ideal lighting companion for a variety of home and office tasks.
 
-## <a href="https://www.amazon.com/dp/B0BKT611XR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0BKT611XR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepower Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKT611XR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Desk Lamp, 800LM LED for Home Office, 12W Reading for Desk, Eye-Caring Light, Touch Table Gooseneck Lamp, 50 Lighting Modes, Bright for Bedroom, Study (Black)" src="https://m.media-amazon.com/images/I/31-NplFJYPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKT611XR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LEPOWER Desk Lamp, 800LM LED for Home Office, 12W Reading for Desk, Eye-Caring Light, Touch Table Gooseneck Lamp, 50 Lighting Modes, Bright for Bedroom, Study (Black)" src="https://m.media-amazon.com/images/I/31-NplFJYPL._SL500_.jpg"/></a>
 
 
 The **LEPOWER Desk Lamp** is ideal for individuals who require a versatile and reliable lighting solution for their **home office, study, or bedroom**. Whether you are a student, professional, or someone who enjoys late-night reading, this lamp offers adjustable brightness and eye-caring technology that suits long hours of use without causing strain. Its compact design makes it perfect for those with limited desk space seeking an efficient lighting option.
@@ -103,10 +103,10 @@ The **LEPOWER Desk Lamp** stands out due to its impressive combination of bright
 
 Additionally, the lamp’s **gooseneck design** provides flexible positioning, enabling users to direct light exactly where it is needed. This is particularly beneficial for tasks requiring focused illumination. Despite its compact size, the lamp delivers a powerful output of **800 lumens**, bright enough to illuminate any workspace effectively. Its sleek black finish and minimalist design make it a stylish yet functional addition to any desk setup, blending seamlessly with various interior styles.
 
-## <a href="https://www.amazon.com/dp/B0CJM6WYZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Micomlan Architect Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CJM6WYZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Micomlan Architect Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJM6WYZ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Micomlan Architect Desk Lamp with Atmosphere Lighting, Adjustable Led Desk Light for Home Office with Base, 24W Bright Auto Dimming Table Light with Rotatable Swing Arm for Workbench Computer" src="https://m.media-amazon.com/images/I/41mHBN8sTeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJM6WYZ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Micomlan Architect Desk Lamp with Atmosphere Lighting, Adjustable Led Desk Light for Home Office with Base, 24W Bright Auto Dimming Table Light with Rotatable Swing Arm for Workbench Computer" src="https://m.media-amazon.com/images/I/41mHBN8sTeL._SL500_.jpg"/></a>
 
 
 The **Micomlan Architect Desk Lamp with Atmosphere Lighting** is ideal for professionals, students, and creatives who require a versatile and efficient lighting solution for their **home office** or workspace. If you spend long hours working at a desk, whether on a computer or engaging in detailed tasks such as drawing or crafting, this lamp is designed to enhance your productivity and comfort. Its adjustable features and bright, auto-dimming LED light make it perfect for anyone seeking optimal illumination without eye strain.
@@ -130,10 +130,10 @@ The **Micomlan Architect Desk Lamp** features a high-powered **24W LED light** t
 
 Additionally, the lamp includes an **atmosphere lighting** mode that provides gentle background illumination, which helps create a comfortable and inviting workspace ambiance. The sturdy **black base** and sleek design blend well with modern office aesthetics, while the lamp's size and weight make it easy to move and adjust as needed. Overall, this desk lamp is a reliable and stylish lighting solution tailored for users who demand both functionality and comfort in their daily work environment.
 
-## <a href="https://www.amazon.com/dp/B0BNHNG5CY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Micomlan Led Desk Lamp With Clamp</a>
+## <a href="https://www.amazon.com/dp/B0BNHNG5CY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Micomlan Led Desk Lamp With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNHNG5CY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Micomlan Led Desk Lamp with Clamp, Architect Desk Lamp for Home Office with Atmosphere Lighting, 24W Ultra Bright Auto Dimming Computer Light Stepless Dimming and Tempering LED Table Light" src="https://m.media-amazon.com/images/I/51ccmdZe2YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNHNG5CY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Micomlan Led Desk Lamp with Clamp, Architect Desk Lamp for Home Office with Atmosphere Lighting, 24W Ultra Bright Auto Dimming Computer Light Stepless Dimming and Tempering LED Table Light" src="https://m.media-amazon.com/images/I/51ccmdZe2YL._SL500_.jpg"/></a>
 
 
 The **Micomlan Led Desk Lamp with Clamp** is an ideal choice for professionals, students, and creatives who require precise and adjustable lighting for their workspace. This lamp is perfect for those who spend long hours at a desk, such as architects, designers, or home office workers, looking for a durable and efficient lighting solution that enhances productivity while reducing eye strain.
@@ -157,10 +157,10 @@ The **Micomlan Led Desk Lamp** features a sleek black design measuring 28.23 inc
 
 Equipped with a **24W ultra-bright LED** and advanced auto-dimming technology, this desk lamp intelligently adjusts to the surrounding ambient light, providing optimal illumination without harsh glare. The inclusion of **tempering LED technology** enhances the lamp’s durability and ensures a flicker-free light source, fostering a comfortable atmosphere for concentration and creativity. Overall, this lamp combines functionality with ergonomic design, making it an excellent investment for anyone seeking a reliable and versatile lighting solution.
 
-## <a href="https://www.amazon.com/dp/B0CDQDYJC3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vimeepro Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CDQDYJC3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vimeepro Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDQDYJC3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vimeepro LED Desk Lamp with Clamp &amp; Flexible Arm - 3 Light Sources, 4 Color Modes &amp; 5 Brightness Levels, Eye-Caring Table Light with Memory Function" src="https://m.media-amazon.com/images/I/51qGeCrkKZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDQDYJC3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vimeepro LED Desk Lamp with Clamp &amp; Flexible Arm - 3 Light Sources, 4 Color Modes &amp; 5 Brightness Levels, Eye-Caring Table Light with Memory Function" src="https://m.media-amazon.com/images/I/51qGeCrkKZL._SL500_.jpg"/></a>
 
 
 The **Vimeepro LED Desk Lamp with Clamp & Flexible Arm** is ideal for students, professionals, and anyone who spends long hours working or reading at a desk. If you need a versatile, adjustable, and eye-friendly lighting solution, this lamp offers multiple features designed to reduce eye strain and enhance focus, making it perfect for home offices, study areas, and creative workspaces.
@@ -184,10 +184,10 @@ The **Vimeepro LED Desk Lamp** is designed with a **flexible arm** that allows u
 
 Equipped with **three distinct light sources**, the lamp provides well-balanced illumination, while the **four color modes** and **five brightness levels** give users the ability to tailor lighting conditions for reading, working, or relaxing. The integrated **eye-caring technology** minimizes blue light and flickering, protecting your eyes during long sessions. Plus, the **memory function** saves your preferred settings, so you don’t need to readjust every time you turn it on.
 
-## <a href="https://www.amazon.com/dp/B09XF3HRGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Small Desk Lamp With Clamp</a>
+## <a href="https://www.amazon.com/dp/B09XF3HRGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Small Desk Lamp With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09XF3HRGW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro Small Desk Lamp with Clamp, LED Reading Lamps with 450LM, 3 Color Modes 10 Brightness, Dimmable USB Clip on Desk Light with Gooseneck Swing Arm for Nail, Home Office and Dorm (White)" src="https://m.media-amazon.com/images/I/31JctIdupcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XF3HRGW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro Small Desk Lamp with Clamp, LED Reading Lamps with 450LM, 3 Color Modes 10 Brightness, Dimmable USB Clip on Desk Light with Gooseneck Swing Arm for Nail, Home Office and Dorm (White)" src="https://m.media-amazon.com/images/I/31JctIdupcL._SL500_.jpg"/></a>
 
 
 The **Lepro Small Desk Lamp with Clamp** is perfect for individuals who need a versatile and efficient lighting solution for tasks such as reading, studying, or detailed work like nail art. Ideal customers include students, home office workers, and dorm residents who require adjustable brightness and color modes to reduce eye strain while maximizing productivity in compact spaces.
@@ -211,10 +211,10 @@ The **Lepro Small Desk Lamp** features a highly flexible **gooseneck swing arm**
 
 With its **three color modes**—warm, cool, and natural light—and **ten brightness settings**, this lamp adapts seamlessly to different activities and times of day, reducing eye strain and improving focus. Powered via USB, it offers convenient compatibility with laptops, power banks, or USB adapters, making it an ideal companion for students and professionals who need reliable lighting on the go.
 
-## <a href="https://www.amazon.com/dp/B0DJQDC515?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Libora Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DJQDC515?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Libora Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJQDC515?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LIBORA Led Desk Lamp for Home Office, Eye-Caring Desk Light with Clamp, Clip on Light for Reading, 3 Modes 10 Brightness, Flexible Gooseneck, Memory Function, Study, Work, Draw, Black" src="https://m.media-amazon.com/images/I/41EcXSE8lYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJQDC515?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LIBORA Led Desk Lamp for Home Office, Eye-Caring Desk Light with Clamp, Clip on Light for Reading, 3 Modes 10 Brightness, Flexible Gooseneck, Memory Function, Study, Work, Draw, Black" src="https://m.media-amazon.com/images/I/41EcXSE8lYL._SL500_.jpg"/></a>
 
 
 The **LIBORA Led Desk Lamp for Home Office** is ideal for students, professionals, artists, and anyone who requires focused and adjustable lighting for their workspace. If you spend long hours reading, studying, drawing, or working on your computer, this lamp provides an **eye-caring** solution designed to reduce eye strain and improve productivity. Its flexible design and versatile clamp make it suitable for various desk setups and environments.
@@ -237,10 +237,10 @@ The **LIBORA Led Desk Lamp** features a sleek **black finish** and a compact siz
 
 This lamp is equipped with a **clip-on clamp** that securely attaches to desks, shelves, or tables, saving valuable workspace. The **memory function** enhances user convenience by automatically recalling the previous settings each time the lamp is switched on. Overall, the LIBORA Led Desk Lamp is a practical, ergonomic, and energy-efficient lighting solution for anyone looking to improve their workspace lighting while protecting their eyes during long hours of use.
 
-## <a href="https://www.amazon.com/dp/B0CDFY94RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinetech Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CDFY94RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shinetech Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDFY94RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ShineTech Led Desk Lamp for Office Home, Bright Double Head Desk Light with Clamp, Architect Task Lamp 50 Lighting Modes Adjustable Flexible Gooseneck Lamp" src="https://m.media-amazon.com/images/I/51+iiiWNKdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDFY94RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ShineTech Led Desk Lamp for Office Home, Bright Double Head Desk Light with Clamp, Architect Task Lamp 50 Lighting Modes Adjustable Flexible Gooseneck Lamp" src="https://m.media-amazon.com/images/I/51+iiiWNKdL._SL500_.jpg"/></a>
 
 
 The **ShineTech Led Desk Lamp** is perfect for professionals, students, and creatives who require a versatile and bright lighting solution for their workspace. Ideal for office desks, home study areas, and design studios, this lamp offers customizable lighting that adapts to different tasks and environments. If you want precise illumination with flexibility and style, this lamp is a great choice.
@@ -262,10 +262,10 @@ The **ShineTech Led Desk Lamp** stands out with its impressive **50 lighting mod
 
 Additionally, the lamp's **flexible gooseneck arms** offer excellent adjustability, allowing users to direct light precisely where it's needed. This flexibility is especially beneficial for architects, artists, and anyone who requires task-specific lighting. The **clamp mounting** design not only saves desk space but also ensures the lamp remains firmly in place during use. Overall, the ShineTech Led Desk Lamp combines functionality with sleek design, making it a valuable addition to any modern workspace.
 
-## <a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starmoitic Led Floor Lamp For Office</a>
+## <a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starmoitic Led Floor Lamp For Office</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarMoitic Led Floor Lamp for Office, 24W 2400LM Tall Reading Lamp, Dual Head Standing Task Lamp with Remote, Large Goose Neck Lash Light, Craft Work Lights, Puzzle Lights for Tattoo, Piano, Sewing" src="https://m.media-amazon.com/images/I/415c2slNB0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarMoitic Led Floor Lamp for Office, 24W 2400LM Tall Reading Lamp, Dual Head Standing Task Lamp with Remote, Large Goose Neck Lash Light, Craft Work Lights, Puzzle Lights for Tattoo, Piano, Sewing" src="https://m.media-amazon.com/images/I/415c2slNB0L._SL500_.jpg"/></a>
 
 
 The **StarMoitic Led Floor Lamp for Office** is ideal for professionals and hobbyists who require precise and adjustable lighting. Whether you are a tattoo artist, pianist, sewer, or craftsperson, this lamp offers optimal illumination to enhance your work environment. Its tall standing design and dual head feature make it perfect for those who need focused light in multiple areas simultaneously.

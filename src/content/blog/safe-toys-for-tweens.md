@@ -73,7 +73,7 @@ STEM toys teach science, technology, engineering, and math skills. They help twe
 
 * Building kits for engineering concepts
 * Science experiment sets
-* [Coding games and robots](https://www.amazon.com/s?k=coding+robots+for+tweens&tag=gearcookware-20)
+* [Coding games and robots](https://www.amazon.com/s?k=coding+robots+for+tweens&tag=mofb05-20)
 * Math puzzles and challenges
 
 ### Outdoor And Active Play
@@ -84,7 +84,7 @@ Toys that encourage outdoor fun keep tweens moving and healthy. They develop coo
 | --- | --- | --- |
 | Toy Type | Example | Benefits |
 | Sports Equipment | Basketballs, Soccer balls | Fitness, team play |
-| Ride-Ons | [Scooters](https://www.amazon.com/s?k=scooters+for+tweens&tag=gearcookware-20), Bikes | Balance, endurance |
+| Ride-Ons | [Scooters](https://www.amazon.com/s?k=scooters+for+tweens&tag=mofb05-20), Bikes | Balance, endurance |
 | Outdoor Games | Frisbees, Jump ropes | Agility, social skills |
 
 ### Creative And Artistic Kits
@@ -95,7 +95,7 @@ Art kits let tweens express their ideas and emotions. Creativity builds confiden
 
 * Painting and drawing sets
 * Craft supplies for DIY projects
-* [Model building and sculpting kits](https://www.amazon.com/s?k=model+building+and+sculpting+kits+for+tweens&tag=gearcookware-20)
+* [Model building and sculpting kits](https://www.amazon.com/s?k=model+building+and+sculpting+kits+for+tweens&tag=mofb05-20)
 
 ### Tech And Electronic Gadgets
 
@@ -118,7 +118,7 @@ These brands follow strict safety rules. They also test toys to avoid choking ha
 
 ### Lego
 
-[LEGO](https://www.amazon.com/s?k=lego+sets+for+tweens&tag=gearcookware-20) is a well-known brand that makes safe building blocks. Their sets encourage creativity and problem-solving.
+[LEGO](https://www.amazon.com/s?k=lego+sets+for+tweens&tag=mofb05-20) is a well-known brand that makes safe building blocks. Their sets encourage creativity and problem-solving.
 
 LEGO bricks are tested for durability and safety. They avoid small parts that can be swallowed by younger kids.
 
@@ -172,7 +172,7 @@ Keeping toys clean stops germs from spreading. Regular cleaning protects your ch
 | Type of Toy | Cleaning Method | Frequency |
 | Plastic toys | Wipe with soap and water | Weekly |
 | Stuffed animals | Machine wash or surface clean | Monthly |
-| Electronic toys | Use [disinfectant wipes](https://www.amazon.com/s?k=disinfectant+wipes&tag=gearcookware-20) carefully | After heavy use |
+| Electronic toys | Use [disinfectant wipes](https://www.amazon.com/s?k=disinfectant+wipes&tag=mofb05-20) carefully | After heavy use |
 
 ### Encouraging Responsible Play
 

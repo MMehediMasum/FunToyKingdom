@@ -34,7 +34,7 @@ Making a spinner for a board game is simple and fun. You need some basic materia
 * Cardboard or thick paper for the spinner base
 * A pencil or pen to mark the sections
 * A ruler to draw straight lines
-* A paperclip or [small arrow for the pointer](https://www.amazon.com/s?k=board+game+spinner+arrows&tag=gearcookware-20)
+* A paperclip or [small arrow for the pointer](https://www.amazon.com/s?k=board+game+spinner+arrows&tag=mofb05-20)
 * A pushpin or thumbtack to attach the pointer to the base
 * Scissors to cut out the spinner shape
 * Markers or colored pencils to decorate and divide the spinner
@@ -43,9 +43,9 @@ Making a spinner for a board game is simple and fun. You need some basic materia
 
 * A compass to draw perfect circles
 * Glue or tape to secure loose parts
-* A [craft knife](https://www.amazon.com/s?k=craft+knife+for+cardboard&tag=gearcookware-20) for precise cutting
+* A [craft knife](https://www.amazon.com/s?k=craft+knife+for+cardboard&tag=mofb05-20) for precise cutting
 * A small washer to help the pointer spin smoothly
-* A [cutting mat](https://www.amazon.com/s?k=craft+cutting+mat&tag=gearcookware-20) to protect your work surface
+* A [cutting mat](https://www.amazon.com/s?k=craft+cutting+mat&tag=mofb05-20) to protect your work surface
 
 ## Choosing Your Spinner Base
 
@@ -71,7 +71,7 @@ Designing the spinner layout is an important step in making a board game spinner
 
 ### Segmenting The Wheel
 
-Start by dividing the wheel into equal parts. Each segment should represent a different choice or action. Use a ruler or [protractor](https://www.amazon.com/s?k=protractor&tag=gearcookware-20) to mark the segments evenly. The number of segments depends on your game’s rules. Make sure each segment is big enough to see. Clear divisions help avoid confusion while spinning.
+Start by dividing the wheel into equal parts. Each segment should represent a different choice or action. Use a ruler or [protractor](https://www.amazon.com/s?k=protractor&tag=mofb05-20) to mark the segments evenly. The number of segments depends on your game’s rules. Make sure each segment is big enough to see. Clear divisions help avoid confusion while spinning.
 
 ### Adding Colors And Numbers
 
@@ -95,7 +95,7 @@ Add color or markers to make the arrow bright and clear. This method is cheap an
 
 ### Using A Plastic or Metal Pointer
 
-[Plastic or metal pointers](https://www.amazon.com/s?k=plastic+board+game+spinners&tag=gearcookware-20) are sturdy and last longer. You can find them in old board games or craft stores. Choose a pointer that is light and thin.
+[Plastic or metal pointers](https://www.amazon.com/s?k=plastic+board+game+spinners&tag=mofb05-20) are sturdy and last longer. You can find them in old board games or craft stores. Choose a pointer that is light and thin.
 
 Attach the pointer to the spinner base with a small screw or bolt. Make sure it spins smoothly and stops easily. Tighten the screw enough to hold the pointer, but not too tight.
 

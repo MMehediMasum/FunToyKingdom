@@ -106,7 +106,7 @@ Fabric food items often show fruits, vegetables, snacks, and desserts. They use 
 
 ### Fruits And Vegetables
 
-[Fabric fruits and vegetables](https://www.amazon.com/s?k=fabric+fruits+and+vegetables+play+food&tag=gearcookware-20) look real but are soft to touch. They help kids recognize healthy foods. Common items include apples, carrots, and bananas. These toys often have velcro or magnets to connect pieces.
+[Fabric fruits and vegetables](https://www.amazon.com/s?k=fabric+fruits+and+vegetables+play+food&tag=mofb05-20) look real but are soft to touch. They help kids recognize healthy foods. Common items include apples, carrots, and bananas. These toys often have velcro or magnets to connect pieces.
 
 * Apples with sewn-on leaves
 * Carrots with green fabric tops
@@ -122,7 +122,7 @@ Fabric breakfast and snack items often include bread, eggs, and sandwiches. Thes
 | --- | --- |
 | Toast | Light brown felt with stitched edges |
 | Fried Egg | White fabric with yellow yolk patch |
-| [Peanut Butter Sandwich](https://www.amazon.com/s?k=felt+sandwich+play+food+set&tag=gearcookware-20) | Two soft bread slices with brown center |
+| [Peanut Butter Sandwich](https://www.amazon.com/s?k=felt+sandwich+play+food+set&tag=mofb05-20) | Two soft bread slices with brown center |
 | Fruit Juice Box | Small fabric box with printed label |
 
 ### Desserts And Treats
@@ -200,7 +200,7 @@ Keep the toy food set in a clean, dry place to avoid dust and moisture.
 
 | Storage Tip | Why It Helps |
 | --- | --- |
-| Use a [breathable fabric bag](https://www.amazon.com/s?k=cotton+drawstring+toy+storage+bags&tag=gearcookware-20) | Keeps toys dust-free and lets air circulate |
+| Use a [breathable fabric bag](https://www.amazon.com/s?k=cotton+drawstring+toy+storage+bags&tag=mofb05-20) | Keeps toys dust-free and lets air circulate |
 | Store in a cool, dry drawer | Prevents mold and fabric damage |
 | Avoid plastic bags | Can trap moisture and cause mildew |
 | Keep away from sharp objects | Prevents tears and punctures |
@@ -209,7 +209,7 @@ Keep the toy food set in a clean, dry place to avoid dust and moisture.
 
 Fix small tears or loose threads quickly to stop bigger damage. Simple sewing tools work well for repairs.
 
-* Use a [needle and thread](https://www.amazon.com/s?k=mini+sewing+kit&tag=gearcookware-20) matching the fabric color.
+* Use a [needle and thread](https://www.amazon.com/s?k=mini+sewing+kit&tag=mofb05-20) matching the fabric color.
 * Sew small holes or tears with tight, even stitches.
 * Trim loose threads carefully after sewing.
 * If stuffing escapes, patch the hole before adding more filling.
@@ -225,7 +225,7 @@ These toys are safe and soft, making them ideal for kids. Let's see how they can
 
 ### Teaching Nutrition And Healthy Eating
 
-[Fabric food toys](https://www.amazon.com/s?k=educational+play+food+sets&tag=gearcookware-20) teach kids about healthy eating. They learn about fruits, vegetables, and more.
+[Fabric food toys](https://www.amazon.com/s?k=educational+play+food+sets&tag=mofb05-20) teach kids about healthy eating. They learn about fruits, vegetables, and more.
 
 * Identify different fruits and vegetables
 * Sort foods into groups like dairy and grains

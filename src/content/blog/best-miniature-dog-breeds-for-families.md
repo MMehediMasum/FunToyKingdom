@@ -20,10 +20,10 @@ Along with size, health and care needs matter. Feeding the right food, like Heal
 
 
 
-## <a href="https://www.amazon.com/dp/B007B4XLE0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Health Extension Little Bites Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B007B4XLE0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Health Extension Little Bites Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B007B4XLE0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Health Extension Little Bites Dry Dog Food, Chicken &amp; Brown Rice for Small Breeds, Supports Skin, Coat, Digestion &amp; Immunity with Probiotics &amp; Superfoods, 4 lb Bag" src="https://m.media-amazon.com/images/I/51z+rXbSlZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007B4XLE0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Health Extension Little Bites Dry Dog Food, Chicken &amp; Brown Rice for Small Breeds, Supports Skin, Coat, Digestion &amp; Immunity with Probiotics &amp; Superfoods, 4 lb Bag" src="https://m.media-amazon.com/images/I/51z+rXbSlZL._SL500_.jpg"/></a>
 
 
 The **Health Extension Little Bites Dry Dog Food** is ideal for owners of **small breed dogs** who want a nutritious, balanced diet specifically tailored to their pets' unique needs. This product is perfect for those seeking to support their dog's **skin, coat, digestion, and immunity** through high-quality ingredients and added probiotics and superfoods. If you prioritize your small dog's overall health and wellbeing, this dog food is a great choice.
@@ -46,10 +46,10 @@ The **Health Extension Little Bites Dry Dog Food** features a thoughtfully craft
 
 Additionally, the formula integrates a blend of **superfoods** and essential nutrients designed to nourish the skin and coat, helping to reduce shedding and promote a shiny, healthy appearance. The balanced vitamins and minerals also contribute to strengthening the immune system, which is crucial for small breeds that may be more vulnerable to environmental stressors. Overall, this dog food delivers comprehensive nutrition tailored to small dogs, ensuring they thrive with every meal.
 
-## <a href="https://www.amazon.com/dp/B011OHTQOS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eukanuba Puppy Small Breed Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B011OHTQOS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eukanuba Puppy Small Breed Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B011OHTQOS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Eukanuba Puppy Small Breed Dry Dog Food, 4.5 Pound (Pack of 1)" src="https://m.media-amazon.com/images/I/41xgvu-2SCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B011OHTQOS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Eukanuba Puppy Small Breed Dry Dog Food, 4.5 Pound (Pack of 1)" src="https://m.media-amazon.com/images/I/41xgvu-2SCL._SL500_.jpg"/></a>
 
 
 The **Eukanuba Puppy Small Breed Dry Dog Food, 4.5 Pound (Pack of 1)** is ideal for owners of small breed puppies who want to provide high-quality nutrition tailored to their growing pets. If you have a small breed puppy requiring balanced and specialized food to support healthy development, this product is designed specifically to meet those needs.
@@ -72,10 +72,10 @@ This **Eukanuba Puppy Small Breed Dry Dog Food** is crafted by **Royal Canin**, 
 
 Beyond nutrition, this dog food also promotes a healthy coat and skin, thanks to essential fatty acids included in its composition. Its precise nutrient blend helps small breed puppies build strong bones and develop stamina for their active lifestyles. Overall, it’s a thoughtful choice for pet owners seeking reliable nourishment tailored specifically for small breed puppies.
 
-## <a href="https://www.amazon.com/dp/B07SK3R2C3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Interactive Dog Toy Ultra Fetch Stick</a>
+## <a href="https://www.amazon.com/dp/B07SK3R2C3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Interactive Dog Toy Ultra Fetch Stick</a>
 
 
-<a href="https://www.amazon.com/dp/B07SK3R2C3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Interactive Dog Toy Ultra Fetch Stick - 12 Inch Outdoor Dog Toy for All Breed Sizes" src="https://m.media-amazon.com/images/I/41DE04W5MJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SK3R2C3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Interactive Dog Toy Ultra Fetch Stick - 12 Inch Outdoor Dog Toy for All Breed Sizes" src="https://m.media-amazon.com/images/I/41DE04W5MJL._SL500_.jpg"/></a>
 
 
 The **Chuckit! Interactive Dog Toy Ultra Fetch Stick** is perfect for dog owners seeking a durable, engaging outdoor toy suitable for **all breed sizes**. Ideal for active dogs who love to play fetch and for owners who want to encourage exercise and interactive play, this toy enhances bonding time while ensuring your dog stays physically fit and mentally stimulated.
@@ -97,10 +97,10 @@ The **Chuckit! Ultra Fetch Stick** stands out due to its balanced design that co
 
 Additionally, the variety of assorted colors adds an element of fun and visibility outdoors, making it easier for you and your dog to spot the toy during playtime. Its compact and portable size allows for easy storage and transport, so you can take it along on hikes, trips to the park, or backyard sessions. Overall, this fetch stick enhances your pet’s physical health and mental stimulation, making it a valuable addition to your dog’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0F883VPYM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Race&amp;herd 25" Original Xxl Herding Ball For Dogs</a>
+## <a href="https://www.amazon.com/dp/B0F883VPYM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Race&amp;herd 25" Original Xxl Herding Ball For Dogs</a>
 
 
-<a href="https://www.amazon.com/dp/B0F883VPYM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (for="" -="" alt="Race&amp;Herd 25" australian="" ball="" breeds,="" dog="" dogs="" dogs,="" for="" giant="" herding="" large="" medium="" original="" outdoor="" play="" shepherds,="" src="https://m.media-amazon.com/images/I/51fOAHARn8L._SL500_.jpg" toy="" toys,="" training="" xxl="" yellow)"=""/></a>
+<a href="https://www.amazon.com/dp/B0F883VPYM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (for="" -="" alt="Race&amp;Herd 25" australian="" ball="" breeds,="" dog="" dogs="" dogs,="" for="" giant="" herding="" large="" medium="" original="" outdoor="" play="" shepherds,="" src="https://m.media-amazon.com/images/I/51fOAHARn8L._SL500_.jpg" toy="" toys,="" training="" xxl="" yellow)"=""/></a>
 
 
 The **Race&Herd 25" Original XXL Herding Ball for Dogs** is perfect for owners of **large and medium-sized breeds** such as **Australian Shepherds** who need a durable and engaging **dog training toy** for **outdoor play**. This toy is ideal for active dogs that enjoy herding activities and require ample exercise to stay healthy and happy.
@@ -123,10 +123,10 @@ The **Race&Herd 25" Original XXL Herding Ball** is expertly crafted to meet the 
 
 Beyond durability, this herding ball promotes healthy exercise by encouraging dogs to run, push, and maneuver the ball outdoors. The vivid **yellow color** improves visibility, making it easier for owners to keep track of their pets during playtime. Overall, this toy supports both mental and physical stimulation, helping to reduce destructive behaviors caused by boredom.
 
-## <a href="https://www.amazon.com/dp/B0CDFL5C2N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Personalized Miniature Schnauzer Dog Memorial Necklace</a>
+## <a href="https://www.amazon.com/dp/B0CDFL5C2N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Personalized Miniature Schnauzer Dog Memorial Necklace</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDFL5C2N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Personalized Miniature Schnauzer Dog Memorial Necklace Pet Dog Name Necklace Custom Dog Breed Silhouette Necklace Pet Loss Dog Pet Pendant with Name Remembrance Memorial Jewelry Gift for Her" src="https://m.media-amazon.com/images/I/41ZFvIAnC3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDFL5C2N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Personalized Miniature Schnauzer Dog Memorial Necklace Pet Dog Name Necklace Custom Dog Breed Silhouette Necklace Pet Loss Dog Pet Pendant with Name Remembrance Memorial Jewelry Gift for Her" src="https://m.media-amazon.com/images/I/41ZFvIAnC3L._SL500_.jpg"/></a>
 
 
 The **Personalized Miniature Schnauzer Dog Memorial Necklace** is an ideal keepsake for pet owners who want to cherish the memory of their beloved Miniature Schnauzer. This custom necklace is perfect for those who have experienced the loss of a pet and desire a meaningful, personalized piece of jewelry to honor their furry friend's memory. It also suits dog lovers looking for a unique, heartfelt gift for someone special.
@@ -149,10 +149,10 @@ This **Pet Dog Name Necklace** features a finely detailed silhouette of the Mini
 
 Crafted by **DemiJewelry**, this necklace combines quality materials and skilled craftsmanship, resulting in a durable and beautiful memorial piece. Whether worn alone or layered with other jewelry, it serves as a constant reminder of the unconditional love shared with your pet. This necklace is not only a tribute but also a meaningful gift that offers comfort and emotional connection to anyone grieving the loss of a Miniature Schnauzer.
 
-## <a href="https://www.amazon.com/dp/B0BBCJTJ8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jgocot Small Breed Dog Toothbrush</a>
+## <a href="https://www.amazon.com/dp/B0BBCJTJ8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jgocot Small Breed Dog Toothbrush</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBCJTJ8G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JGocot Small Breed Dog Toothbrush, Pet Toothbrush for Cats, Small Breed Dogs, Puppy Dogs, Utral Soft Micro Nano Bristle No Gum Hurting" src="https://m.media-amazon.com/images/I/31pY-q2WslL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBCJTJ8G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JGocot Small Breed Dog Toothbrush, Pet Toothbrush for Cats, Small Breed Dogs, Puppy Dogs, Utral Soft Micro Nano Bristle No Gum Hurting" src="https://m.media-amazon.com/images/I/31pY-q2WslL._SL500_.jpg"/></a>
 
 
 The **JGocot Small Breed Dog Toothbrush** is perfect for pet owners who want to maintain their **small breed dogs** or **cats'** dental hygiene with gentle care. Ideal for those with **puppy dogs** or pets with sensitive gums, this toothbrush features **ultra soft micro nano bristles** designed to clean effectively without causing discomfort or gum irritation. If you are seeking a reliable and gentle toothbrush to keep your pet’s teeth clean and healthy, this product is an excellent choice.
@@ -174,10 +174,10 @@ The **JGocot Small Breed Dog Toothbrush** offers a specialized design aimed at t
 
 Additionally, this toothbrush supports daily dental care routines, which are essential for preventing oral diseases and maintaining overall pet health. By choosing a product from **JGocot**, pet owners benefit from a trusted manufacturer known for quality pet care products. The toothbrush’s thoughtful design and high-quality materials combine to provide a safe and comfortable brushing experience, making dental hygiene simple and effective for both pets and their owners.
 
-## <a href="https://www.amazon.com/dp/B0CMNYP9B5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovely Pod Miniature Pinscher Suncatcher</a>
+## <a href="https://www.amazon.com/dp/B0CMNYP9B5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovely Pod Miniature Pinscher Suncatcher</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMNYP9B5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lovely POD Miniature Pinscher Suncatcher, Personalized Miniature Pinscher Memorial with Name, Miniature Pinscher Loss Suncatcher, Dog Remembrance Gift, Dog Memorial Ornament, Loss of Dog Sympathy Gift" src="https://m.media-amazon.com/images/I/51+DZwwqoiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMNYP9B5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lovely POD Miniature Pinscher Suncatcher, Personalized Miniature Pinscher Memorial with Name, Miniature Pinscher Loss Suncatcher, Dog Remembrance Gift, Dog Memorial Ornament, Loss of Dog Sympathy Gift" src="https://m.media-amazon.com/images/I/51+DZwwqoiL._SL500_.jpg"/></a>
 
 
 The **Lovely POD Miniature Pinscher Suncatcher** is an ideal keepsake for anyone who has recently lost a beloved **Miniature Pinscher**. This personalized **dog memorial ornament** offers a heartfelt way to honor the memory of your furry friend. Perfect for pet owners seeking a meaningful **remembrance gift** that captures the spirit and name of their cherished companion.
@@ -199,10 +199,10 @@ Crafted by **LOVELYPOD**, this **Miniature Pinscher loss suncatcher** features a
 
 The suncatcher’s translucent elements catch the sunlight, creating a gentle glow that symbolizes hope and remembrance. Whether placed on a window or in a special spot in the home, it offers comfort and a way to celebrate your dog’s life daily. This thoughtful **dog remembrance gift** is perfect for those looking to keep their pet’s memory alive with elegance and heartfelt meaning.
 
-## <a href="https://www.amazon.com/dp/B000OH73LS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diamond Naturals Small Breed Dog Real Lamb Recipe Premium Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B000OH73LS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diamond Naturals Small Breed Dog Real Lamb Recipe Premium Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B000OH73LS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Naturals Small Breed Dog Real Lamb Recipe Premium Dry Dog food, 18 lb" src="https://m.media-amazon.com/images/I/410hNGNGiYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000OH73LS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diamond Naturals Small Breed Dog Real Lamb Recipe Premium Dry Dog food, 18 lb" src="https://m.media-amazon.com/images/I/410hNGNGiYL._SL500_.jpg"/></a>
 
 
 The **Diamond Naturals Small Breed Dog Real Lamb Recipe Premium Dry Dog Food** is ideal for owners of small breed dogs who want to provide a nutritious and balanced diet tailored specifically for their pets’ unique needs. This product is perfect for those looking to support their dog's overall health with high-quality ingredients, especially those who prefer a lamb-based protein source for their furry friends.
@@ -225,10 +225,10 @@ The **Diamond Naturals Small Breed Dog Real Lamb Recipe** boasts a carefully cra
 
 Additionally, the premium dry dog food supports immune system function through a blend of antioxidants sourced from natural ingredients. The size of the kibble is designed to be easy for small mouths to chew, making mealtime more enjoyable and less stressful. Overall, this product offers a comprehensive approach to small breed dog nutrition, making it an excellent choice for pet owners seeking quality and convenience.
 
-## <a href="https://www.amazon.com/dp/B07FFS55HS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hollypet Plush Dog Squeaky Toy Stuffed Armadillo</a>
+## <a href="https://www.amazon.com/dp/B07FFS55HS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hollypet Plush Dog Squeaky Toy Stuffed Armadillo</a>
 
 
-<a href="https://www.amazon.com/dp/B07FFS55HS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hollypet Plush Dog Squeaky Toy Stuffed Armadillo Animal Pet Puppy Chew Toys with Clean Teeth for Small Medium Large All Breed Sizes Dogs, Gray, 8 in" src="https://m.media-amazon.com/images/I/41eid+N98mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07FFS55HS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hollypet Plush Dog Squeaky Toy Stuffed Armadillo Animal Pet Puppy Chew Toys with Clean Teeth for Small Medium Large All Breed Sizes Dogs, Gray, 8 in" src="https://m.media-amazon.com/images/I/41eid+N98mL._SL500_.jpg"/></a>
 
 
 The **Hollypet Plush Dog Squeaky Toy** is perfect for dog owners looking to keep their pets entertained and engaged. This toy is especially ideal for those with **small to large breed dogs** who enjoy chewing and playing with plush, squeaky toys. If you want a durable, fun, and interactive toy that also promotes dental health, this stuffed armadillo is an excellent choice.
@@ -250,10 +250,10 @@ The **Hollypet Plush Dog Squeaky Toy** combines fun and functionality with its s
 
 Additionally, this toy is designed to promote dental health by encouraging chewing that helps clean your dog's teeth. The plush material is gentle on gums but resilient enough to withstand regular play sessions. Whether used for interactive play or solo entertainment, this toy offers a great balance of fun, durability, and health benefits for your furry friend.
 
-## <a href="https://www.amazon.com/dp/B0DZG8K4L3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chillever Miniature Schnauzer Memorial Suncatcher</a>
+## <a href="https://www.amazon.com/dp/B0DZG8K4L3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chillever Miniature Schnauzer Memorial Suncatcher</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZG8K4L3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chillever Miniature Schnauzer Memorial Suncatcher – Custom Dog Breed Ornament, Pet Loss Sympathy Gift" src="https://m.media-amazon.com/images/I/511RsfUBIHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZG8K4L3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chillever Miniature Schnauzer Memorial Suncatcher – Custom Dog Breed Ornament, Pet Loss Sympathy Gift" src="https://m.media-amazon.com/images/I/511RsfUBIHL._SL500_.jpg"/></a>
 
 
 The **Chillever Miniature Schnauzer Memorial Suncatcher** is ideal for pet owners and dog lovers who want to cherish the memory of their beloved Miniature Schnauzer. This custom dog breed ornament serves as a heartfelt **pet loss sympathy gift**, perfect for those seeking a meaningful way to honor a departed furry friend.

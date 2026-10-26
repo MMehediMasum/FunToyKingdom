@@ -23,10 +23,10 @@ Many sets include bright colors and various shapes that help teach counting, col
 
 
 
-## <a href="https://www.amazon.com/dp/B0BTW7P7H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pairez Toys Foam Building Blocks</a>
+## <a href="https://www.amazon.com/dp/B0BTW7P7H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pairez Toys Foam Building Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0BTW7P7H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pairez Toys Foam Building Blocks for Toddlers 2-4, 41 Pieces EVA Soft Stacking Blocks, Baby Bath Foam Toy Set, Early Learning Construction Toys &amp; Gifts for Kids, Boys &amp; Girls 18+ Months" src="https://m.media-amazon.com/images/I/51+Eno2yFVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BTW7P7H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pairez Toys Foam Building Blocks for Toddlers 2-4, 41 Pieces EVA Soft Stacking Blocks, Baby Bath Foam Toy Set, Early Learning Construction Toys &amp; Gifts for Kids, Boys &amp; Girls 18+ Months" src="https://m.media-amazon.com/images/I/51+Eno2yFVL._SL500_.jpg"/></a>
 
 
 The **Pairez Toys Foam Building Blocks for Toddlers 2-4** are ideal for parents and caregivers looking for safe, educational, and engaging toys for young children, especially toddlers aged 18 months to 4 years. These blocks are perfect for little ones who are beginning to explore their creativity and develop essential motor skills through play. If you're seeking a versatile toy that promotes early learning and can be used both indoors and during bath time, this set is an excellent choice.
@@ -49,12 +49,12 @@ The **Pairez Toys Foam Building Blocks** feature a set of 41 vibrant foam pieces
 
 One of the standout benefits of this toy set is its versatility. Beyond traditional building block play, these blocks double as bath toys, adding fun and education to bath time routines. This dual functionality not only maximizes value but also keeps toddlers engaged in multiple environments. Additionally, the blocks promote early learning by helping children develop hand-eye coordination, spatial reasoning, and creativity in a safe, soft, and non-toxic format, making the **Pairez Toys Foam Building Blocks** a valuable addition to any toddler's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BTW7P7H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BTW7P7H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BCZ59C75?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foam Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0BCZ59C75?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foam Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCZ59C75?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foam Blocks for Toddlers, 138 Pieces EVA Soft Stacking Building Blocks Toy Set, Early Learning Construction Toys &amp; Gifts for Kids, Boys &amp; Girls 18+ Months 1-3 Years" src="https://m.media-amazon.com/images/I/51wNjfWUkEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCZ59C75?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Foam Blocks for Toddlers, 138 Pieces EVA Soft Stacking Building Blocks Toy Set, Early Learning Construction Toys &amp; Gifts for Kids, Boys &amp; Girls 18+ Months 1-3 Years" src="https://m.media-amazon.com/images/I/51wNjfWUkEL._SL500_.jpg"/></a>
 
 
 Ideal for parents and caregivers of toddlers aged 18 months to 3 years, the **Foam Blocks for Toddlers** by **Pairez Toys** offer a safe and engaging way to foster early learning and creativity. This **138-piece EVA soft stacking building blocks toy set** is perfect for young children who are developing their motor skills, hand-eye coordination, and imaginative play abilities. Those looking for educational toys that combine fun and learning will find this set especially beneficial.
@@ -77,12 +77,12 @@ The **Foam Blocks for Toddlers** set stands out with its soft, lightweight desig
 
 Beyond simple play, these blocks help nurture creativity and problem-solving abilities by allowing children to experiment with different structures and designs. Their soft texture provides a safe environment, reducing the risk of injury often associated with harder toys. Additionally, the easy-to-clean material ensures the blocks remain hygienic, making them a practical addition to any playroom or early learning space.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BCZ59C75?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BCZ59C75?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B097QD9666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lolo Toys Large Building Foam Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B097QD9666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lolo Toys Large Building Foam Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B097QD9666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOLO TOYS Large Building Foam Blocks for Toddlers – Giant Jumbo Big Building Blocks (30 Pieces)" src="https://m.media-amazon.com/images/I/41IoFtjYq1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097QD9666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOLO TOYS Large Building Foam Blocks for Toddlers – Giant Jumbo Big Building Blocks (30 Pieces)" src="https://m.media-amazon.com/images/I/41IoFtjYq1L._SL500_.jpg"/></a>
 
 
 Ideal for parents and caregivers looking to enhance their toddler’s creativity and motor skills, the **LOLO TOYS Large Building Foam Blocks for Toddlers** are perfect for young children who love to build and explore. These **giant jumbo big building blocks** are designed to be safe, colorful, and engaging, making them an excellent choice for toddlers who are just beginning to develop their coordination and imaginative play abilities.
@@ -104,12 +104,12 @@ The **LOLO TOYS Large Building Foam Blocks** come in a set of 30 vibrant, multic
 
 Crafted from soft and durable foam, these blocks provide a safe and comfortable play experience, reducing the risk of injury while maximizing fun. Their lightweight nature means toddlers can move and rearrange the blocks effortlessly, fostering independent play and boosting confidence. Additionally, the bright, multicolor palette not only makes the set visually appealing but also aids in teaching colors and patterns, enriching the learning experience during playtime.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B097QD9666?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B097QD9666?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CZX7WVKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Set Of 34 Large Foam Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0CZX7WVKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Set Of 34 Large Foam Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZX7WVKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 34 Large Foam Blocks for Toddlers - Stacking Soft Blocks for Kids with Shapes &amp; Colors Learning - Construction Building Preschool Toys - Soft Toy for Daycare Toddlers 3-5 &amp; Above" src="https://m.media-amazon.com/images/I/41+N95-3HRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZX7WVKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Set of 34 Large Foam Blocks for Toddlers - Stacking Soft Blocks for Kids with Shapes &amp; Colors Learning - Construction Building Preschool Toys - Soft Toy for Daycare Toddlers 3-5 &amp; Above" src="https://m.media-amazon.com/images/I/41+N95-3HRL._SL500_.jpg"/></a>
 
 
 The **Set of 34 Large Foam Blocks for Toddlers** is ideal for parents, daycare providers, and preschool educators looking to enhance early childhood development through play. Specifically designed for children aged **3-5 years and above**, these **stacking soft blocks** are perfect for toddlers who are beginning to explore shapes, colors, and basic construction skills in a safe and engaging way.
@@ -132,12 +132,12 @@ The **CRAFTY HAPPITOYS** set features **34 large foam blocks** that come in a vi
 
 Beyond the fun of building, these blocks serve as educational tools by introducing preschoolers to fundamental concepts of geometry and color identification. Their lightweight and portable design make them an excellent choice for daycares and homes alike, promoting interactive play and social development. Overall, this set combines safety, education, and entertainment, making it a valuable addition to any toddler’s toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CZX7WVKW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CZX7WVKW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01N5JB1ZU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Number 1 In Gadgets Giant Foam Building Blocks</a>
+## <a href="https://www.amazon.com/dp/B01N5JB1ZU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Number 1 In Gadgets Giant Foam Building Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B01N5JB1ZU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Number 1 in Gadgets Giant Foam Building Blocks, Building Toy for Kids, Ideal Blocks Construction Toys for Toddlers, 50 Pieces Different Shapes and Sizes, Waterproof, Bright Colors, Safe, Non Toxic" src="https://m.media-amazon.com/images/I/51qXkXE5DkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N5JB1ZU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Number 1 in Gadgets Giant Foam Building Blocks, Building Toy for Kids, Ideal Blocks Construction Toys for Toddlers, 50 Pieces Different Shapes and Sizes, Waterproof, Bright Colors, Safe, Non Toxic" src="https://m.media-amazon.com/images/I/51qXkXE5DkL._SL500_.jpg"/></a>
 
 
 The **Number 1 in Gadgets Giant Foam Building Blocks** are perfect for parents and caregivers looking for a safe, engaging, and educational **building toy for toddlers**. Ideal for young children who love to explore and create, these blocks encourage imaginative play while supporting early developmental skills such as motor coordination and spatial awareness. If you want a durable, colorful, and non-toxic construction set that keeps your little ones entertained for hours, this product is an excellent choice.
@@ -159,12 +159,12 @@ The **Number 1 in Gadgets Giant Foam Building Blocks** are designed with a focus
 
 Thanks to the **waterproof foam** construction, these blocks are highly durable and easy to clean, making them ideal for both indoor and outdoor play. The vibrant colors capture children's attention and help improve color recognition skills. Lightweight and easy to handle, these blocks help toddlers develop their fine motor skills and hand-eye coordination while having endless fun constructing imaginative structures.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01N5JB1ZU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01N5JB1ZU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D9BKSX7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Large Building Foam Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0D9BKSX7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Large Building Foam Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9BKSX7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Large Building Foam Blocks for Toddlers, 30 Pieces EVA Stacking Foam Building Blocks Toy Set, Non-Toxic, Washable, Early Learning Construction Toys &amp; Gifts for Kids Boys &amp; Girls" src="https://m.media-amazon.com/images/I/41TlDk6weEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9BKSX7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Large Building Foam Blocks for Toddlers, 30 Pieces EVA Stacking Foam Building Blocks Toy Set, Non-Toxic, Washable, Early Learning Construction Toys &amp; Gifts for Kids Boys &amp; Girls" src="https://m.media-amazon.com/images/I/41TlDk6weEL._SL500_.jpg"/></a>
 
 
 The **Large Building Foam Blocks for Toddlers** by Bingyouth are perfect for parents and caregivers looking to provide their young children with a safe, educational, and engaging toy. Ideal for toddlers and preschoolers, this 30-piece set encourages early learning through creative play, making it an excellent choice for both boys and girls who are developing motor skills and cognitive abilities.
@@ -187,12 +187,12 @@ The **30 Pieces EVA Stacking Foam Building Blocks Toy Set** is crafted to suppor
 
 Beyond just fun, these blocks are an excellent tool for encouraging **early learning**. They help toddlers develop fine motor skills, improve problem-solving abilities, and foster creativity as they build various structures. The lightweight and durable design also means the blocks can be used both indoors and outdoors, providing versatile play options for kids and peace of mind for adults.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D9BKSX7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D9BKSX7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CZDSVMBF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pleykele Suitable Size Foam Building Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0CZDSVMBF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pleykele Suitable Size Foam Building Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZDSVMBF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pleykele Suitable Size Foam Building Blocks for Toddlers 18M+, Big Soft Stacking Blocks Toys, Baby Bath Toys, Sensory &amp; Early Development Toys for Kids 1.5 Years Up (Starter Kit)" src="https://m.media-amazon.com/images/I/41iwxP22fxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZDSVMBF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pleykele Suitable Size Foam Building Blocks for Toddlers 18M+, Big Soft Stacking Blocks Toys, Baby Bath Toys, Sensory &amp; Early Development Toys for Kids 1.5 Years Up (Starter Kit)" src="https://m.media-amazon.com/images/I/41iwxP22fxL._SL500_.jpg"/></a>
 
 
 The **Pleykele Suitable Size Foam Building Blocks for Toddlers 18M+** are ideal for parents and caregivers looking for safe, engaging, and educational toys for young children aged 1.5 years and up. These blocks are perfect for toddlers who are beginning to explore their motor skills, sensory development, and creativity in a playful and secure environment. If you want a versatile toy that supports early childhood growth and doubles as a bath toy, this starter kit is an excellent choice.
@@ -214,12 +214,12 @@ The **Pleykele Foam Building Blocks** are thoughtfully designed to combine fun a
 
 Beyond simple play, these blocks foster important early skills. As toddlers grasp and stack the blocks, they enhance their fine motor abilities and hand-eye coordination. The open-ended nature of the blocks encourages creativity and problem-solving as children experiment with different structures and arrangements. Overall, the **Pleykele Suitable Size Foam Building Blocks** provide a safe, stimulating, and multi-purpose toy that supports a toddler’s developmental milestones while keeping playtime enjoyable.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CZDSVMBF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CZDSVMBF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0FFMMY611?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Todiby Foam Building Blocks For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0FFMMY611?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Todiby Foam Building Blocks For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0FFMMY611?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Todiby Foam Building Blocks for Toddlers：12-Pieces Wipeable Leather Stacking Cubes Kids - Large Soft Toys Play Set for Learning Construction Baby Preschool Daycare Therapy Birthday Gift (Yellow Green)" src="https://m.media-amazon.com/images/I/41p7yoSgYkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FFMMY611?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Todiby Foam Building Blocks for Toddlers：12-Pieces Wipeable Leather Stacking Cubes Kids - Large Soft Toys Play Set for Learning Construction Baby Preschool Daycare Therapy Birthday Gift (Yellow Green)" src="https://m.media-amazon.com/images/I/41p7yoSgYkL._SL500_.jpg"/></a>
 
 
 The **Todiby Foam Building Blocks for Toddlers** are ideal for parents, caregivers, and educators looking to provide young children with a safe, engaging, and educational play experience. Perfect for toddlers in preschool, daycare settings, or at home, these **12-piece wipeable leather stacking cubes** encourage creativity, motor skill development, and early learning through hands-on construction activities.
@@ -243,12 +243,12 @@ The **Todiby Foam Building Blocks** feature a generous size of **6 inches on eac
 
 With their bright **yellow and green hues**, these blocks not only attract children's attention but also help in enhancing their color recognition skills. The set’s design encourages imaginative play and problem-solving, fostering cognitive development and hand-eye coordination. Whether used for independent play or guided activities in preschool or therapy sessions, the Todiby Foam Building Blocks provide a versatile and enriching experience that grows with your child’s developmental needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0FFMMY611?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0FFMMY611?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B59FSDY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deekin 30 Pcs Foam Brick Building Blocks For Kids</a>
+## <a href="https://www.amazon.com/dp/B0B59FSDY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deekin 30 Pcs Foam Brick Building Blocks For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0B59FSDY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Deekin 30 Pcs Foam Brick Building Blocks for Kids Thick Blocks Foam Large Fake Brick Construction Toy for Stacking Construction, 8 x 4 x 2.4 in (Circle Holes)" src="https://m.media-amazon.com/images/I/41XJPPK5sQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B59FSDY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Deekin 30 Pcs Foam Brick Building Blocks for Kids Thick Blocks Foam Large Fake Brick Construction Toy for Stacking Construction, 8 x 4 x 2.4 in (Circle Holes)" src="https://m.media-amazon.com/images/I/41XJPPK5sQL._SL500_.jpg"/></a>
 
 
 The **Deekin 30 Pcs Foam Brick Building Blocks** are ideal for young children who enjoy creative play and hands-on learning. Perfect for kids who love stacking and constructing, these thick foam blocks provide a safe and engaging way to develop fine motor skills, spatial awareness, and imaginative thinking. Parents and educators looking for a non-toxic, lightweight, and durable building toy will find this set especially beneficial.
@@ -270,12 +270,12 @@ The **Deekin Foam Brick Building Blocks** come in a generous set of 30 pieces, e
 
 Beyond just fun, these blocks stimulate creativity and problem-solving abilities. The bright red color enhances visual engagement, making playtime more exciting and stimulating. Additionally, the lightweight foam material makes it easy for kids to move and rearrange the blocks without adult assistance, fostering independence and confidence in young builders. Overall, these construction blocks offer an enriching play experience that balances safety, creativity, and educational value.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B59FSDY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B59FSDY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CPPFT8P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uhappyee Toddler Foam Building Blocks</a>
+## <a href="https://www.amazon.com/dp/B0CPPFT8P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uhappyee Toddler Foam Building Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPPFT8P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UHAPPYEE Toddler Foam Buliding Blocks - 12 Piece Fabric Covered 9x4x3inch Stacking Block Sets - Colourful Soft Play Set for Kids Idea for Building and Throwing Fun" src="https://m.media-amazon.com/images/I/41lwDuf4XUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPPFT8P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UHAPPYEE Toddler Foam Buliding Blocks - 12 Piece Fabric Covered 9x4x3inch Stacking Block Sets - Colourful Soft Play Set for Kids Idea for Building and Throwing Fun" src="https://m.media-amazon.com/images/I/41lwDuf4XUL._SL500_.jpg"/></a>
 
 
 The **UHAPPYEE Toddler Foam Building Blocks** are perfect for parents and caregivers seeking a safe, colorful, and engaging toy for young children. Ideal for toddlers who are beginning to explore stacking, building, and imaginative play, this set encourages creativity and motor skill development in a fun, soft, and kid-friendly format.
@@ -297,7 +297,7 @@ The **UHAPPYEE Toddler Foam Building Blocks** come in a variety of vibrant color
 
 Designed with dimensions of 9x4x3 inches, each block is perfectly sized for little hands to grasp, stack, and arrange. This encourages hand-eye coordination, fine motor skills, and spatial awareness. The set’s versatility promotes imaginative play, allowing children to build simple structures or use the blocks for interactive games, making it a beneficial tool for early childhood development.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CPPFT8P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CPPFT8P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

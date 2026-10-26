@@ -71,7 +71,7 @@ Prototyping your game is a key step in creating a board game. It helps you see h
 
 ### Gathering Materials
 
-Start by collecting basic materials. Use paper, cardboard, and [markers](https://www.amazon.com/s?k=colored+markers&tag=gearcookware-20) for cards and boards. Coins, buttons, or small objects can serve as [tokens](https://www.amazon.com/s?k=board+game+pieces+tokens+meeples&tag=gearcookware-20). Scissors and glue will help you cut and stick parts together. Keep materials cheap and easy to change. This saves time and money during early tests.
+Start by collecting basic materials. Use paper, cardboard, and [markers](https://www.amazon.com/s?k=colored+markers&tag=mofb05-20) for cards and boards. Coins, buttons, or small objects can serve as [tokens](https://www.amazon.com/s?k=board+game+pieces+tokens+meeples&tag=mofb05-20). Scissors and glue will help you cut and stick parts together. Keep materials cheap and easy to change. This saves time and money during early tests.
 
 ### Building A Simple Prototype
 
@@ -111,7 +111,7 @@ Visual design includes the board, cards, colors, fonts, and packaging. Each piec
 
 ### Creating Board And Cards
 
-Start with a sketch of your board layout. Use shapes that guide players easily. Add spaces or zones where players can move or act. Make sure icons or symbols are easy to recognize. For [cards](https://www.amazon.com/s?k=blank+playing+cards&tag=gearcookware-20), design a clear front and back. Use simple images or symbols for quick understanding. Keep text short and readable.
+Start with a sketch of your board layout. Use shapes that guide players easily. Add spaces or zones where players can move or act. Make sure icons or symbols are easy to recognize. For [cards](https://www.amazon.com/s?k=blank+playing+cards&tag=mofb05-20), design a clear front and back. Use simple images or symbols for quick understanding. Keep text short and readable.
 
 ### Choosing Colors And Fonts
 
@@ -119,7 +119,7 @@ Pick colors that fit your game’s theme. Use bright colors for excitement or so
 
 ### Designing Packaging
 
-Your packaging is the first thing players see. Create a box design that shows the game’s theme clearly. Use bold images and clear titles on the box. Include a short description or tagline that explains the game. Make sure the box size fits all components inside. Use [sturdy material](https://www.amazon.com/s?k=sturdy+shipping+boxes&tag=gearcookware-20) to protect your game during shipping.
+Your packaging is the first thing players see. Create a box design that shows the game’s theme clearly. Use bold images and clear titles on the box. Include a short description or tagline that explains the game. Make sure the box size fits all components inside. Use [sturdy material](https://www.amazon.com/s?k=sturdy+shipping+boxes&tag=mofb05-20) to protect your game during shipping.
 
 ## Manufacturing Your Game
 
@@ -173,7 +173,7 @@ Begin by choosing a game theme and objective. Sketch the board layout and decide
 
 
 
-You need cardstock or cardboard for the board, markers or printed graphics, game pieces like tokens or [dice](https://www.amazon.com/s?k=bulk+dice+set&tag=gearcookware-20), and paper for cards. Basic craft supplies help create a professional look.
+You need cardstock or cardboard for the board, markers or printed graphics, game pieces like tokens or [dice](https://www.amazon.com/s?k=bulk+dice+set&tag=mofb05-20), and paper for cards. Basic craft supplies help create a professional look.
 
 
 

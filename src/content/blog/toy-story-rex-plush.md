@@ -23,10 +23,10 @@ The durable build ensures Rex stays a favorite for years. Whether for play, deco
 
 
 
-## <a href="https://www.amazon.com/dp/B0BLBS982T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Toy Story Plush Rex</a>
+## <a href="https://www.amazon.com/dp/B0BLBS982T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Toy Story Plush Rex</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLBS982T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DISNEY STORE Toy Story Plush, Rex, Iconic Cuddly Toy Character with Embroidered Eyes and Soft Plush Features, Suitable for All Ages" src="https://m.media-amazon.com/images/I/31HR0Bv6-nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLBS982T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DISNEY STORE Toy Story Plush, Rex, Iconic Cuddly Toy Character with Embroidered Eyes and Soft Plush Features, Suitable for All Ages" src="https://m.media-amazon.com/images/I/31HR0Bv6-nL._SL500_.jpg"/></a>
 
 
 The **DISNEY STORE Toy Story Plush, Rex** is ideal for fans of the iconic Toy Story franchise, collectors of Disney memorabilia, and parents seeking a soft, safe cuddly toy for children of all ages. This plush is perfect for anyone looking to bring a beloved character to life with high-quality craftsmanship and huggable charm.
@@ -48,12 +48,12 @@ The **DISNEY STORE Toy Story Plush, Rex** boasts a carefully designed constructi
 
 Its **soft plush fabric** offers a comforting texture that invites hugs and playtime, while the compact size makes it easy to carry around or display on a shelf. Whether for imaginative play or as a collector’s item, this plush brings the joy of Toy Story to life with quality and attention to detail that Disney fans appreciate.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BLBS982T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BLBS982T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09X8WZ3WV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Pixar Rex Big Feet Plush</a>
+## <a href="https://www.amazon.com/dp/B09X8WZ3WV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Pixar Rex Big Feet Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B09X8WZ3WV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Pixar Rex Big Feet Plush – Toy Story – 12 Inches" src="https://m.media-amazon.com/images/I/31FdeZOQA6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09X8WZ3WV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Pixar Rex Big Feet Plush – Toy Story – 12 Inches" src="https://m.media-amazon.com/images/I/31FdeZOQA6L._SL500_.jpg"/></a>
 
 
 The **Disney Pixar Rex Big Feet Plush** from the beloved **Toy Story** series is perfect for young fans and collectors who adore the quirky and lovable dinosaur character, Rex. Ideal for children aged 3 and up, this plush toy offers a cuddly companion for playtime or a charming decorative piece for any Disney enthusiast's collection. If you are looking for a soft, safe, and authentic **Disney Store** merchandise, this item is an excellent choice.
@@ -75,12 +75,12 @@ The **Disney Pixar Rex Big Feet Plush** stands out with its detailed and vibrant
 
 Beyond its adorable appearance, this plush toy provides developmental benefits such as encouraging imaginative play and nurturing emotional bonding with a familiar character. Additionally, the official **Disney Store** branding guarantees that buyers receive a high-quality product that meets safety standards, giving parents peace of mind. Overall, it’s a delightful item that brings joy to both young audiences and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09X8WZ3WV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09X8WZ3WV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07PM94TNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Toy Story 4 Rex Plush</a>
+## <a href="https://www.amazon.com/dp/B07PM94TNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Toy Story 4 Rex Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B07PM94TNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Store Official Toy Story 4 Rex Plush – 14 Inches, Authentic Soft Toy Figure, for Kids &amp; Collectors, Durable Design, Classic Dinosaur Character, Suitable for Ages 0+" src="https://m.media-amazon.com/images/I/51+n5OqNXYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PM94TNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Store Official Toy Story 4 Rex Plush – 14 Inches, Authentic Soft Toy Figure, for Kids &amp; Collectors, Durable Design, Classic Dinosaur Character, Suitable for Ages 0+" src="https://m.media-amazon.com/images/I/51+n5OqNXYL._SL500_.jpg"/></a>
 
 
 The **Disney Store Official Toy Story 4 Rex Plush** is ideal for both **young children** and **collectors** who adore the classic **Toy Story** franchise. Perfect for kids aged **0+**, this authentic and **soft toy figure** captures the charm of the beloved **classic dinosaur character**, making it a wonderful companion for playtime or a cherished addition to any collection.
@@ -103,12 +103,12 @@ This **Rex Plush** stands out with its **authenticity** and **attention to detai
 
 The toy’s dimensions—measuring approximately **14 inches**—make it an ideal size for children to hold comfortably or for collectors to display on shelves. Being suitable for children aged **0 and up**, it also serves as a safe and gentle companion for infants, adding to its versatility. Overall, this plush toy combines the joy of a beloved character with practical features that appeal to both kids and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07PM94TNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07PM94TNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07P98Z6R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Baby Toy Story Stuffed Animal Plush Woody</a>
+## <a href="https://www.amazon.com/dp/B07P98Z6R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Baby Toy Story Stuffed Animal Plush Woody</a>
 
 
-<a href="https://www.amazon.com/dp/B07P98Z6R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Baby Toy Story Large 8” Stuffed Animal Plush Woody" src="https://m.media-amazon.com/images/I/41xRPQc+J1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P98Z6R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Baby Toy Story Large 8” Stuffed Animal Plush Woody" src="https://m.media-amazon.com/images/I/41xRPQc+J1L._SL500_.jpg"/></a>
 
 
 The **Disney Baby Toy Story Large 8” Stuffed Animal Plush Woody** is perfect for parents and gift-givers looking for a soft, cuddly companion for young children who love the beloved **Toy Story** franchise. Ideal for toddlers and preschoolers, this plush toy brings the charm of Woody, the iconic cowboy character, to life in a safe and huggable form. It’s a great choice for anyone wanting to introduce a child to the magic of Disney characters through a comforting stuffed animal.
@@ -129,12 +129,12 @@ The **Disney Baby Toy Story Large 8” Stuffed Animal Plush Woody** features sof
 
 Beyond just being a cuddly toy, this plush Woody encourages imaginative play and emotional development by helping kids connect with a familiar character. The thoughtful design from **Kids Preferred** makes it a safe and reliable choice for parents looking to add a touch of Disney magic to their child’s toy collection. Its manageable size and softness make it a perfect bedtime buddy, easing children into restful sleep with a friendly face by their side.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07P98Z6R4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07P98Z6R4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07P63ZF4T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Baby Toy Story Buzz Lightyear Toy 8 Inch Stuffed Animals Plush</a>
+## <a href="https://www.amazon.com/dp/B07P63ZF4T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Baby Toy Story Buzz Lightyear Toy 8 Inch Stuffed Animals Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B07P63ZF4T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Baby Toy Story Toys for Boys Buzz Lightyear Toy 8 Inch Stuffed Animals Plush, Disney Pixar Plushies for Kids, Disney Toys Stuff for Boys" src="https://m.media-amazon.com/images/I/41PyYj75xsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P63ZF4T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Baby Toy Story Toys for Boys Buzz Lightyear Toy 8 Inch Stuffed Animals Plush, Disney Pixar Plushies for Kids, Disney Toys Stuff for Boys" src="https://m.media-amazon.com/images/I/41PyYj75xsL._SL500_.jpg"/></a>
 
 
 The **Disney Baby Toy Story Toys for Boys Buzz Lightyear Toy** is perfect for young fans of the **Disney Pixar Toy Story** series, especially boys who love cuddly and interactive plush toys. Ideal for toddlers and preschoolers, this **8-inch stuffed animal** offers a safe and comforting companion that sparks imaginative play and nurtures emotional development.
@@ -157,12 +157,12 @@ This **Disney Pixar plush** captures the essence of Buzz Lightyear with vibrant 
 
 Beyond being just a cuddly companion, this **Disney Toy Story stuffed animal** helps foster creativity and storytelling skills as children reenact scenes or invent new adventures. The combination of familiar character design and child-friendly proportions makes it an excellent choice for parents seeking a toy that blends entertainment, comfort, and developmental benefits.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07P63ZF4T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07P63ZF4T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07PPB9DHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Rex Interactive Talking Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07PPB9DHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Store Official Rex Interactive Talking Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07PPB9DHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Store Official Rex Interactive Talking Action Figure from Toy Story, Features Sounds and Phrases from The Movies, Interacts with Other Figures and Toys" src="https://m.media-amazon.com/images/I/41KRMJTWX+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PPB9DHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Store Official Rex Interactive Talking Action Figure from Toy Story, Features Sounds and Phrases from The Movies, Interacts with Other Figures and Toys" src="https://m.media-amazon.com/images/I/41KRMJTWX+L._SL500_.jpg"/></a>
 
 
 The **Disney Store Official Rex Interactive Talking Action Figure** from **Toy Story** is ideal for young fans of the beloved movie series who enjoy interactive and engaging toys. This figure is perfect for children who love to reenact scenes from the movies or create their own adventures, as well as collectors looking for authentic Disney merchandise. It is especially suited for kids aged 3 and up who appreciate toys that talk, make sounds, and interact with other figures.
@@ -185,12 +185,12 @@ The **Rex Interactive Talking Action Figure** stands out with its ability to bri
 
 Crafted by the **Disney Store**, the figure promises durability and detailed design, capturing the essence of Rex’s character perfectly. The size of the figure makes it ideal for small hands, and its robust build ensures it can withstand the energetic play typical of young children. This makes it an excellent addition to any **Toy Story** collection or as a standalone gift for fans of the franchise.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07PPB9DHN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07PPB9DHN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B081X4V2GM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wemi Tipinoice Cute Dinosaur Stuffed Animal Toys</a>
+## <a href="https://www.amazon.com/dp/B081X4V2GM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wemi Tipinoice Cute Dinosaur Stuffed Animal Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B081X4V2GM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Wemi TIPINOICE Cute Dinosaur Stuffed Animal Toys Soft Dino Plush Doll T-Rex Tyrannosaurus Dinosaur Figure Green 21" src="https://m.media-amazon.com/images/I/41ycSb7xvPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081X4V2GM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Wemi TIPINOICE Cute Dinosaur Stuffed Animal Toys Soft Dino Plush Doll T-Rex Tyrannosaurus Dinosaur Figure Green 21" src="https://m.media-amazon.com/images/I/41ycSb7xvPL._SL500_.jpg"/></a>
 
 
 The **Wemi TIPINOICE Cute Dinosaur Stuffed Animal Toys** is perfect for children and dinosaur enthusiasts looking for a soft, cuddly companion. Ideal for kids who love prehistoric creatures or anyone wanting a charming decorative plush, this **21-inch green T-Rex** combines fun with comfort, making it a delightful gift choice.
@@ -212,12 +212,12 @@ The **Wemi TIPINOICE Cute Dinosaur Stuffed Animal** boasts a detailed design tha
 
 Beyond aesthetics, this stuffed toy offers educational value by sparking curiosity about prehistoric life. Its substantial size allows children to engage in imaginative scenarios, enhancing creativity and storytelling skills. Crafted by **Wemi**, this plush doll promises durability, ensuring it remains a treasured companion through countless adventures.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B081X4V2GM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B081X4V2GM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B9PY7R6N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Toy Story Set Of 7 Action Figures</a>
+## <a href="https://www.amazon.com/dp/B0B9PY7R6N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Toy Story Set Of 7 Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9PY7R6N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Toy Story Set of 7 Action Figures with Woody, Slinky, Rex, Hamm, Alien, Rocky &amp; Shark, Disney100 Collectible" src="https://m.media-amazon.com/images/I/41UHBZ3ZwWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9PY7R6N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Toy Story Set of 7 Action Figures with Woody, Slinky, Rex, Hamm, Alien, Rocky &amp; Shark, Disney100 Collectible" src="https://m.media-amazon.com/images/I/41UHBZ3ZwWL._SL500_.jpg"/></a>
 
 
 The **Mattel Disney and Pixar Toy Story Set of 7 Action Figures** is perfect for young fans and collectors who adore the classic Toy Story characters. This set is ideal for children who enjoy imaginative play and storytelling, as well as collectors looking to add authentic Disney100 memorabilia to their collection. Parents seeking durable and engaging toys that spark creativity will also find this set a great choice.
@@ -240,12 +240,12 @@ The **Mattel Disney and Pixar Toy Story Set** brings together beloved characters
 
 Beyond just toys, this set serves as a **Disney100 Collectible**, making it a meaningful keepsake for fans and collectors. The size and weight of the figures are optimized for ease of use by children, while the quality manufacturing by **Mattel** ensures longevity. Overall, this set combines entertainment, nostalgia, and collectibility in one attractive package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B9PY7R6N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B9PY7R6N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08GH3FCMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney And Pixar Toy Story Slinky Dog Plushie</a>
+## <a href="https://www.amazon.com/dp/B08GH3FCMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney And Pixar Toy Story Slinky Dog Plushie</a>
 
 
-<a href="https://www.amazon.com/dp/B08GH3FCMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney and Pixar Toy Story Slinky Dog Plushie, Fidget Toy, Kids Toys for Ages 18 Month by Just Play" src="https://m.media-amazon.com/images/I/51NlOkKuO0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08GH3FCMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney and Pixar Toy Story Slinky Dog Plushie, Fidget Toy, Kids Toys for Ages 18 Month by Just Play" src="https://m.media-amazon.com/images/I/51NlOkKuO0L._SL500_.jpg"/></a>
 
 
 The **Disney and Pixar Toy Story Slinky Dog Plushie** by **Just Play** is ideal for young children, especially toddlers aged **18 months and up**. This **multicolor** plush toy combines the charm of a classic Toy Story character with the interactive fun of a fidget toy, making it perfect for parents looking for engaging, safe, and entertaining toys that help develop fine motor skills and imaginative play.
@@ -267,12 +267,12 @@ The **Slinky Dog Plushie** offers a blend of soft cuddly textures and a unique s
 
 Additionally, the toy's size and lightweight construction make it highly portable, allowing kids to bring their favorite character along wherever they go. Manufactured by **Just Play**, this plushie meets safety standards, ensuring peace of mind for parents. Overall, this plush fidget toy is an excellent choice for parents seeking a fun, safe, and developmentally beneficial toy for toddlers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08GH3FCMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08GH3FCMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B9Q66L6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Toy Story Talking Dinosaur Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0B9Q66L6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney And Pixar Toy Story Talking Dinosaur Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9Q66L6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Toy Story Talking Dinosaur Action Figure with Movng Arms, Roarin’ Laughs Rex Dino Toy, 10.8-inch T Rex with 40+ Sounds &amp; Phrases" src="https://m.media-amazon.com/images/I/41R2zCIqu2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9Q66L6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney and Pixar Toy Story Talking Dinosaur Action Figure with Movng Arms, Roarin’ Laughs Rex Dino Toy, 10.8-inch T Rex with 40+ Sounds &amp; Phrases" src="https://m.media-amazon.com/images/I/41R2zCIqu2L._SL500_.jpg"/></a>
 
 
 The **Mattel Disney and Pixar Toy Story Talking Dinosaur Action Figure** is perfect for young children and fans of the iconic Toy Story franchise who love interactive and engaging toys. Ideal for kids aged 3 and up, this **Roarin’ Laughs Rex Dino Toy** brings the beloved **T Rex character** to life with its realistic sounds and moving arms, making it a fantastic gift for imaginative play and collectors alike.
@@ -295,7 +295,7 @@ This **Mattel talking Rex action figure** stands out with its detailed **multico
 
 Additionally, the figure’s ability to produce over 40 unique sounds and phrases creates an immersive play experience that keeps kids entertained for hours. While the need for batteries means some maintenance, the overall design and interactive features make this **Mattel Toy Story Rex dino** a compelling choice for fans and collectors looking for an authentic and lively addition to their Toy Story memorabilia.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B9Q66L6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B9Q66L6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

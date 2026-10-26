@@ -22,10 +22,10 @@ Some focus on fun dares, while others spark meaningful conversations. Choosing t
 
 
 
-## <a href="https://www.amazon.com/dp/B0B7V56B7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">We're Not Really Strangers Couples Edition Card Game</a>
+## <a href="https://www.amazon.com/dp/B0B7V56B7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">We're Not Really Strangers Couples Edition Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7V56B7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WE'RE NOT REALLY STRANGERS Couples Edition Card Game - 150 Conversation Cards for Couples, Adults, and Teens - 2 Player Bonding Game for Memorable Date Nights, and Game Nights, Ages 15+, 2 Players" src="https://m.media-amazon.com/images/I/31L0WpI2PCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7V56B7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WE'RE NOT REALLY STRANGERS Couples Edition Card Game - 150 Conversation Cards for Couples, Adults, and Teens - 2 Player Bonding Game for Memorable Date Nights, and Game Nights, Ages 15+, 2 Players" src="https://m.media-amazon.com/images/I/31L0WpI2PCL._SL500_.jpg"/></a>
 
 
 The **WE'RE NOT REALLY STRANGERS Couples Edition Card Game** is perfect for couples, adults, and teens aged 15 and above who are looking to deepen their connection and spark meaningful conversations. Ideal for those seeking a unique and engaging way to bond during date nights or game nights, this game is designed to foster intimacy and understanding between two players.
@@ -48,10 +48,10 @@ The **Couples Edition** of WE'RE NOT REALLY STRANGERS stands out with its carefu
 
 Beyond just a game, this edition serves as a powerful tool for building trust and understanding between partners. The questions are thoughtfully crafted to cater to couples and can help reveal new insights about each other, making every session memorable. Whether you're in a new relationship or have been together for years, this game offers a refreshing way to communicate and bond deeply.
 
-## <a href="https://www.amazon.com/dp/B093BCC4VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Why Don't We - Spice It Up - Super Fun Couples Games For Date Nights</a>
+## <a href="https://www.amazon.com/dp/B093BCC4VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Why Don't We - Spice It Up - Super Fun Couples Games For Date Nights</a>
 
 
-<a href="https://www.amazon.com/dp/B093BCC4VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Why Don't We - Spice IT UP - Super Fun Couples Games for Date Nights: 150 Cards with Conversations, Spicy Dares &amp; More - Best Date Night Games for Couples - Romantic Adult Couple Game" src="https://m.media-amazon.com/images/I/41glCTiRI1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093BCC4VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Why Don't We - Spice IT UP - Super Fun Couples Games for Date Nights: 150 Cards with Conversations, Spicy Dares &amp; More - Best Date Night Games for Couples - Romantic Adult Couple Game" src="https://m.media-amazon.com/images/I/41glCTiRI1L._SL500_.jpg"/></a>
 
 
 The **Why Don't We - Spice IT UP - Super Fun Couples Games for Date Nights** is perfect for couples looking to add excitement and deepen their connection during their quality time together. Ideal for those who enjoy playful interaction, meaningful conversations, and a bit of adventurous fun, this game suits couples wanting to break the routine of typical date nights and spark romance in a lighthearted way.
@@ -74,10 +74,10 @@ This **couples game** offers a diverse range of interactive cards that encourage
 
 Thanks to its compact and lightweight design, the game is highly portable, allowing couples to bring it along on trips or use it anytime at home. The **multicolor packaging** enhances the visual appeal, making it an attractive addition to any game collection. Overall, **Why Don't We - Spice IT UP** is an excellent tool for couples seeking to enrich their relationship through fun, laughter, and meaningful connection.
 
-## <a href="https://www.amazon.com/dp/B0CR4G7CPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ultimate Date Night Game By Relatable</a>
+## <a href="https://www.amazon.com/dp/B0CR4G7CPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ultimate Date Night Game By Relatable</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR4G7CPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ultimate Date Night Game by Relatable, Great for Couples Games and Stay at Home Date Night Ideas, From The Makers of Let's Get Deep Relationship Card Game, Includes 300 Cards &amp; Spinner" src="https://m.media-amazon.com/images/I/41TDJu9CFfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR4G7CPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ultimate Date Night Game by Relatable, Great for Couples Games and Stay at Home Date Night Ideas, From The Makers of Let's Get Deep Relationship Card Game, Includes 300 Cards &amp; Spinner" src="https://m.media-amazon.com/images/I/41TDJu9CFfL._SL500_.jpg"/></a>
 
 
 The **Ultimate Date Night Game by Relatable** is perfect for couples looking to add excitement and meaningful interaction to their evenings. Ideal for those who enjoy **stay-at-home date night ideas** and want to strengthen their relationship through fun and engaging activities, this game is designed for anyone seeking a creative way to connect with their partner. Whether you're in a new relationship or have been together for years, this game offers a fresh and entertaining way to bond.
@@ -100,10 +100,10 @@ The game’s extensive deck of **300 cards** ensures that couples will never run
 
 Manufactured by **What Do You Meme?**, a trusted brand in the realm of party and relationship games, this product combines quality with entertainment. Its sleek **black color** and compact design make it a stylish addition to any game night collection. Overall, the **Ultimate Date Night Game by Relatable** is an excellent tool for couples to deepen their connection, spark meaningful conversations, and enjoy memorable evenings together without leaving the comfort of home.
 
-## <a href="https://www.amazon.com/dp/B0DJ9SS51V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Love Lingual Red Zone</a>
+## <a href="https://www.amazon.com/dp/B0DJ9SS51V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Love Lingual Red Zone</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ9SS51V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Love Lingual Red Zone – Naughty Bedroom Game for Couples - Intimacy Couple Cards for Date Night and Anniversaries – 250 Prompts to Spark Conversation and Intimacy – Spicy Board Game for Couples" src="https://m.media-amazon.com/images/I/41pfVkZINsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ9SS51V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Love Lingual Red Zone – Naughty Bedroom Game for Couples - Intimacy Couple Cards for Date Night and Anniversaries – 250 Prompts to Spark Conversation and Intimacy – Spicy Board Game for Couples" src="https://m.media-amazon.com/images/I/41pfVkZINsL._SL500_.jpg"/></a>
 
 
 The **Love Lingual Red Zone – Naughty Bedroom Game for Couples** is perfect for couples looking to deepen their intimacy and spark meaningful conversations. Ideal for those who want to add excitement to their **date nights** or celebrate anniversaries with a playful twist, this game encourages open communication and connection. If you’re seeking to explore new levels of closeness and fun in your relationship, this spicy board game is an excellent choice.
@@ -125,10 +125,10 @@ The **Love Lingual Red Zone** game features a diverse set of 250 carefully craft
 
 In addition to sparking conversation, this game also fosters trust and vulnerability, key components of a strong relationship. Its playful nature helps reduce awkwardness, turning intimate discussions into enjoyable moments that strengthen bonds. Whether you’re celebrating a special occasion or just looking to spice up a regular evening, the **Love Lingual Red Zone** offers an exciting and meaningful way to explore your connection with your partner.
 
-## <a href="https://www.amazon.com/dp/B07W1PVNFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bestself Intimacy Deck</a>
+## <a href="https://www.amazon.com/dp/B07W1PVNFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bestself Intimacy Deck</a>
 
 
-<a href="https://www.amazon.com/dp/B07W1PVNFC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BestSelf Intimacy Deck – 170 Couples Conversation Starters, Romantic Couples Card Game, Fun Couples Game for Adults, Build Emotional Connection &amp; Deeper Bond" src="https://m.media-amazon.com/images/I/51EeDSObhKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W1PVNFC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BestSelf Intimacy Deck – 170 Couples Conversation Starters, Romantic Couples Card Game, Fun Couples Game for Adults, Build Emotional Connection &amp; Deeper Bond" src="https://m.media-amazon.com/images/I/51EeDSObhKL._SL500_.jpg"/></a>
 
 
 The **BestSelf Intimacy Deck** is ideal for couples looking to deepen their emotional connection and spark meaningful conversations. Whether you're in a new relationship or have been together for years, this romantic couples card game is perfect for adults who want to build a stronger bond through engaging and thoughtful dialogue. If you seek a fun and interactive way to enhance intimacy, this deck is tailored for you.
@@ -151,10 +151,10 @@ The **BestSelf Intimacy Deck** offers a thoughtfully curated selection of questi
 
 By using this card game regularly, couples can enjoy the benefit of improved communication skills and enhanced understanding of each other’s perspectives. The carefully crafted prompts inspire meaningful discussions, helping partners discover new facets of their relationship and themselves. Ultimately, the **BestSelf Intimacy Deck** is a valuable addition for anyone seeking to nurture love, trust, and intimacy in a fun and interactive manner.
 
-## <a href="https://www.amazon.com/dp/B0DS3ZK91F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qingspirits Couple Board Game</a>
+## <a href="https://www.amazon.com/dp/B0DS3ZK91F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qingspirits Couple Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS3ZK91F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Qingspirits Couple Board Game for Boyfriend Girlfriend Relationship Conversation Game Cards Props Date Night Ideas Gifts for Him Her Husband Wife 18+" src="https://m.media-amazon.com/images/I/511CEaTkHLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS3ZK91F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Qingspirits Couple Board Game for Boyfriend Girlfriend Relationship Conversation Game Cards Props Date Night Ideas Gifts for Him Her Husband Wife 18+" src="https://m.media-amazon.com/images/I/511CEaTkHLL._SL500_.jpg"/></a>
 
 
 The **Qingspirits Couple Board Game** is perfect for couples who want to deepen their connection and spark meaningful conversations. Ideal for boyfriends and girlfriends, husbands and wives, or any romantic partners aged 18 and above, this game is a thoughtful gift that encourages open communication and fun interaction during date nights or special occasions. If you're looking to enhance your relationship with engaging dialogue and playful prompts, this game is designed for you.
@@ -177,10 +177,10 @@ The **Qingspirits Couple Board Game** measures approximately 5.91 inches in leng
 
 Beyond entertainment, this game serves as a tool to improve communication skills within relationships. By encouraging honesty and openness, it can help resolve misunderstandings and build trust. Whether used during a quiet night at home or as a creative gift, the **Qingspirits Couple Board Game** is a valuable addition to any couple’s collection of relationship-enhancing activities.
 
-## <a href="https://www.amazon.com/dp/B0CMH4D26L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Servd - Couples - The Hilarious Real-life Couples Card Game</a>
+## <a href="https://www.amazon.com/dp/B0CMH4D26L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Servd - Couples - The Hilarious Real-life Couples Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMH4D26L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SERVD - Couples - The Hilarious Real-Life Couples Card Game | Funny Gift for Anniversary, Valentine's Day, Christmas, Date Nights &amp; More | Unique Strategy Game" src="https://m.media-amazon.com/images/I/41kWuXfVC+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMH4D26L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SERVD - Couples - The Hilarious Real-Life Couples Card Game | Funny Gift for Anniversary, Valentine's Day, Christmas, Date Nights &amp; More | Unique Strategy Game" src="https://m.media-amazon.com/images/I/41kWuXfVC+L._SL500_.jpg"/></a>
 
 
 The **SERVD - Couples - The Hilarious Real-Life Couples Card Game** is perfect for couples who enjoy playful interaction and want to add humor and connection to their relationship. Ideal for those seeking a unique and entertaining way to celebrate special occasions like anniversaries, Valentine's Day, Christmas, or simply enhance their date nights with laughter and bonding. If you love strategy games with a fun twist that bring you closer to your partner, this game is made for you.
@@ -203,10 +203,10 @@ The **SERVD Couples Card Game** stands out with its clever combination of real-l
 
 Manufactured by **SERVD**, this card game boasts quality and attention to detail that reflects in its durability and ease of use. The game’s design ensures quick setup and smooth play, allowing couples to jump straight into the fun without hassle. Whether celebrating a special occasion or simply looking to spice up routine date nights, this game offers a refreshing alternative to traditional couple’s activities with lasting benefits for relationship bonding.
 
-## <a href="https://www.amazon.com/dp/B0F1TB9DDD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Adultopoly Board Game</a>
+## <a href="https://www.amazon.com/dp/B0F1TB9DDD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Adultopoly Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1TB9DDD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Adultopoly Board Game, Adult Board Game Naughty, Adult Couple Card Board Games Props, Date Night Couple Relationship Conversation Game Card Board" src="https://m.media-amazon.com/images/I/51XaJPx316L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1TB9DDD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Adultopoly Board Game, Adult Board Game Naughty, Adult Couple Card Board Games Props, Date Night Couple Relationship Conversation Game Card Board" src="https://m.media-amazon.com/images/I/51XaJPx316L._SL500_.jpg"/></a>
 
 
 The **Adultopoly Board Game** is perfect for couples looking to spice up their **date nights** and deepen their relationship through fun and engaging conversation. Ideal for adults who enjoy playful and intimate interactions, this **naughty adult board game** encourages couples to connect on a new level while sharing laughs and meaningful moments. If you want to explore your relationship in an entertaining and lighthearted way, this game is a great choice.
@@ -229,10 +229,10 @@ The **Adultopoly Board Game** combines traditional board game mechanics with an 
 
 With easy-to-understand rules and engaging content, this game helps break the ice and keeps the conversation flowing naturally. The compact dimensions make it convenient to carry and set up, whether at home or on a romantic getaway. Overall, the **Adultopoly Board Game** offers both entertainment and relationship benefits, making it a must-have for couples seeking to strengthen their bond in a fun and interactive way.
 
-## <a href="https://www.amazon.com/dp/B0DH59VZV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Romantic Couples Game For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DH59VZV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Romantic Couples Game For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DH59VZV6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Romantic Couples Game for Adults - 300 Date Night Dares &amp; Conversation Cards | Couple Board Game for 2 Players &amp; Fun Gaming Cards for Married Couples" src="https://m.media-amazon.com/images/I/41IHtxOxozL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DH59VZV6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Romantic Couples Game for Adults - 300 Date Night Dares &amp; Conversation Cards | Couple Board Game for 2 Players &amp; Fun Gaming Cards for Married Couples" src="https://m.media-amazon.com/images/I/41IHtxOxozL._SL500_.jpg"/></a>
 
 
 The **Romantic Couples Game for Adults** is perfect for **married couples** or partners looking to deepen their connection and add excitement to their **date nights**. Ideal for those who enjoy engaging in meaningful conversations and fun challenges, this game offers a unique way to strengthen bonds and create lasting memories. If you're seeking a playful yet intimate activity for two, this **couple board game** is a great choice.
@@ -255,10 +255,10 @@ This **couple board game** by **COCO ADULT** offers a delightful blend of fun an
 
 Beyond entertainment, the game promotes meaningful dialogue and fosters emotional closeness, which is essential for maintaining a strong relationship. The variety of cards ensures that couples can tailor the experience to their comfort level and preferences, making each play session unique. Overall, this game is an excellent tool for couples seeking both fun and connection in a relaxed setting.
 
-## <a href="https://www.amazon.com/dp/B0BPHYHSYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Risky Couples</a>
+## <a href="https://www.amazon.com/dp/B0BPHYHSYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Risky Couples</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPHYHSYK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RISKY COUPLES - Super Fun Couples Game for Date Night: 150 Dares &amp; Questions for Your Partner. Romantic Anniversary &amp; Valentines Gifts. Card Game for Couple" src="https://m.media-amazon.com/images/I/51hBIxvkh0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BPHYHSYK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RISKY COUPLES - Super Fun Couples Game for Date Night: 150 Dares &amp; Questions for Your Partner. Romantic Anniversary &amp; Valentines Gifts. Card Game for Couple" src="https://m.media-amazon.com/images/I/51hBIxvkh0L._SL500_.jpg"/></a>
 
 
 The **RISKY COUPLES - Super Fun Couples Game for Date Night** is perfect for couples looking to add excitement and intimacy to their relationship. Whether you're celebrating a **romantic anniversary**, **Valentine's Day**, or simply want to spice up your date nights, this card game offers a playful way to connect. Ideal for couples who enjoy fun challenges and meaningful conversations, it encourages bonding through **150 dares and questions** designed specifically for partners.

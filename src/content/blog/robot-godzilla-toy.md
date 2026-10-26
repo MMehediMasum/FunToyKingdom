@@ -23,10 +23,10 @@ Some figures even showcase fiery effects or heavy armor, adding to the excitemen
 
 
 
-## <a href="https://www.amazon.com/dp/B0D1TFL67C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muksse Mechagodzilla Vs. Kong Toy Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0D1TFL67C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muksse Mechagodzilla Vs. Kong Toy Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1TFL67C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUKSSE MechaGodzilla vs. Kong Toy Action Figure, King of The Monsters 2021 Movie Series Movable Joints Birthday Kid Gift, Travel Bag, Silver" src="https://m.media-amazon.com/images/I/51HDKQ1S2vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1TFL67C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUKSSE MechaGodzilla vs. Kong Toy Action Figure, King of The Monsters 2021 Movie Series Movable Joints Birthday Kid Gift, Travel Bag, Silver" src="https://m.media-amazon.com/images/I/51HDKQ1S2vL._SL500_.jpg"/></a>
 
 
 The **MUKSSE MechaGodzilla vs. Kong Toy Action Figure** is ideal for collectors, fans of the **King of The Monsters 2021 movie series**, and children who enjoy imaginative play with detailed action figures. This item is perfect for those looking for a **movable joint** toy that combines durability and intricate design, making it an excellent **birthday gift** or a unique addition to a **toy collection**.
@@ -49,12 +49,12 @@ The **MUKSSE MechaGodzilla vs. Kong Toy Action Figure** stands out with its meti
 
 Additionally, the inclusion of a **travel bag** adds great value by offering protection and portability, allowing fans to take their favorite figure on the go. The sturdy **silver** color not only reflects the character’s design but also ensures longevity and resistance to wear. Overall, this action figure caters to both young fans and serious collectors looking for a high-quality, versatile toy.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D1TFL67C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D1TFL67C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09XQBXJS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playmates Godzilla 7" Battle Roar Mechagodzilla</a>
+## <a href="https://www.amazon.com/dp/B09XQBXJS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playmates Godzilla 7" Battle Roar Mechagodzilla</a>
 
 
-<a href="https://www.amazon.com/dp/B09XQBXJS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PlayMates Godzilla 7" battle="" mechagodzilla,="" multi"="" roar="" src="https://m.media-amazon.com/images/I/41lzt+RnrfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XQBXJS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PlayMates Godzilla 7" battle="" mechagodzilla,="" multi"="" roar="" src="https://m.media-amazon.com/images/I/41lzt+RnrfL._SL500_.jpg"/></a>
 
 
 The **PlayMates Godzilla 7" Battle Roar Mechagodzilla** is ideal for fans of the iconic Godzilla franchise, collectors of action figures, and children who enjoy imaginative play. This multi-colored, detailed figure appeals especially to those who appreciate mechanical monsters and want a durable, interactive toy that enhances their play experience.
@@ -77,12 +77,12 @@ The **PlayMates Godzilla 7" Battle Roar Mechagodzilla** boasts a robust build an
 
 Beyond its aesthetic appeal, this figure offers practical benefits such as durability, which ensures it withstands rough play by younger fans. Collectors will appreciate the detailed craftsmanship that makes it a valuable addition to any Godzilla memorabilia collection. Although the articulation is somewhat limited, the figure’s size and sound effects compensate by fostering imaginative scenarios and enhancing the overall experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09XQBXJS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09XQBXJS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09LGX4SBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Twcare Mechagodzilla Mecha Godzilla Vs. Kong Toy Action Figure</a>
+## <a href="https://www.amazon.com/dp/B09LGX4SBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Twcare Mechagodzilla Mecha Godzilla Vs. Kong Toy Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B09LGX4SBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TwCare MechaGodzilla Mecha Godzilla vs. Kong Toy Action Figure, 2021 Movie Series Movable Joints King of The Monsters Birthday Kid Gift, Travel Bag" src="https://m.media-amazon.com/images/I/51DL8nK6u9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09LGX4SBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TwCare MechaGodzilla Mecha Godzilla vs. Kong Toy Action Figure, 2021 Movie Series Movable Joints King of The Monsters Birthday Kid Gift, Travel Bag" src="https://m.media-amazon.com/images/I/51DL8nK6u9L._SL500_.jpg"/></a>
 
 
 The **TwCare MechaGodzilla Mecha Godzilla vs. Kong Toy Action Figure** is perfect for fans of the **2021 movie series** and collectors of **King of The Monsters** memorabilia. Ideal for children who enjoy imaginative play and adults who appreciate detailed, movable action figures, this toy also makes a great birthday gift or travel companion for enthusiasts of the iconic battle between Mecha Godzilla and Kong.
@@ -105,12 +105,12 @@ The **TwCare MechaGodzilla action figure** stands out with its well-crafted mova
 
 Beyond aesthetics, the action figure promotes creativity and imaginative play for children, encouraging storytelling and role-playing inspired by the movie series. For adult collectors, it offers a valuable addition to any **King of The Monsters collection**, combining both display appeal and functional articulation. Overall, this figure balances quality, portability, and movie authenticity, making it a versatile gift choice for fans of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09LGX4SBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09LGX4SBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08ZYT47SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monsterverse Godzilla Vs Kong Hollow Earth Monsters Mechagodzilla</a>
+## <a href="https://www.amazon.com/dp/B08ZYT47SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monsterverse Godzilla Vs Kong Hollow Earth Monsters Mechagodzilla</a>
 
 
-<a href="https://www.amazon.com/dp/B08ZYT47SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MonsterVerse MNG01610 Godzilla vs Kong 6" earth="" hollow="" mechagodzilla"="" monsters="" src="https://m.media-amazon.com/images/I/515tZHHlHVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08ZYT47SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MonsterVerse MNG01610 Godzilla vs Kong 6" earth="" hollow="" mechagodzilla"="" monsters="" src="https://m.media-amazon.com/images/I/515tZHHlHVL._SL500_.jpg"/></a>
 
 
 The **MonsterVerse MNG01610 Godzilla vs Kong 6" Hollow Earth Monsters MechaGodzilla** is ideal for collectors and fans of the iconic MonsterVerse series, especially those who appreciate detailed action figures. This item suits both children who enjoy imaginative play and adults who seek to expand their collection with high-quality, branded memorabilia.
@@ -131,12 +131,12 @@ The **MonsterVerse MNG01610 Godzilla vs Kong MechaGodzilla** figure offers a per
 
 Crafted by the established brands **Giochi Preziosi** and **Flair Leisure Products**, this figure assures quality and durability, which means it can withstand handling by younger fans while still satisfying the standards of adult collectors. The figure’s design draws on the Hollow Earth Monsters theme, immersing fans into the cinematic universe and enhancing their overall experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08ZYT47SK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08ZYT47SK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B076KGLQRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bandai Godzilla Movie Monster Series Mechagodzilla</a>
+## <a href="https://www.amazon.com/dp/B076KGLQRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bandai Godzilla Movie Monster Series Mechagodzilla</a>
 
 
-<a href="https://www.amazon.com/dp/B076KGLQRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bandai Godzilla Movie Monster Series Mechagodzilla (Heavily Armed Type)" src="https://m.media-amazon.com/images/I/41w+wm9cxAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076KGLQRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bandai Godzilla Movie Monster Series Mechagodzilla (Heavily Armed Type)" src="https://m.media-amazon.com/images/I/41w+wm9cxAL._SL500_.jpg"/></a>
 
 
 The **Bandai Godzilla Movie Monster Series Mechagodzilla (Heavily Armed Type)** is ideal for collectors and fans of the Godzilla franchise who appreciate detailed and articulated action figures. This item is perfect for those who enjoy displaying iconic movie monsters or engaging in imaginative play with highly detailed models. Enthusiasts looking for a premium, durable, and visually striking representation of Mechagodzilla will find this product especially appealing.
@@ -157,12 +157,12 @@ The **Mechagodzilla (Heavily Armed Type)** features intricate mechanical details
 
 Aside from its impressive aesthetics, this figure is constructed with quality materials from the trusted **Bandai** brand, ensuring long-lasting durability. The compact dimensions allow it to fit seamlessly into existing collections or limited display spaces without overwhelming the area. Overall, the Bandai Godzilla Movie Monster Series Mechagodzilla combines collectible appeal with functional design, offering both visual satisfaction and playability for fans and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B076KGLQRK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B076KGLQRK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BKPZK2JH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jaykenixo New Mecha Dragon Movie Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0BKPZK2JH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jaykenixo New Mecha Dragon Movie Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKPZK2JH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JAYKENIXO New Mecha Dragon Movie Action Figure - Dragon Monster Toy Size 7’’ Carry Bag Included" src="https://m.media-amazon.com/images/I/418RCQ1KarL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKPZK2JH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JAYKENIXO New Mecha Dragon Movie Action Figure - Dragon Monster Toy Size 7’’ Carry Bag Included" src="https://m.media-amazon.com/images/I/418RCQ1KarL._SL500_.jpg"/></a>
 
 
 The **JAYKENIXO New Mecha Dragon Movie Action Figure** is ideal for collectors, movie enthusiasts, and children who love imaginative play with detailed toys. If you are looking for a unique **dragon monster toy** that combines quality craftsmanship with portability, this 7-inch action figure with a carry bag is perfect for you. It suits those who appreciate **compact, durable, and visually striking collectibles**.
@@ -183,12 +183,12 @@ The **JAYKENIXO New Mecha Dragon Movie Action Figure** stands out due to its com
 
 Manufactured by **dsgaega4**, this action figure balances lightweight construction with sturdy materials, ensuring it can withstand rough play without sacrificing its intricate details. Its size and weight make it suitable for children to handle comfortably, while collectors will appreciate the precision and movie-inspired design elements. Overall, this toy delivers both aesthetic appeal and practical convenience in a single package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BKPZK2JH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BKPZK2JH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B15B5PBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monsterverse Godzilla Vs Kong Collectable Mechagodzilla Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0B15B5PBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monsterverse Godzilla Vs Kong Collectable Mechagodzilla Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0B15B5PBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MonsterVerse Godzilla vs Kong Collectable 7 Inch Deluxe, Highly Detailed and Sculpted Articulated Mechagodzilla Action Figure, with Battle Roar Sounds, Suitable for Ages 4 Years+" src="https://m.media-amazon.com/images/I/41eWTAAAmiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B15B5PBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MonsterVerse Godzilla vs Kong Collectable 7 Inch Deluxe, Highly Detailed and Sculpted Articulated Mechagodzilla Action Figure, with Battle Roar Sounds, Suitable for Ages 4 Years+" src="https://m.media-amazon.com/images/I/41eWTAAAmiL._SL500_.jpg"/></a>
 
 
 The **MonsterVerse Godzilla vs Kong Collectable 7 Inch Deluxe** action figure is perfect for fans of the MonsterVerse franchise, collectors of detailed memorabilia, and children aged 4 years and older who enjoy imaginative play. This highly detailed and articulated **Mechagodzilla action figure** is ideal for anyone looking to add a dynamic and interactive piece to their collection or gift a thrilling toy that combines craftsmanship with engaging features.
@@ -211,12 +211,12 @@ The **MonsterVerse Godzilla vs Kong Collectable** stands out due to its impressi
 
 One of the key features is the inclusion of **battle roar sounds**, which elevate the toy experience by adding an auditory dimension to the action. This feature is especially engaging for younger users, providing interactive play that stimulates imagination. The durable build and age-appropriate design ensure that it is safe and enjoyable for children, while the collector-quality sculpting appeals to enthusiasts looking for authenticity and detail in their MonsterVerse memorabilia.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B15B5PBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B15B5PBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C9BPL3FV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Twcare Fire Godzilla Vs. Kong 2021 Toy</a>
+## <a href="https://www.amazon.com/dp/B0C9BPL3FV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Twcare Fire Godzilla Vs. Kong 2021 Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9BPL3FV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TwCare Fire Godzilla vs. Kong 2021 Toy Burning Action Figure: Flaming King of The Monsters, Movie Series Movable Joints Soft Vinyl, Travel Bag" src="https://m.media-amazon.com/images/I/51-sLqOxbPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9BPL3FV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TwCare Fire Godzilla vs. Kong 2021 Toy Burning Action Figure: Flaming King of The Monsters, Movie Series Movable Joints Soft Vinyl, Travel Bag" src="https://m.media-amazon.com/images/I/51-sLqOxbPL._SL500_.jpg"/></a>
 
 
 The **TwCare Fire Godzilla vs. Kong 2021 Toy Burning Action Figure** is ideal for collectors, movie enthusiasts, and children who love dynamic and interactive toys. If you are a fan of the **Godzilla vs. Kong movie series** or enjoy action figures with detailed designs and movable joints, this toy is perfect for you. It also suits parents looking for a durable and entertaining toy that can be easily transported thanks to its included travel bag.
@@ -239,12 +239,12 @@ The **TwCare Fire Godzilla vs. Kong 2021 Toy Burning Action Figure** features a 
 
 Additionally, the figure's dimensions—6 inches tall, 3.5 inches wide, and 12.5 inches long—make it a versatile piece that fits well on shelves, desks, or in display cases. The inclusion of a **travel bag** adds a practical benefit, making it easy to take your collectible on the go without worrying about damage. This thoughtful feature appeals to both collectors and kids who want to enjoy their toy outside the home.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C9BPL3FV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C9BPL3FV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B098D8T14M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Twcare Godzilla Vs. Mecha King Ghidorah Action Figures</a>
+## <a href="https://www.amazon.com/dp/B098D8T14M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Twcare Godzilla Vs. Mecha King Ghidorah Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B098D8T14M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TwCare Godzilla vs. Mecha King Ghidorah, 2021 Movie Series Movable Joints King of The Monsters Action Figures Birthday Kid Gift, Carry Bag" src="https://m.media-amazon.com/images/I/51690VznxDS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098D8T14M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TwCare Godzilla vs. Mecha King Ghidorah, 2021 Movie Series Movable Joints King of The Monsters Action Figures Birthday Kid Gift, Carry Bag" src="https://m.media-amazon.com/images/I/51690VznxDS._SL500_.jpg"/></a>
 
 
 The **TwCare Godzilla vs. Mecha King Ghidorah** action figure is ideal for **collectors**, **fans of the 2021 Movie Series "King of The Monsters"**, and **kids looking for an engaging birthday gift**. If you appreciate highly detailed, **movable joint** figures that allow for dynamic posing, this item is perfect for you. Its **multicolor design** and **carry bag** make it both a display piece and a portable toy, suitable for enthusiasts of all ages.
@@ -267,12 +267,12 @@ The **TwCare Godzilla vs. Mecha King Ghidorah** figure stands out due to its **m
 
 Additionally, the inclusion of a **carry bag** ensures that the figure can be transported safely, whether it's to a friend's house, a collector's event, or simply for storage. Its manageable **dimensions** and **lightweight design** make it suitable for children, while still maintaining the quality and detail that adult collectors seek. Overall, this figure balances functionality, aesthetics, and portability, making it a thoughtful gift or a prized collectible.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B098D8T14M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B098D8T14M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09NKS4CK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Godzilla Vs Kong Monsterverse Movie Series 6-inch Action Figure Battle Mechagodzilla</a>
+## <a href="https://www.amazon.com/dp/B09NKS4CK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Godzilla Vs Kong Monsterverse Movie Series 6-inch Action Figure Battle Mechagodzilla</a>
 
 
-<a href="https://www.amazon.com/dp/B09NKS4CK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Godzilla vs Kong MonsterVerse Movie Series 6-inch Action Figure Battle Mechagodzilla with Proton Scream" src="https://m.media-amazon.com/images/I/41Q36YsJtPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NKS4CK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Godzilla vs Kong MonsterVerse Movie Series 6-inch Action Figure Battle Mechagodzilla with Proton Scream" src="https://m.media-amazon.com/images/I/41Q36YsJtPL._SL500_.jpg"/></a>
 
 
 The **Godzilla vs Kong MonsterVerse Movie Series 6-inch Action Figure Battle Mechagodzilla with Proton Scream** is ideal for collectors, fans of the MonsterVerse franchise, and children who enjoy imaginative play with detailed action figures. If you appreciate high-quality, movie-accurate replicas or want to expand your collection with a dynamic and colorful character, this figure is a perfect choice. It also suits anyone looking for a unique gift related to the iconic battle between Godzilla and Kong.
@@ -296,7 +296,7 @@ This **6-inch action figure** stands out for its precise dimensions, measuring a
 
 Featuring the iconic **Proton Scream** ability, this action figure invites users to recreate thrilling battle scenes between Godzilla and Kong, stimulating creativity and imagination. Manufactured by **Flair Leisure Products**, it guarantees durability and quality. Overall, this action figure combines impressive detail, compact size, and interactive features, making it a valuable addition to any MonsterVerse collection or playroom.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09NKS4CK4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09NKS4CK4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

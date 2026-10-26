@@ -23,10 +23,10 @@ Creative toys like the Spider-Man Magic Slate add artistic play. Mini party buck
 
 
 
-## <a href="https://www.amazon.com/dp/B0CXXBBW4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Venom Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0CXXBBW4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Venom Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXXBBW4Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Venom Action Figure Legends Series Collectible Superheros Toy Ideal Gift for Kids 12 inch (Carnage), Black" src="https://m.media-amazon.com/images/I/41unxLWyL+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXXBBW4Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Venom Action Figure Legends Series Collectible Superheros Toy Ideal Gift for Kids 12 inch (Carnage), Black" src="https://m.media-amazon.com/images/I/41unxLWyL+L._SL500_.jpg"/></a>
 
 
 The **Venom Action Figure Legends Series Collectible Superheros Toy** is perfect for fans of the Marvel universe, especially those who love the character Carnage. Ideal for kids aged 12 and up, collectors, and superhero enthusiasts, this 12-inch figure offers a detailed and dynamic representation that makes it a great addition to any collection or a thrilling gift for young fans.
@@ -49,10 +49,10 @@ The **Venom Action Figure Legends Series** stands out with its impressive crafts
 
 Crafted by **AvengerSeries**, this action figure balances durability with aesthetic appeal, ensuring it withstands play while maintaining its collectible value. Its compact size allows for easy placement in any room or collection, making it a versatile gift option. Overall, this **Venom collectible** merges visual impact with functional design, making it a must-have for Marvel fans and toy collectors alike.
 
-## <a href="https://www.amazon.com/dp/B084D485YH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playskool Heroes Marvel Super Hero Adventures Collectible 5-inch Miles Morales Action Figure Toy</a>
+## <a href="https://www.amazon.com/dp/B084D485YH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playskool Heroes Marvel Super Hero Adventures Collectible 5-inch Miles Morales Action Figure Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B084D485YH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Playskool Heroes Marvel Super Hero Adventures Collectible 5-Inch Miles Morales Action Figure Toy with Web Accessory, Kids Ages 3 and Up" src="https://m.media-amazon.com/images/I/41jXZK33BpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084D485YH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Playskool Heroes Marvel Super Hero Adventures Collectible 5-Inch Miles Morales Action Figure Toy with Web Accessory, Kids Ages 3 and Up" src="https://m.media-amazon.com/images/I/41jXZK33BpL._SL500_.jpg"/></a>
 
 
 The **Playskool Heroes Marvel Super Hero Adventures Collectible 5-Inch Miles Morales Action Figure Toy** is ideal for young children aged 3 and up who are fans of Marvel superheroes, especially those who admire the character **Miles Morales**. This toy is perfect for parents and gift-givers looking to inspire imaginative play while introducing kids to superhero adventures in a safe and engaging way.
@@ -75,10 +75,10 @@ This **5-inch Miles Morales action figure** stands out for its child-friendly de
 
 Crafted by **Hasbro**, the figure assures quality and durability, making it a reliable toy that can withstand energetic play. Its **black color scheme** authentically represents Miles Morales’ costume, helping kids connect more deeply with the character. Overall, this action figure serves as a wonderful introduction to the Marvel universe for young fans, combining fun, imagination, and safe play in one collectible item.
 
-## <a href="https://www.amazon.com/dp/B0FHC5Y2G8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Hero Costume</a>
+## <a href="https://www.amazon.com/dp/B0FHC5Y2G8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Hero Costume</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHC5Y2G8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Hero Costume for Boy and Girl, Kids Superhero Cape and Mask Halloween Dress Up, Toys for 3-10 Year Old Girls Boys" src="https://m.media-amazon.com/images/I/31RGmuelu9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHC5Y2G8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Super Hero Costume for Boy and Girl, Kids Superhero Cape and Mask Halloween Dress Up, Toys for 3-10 Year Old Girls Boys" src="https://m.media-amazon.com/images/I/31RGmuelu9L._SL500_.jpg"/></a>
 
 
 The **Super Hero Costume for Boy and Girl** is perfect for parents looking to delight their children aged 3-10 with a fun and imaginative dress-up experience. Ideal for kids who love to role-play as their favorite superheroes, this costume set includes a vibrant **blue cape and mask** designed to inspire creativity and active play during Halloween, birthday parties, or everyday adventures.
@@ -101,10 +101,10 @@ This **kids superhero cape and mask** set is crafted from quality materials that
 
 Designed with versatility in mind, this costume is perfect for a variety of occasions such as **Halloween, themed parties, or casual playtime**. The lightweight fabric and secure mask provide safety and comfort, giving parents peace of mind. Overall, the **Super Hero Costume for Boy and Girl** offers an engaging and creative way for children to express themselves and enjoy hours of superhero adventures.
 
-## <a href="https://www.amazon.com/dp/B018CZXCFE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U.s. Toy Assorted Super Hero Comic Book Theme Mini Metal Party Buckets</a>
+## <a href="https://www.amazon.com/dp/B018CZXCFE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U.s. Toy Assorted Super Hero Comic Book Theme Mini Metal Party Buckets</a>
 
 
-<a href="https://www.amazon.com/dp/B018CZXCFE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U.S. Toy (TU242) Assorted Super Hero Comic Book Theme Mini Metal Party Buckets (12 Pack)" src="https://m.media-amazon.com/images/I/51tUYdW6A9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B018CZXCFE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U.S. Toy (TU242) Assorted Super Hero Comic Book Theme Mini Metal Party Buckets (12 Pack)" src="https://m.media-amazon.com/images/I/51tUYdW6A9L._SL500_.jpg"/></a>
 
 
 The **U.S. Toy (TU242) Assorted Super Hero Comic Book Theme Mini Metal Party Buckets (12 Pack)** is ideal for parents, party planners, and event organizers who want to add a fun and vibrant touch to children's birthday parties or themed events. If you are looking for an engaging way to distribute party favors or treats, especially for fans of superheroes and comic books, this set is perfect for you.
@@ -127,10 +127,10 @@ These **mini metal party buckets** stand out for their vibrant comic book superh
 
 Additionally, the lightweight nature of these buckets makes them easy to carry and distribute among guests. Whether filled with candies, small toys, or other goodies, they add a visually appealing and practical element to any party. The bright and assorted designs celebrate popular superhero motifs, making them especially attractive to young fans and enhancing the overall party atmosphere with a fun, comic book flair.
 
-## <a href="https://www.amazon.com/dp/B000M69KI0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Squad Ultimate Captain America &amp; Nk Fury</a>
+## <a href="https://www.amazon.com/dp/B000M69KI0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Squad Ultimate Captain America &amp; Nk Fury</a>
 
 
-<a href="https://www.amazon.com/dp/B000M69KI0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Squad Ultimate Captain America &amp; NK Fury" src="https://m.media-amazon.com/images/I/41z1ZKEZAqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000M69KI0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Squad Ultimate Captain America &amp; NK Fury" src="https://m.media-amazon.com/images/I/41z1ZKEZAqL._SL500_.jpg"/></a>
 
 
 The **Marvel Super Hero Squad Ultimate Captain America & NK Fury** is perfect for young fans of the Marvel universe who enjoy action-packed playtime and collectible figures. Ideal for children aged 4 and up, as well as collectors looking to expand their superhero collection, this set offers a fun and engaging way to bring favorite characters to life.
@@ -152,10 +152,10 @@ The **Marvel Super Hero Squad Ultimate Captain America & NK Fury** features a co
 
 Moreover, the inclusion of two fan-favorite characters, Captain America and Nick Fury, allows users to recreate classic Marvel storylines or invent new adventures. The set’s manageable size and portability make it easy to take on the go, encouraging creative play anytime and anywhere. Overall, this item combines quality, fun, and convenience in a way that appeals to young enthusiasts and Marvel aficionados.
 
-## <a href="https://www.amazon.com/dp/B0DDSPGRRT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lexibook Spider-man Magic Slate</a>
+## <a href="https://www.amazon.com/dp/B0DDSPGRRT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lexibook Spider-man Magic Slate</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDSPGRRT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 1="" 6="" alt="Lexibook, Spider-Man, Magic Slate, Artistic and Creative Toy for Girls and Boys, Multicoloured Drawings, 11" and="" blue,="" crt10sp"="" includes="" screen,="" src="https://m.media-amazon.com/images/I/41jIS3ScsGL._SL500_.jpg" stencils,="" stylus=""/></a>
+<a href="https://www.amazon.com/dp/B0DDSPGRRT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 1="" 6="" alt="Lexibook, Spider-Man, Magic Slate, Artistic and Creative Toy for Girls and Boys, Multicoloured Drawings, 11" and="" blue,="" crt10sp"="" includes="" screen,="" src="https://m.media-amazon.com/images/I/41jIS3ScsGL._SL500_.jpg" stencils,="" stylus=""/></a>
 
 
 The **Lexibook Spider-Man Magic Slate** is perfect for young **girls and boys** who love to explore their **artistic and creative** side. Ideal for children who enjoy drawing and imaginative play, this toy combines fun with skill development, making it a great choice for parents looking to encourage their child's creativity in an engaging way.
@@ -178,10 +178,10 @@ The **Lexibook Spider-Man Magic Slate** features an **11-inch screen** designed 
 
 One of the key benefits of this artistic toy is its eco-friendly nature, as children can create and erase drawings repeatedly without the need for paper. The vibrant **multicoloured display** keeps young artists engaged, while the **Spider-Man theme** makes it especially attractive to fans of the character, encouraging longer playtime and imaginative storytelling. Overall, the Lexibook Magic Slate is a delightful tool for fostering creativity and artistic development in young kids.
 
-## <a href="https://www.amazon.com/dp/B07WGHZMGX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07WGHZMGX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07WGHZMGX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BATMAN, 12-Inch Rebirth Tactical BATMAN Action Figure" src="https://m.media-amazon.com/images/I/41CGUkNwArL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WGHZMGX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BATMAN, 12-Inch Rebirth Tactical BATMAN Action Figure" src="https://m.media-amazon.com/images/I/41CGUkNwArL._SL500_.jpg"/></a>
 
 
 The **BATMAN, 12-Inch Rebirth Tactical BATMAN Action Figure** is perfect for collectors, superhero enthusiasts, and children aged 6 and above who enjoy imaginative play. If you're a fan of the iconic **BATMAN** character or looking for a detailed and durable action figure to add to your collection, this item is an excellent choice. Its size and design make it suitable for both display and interactive play.
@@ -204,10 +204,10 @@ This **BATMAN action figure** stands out with its impressive attention to detail
 
 The figure’s size is ideal for fans who want a sizable but manageable collectible. Its lightweight nature allows younger fans to engage in imaginative scenarios featuring Gotham’s Dark Knight without difficulty. While it might lack extensive articulation, the figure compensates with a strong presence and authentic look, making it an excellent addition for both casual fans and serious collectors.
 
-## <a href="https://www.amazon.com/dp/B00Q87YXNO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Mashers Iron Man Figure</a>
+## <a href="https://www.amazon.com/dp/B00Q87YXNO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Mashers Iron Man Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B00Q87YXNO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Mashers Iron Man Figure" src="https://m.media-amazon.com/images/I/51lwMs+3ilL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00Q87YXNO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Mashers Iron Man Figure" src="https://m.media-amazon.com/images/I/51lwMs+3ilL._SL500_.jpg"/></a>
 
 
 The **Marvel Super Hero Mashers Iron Man Figure** is perfect for young fans of the Marvel universe and collectors looking for a dynamic and customizable action figure. Ideal for children aged 4 and above who enjoy imaginative play, this figure also appeals to Marvel enthusiasts who want to expand their collection with a versatile and iconic character.
@@ -229,10 +229,10 @@ The **Marvel Super Hero Mashers Iron Man Figure** stands out with its striking *
 
 Crafted by **Hasbro**, a leader in the toy industry, this figure balances quality and affordability. The durable materials ensure it can withstand active play sessions, while the detailed sculpting satisfies collectors. Although the articulation is somewhat limited, the figure’s mix-and-match feature compensates by providing unique ways to personalize your superhero lineup, making it a versatile addition to any Marvel fan’s collection.
 
-## <a href="https://www.amazon.com/dp/B0DPQCLM4B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plush Toys Wonderland Superbear Hero Costume</a>
+## <a href="https://www.amazon.com/dp/B0DPQCLM4B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plush Toys Wonderland Superbear Hero Costume</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPQCLM4B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plush Toys Wonderland SuperBear Hero Costume with Mask Fits 6 to 10 Inch Stuffed Animals, Superhero Outfit for Teddy Toys, Build-A-Bear Compatible Clothes Dress-Up Set Make Your Own for Kids Gift" src="https://m.media-amazon.com/images/I/41DstSgBHEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPQCLM4B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plush Toys Wonderland SuperBear Hero Costume with Mask Fits 6 to 10 Inch Stuffed Animals, Superhero Outfit for Teddy Toys, Build-A-Bear Compatible Clothes Dress-Up Set Make Your Own for Kids Gift" src="https://m.media-amazon.com/images/I/41DstSgBHEL._SL500_.jpg"/></a>
 
 
 The **Plush Toys Wonderland SuperBear Hero Costume with Mask** is perfect for parents, gift-givers, and kids who love to bring their **stuffed animals** to life with imaginative play. Ideal for children who enjoy dressing up their teddy bears or other plush toys, this **superhero outfit** fits **6 to 10 inch stuffed animals** and is compatible with popular brands like **Build-A-Bear**. It’s a delightful gift for young kids who want to create their own heroic adventures with their cuddly companions.
@@ -255,10 +255,10 @@ This **SuperBear Hero Costume** offers exceptional quality and design, tailored 
 
 Made by **PLUSH TOYS WONDERLAND**, the costume boasts durable materials that withstand repeated wear and play. The included mask adds an extra layer of fun, transforming any teddy bear into a heroic figure ready for imaginative missions. Whether used as a birthday gift or a special treat, this superhero outfit enhances the play experience and fosters creativity in young minds.
 
-## <a href="https://www.amazon.com/dp/B09498R5DB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wow! Pods Avengers Collection - Limited Edition Symbiote Spider-man</a>
+## <a href="https://www.amazon.com/dp/B09498R5DB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wow! Pods Avengers Collection - Limited Edition Symbiote Spider-man</a>
 
 
-<a href="https://www.amazon.com/dp/B09498R5DB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOW! PODS Avengers Collection - Limited Edition Symbiote Spider-Man | Superhero Light-Up Bobble-Head Figure | Official Marvel Collectable Toys &amp; Gifts, 4 inches" src="https://m.media-amazon.com/images/I/51PLJ--0PyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09498R5DB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOW! PODS Avengers Collection - Limited Edition Symbiote Spider-Man | Superhero Light-Up Bobble-Head Figure | Official Marvel Collectable Toys &amp; Gifts, 4 inches" src="https://m.media-amazon.com/images/I/51PLJ--0PyL._SL500_.jpg"/></a>
 
 
 Ideal for **Marvel fans**, **collectors**, and anyone who loves unique superhero memorabilia, the **WOW! PODS Avengers Collection - Limited Edition Symbiote Spider-Man** is perfect for those seeking a compact yet impressive addition to their display. This **4-inch light-up bobble-head figure** combines iconic design with collectible value, making it an excellent gift or personal treasure for enthusiasts of all ages.

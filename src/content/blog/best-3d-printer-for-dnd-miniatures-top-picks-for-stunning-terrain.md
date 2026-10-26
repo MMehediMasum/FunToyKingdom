@@ -22,10 +22,10 @@ Choosing the right resin also impacts strength and paintability. Products like S
 
 
 
-## <a href="https://www.amazon.com/dp/B077PDXSS4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Endertoys Cottage Bundle</a>
+## <a href="https://www.amazon.com/dp/B077PDXSS4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Endertoys Cottage Bundle</a>
 
 
-<a href="https://www.amazon.com/dp/B077PDXSS4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EnderToys Cottage Bundle, Terrain Scenery for Tabletop 28mm Miniatures Wargame, 3D Printed and Paintable" src="https://m.media-amazon.com/images/I/51M12wKFXrS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077PDXSS4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EnderToys Cottage Bundle, Terrain Scenery for Tabletop 28mm Miniatures Wargame, 3D Printed and Paintable" src="https://m.media-amazon.com/images/I/51M12wKFXrS._SL500_.jpg"/></a>
 
 
 The **EnderToys Cottage Bundle** is perfect for tabletop wargame enthusiasts and miniature painters looking to enhance their gaming terrain. Ideal for players using **28mm miniatures**, this bundle offers detailed and customizable scenery pieces that add depth and realism to any battlefield. Whether you're a hobbyist aiming to create immersive settings or a gamer seeking to elevate your tabletop experience, this terrain set is designed to meet your needs.
@@ -48,10 +48,10 @@ The **EnderToys Cottage Bundle** features intricately designed 3D printed pieces
 
 Additionally, this terrain set's lightweight design makes it convenient for gamers who frequently attend tournaments or gaming sessions elsewhere. The sturdy 3D printed material ensures durability during regular use while maintaining detailed aesthetics. Overall, the EnderToys Cottage Bundle provides both functional and artistic value to your tabletop setup, making it a worthwhile investment for dedicated wargamers and miniature painters alike.
 
-## <a href="https://www.amazon.com/dp/B0DB887MCD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anycubic Photon Mono 4</a>
+## <a href="https://www.amazon.com/dp/B0DB887MCD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anycubic Photon Mono 4</a>
 
 
-<a href="https://www.amazon.com/dp/B0DB887MCD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ANYCUBIC Photon Mono 4, Resin 3D Printer with 7'' 10K Mono LCD Screen, Stable LighTurbo Light Source and 70mm/h Fast Printing, Print Volume 6.04'' x 3.42'' x 6.49''" src="https://m.media-amazon.com/images/I/41DBfcEkUEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DB887MCD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ANYCUBIC Photon Mono 4, Resin 3D Printer with 7'' 10K Mono LCD Screen, Stable LighTurbo Light Source and 70mm/h Fast Printing, Print Volume 6.04'' x 3.42'' x 6.49''" src="https://m.media-amazon.com/images/I/41DBfcEkUEL._SL500_.jpg"/></a>
 
 
 The **ANYCUBIC Photon Mono 4** is an excellent choice for hobbyists, designers, and professionals seeking precise and fast **resin 3D printing**. Ideal for those who require high-detail models with smooth finishes, this printer suits users looking to create miniatures, prototypes, or intricate parts with ease. Its combination of speed and quality makes it perfect for both beginners and experienced users aiming to enhance their 3D printing projects.
@@ -74,10 +74,10 @@ The **ANYCUBIC Photon Mono 4** stands out with its advanced **10K Mono LCD scree
 
 Additionally, the printer's ability to achieve a fast print speed of **70mm/h** significantly reduces waiting times, making it efficient for rapid prototyping and iterative design processes. Its moderate print volume allows users to produce a wide range of parts without requiring an excessively large machine, preserving workspace while maintaining versatility. The compact dimensions and lightweight build further enhance its usability, enabling easy setup and portability within workspaces.
 
-## <a href="https://www.amazon.com/dp/B077JGHS6J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Endertoys Mausoleum Graveyard Scene</a>
+## <a href="https://www.amazon.com/dp/B077JGHS6J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Endertoys Mausoleum Graveyard Scene</a>
 
 
-<a href="https://www.amazon.com/dp/B077JGHS6J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EnderToys Mausoleum Graveyard Scene, Terrain Scenery for Tabletop 28mm Miniatures Wargame, 3D Printed and Paintable" src="https://m.media-amazon.com/images/I/41NpB7ocXTS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077JGHS6J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EnderToys Mausoleum Graveyard Scene, Terrain Scenery for Tabletop 28mm Miniatures Wargame, 3D Printed and Paintable" src="https://m.media-amazon.com/images/I/41NpB7ocXTS._SL500_.jpg"/></a>
 
 
 The **EnderToys Mausoleum Graveyard Scene** is perfect for tabletop wargamers and miniature painters who seek to enhance their 28mm gaming environments with detailed, thematic terrain. Ideal for hobbyists who enjoy customizing their battlefield setups, this 3D printed and paintable scenery piece adds a hauntingly realistic touch to any graveyard-themed game or diorama.
@@ -99,10 +99,10 @@ The **EnderToys Mausoleum Graveyard Scene** offers intricate sculptural detail t
 
 Additionally, the paintable nature of this terrain piece empowers users to personalize their scenery, matching color schemes and weathering effects to their unique game world. Its manageable size and lightweight build make it easy to integrate into existing setups without overwhelming the table space. Overall, this terrain scenery from **EnderToys** is a valuable addition for enthusiasts looking to elevate their miniature wargaming experience.
 
-## <a href="https://www.amazon.com/dp/B0CLWX2XBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skinny Minis D&amp;d Compatible Miniatures</a>
+## <a href="https://www.amazon.com/dp/B0CLWX2XBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Skinny Minis D&amp;d Compatible Miniatures</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLWX2XBK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skinny Minis D&amp;D Compatible Miniatures, Human Villains, DND Acrylic Mini Figures, Double-Sided for DND Characters, Durable Tabletop RPG Miniatures" src="https://m.media-amazon.com/images/I/51EqHf+coYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLWX2XBK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Skinny Minis D&amp;D Compatible Miniatures, Human Villains, DND Acrylic Mini Figures, Double-Sided for DND Characters, Durable Tabletop RPG Miniatures" src="https://m.media-amazon.com/images/I/51EqHf+coYL._SL500_.jpg"/></a>
 
 
 The **Skinny Minis D&D Compatible Miniatures** featuring **Human Villains** are ideal for tabletop RPG enthusiasts and **Dungeons & Dragons** players who want to enhance their gaming experience with detailed, double-sided miniatures. If you are a Dungeon Master or a player looking to bring your characters and villains to life with durable and visually appealing figures, these miniatures are a perfect choice. They cater especially well to gamers who prefer compact, lightweight pieces that fit seamlessly into any game setup.
@@ -125,10 +125,10 @@ The **Skinny Minis D&D Compatible Miniatures** are crafted by **Dungeon in a Box
 
 Made from durable acrylic, these miniatures withstand the rigors of frequent gaming sessions while maintaining their vibrant appearance. The lightweight nature of the figures, weighing only 0.1 pounds, means they are easy to transport and reposition during play. Whether you are a seasoned Dungeon Master looking to add intrigue to your game or a player wanting to personalize your characters, these miniatures offer a practical and aesthetically pleasing solution for tabletop RPG enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0D3TSB2GW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Mars 5 Resin 3d Printer</a>
+## <a href="https://www.amazon.com/dp/B0D3TSB2GW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Mars 5 Resin 3d Printer</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3TSB2GW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Mars 5 Resin 3D Printer with 4K Mono LCD,Automatic Leveling, Desktop 3D Printer with Printing Size of 5.65 * 3.53 * 5.91 inches" src="https://m.media-amazon.com/images/I/51A5H61MNrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3TSB2GW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO Mars 5 Resin 3D Printer with 4K Mono LCD,Automatic Leveling, Desktop 3D Printer with Printing Size of 5.65 * 3.53 * 5.91 inches" src="https://m.media-amazon.com/images/I/51A5H61MNrL._SL500_.jpg"/></a>
 
 
 The **ELEGOO Mars 5 Resin 3D Printer** is ideal for hobbyists, professionals, and small businesses looking for a precise and reliable desktop 3D printer. If you want to create highly detailed models, prototypes, or miniatures with ease, this **4K Mono LCD** printer offers the perfect balance of quality and convenience. Its compact size and user-friendly features make it suitable for both beginners and experienced users who need consistent, high-resolution prints.
@@ -151,10 +151,10 @@ The **ELEGOO Mars 5** features a **4K Mono LCD** screen that delivers exceptiona
 
 Designed for desktop use, its compact dimensions make it a great fit for home offices or small workshops. The printer’s build quality and stable frame ensure reliable performance over time. With a print volume of **5.65 x 3.53 x 5.91 inches**, it accommodates a wide range of projects while maintaining a manageable footprint. Overall, the ELEGOO Mars 5 combines advanced features with ease of use to provide a powerful resin 3D printing solution.
 
-## <a href="https://www.amazon.com/dp/B0D14HQFGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Siraya Tech Tenacious Easy Grey 3d Printer Resin</a>
+## <a href="https://www.amazon.com/dp/B0D14HQFGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Siraya Tech Tenacious Easy Grey 3d Printer Resin</a>
 
 
-<a href="https://www.amazon.com/dp/B0D14HQFGN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Siraya Tech Tenacious Easy Grey 3D Printer Resin, Easy-to-Print Flexible Resin with High Impact Resistance, Great Resolution, and High Toughness - No Mixing Needed, Perfect for MSLA/DLP/SLA, 2kg" src="https://m.media-amazon.com/images/I/41POBlMZS8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D14HQFGN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Siraya Tech Tenacious Easy Grey 3D Printer Resin, Easy-to-Print Flexible Resin with High Impact Resistance, Great Resolution, and High Toughness - No Mixing Needed, Perfect for MSLA/DLP/SLA, 2kg" src="https://m.media-amazon.com/images/I/41POBlMZS8L._SL500_.jpg"/></a>
 
 
 The **Siraya Tech Tenacious Easy Grey 3D Printer Resin** is ideal for hobbyists and professionals seeking a **flexible yet durable** resin that delivers **high impact resistance** and **great resolution**. If you need a reliable material for **MSLA, DLP, or SLA** 3D printing that requires no mixing and offers **high toughness**, this resin is perfect for you.
@@ -178,10 +178,10 @@ The **Siraya Tech Tenacious Easy Grey Resin** stands out with its blend of **fle
 
 Additionally, the **great resolution** capability of this resin means users can achieve precise and smooth details in their prints, which is essential for professional prototypes and functional parts. The compatibility with multiple printing technologies like **MSLA, DLP, and SLA** broadens its usability, making it a versatile choice for various 3D printing setups. Overall, the Siraya Tech Tenacious Easy Grey resin combines ease of use with high performance, catering to users who value both quality and durability in their prints.
 
-## <a href="https://www.amazon.com/dp/B0CXHS15ZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Abs-like 3d Printer Resin</a>
+## <a href="https://www.amazon.com/dp/B0CXHS15ZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Elegoo Abs-like 3d Printer Resin</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXHS15ZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO ABS-Like 3D Printer Resin LCD UV-Curing Resin 405nm Standard Photopolymer Resin for Mars Saturn Jupiter MSLA DLP LCD 3D Printing Smoky Black 2000g" src="https://m.media-amazon.com/images/I/41+wwBgHf4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXHS15ZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ELEGOO ABS-Like 3D Printer Resin LCD UV-Curing Resin 405nm Standard Photopolymer Resin for Mars Saturn Jupiter MSLA DLP LCD 3D Printing Smoky Black 2000g" src="https://m.media-amazon.com/images/I/41+wwBgHf4L._SL500_.jpg"/></a>
 
 
 The **ELEGOO ABS-Like 3D Printer Resin** is ideal for hobbyists, professional model makers, and engineers seeking high-quality, durable prints with exceptional detail. If you own a compatible **MSLA, DLP, or LCD 3D printer** such as the Mars, Saturn, or Jupiter models, and want a reliable resin for prototyping or artistic projects, this **Smoky Black** photopolymer resin is a perfect choice.
@@ -204,10 +204,10 @@ The **ELEGOO ABS-Like 3D Printer Resin** features a standard photopolymer formul
 
 With a substantial 2000g bottle, this resin supports long print runs without interruption, reducing downtime caused by frequent resin changes. The resin’s ease of use and consistent curing behavior help users achieve smooth, finely detailed prints, enhancing the overall 3D printing experience. Whether you're crafting miniatures, engineering components, or artistic objects, this resin provides reliable performance and quality results.
 
-## <a href="https://www.amazon.com/dp/B0C27SJDZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Siraya Tech Fast Abs-like 3d Printer Resin</a>
+## <a href="https://www.amazon.com/dp/B0C27SJDZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Siraya Tech Fast Abs-like 3d Printer Resin</a>
 
 
-<a href="https://www.amazon.com/dp/B0C27SJDZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Siraya Tech Fast ABS-Like 3D Printer Resin, High Precision, Non-Brittle - Low Odor 405nm UV-Curing Photopolymer for 8K LCD/DLP Printing (Navy Grey, 2kg)" src="https://m.media-amazon.com/images/I/416bxCf4pfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C27SJDZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Siraya Tech Fast ABS-Like 3D Printer Resin, High Precision, Non-Brittle - Low Odor 405nm UV-Curing Photopolymer for 8K LCD/DLP Printing (Navy Grey, 2kg)" src="https://m.media-amazon.com/images/I/416bxCf4pfL._SL500_.jpg"/></a>
 
 
 The **Siraya Tech Fast ABS-Like 3D Printer Resin** is ideal for professional 3D printing enthusiasts and manufacturers who require **high precision** and durable prints. This resin is perfect for users who want to create strong, flexible models without the brittleness common in other resins, making it suitable for functional prototypes, mechanical parts, and high-detail models. If you are using an **8K LCD or DLP 3D printer** and need a reliable, low-odor photopolymer, this product is designed for you.
@@ -230,10 +230,10 @@ The **Siraya Tech Fast ABS-Like Resin** features a navy grey color that enhances
 
 Additionally, the resin’s low odor characteristic makes it more user-friendly for home or office environments where ventilation might be limited. Its compatibility with 405nm UV light sources means it works seamlessly with many popular 8K LCD and DLP 3D printers, ensuring precise layer curing and smooth finishes. Overall, this photopolymer resin combines efficiency, durability, and ease of use, making it a valuable material for anyone serious about high-quality 3D printing.
 
-## <a href="https://www.amazon.com/dp/B07SH2YDYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Endertoys Stone Boulder Bundle</a>
+## <a href="https://www.amazon.com/dp/B07SH2YDYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Endertoys Stone Boulder Bundle</a>
 
 
-<a href="https://www.amazon.com/dp/B07SH2YDYS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EnderToys Stone Boulder Bundle, Terrain Scenery for Tabletop 28mm Miniatures Wargame, 3D Printed and Paintable" src="https://m.media-amazon.com/images/I/318H+en-7mS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SH2YDYS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EnderToys Stone Boulder Bundle, Terrain Scenery for Tabletop 28mm Miniatures Wargame, 3D Printed and Paintable" src="https://m.media-amazon.com/images/I/318H+en-7mS._SL500_.jpg"/></a>
 
 
 The **EnderToys Stone Boulder Bundle** is an excellent choice for tabletop gamers and hobbyists looking to enhance their 28mm miniature wargame setups with realistic terrain. Ideal for those who enjoy painting and customizing their game scenery, this bundle offers versatile, 3D printed stone boulders that can bring a new level of immersion to any battlefield. If you want to add detailed and durable terrain pieces to your collection, this product is designed specifically for you.
@@ -256,10 +256,10 @@ The **EnderToys Stone Boulder Bundle**, manufactured by **Seus Corp Ltd.**, feat
 
 Beyond aesthetics, these stone boulders serve practical benefits during gameplay by offering strategic cover and obstacles for miniatures. Their sturdy construction guarantees longevity, even with frequent handling and transport. Overall, this terrain scenery bundle is a valuable addition for anyone invested in tabletop wargaming who seeks both functionality and artistic expression in their gaming setups.
 
-## <a href="https://www.amazon.com/dp/B07NZD8TSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drunk'n Dragon Dnd Enemies Minis</a>
+## <a href="https://www.amazon.com/dp/B07NZD8TSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Drunk'n Dragon Dnd Enemies Minis</a>
 
 
-<a href="https://www.amazon.com/dp/B07NZD8TSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DRUNK'N DRAGON DND Enemies Minis 25 Fantasy Miniatures for Tabletop/Dungeons and Dragons Roleplaying Games - Bulk Minis Unpainted- Monsters Figures Starter Set - Compatible DND" src="https://m.media-amazon.com/images/I/41a8L2GdQxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NZD8TSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DRUNK'N DRAGON DND Enemies Minis 25 Fantasy Miniatures for Tabletop/Dungeons and Dragons Roleplaying Games - Bulk Minis Unpainted- Monsters Figures Starter Set - Compatible DND" src="https://m.media-amazon.com/images/I/41a8L2GdQxL._SL500_.jpg"/></a>
 
 
 The **DRUNK'N DRAGON DND Enemies Minis 25 Fantasy Miniatures** are ideal for tabletop gamers and **Dungeons and Dragons** enthusiasts who want to enhance their gameplay with detailed, unpainted monster figures. Whether you're a beginner building your first collection or a seasoned player looking to expand your arsenal, this starter set offers a versatile and compatible solution for your roleplaying adventures.

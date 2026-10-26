@@ -20,10 +20,10 @@ For outdoor protection, small breed dog sunglasses offer eye safety from UV rays
 
 
 
-## <a href="https://www.amazon.com/dp/B00JN9LSN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Poodle Puppy Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B00JN9LSN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Poodle Puppy Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B00JN9LSN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Poodle Puppy Breed Specific Dry Dog Food, 2.5 lb bag" src="https://m.media-amazon.com/images/I/41HvGC3-YtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00JN9LSN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Poodle Puppy Breed Specific Dry Dog Food, 2.5 lb bag" src="https://m.media-amazon.com/images/I/41HvGC3-YtL._SL500_.jpg"/></a>
 
 
 The **Royal Canin Poodle Puppy Breed Specific Dry Dog Food** is ideal for owners of **Poodle puppies** who want to provide tailored nutrition that supports their breed’s unique needs during the early stages of life. This product is perfect for those seeking a high-quality, scientifically formulated diet to promote healthy growth, coat condition, and digestive health specific to Poodles.
@@ -46,10 +46,10 @@ The **Royal Canin Poodle Puppy Dry Dog Food** features a precise nutrient profil
 
 Additionally, this dry food incorporates highly digestible proteins and prebiotics to ensure optimal digestive comfort and nutrient absorption, which are crucial for the sensitive stomachs of small breed puppies. The compact 2.5 lb bag provides convenience for owners while maintaining freshness and quality, making it an excellent choice for nurturing your **Poodle puppy’s** overall well-being.
 
-## <a href="https://www.amazon.com/dp/B0037TUHAY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Poodle Adult Breed Specific Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B0037TUHAY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Poodle Adult Breed Specific Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B0037TUHAY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Poodle Adult Breed Specific Dry Dog Food, 10 lb bag" src="https://m.media-amazon.com/images/I/41eftBcZMzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0037TUHAY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Poodle Adult Breed Specific Dry Dog Food, 10 lb bag" src="https://m.media-amazon.com/images/I/41eftBcZMzL._SL500_.jpg"/></a>
 
 
 The **Royal Canin Poodle Adult Breed Specific Dry Dog Food** is ideal for owners of adult poodles who want to provide their pets with nutrition tailored specifically to their breed's unique needs. This **10 lb bag** of dry dog food is perfect for poodles requiring a balanced diet that supports their health, coat, and energy levels. If you are looking for a high-quality, breed-specific formula that addresses the distinct characteristics of poodles, this product is an excellent choice.
@@ -72,10 +72,10 @@ The **Royal Canin Poodle Adult Breed Specific Dry Dog Food** is designed to meet
 
 Beyond nutrition, this dog food supports the overall vitality and well-being of your poodle by providing balanced energy levels to suit their active lifestyle. Royal Canin’s commitment to breed-specific formulas means that your dog receives food tailored to their physiological needs, which can contribute to improved health outcomes and longevity. The packaging dimensions and weight make it convenient for storage and usage, while the brand’s reputation assures quality and safety.
 
-## <a href="https://www.amazon.com/dp/B00OBDQFTC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Multi-vitamin Soft Chews</a>
+## <a href="https://www.amazon.com/dp/B00OBDQFTC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Multi-vitamin Soft Chews</a>
 
 
-<a href="https://www.amazon.com/dp/B00OBDQFTC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle Multi-Vitamin Soft Chews 60 Count" src="https://m.media-amazon.com/images/I/41OzySLNVML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OBDQFTC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle Multi-Vitamin Soft Chews 60 Count" src="https://m.media-amazon.com/images/I/41OzySLNVML._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Poodle Multi-Vitamin Soft Chews 60 Count** are ideal for **poodle owners** who want to support their pet’s overall health and well-being. These **soft chews** are designed specifically for **poodles**, making them perfect for dog parents looking for a tailored **multi-vitamin supplement** that addresses breed-specific nutritional needs. If you want to enhance your poodle’s coat, immune system, and energy levels, this product is a great choice.
@@ -97,10 +97,10 @@ The **Healthy Breeds Poodle Multi-Vitamin Soft Chews** provide a convenient way 
 
 With its compact and lightweight packaging, these chews are easy to store and perfect for on-the-go supplementation. The product’s focus on essential nutrients delivers tangible benefits like increased vitality, better digestion, and overall wellness. Choosing this breed-specific multi-vitamin ensures your beloved poodle receives premium care aligned with its unique health profile, making it a smart addition to your dog’s daily routine.
 
-## <a href="https://www.amazon.com/dp/B08YRJKGHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lewondr Dog Sunglasses Small Breed Goggles Uv Protection</a>
+## <a href="https://www.amazon.com/dp/B08YRJKGHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lewondr Dog Sunglasses Small Breed Goggles Uv Protection</a>
 
 
-<a href="https://www.amazon.com/dp/B08YRJKGHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lewondr Dog Sunglasses Small Breed Goggles UV Protection,Goggles for Small Dogs Eye Wear Protection with Adjustable Strap Windproof Anti-Fog Sunglasses for Small Doggy Doggie Glasses,Black" src="https://m.media-amazon.com/images/I/41bHLjdDtXS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08YRJKGHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lewondr Dog Sunglasses Small Breed Goggles UV Protection,Goggles for Small Dogs Eye Wear Protection with Adjustable Strap Windproof Anti-Fog Sunglasses for Small Doggy Doggie Glasses,Black" src="https://m.media-amazon.com/images/I/41bHLjdDtXS._SL500_.jpg"/></a>
 
 
 The **Lewondr Dog Sunglasses Small Breed Goggles** are perfect for pet owners who want to provide their small dogs with reliable **eye protection** during outdoor activities. Ideal for small dog breeds that enjoy walks, rides, or time spent in sunny, windy, or dusty environments, these goggles help shield your furry friend's eyes from harmful **UV rays**, wind, and debris.
@@ -122,10 +122,10 @@ The **Lewondr Dog Sunglasses** feature a sturdy yet lightweight build, making th
 
 These goggles not only protect against **UV rays** but also shield your dog's eyes from dust, wind, and other airborne irritants. This makes them an excellent accessory for dogs accompanying you on motorbike rides, hikes, or beach trips. Overall, the Lewondr Dog Sunglasses combine functionality and style to enhance your small dog's outdoor experience.
 
-## <a href="https://www.amazon.com/dp/B003CL3PTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hill's Science Diet Small &amp; Mini Adult 1-6 Small &amp; Mini Breeds Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B003CL3PTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hill's Science Diet Small &amp; Mini Adult 1-6 Small &amp; Mini Breeds Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B003CL3PTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hill's Science Diet Small &amp; Mini, Adult 1-6, Small &amp; Mini Breeds Premium Nutrition, Dry Dog Food, Chicken &amp; Brown Rice, 4.5 lb Bag" src="https://m.media-amazon.com/images/I/41T3dj5I1wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003CL3PTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hill's Science Diet Small &amp; Mini, Adult 1-6, Small &amp; Mini Breeds Premium Nutrition, Dry Dog Food, Chicken &amp; Brown Rice, 4.5 lb Bag" src="https://m.media-amazon.com/images/I/41T3dj5I1wL._SL500_.jpg"/></a>
 
 
 **Hill's Science Diet Small & Mini, Adult 1-6** is ideal for owners of small and miniature dog breeds aged between 1 to 6 years who want to provide their pets with high-quality, balanced nutrition. This **premium dry dog food** is designed specifically to meet the unique dietary needs of smaller dogs, promoting overall health and vitality. If you are looking for a trusted brand that combines science-backed ingredients with great taste, this product is a perfect choice.
@@ -148,10 +148,10 @@ The **Hill's Science Diet Small & Mini Adult 1-6** dry dog food is crafted with 
 
 Additionally, the formula is enriched with antioxidants and vitamins to bolster the immune system, helping your small dog stay active and healthy throughout their adult years. The kibble size is optimized for small jaws, making it easier for mini breeds to chew and digest. Overall, this product delivers a comprehensive nutritional profile that supports your pet’s longevity and well-being.
 
-## <a href="https://www.amazon.com/dp/B01GKE2HBO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Oatmeal Shampoo</a>
+## <a href="https://www.amazon.com/dp/B01GKE2HBO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Oatmeal Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B01GKE2HBO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle Oatmeal Shampoo with Aloe 16 oz" src="https://m.media-amazon.com/images/I/31l-Dk-p10L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01GKE2HBO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle Oatmeal Shampoo with Aloe 16 oz" src="https://m.media-amazon.com/images/I/31l-Dk-p10L._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Poodle Oatmeal Shampoo with Aloe 16 oz.** is ideal for poodle owners seeking a gentle yet effective cleansing solution for their pets. This shampoo is perfect for those who want to maintain their poodle's coat health while soothing sensitive or dry skin with natural ingredients like oatmeal and aloe. If you are looking for a product tailored specifically to the unique grooming needs of poodles, this shampoo is an excellent choice.
@@ -173,10 +173,10 @@ The **Healthy Breeds Poodle Oatmeal Shampoo with Aloe** is designed to gently cl
 
 This shampoo’s formula is carefully balanced to maintain your poodle’s coat's natural oils, preventing dryness and leaving the fur soft and manageable. Its targeted design for poodles ensures that the shampoo enhances the unique texture and curl pattern of their coats. Overall, this product offers an effective grooming solution that supports both the skin and coat health of your beloved poodle.
 
-## <a href="https://www.amazon.com/dp/B07H3CX1LV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poodle Pet Slicker Brush</a>
+## <a href="https://www.amazon.com/dp/B07H3CX1LV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poodle Pet Slicker Brush</a>
 
 
-<a href="https://www.amazon.com/dp/B07H3CX1LV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Poodle Pet Slicker Brush - For Dogs, Cats, Rabbits - Matted/Loose Fur, Knots - Suitable for Doodle/Goldendoodle Grooming and Shredding Short/Long Hair" src="https://m.media-amazon.com/images/I/51k7zXwXQ7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07H3CX1LV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Poodle Pet Slicker Brush - For Dogs, Cats, Rabbits - Matted/Loose Fur, Knots - Suitable for Doodle/Goldendoodle Grooming and Shredding Short/Long Hair" src="https://m.media-amazon.com/images/I/51k7zXwXQ7L._SL500_.jpg"/></a>
 
 
 The **Poodle Pet Slicker Brush** is ideal for pet owners who want to maintain the health and appearance of their dogs, cats, or rabbits. This brush is especially suitable for those with pets that have matted or loose fur, including breeds like Doodles and Goldendoodles, as well as pets with short or long hair. If you are looking for an effective grooming tool to manage knots and reduce shedding, this brush is a perfect choice.
@@ -199,10 +199,10 @@ The **Poodle Pet Slicker Brush** is crafted by the reputable **POODLIE brand** a
 
 Beyond basic grooming, this brush enhances the overall grooming experience by stimulating the skin and improving blood circulation, which can contribute to a shinier and softer coat. Whether you own a playful Goldendoodle or a delicate rabbit, the **Poodle Pet Slicker Brush** adapts to your pet’s grooming needs, making it an essential tool for keeping your furry friends looking their best.
 
-## <a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Toy Poodle Multi-tabs Plus Chewable Tablets</a>
+## <a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Toy Poodle Multi-tabs Plus Chewable Tablets</a>
 
 
-<a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Toy Poodle Multi-Tabs Plus Chewable Tablets 180 Count" src="https://m.media-amazon.com/images/I/411rP9JE5yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01MTMZ9EK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Toy Poodle Multi-Tabs Plus Chewable Tablets 180 Count" src="https://m.media-amazon.com/images/I/411rP9JE5yL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Toy Poodle Multi-Tabs Plus Chewable Tablets 180 Count** are perfect for **Toy Poodle owners** who want to ensure their pets receive a comprehensive daily supplement. Ideal for those looking to support their dog's overall health, coat condition, and immune system through an easy-to-administer chewable tablet tailored specifically for the **Toy Poodle breed**.
@@ -224,10 +224,10 @@ The **Healthy Breeds Toy Poodle Multi-Tabs Plus** provide a targeted blend of es
 
 Additionally, the supplement's comprehensive nutrient profile helps promote joint health and overall vitality. With a substantial count of 180 tablets per bottle, this product ensures that your **Toy Poodle** receives uninterrupted nutritional support, making it a cost-effective choice for long-term care. Its compact size also makes it convenient to store or travel with, ensuring your pet’s health is maintained wherever you go.
 
-## <a href="https://www.amazon.com/dp/B000O39TE6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coastal Pet Li'l Pals Dog Slicker Brush</a>
+## <a href="https://www.amazon.com/dp/B000O39TE6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coastal Pet Li'l Pals Dog Slicker Brush</a>
 
 
-<a href="https://www.amazon.com/dp/B000O39TE6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coastal Pet Li'l Pals Dog Slicker Brush with Coated Tips - Dog Grooming Brush for Small Breeds &amp; Puppies - One Size" src="https://m.media-amazon.com/images/I/31-j6gLQGiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000O39TE6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coastal Pet Li'l Pals Dog Slicker Brush with Coated Tips - Dog Grooming Brush for Small Breeds &amp; Puppies - One Size" src="https://m.media-amazon.com/images/I/31-j6gLQGiL._SL500_.jpg"/></a>
 
 
 The **Coastal Pet Li'l Pals Dog Slicker Brush with Coated Tips** is ideal for pet owners who have **small breed dogs** or **puppies** and want an effective yet gentle grooming tool. If you’re looking for a brush that can help maintain your pet’s coat without causing discomfort, this **dog grooming brush** is a perfect choice. It suits those who prioritize both the health of their pet’s fur and a comfortable grooming experience.
@@ -249,10 +249,10 @@ The **Coastal Pet Li'l Pals Dog Slicker Brush** features **coated tips** on its 
 
 Additionally, regular use of this grooming brush helps maintain your dog’s coat in optimal condition by preventing matting and promoting healthy skin circulation. The **multi-colored** aesthetic adds a cheerful touch, making grooming a more enjoyable routine. Overall, this brush offers a practical solution tailored to the unique needs of small breeds and puppies, combining efficiency with gentle care.
 
-## <a href="https://www.amazon.com/dp/B077Y6VVXH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Tearless Puppy Dog Shampoo</a>
+## <a href="https://www.amazon.com/dp/B077Y6VVXH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Tearless Puppy Dog Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B077Y6VVXH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle Tearless Puppy Dog Shampoo 16 oz" src="https://m.media-amazon.com/images/I/31FEB2XLjOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Y6VVXH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle Tearless Puppy Dog Shampoo 16 oz" src="https://m.media-amazon.com/images/I/31FEB2XLjOL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Poodle Tearless Puppy Dog Shampoo 16 oz.** is ideal for pet owners who have young puppies, especially those with sensitive skin or breeds prone to eye irritation. This shampoo is specifically designed for **poodles** and other small breeds, ensuring a gentle yet effective cleaning experience without causing discomfort to your furry friend. If you want a safe, soothing, and tearless formula to keep your puppy clean and healthy, this product is an excellent choice.

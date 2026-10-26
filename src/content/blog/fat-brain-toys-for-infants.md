@@ -22,10 +22,10 @@ The Quubi and Tobbles Neo stimulate early learning with bright colors and stacki
 
 
 
-## <a href="https://www.amazon.com/dp/B07SVMZBSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys F251 Fat Brain Innybin</a>
+## <a href="https://www.amazon.com/dp/B07SVMZBSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys F251 Fat Brain Innybin</a>
 
 
-<a href="https://www.amazon.com/dp/B07SVMZBSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys F251 Fat Brain InnyBin, Kids Preschool, Shape Sorter, Sorting Building Sets, Early Development Toy for Babies Aged 18 Months and Older, Multicoloured" src="https://m.media-amazon.com/images/I/41rwkYz2ILL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SVMZBSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys F251 Fat Brain InnyBin, Kids Preschool, Shape Sorter, Sorting Building Sets, Early Development Toy for Babies Aged 18 Months and Older, Multicoloured" src="https://m.media-amazon.com/images/I/41rwkYz2ILL._SL500_.jpg"/></a>
 
 
 The **Fat Brain Toys F251 Fat Brain InnyBin** is ideal for parents and caregivers looking to support early childhood development through engaging play. Designed for **babies aged 18 months and older**, this **multicoloured shape sorter** is perfect for toddlers who are beginning to explore shapes, colors, and hand-eye coordination. It is especially suitable for those who want a toy that combines learning and fun in one compact set.
@@ -46,12 +46,12 @@ The **Fat Brain InnyBin** features a variety of brightly colored shapes that fit
 
 Beyond just being a shape sorter, this toy promotes cognitive development by encouraging children to think critically about where each shape fits. The hands-on nature of the toy helps build fine motor skills, which are essential for writing and other daily tasks as the child grows. Overall, the **Fat Brain InnyBin** is a valuable early developmental tool that combines play with learning in a fun and engaging way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07SVMZBSD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07SVMZBSD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D33YFR6M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Little Brainies Plip Grips</a>
+## <a href="https://www.amazon.com/dp/B0D33YFR6M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Little Brainies Plip Grips</a>
 
 
-<a href="https://www.amazon.com/dp/B0D33YFR6M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys Little Brainies Plip Grips | Colourful Silicone Rings with Varied Textures That Link Together and Pop Apart | Teething Toys for Baby | Baby Sensory Toys" src="https://m.media-amazon.com/images/I/31Ob8yBjRqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D33YFR6M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys Little Brainies Plip Grips | Colourful Silicone Rings with Varied Textures That Link Together and Pop Apart | Teething Toys for Baby | Baby Sensory Toys" src="https://m.media-amazon.com/images/I/31Ob8yBjRqL._SL500_.jpg"/></a>
 
 
 The **Fat Brain Toys Little Brainies Plip Grips** are perfect for parents and caregivers looking for engaging and safe **teething toys** that also serve as **baby sensory toys**. Ideal for infants who are beginning to explore textures and develop fine motor skills, these colorful silicone rings provide both stimulation and relief during the teething phase. If you want a versatile toy that encourages sensory exploration and can be linked or separated easily, this product is an excellent choice.
@@ -74,12 +74,12 @@ The **Fat Brain Toys Little Brainies Plip Grips** feature a set of colorful sili
 
 Beyond teething relief, these rings help babies develop hand-eye coordination and sensory perception by exploring different textures and practicing connecting and separating the rings. Their lightweight and compact design make them easy to carry along during outings, ensuring consistent sensory engagement. Overall, these **baby sensory toys** offer a multi-functional, safe, and developmentally enriching experience for infants.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D33YFR6M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D33YFR6M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00H4IQ3P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Pipsquigz</a>
+## <a href="https://www.amazon.com/dp/B00H4IQ3P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Pipsquigz</a>
 
 
-<a href="https://www.amazon.com/dp/B00H4IQ3P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain PipSquigz, Fat Brain Toys, Sensory Toys for Babies, Soft Surface for Sensory Development, Teething Toy, Silicone Suction Toy for Boys and Girls Aged 6 Months and Older" src="https://m.media-amazon.com/images/I/41yY0xW0otL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00H4IQ3P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain PipSquigz, Fat Brain Toys, Sensory Toys for Babies, Soft Surface for Sensory Development, Teething Toy, Silicone Suction Toy for Boys and Girls Aged 6 Months and Older" src="https://m.media-amazon.com/images/I/41yY0xW0otL._SL500_.jpg"/></a>
 
 
 The **Fat Brain PipSquigz** from **Fat Brain Toys** is perfect for parents looking for a versatile and engaging **sensory toy** for their babies aged **6 months and older**. This **teething toy** is designed to support early **sensory development** while providing a safe and soft surface for little ones to explore. Ideal for both boys and girls, this toy encourages tactile exploration and fine motor skills.
@@ -101,12 +101,12 @@ The **Fat Brain PipSquigz** features a unique design with soft, flexible silicon
 
 Additionally, the varied textures and shapes of the PipSquigz promote tactile sensory development, which is crucial during infancy. The toy's lightweight and compact size make it easy to carry around, ensuring that babies can enjoy sensory play both at home and on the go. Made by **Fat Brain Toys** and manufactured by **TOMY**, it guarantees safety and quality, making it a reliable choice for parents seeking a multi-functional sensory and teething toy.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00H4IQ3P2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00H4IQ3P2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07SVP35BV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Spinnypins</a>
+## <a href="https://www.amazon.com/dp/B07SVP35BV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Spinnypins</a>
 
 
-<a href="https://www.amazon.com/dp/B07SVP35BV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="﻿Fat Brain Toys F248 Fat Brain SpinnyPins, Kids Preschool, Spinning and Sorting Building Sets, Early Development Toy for Babies Aged 18 Months and Older, Multicoloured" src="https://m.media-amazon.com/images/I/31zEB5uPG9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SVP35BV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="﻿Fat Brain Toys F248 Fat Brain SpinnyPins, Kids Preschool, Spinning and Sorting Building Sets, Early Development Toy for Babies Aged 18 Months and Older, Multicoloured" src="https://m.media-amazon.com/images/I/31zEB5uPG9L._SL500_.jpg"/></a>
 
 
 The **Fat Brain Toys F248 Fat Brain SpinnyPins** is an ideal choice for parents and caregivers seeking an engaging and educational toy for children aged **18 months and older**. This **multicoloured** spinning and sorting building set is perfect for toddlers in the **preschool** stage who are developing their fine motor skills, hand-eye coordination, and early cognitive abilities. If you want a toy that combines fun with early development, this set is designed for your little one.
@@ -128,12 +128,12 @@ The **Fat Brain Toys SpinnyPins** set features an innovative design that allows 
 
 Constructed by **Fat Brain Toys**, this set is crafted with safety and durability in mind, ensuring parents can trust it as a long-lasting educational tool. The spinning and sorting mechanics introduce toddlers to basic concepts such as color recognition, counting, and sequencing, fostering critical cognitive skills while keeping playtime fun and interactive.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07SVP35BV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07SVP35BV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08BJGNYSV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Quubi</a>
+## <a href="https://www.amazon.com/dp/B08BJGNYSV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Quubi</a>
 
 
-<a href="https://www.amazon.com/dp/B08BJGNYSV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Quubi, Early Development &amp; Educational Baby Toy, Suitable For Boys &amp; Girls Aged 3 Months Or Above" src="https://m.media-amazon.com/images/I/41--lPRv+zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BJGNYSV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Quubi, Early Development &amp; Educational Baby Toy, Suitable For Boys &amp; Girls Aged 3 Months Or Above" src="https://m.media-amazon.com/images/I/41--lPRv+zL._SL500_.jpg"/></a>
 
 
 The **Fat Brain Quubi** is an ideal choice for parents and caregivers seeking an **early development** and **educational baby toy** suitable for **boys and girls aged 3 months or above**. This toy is perfect for infants who are starting to explore their senses and develop motor skills, offering engaging features that stimulate learning and growth from a very young age.
@@ -157,12 +157,12 @@ The **Fat Brain Quubi** features a vibrant and colorful design that is specifica
 
 Additionally, the toy's interactive elements encourage sensory exploration, which is crucial in the first months of life. By providing tactile, auditory, and visual stimulation, the Quubi helps babies build neural connections that support cognitive development. Its thoughtful design also ensures that parents can trust the toy's quality and safety, making it a valuable addition to any infant's playtime routine.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08BJGNYSV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08BJGNYSV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B093G9G5NW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Early Learning Game</a>
+## <a href="https://www.amazon.com/dp/B093G9G5NW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Early Learning Game</a>
 
 
-<a href="https://www.amazon.com/dp/B093G9G5NW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys F341ML Early Learning Game, Bright Colors" src="https://m.media-amazon.com/images/I/41CrYIv3biL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093G9G5NW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys F341ML Early Learning Game, Bright Colors" src="https://m.media-amazon.com/images/I/41CrYIv3biL._SL500_.jpg"/></a>
 
 
 The **Fat Brain Toys F341ML Early Learning Game** in **Bright Colors** is ideal for parents and educators seeking an engaging educational tool for toddlers and preschoolers. This game is perfect for young children who are in the early stages of cognitive development and need a fun, interactive way to learn basic concepts like colors, shapes, and problem-solving skills. It is especially suitable for those who value hands-on learning experiences that stimulate curiosity and creativity.
@@ -183,12 +183,12 @@ The **Fat Brain Toys F341ML Early Learning Game** combines vibrant colors with a
 
 Crafted by **Fat Brain Toys** and manufactured by **TOMY**, this game adheres to high safety standards, giving parents peace of mind. The interactive nature of the game encourages children to explore, experiment, and solve simple challenges, which supports cognitive growth and problem-solving abilities. Overall, this early learning game is a valuable addition to any child’s educational toy collection, offering both fun and developmental benefits.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B093G9G5NW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B093G9G5NW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00FZVDUS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Tobbles Neo</a>
+## <a href="https://www.amazon.com/dp/B00FZVDUS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Tobbles Neo</a>
 
 
-<a href="https://www.amazon.com/dp/B00FZVDUS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Tobbles Neo, Fat Brain Toys, Stacking Toys for Toddlers, Stacking Toy with Colours, Soft Surface for Sensory Development, Educational Toys for Boys and Girls Aged 6 Months and Older" src="https://m.media-amazon.com/images/I/414+Q6IA1hL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00FZVDUS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Tobbles Neo, Fat Brain Toys, Stacking Toys for Toddlers, Stacking Toy with Colours, Soft Surface for Sensory Development, Educational Toys for Boys and Girls Aged 6 Months and Older" src="https://m.media-amazon.com/images/I/414+Q6IA1hL._SL500_.jpg"/></a>
 
 
 The **Fat Brain Tobbles Neo** is an ideal choice for parents and caregivers seeking a fun and educational **stacking toy** for toddlers aged 6 months and older. This **multicoloured toy** is perfect for boys and girls who are beginning to explore their sensory and motor skills, making it an excellent option for early childhood development.
@@ -211,12 +211,12 @@ The **Fat Brain Tobbles Neo** features a unique design with a **soft surface** t
 
 With its vibrant **multicoloured** palette, this educational toy attracts the attention of young children and helps them learn color differentiation in an engaging way. Its compact size and lightweight build make it easy for toddlers to manipulate the pieces independently, fostering confidence and creativity. Overall, the **Fat Brain Tobbles Neo** offers a blend of sensory development, educational benefits, and safe play, making it an excellent addition to any toddler’s toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00FZVDUS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00FZVDUS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07F2MRD19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Dimpl Duo</a>
+## <a href="https://www.amazon.com/dp/B07F2MRD19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys Dimpl Duo</a>
 
 
-<a href="https://www.amazon.com/dp/B07F2MRD19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys Dimpl Duo, Early Learning Sensory Toy for Babies 1 Year+ &amp; Toddlers, Interactive Baby Toys with Braille, Fidget Toys" src="https://m.media-amazon.com/images/I/41tplRWjeDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07F2MRD19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys Dimpl Duo, Early Learning Sensory Toy for Babies 1 Year+ &amp; Toddlers, Interactive Baby Toys with Braille, Fidget Toys" src="https://m.media-amazon.com/images/I/41tplRWjeDL._SL500_.jpg"/></a>
 
 
 The **Fat Brain Toys Dimpl Duo** is an ideal choice for parents and caregivers seeking an **interactive early learning sensory toy** for babies aged 1 year and older, as well as toddlers. This toy is perfect for those who want to encourage sensory development, fine motor skills, and tactile exploration through engaging and educational play.
@@ -239,12 +239,12 @@ The **Fat Brain Toys Dimpl Duo** stands out for its innovative design, featuring
 
 Its compact and lightweight dimensions make it easy for little hands to grasp and carry, encouraging independent play both at home and on the move. Made by the trusted brand **Fat Brain Toys**, the Dimpl Duo uses safe, durable materials that withstand rough play while ensuring safety for babies and toddlers. Overall, this toy combines fun, education, and sensory development in a simple yet effective design that benefits early learners.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07F2MRD19?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07F2MRD19?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B079CHXD52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Suction Kupz Creative Toy</a>
+## <a href="https://www.amazon.com/dp/B079CHXD52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Suction Kupz Creative Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B079CHXD52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain FA183-1 Suction Kupz Creative Toy, multicolor" src="https://m.media-amazon.com/images/I/31SLSWZdKdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079CHXD52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain FA183-1 Suction Kupz Creative Toy, multicolor" src="https://m.media-amazon.com/images/I/31SLSWZdKdL._SL500_.jpg"/></a>
 
 
 The **Fat Brain FA183-1 Suction Kupz Creative Toy** is ideal for young children and toddlers who are eager to explore their creativity and develop fine motor skills. Parents and caregivers looking for a colorful, engaging, and safe toy to stimulate their child's imagination and hand-eye coordination will find this item an excellent choice. Its vibrant **multicolor** design and unique suction feature make it perfect for interactive play and learning.
@@ -266,12 +266,12 @@ The **Fat Brain FA183-1 Suction Kupz Creative Toy** stands out with its innovati
 
 Constructed by **Fat Brain Toys**, a reputable manufacturer known for educational and safe toys, this product meets high standards of quality. The vibrant multicolor palette not only captivates children’s attention but also aids in teaching color recognition. Overall, this creative toy offers a fun and educational experience, supporting early childhood development in a playful and engaging way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B079CHXD52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B079CHXD52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B081JWK1PW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys F267 Fat Brain Factory</a>
+## <a href="https://www.amazon.com/dp/B081JWK1PW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fat Brain Toys F267 Fat Brain Factory</a>
 
 
-<a href="https://www.amazon.com/dp/B081JWK1PW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys F267 Fat Brain Factory, Kids Preschool, Shape Sorter, Sorting Building Sets, Early Development Toy for Babies Aged 18 Months and Older, Multicoloured" src="https://m.media-amazon.com/images/I/31pVtR0YPLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081JWK1PW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fat Brain Toys F267 Fat Brain Factory, Kids Preschool, Shape Sorter, Sorting Building Sets, Early Development Toy for Babies Aged 18 Months and Older, Multicoloured" src="https://m.media-amazon.com/images/I/31pVtR0YPLL._SL500_.jpg"/></a>
 
 
 The **Fat Brain Toys F267 Fat Brain Factory** is ideal for parents and caregivers seeking an engaging and educational toy for **babies aged 18 months and older**. This **multicoloured shape sorter** is perfect for toddlers beginning to explore shapes, colors, and hand-eye coordination, making it an excellent choice for early childhood development.
@@ -293,7 +293,7 @@ The **Fat Brain Factory shape sorter** features a variety of brightly colored sh
 
 Beyond just sorting, the interactive nature of this toy encourages independent play and can boost confidence as toddlers succeed in completing the tasks. Manufactured by **Fat Brain Toys**, it promises quality and safety, ensuring parents can trust it as a durable and stimulating educational tool that supports early developmental milestones.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B081JWK1PW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B081JWK1PW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

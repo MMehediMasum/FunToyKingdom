@@ -23,10 +23,10 @@ They stimulate touch, sight, and sound, helping children to improve fine motor s
 
 
 
-## <a href="https://www.amazon.com/dp/B0DKH68QZB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sensory Activity Board</a>
+## <a href="https://www.amazon.com/dp/B0DKH68QZB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sensory Activity Board</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKH68QZB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sensory Activity Board, Six-Sided Silicone Sensory Fidget Toy with 40 Strings for Autism, Stress Relief, Calming, Focus &amp; ADHD, Great for Kids 3+ &amp; Adults with User Guide &amp; Portable Travel Bag" src="https://m.media-amazon.com/images/I/51PlfHFQWsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKH68QZB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sensory Activity Board, Six-Sided Silicone Sensory Fidget Toy with 40 Strings for Autism, Stress Relief, Calming, Focus &amp; ADHD, Great for Kids 3+ &amp; Adults with User Guide &amp; Portable Travel Bag" src="https://m.media-amazon.com/images/I/51PlfHFQWsL._SL500_.jpg"/></a>
 
 
 The **Sensory Activity Board** is ideal for individuals seeking effective stress relief and focus enhancement, particularly children aged 3 and above, as well as adults managing **Autism**, **ADHD**, or sensory processing challenges. This six-sided, **silicone sensory fidget toy** provides a versatile and engaging way to calm the mind and improve concentration during daily activities or travel.
@@ -49,12 +49,12 @@ The **ODCPN Sensory Activity Board** stands out with its six-sided design and 40
 
 Constructed from high-quality **silicone**, the board is both safe and durable, ensuring it withstands frequent handling. The included **user guide** provides helpful tips on how to integrate the toy into daily routines for maximum calming and focusing benefits. Overall, this sensory fidget toy is a practical tool designed to support emotional regulation and improve attention in a fun, engaging way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DKH68QZB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DKH68QZB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Activity Ball</a>
+## <a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Activity Ball</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Activity Ball Sensory Toys for Kids with Autism Sensory Activity Board Autism Sensory Products for Anxiety, ADHD &amp; Autism | Kids 3+ &amp; Adults | Includes 16 rods" src="https://m.media-amazon.com/images/I/41GiKk20mQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Activity Ball Sensory Toys for Kids with Autism Sensory Activity Board Autism Sensory Products for Anxiety, ADHD &amp; Autism | Kids 3+ &amp; Adults | Includes 16 rods" src="https://m.media-amazon.com/images/I/41GiKk20mQL._SL500_.jpg"/></a>
 
 
 The **Fidget Toys Sensory Activity Ball** is ideal for individuals with **Autism, ADHD, and anxiety**, as well as children aged 3 and above who benefit from sensory stimulation. This product is perfect for both kids and adults seeking a tactile and engaging way to improve focus, reduce stress, and enhance sensory processing skills.
@@ -77,12 +77,12 @@ The **Fidget Toys Sensory Activity Ball** is thoughtfully designed by **Keegud**
 
 Additionally, this sensory toy supports emotional regulation by offering a constructive outlet for nervous energy and anxiety. The interactive nature of the ball encourages prolonged engagement, making it easier for individuals with **Autism and ADHD** to stay focused and calm. Its durable design ensures that it withstands frequent use, providing long-lasting benefits for users of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F6LGGKH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lecehivo Fine Motor Skills Counting Sorting Sensory Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0F6LGGKH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lecehivo Fine Motor Skills Counting Sorting Sensory Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F6LGGKH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LECEHIVO 188 Pcs Fine Motor Skills Counting Sorting Sensory Toy Set 72 Hedge Ball 5 Tweezer 3 Scissor Clip 18 Sorting Cup 60 Pom Pom 30 Number Ornament for Education Preschool Training" src="https://m.media-amazon.com/images/I/51ygfK8HqYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6LGGKH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LECEHIVO 188 Pcs Fine Motor Skills Counting Sorting Sensory Toy Set 72 Hedge Ball 5 Tweezer 3 Scissor Clip 18 Sorting Cup 60 Pom Pom 30 Number Ornament for Education Preschool Training" src="https://m.media-amazon.com/images/I/51ygfK8HqYL._SL500_.jpg"/></a>
 
 
 The **LECEHIVO 188 Pcs Fine Motor Skills Counting Sorting Sensory Toy Set** is ideal for **preschool children** and early learners who are developing their **fine motor skills, hand-eye coordination, and early math abilities**. This set is perfect for parents, teachers, and therapists seeking an engaging and educational tool to support **sensory play and cognitive development** in young kids.
@@ -105,12 +105,12 @@ The **LECEHIVO Fine Motor Skills Toy Set** features a comprehensive collection o
 
 Additionally, the set’s **30 number ornaments** introduce young learners to numeracy concepts, reinforcing early math skills through playful interaction. The toy set’s dimensions make it a convenient educational resource that can be easily integrated into preschool classrooms or home learning environments. Overall, this sensory toy set offers a balanced mix of **fine motor skill training, sensory exploration, and cognitive growth** in a single package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F6LGGKH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F6LGGKH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0FD2M9T6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Counting Insects Matching Toys</a>
+## <a href="https://www.amazon.com/dp/B0FD2M9T6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Counting Insects Matching Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD2M9T6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Counting Insects Matching Toys with Sorting Bowls and Games Dice Montessori Preschool Educational Activities Learning Color Sorting Fine Motor Skills Sensory Toys Birthday Gifts for 3 4 5 Year Old" src="https://m.media-amazon.com/images/I/51wUarq4WmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD2M9T6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Counting Insects Matching Toys with Sorting Bowls and Games Dice Montessori Preschool Educational Activities Learning Color Sorting Fine Motor Skills Sensory Toys Birthday Gifts for 3 4 5 Year Old" src="https://m.media-amazon.com/images/I/51wUarq4WmL._SL500_.jpg"/></a>
 
 
 The **Counting Insects Matching Toys with Sorting Bowls and Games Dice** are ideal for young children aged **3 to 5 years old** who are beginning to explore basic counting, color recognition, and fine motor skills. Parents and educators looking for engaging, **Montessori-inspired educational activities** that combine play with learning will find this set especially beneficial for preschoolers developing sensory and cognitive abilities.
@@ -133,12 +133,12 @@ This **Montessori preschool educational toy set** from **kizh**, manufactured by
 
 Additionally, the **multi-colored insect pieces** not only make the activity visually appealing but also help children differentiate colors and enhance their ability to focus on matching tasks. By integrating multiple educational elements in one toy, it offers a well-rounded learning experience that keeps preschoolers engaged and motivated. Parents and educators can use this set to create varied activities that promote cognitive growth, making it an excellent gift choice for birthdays or early education purposes.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0FD2M9T6B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0FD2M9T6B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DL5H76FR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">5pcs Sensory Fidget Toys For Kids Adults</a>
+## <a href="https://www.amazon.com/dp/B0DL5H76FR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">5pcs Sensory Fidget Toys For Kids Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DL5H76FR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="5PCS Sensory Fidget Toys for Kids Adults-Stretchy Fidget Bracelet&amp;exture,Calming Autism Sensory Toys for Needs Autistic Children,Calm Down Toy for Toddler Girls Boys" src="https://m.media-amazon.com/images/I/41Qb2KgYBpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DL5H76FR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="5PCS Sensory Fidget Toys for Kids Adults-Stretchy Fidget Bracelet&amp;exture,Calming Autism Sensory Toys for Needs Autistic Children,Calm Down Toy for Toddler Girls Boys" src="https://m.media-amazon.com/images/I/41Qb2KgYBpL._SL500_.jpg"/></a>
 
 
 The **5PCS Sensory Fidget Toys for Kids Adults** are ideal for individuals who benefit from tactile stimulation and calming aids, such as children and adults with **autism**, ADHD, anxiety, or sensory processing needs. These **stretchy fidget bracelets** provide a discreet and portable way to help users focus, reduce stress, and manage sensory overload, making them perfect for toddlers, school-aged children, and even adults looking for a calming tool.
@@ -161,12 +161,12 @@ The **5PCS Sensory Fidget Toys** feature a stretchy bracelet design combined wit
 
 These sensory toys are especially beneficial for children with autism or sensory processing challenges, as they can help calm nerves and improve concentration by providing a soothing, repetitive motion. The bracelets also serve as a practical tool to redirect restless energy, which can help improve focus in both educational and social settings. Overall, this set by **EIGHT MONKEYS** offers an effective, portable solution for managing stress and sensory needs across all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DL5H76FR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DL5H76FR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D1DGDNB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meka Large Tuff Tray Set</a>
+## <a href="https://www.amazon.com/dp/B0D1DGDNB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meka Large Tuff Tray Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1DGDNB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEKA Large Tuff Tray Set (Black), Sensory Tray Plus Stand, Sand and Water Table for Toddlers, Kids Water Table" src="https://m.media-amazon.com/images/I/41r7RB86E7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1DGDNB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEKA Large Tuff Tray Set (Black), Sensory Tray Plus Stand, Sand and Water Table for Toddlers, Kids Water Table" src="https://m.media-amazon.com/images/I/41r7RB86E7L._SL500_.jpg"/></a>
 
 
 The **MEKA Large Tuff Tray Set (Black)** is ideal for parents, educators, and caregivers looking to enhance sensory play for toddlers and young children. This versatile **sensory tray plus stand** is perfect for those who want a durable and spacious **sand and water table** that encourages creative exploration and hands-on learning in a safe environment.
@@ -188,12 +188,12 @@ The **MEKA Large Tuff Tray Set** features a spacious tray measuring 38 inches in
 
 Constructed by **Point One International DBA MEKA**, this **black sensory tray** boasts durability and ease of cleaning, making it suitable for both indoor and outdoor use. The robust materials ensure longevity even with frequent use in classrooms or at home. Overall, this sensory table is an excellent investment for anyone wanting to foster hands-on learning and sensory development in young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D1DGDNB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D1DGDNB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01FRV9EQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Keys Montessori Toys For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B01FRV9EQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Keys Montessori Toys For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B01FRV9EQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Keys Montessori Toys For Toddlers - Toy Keys, Matching Toddler Games, Learning Toys For 2 Year Olds - Real Keys, Pretend Play Toys and Sensory Toys For Autistic Children with Activity eBook" src="https://m.media-amazon.com/images/I/41aUCdXBNOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01FRV9EQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Keys Montessori Toys For Toddlers - Toy Keys, Matching Toddler Games, Learning Toys For 2 Year Olds - Real Keys, Pretend Play Toys and Sensory Toys For Autistic Children with Activity eBook" src="https://m.media-amazon.com/images/I/41aUCdXBNOL._SL500_.jpg"/></a>
 
 
 The **Baby Keys Montessori Toys For Toddlers** by **KIDS KORNER** is ideal for parents and caregivers seeking a safe, educational, and engaging toy for children around the age of 2 years. This product is especially suitable for toddlers who are beginning to explore the world through sensory play and pretend activities, including children with autism who benefit from interactive learning tools.
@@ -215,12 +215,12 @@ The **Baby Keys Montessori Toys** are thoughtfully designed to support early chi
 
 Additionally, the product’s gentle textures and safe materials make it suitable for children with sensory processing needs, such as autistic toddlers. The accompanying **activity eBook** provides parents with creative ways to engage their children, making this toy not only fun but also a valuable educational tool. Its compact size ensures that it can be easily handled by little hands and transported for play anywhere.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01FRV9EQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01FRV9EQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BWD6M3SX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xtra Tough Hand-held Sensory Chew Toys For Autistic Children</a>
+## <a href="https://www.amazon.com/dp/B0BWD6M3SX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xtra Tough Hand-held Sensory Chew Toys For Autistic Children</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWD6M3SX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xtra Tough Hand-Held Sensory Chew Toys for Autistic Children, Chew Sticks fo Kids, Alt. to Chew Necklaces for Sensory Kids, Oral Motor Stimulation, ADHD, SPD - (Toughest - Aggressive Chewer)" src="https://m.media-amazon.com/images/I/41vLAUIQu4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWD6M3SX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Xtra Tough Hand-Held Sensory Chew Toys for Autistic Children, Chew Sticks fo Kids, Alt. to Chew Necklaces for Sensory Kids, Oral Motor Stimulation, ADHD, SPD - (Toughest - Aggressive Chewer)" src="https://m.media-amazon.com/images/I/41vLAUIQu4L._SL500_.jpg"/></a>
 
 
 The **Xtra Tough Hand-Held Sensory Chew Toys** are ideal for **autistic children**, kids with **ADHD**, or those experiencing **sensory processing disorder (SPD)**. These chew sticks serve as a durable alternative to traditional chew necklaces, providing essential **oral motor stimulation** for children who need a safe and effective outlet for sensory needs, especially aggressive chewers.
@@ -242,12 +242,12 @@ Manufactured by **ShenZhen Betos Industrial Co., Ltd.** under the **CANAY** bran
 
 Beyond durability, the chew sticks provide essential benefits such as enhancing **oral motor stimulation**, which can improve speech development and help children manage sensory overload. The hand-held design allows kids to use the toy discreetly and comfortably, making it an effective coping mechanism for stressful environments like classrooms or public places. Overall, these sensory chew toys are a practical, safe, and supportive tool for children with sensory needs.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BWD6M3SX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BWD6M3SX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DRXJFK91?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shxykz Water Table For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0DRXJFK91?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shxykz Water Table For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRXJFK91?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHXYKZ Water Table for Toddlers 1-3, Water Table for Kids Ages 4-8 with Pump, Play Sink with Running Water, Kitchen Sink for Toddlers, Fishing Game and Outside Sensory Toys, Blue" src="https://m.media-amazon.com/images/I/41lkqRbyQyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRXJFK91?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHXYKZ Water Table for Toddlers 1-3, Water Table for Kids Ages 4-8 with Pump, Play Sink with Running Water, Kitchen Sink for Toddlers, Fishing Game and Outside Sensory Toys, Blue" src="https://m.media-amazon.com/images/I/41lkqRbyQyL._SL500_.jpg"/></a>
 
 
 The **SHXYKZ Water Table for Toddlers** is an ideal choice for parents looking to engage their children aged **1-8 years** in interactive outdoor play. Perfect for toddlers and young kids who enjoy sensory activities, this water table combines fun and learning, making it a great addition to any backyard or playroom. If you want to encourage imaginative play while developing fine motor skills and hand-eye coordination, this **water table with a pump and play sink** is designed just for your little ones.
@@ -270,12 +270,12 @@ The **SHXYKZ Water Table** offers a multifaceted play experience with its integr
 
 Designed with safety and convenience in mind, the water table's compact size makes it easy to place in various settings, from indoors to outdoor patios or gardens. The sturdy construction ensures it withstands active play while the attractive **blue color** adds a vibrant touch. Overall, this water table provides a perfect blend of educational benefits and fun, making it a valuable toy for toddlers and young children to explore water play safely and imaginatively.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DRXJFK91?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DRXJFK91?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DZX7F2LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Squishy Sensory Toys For Kids</a>
+## <a href="https://www.amazon.com/dp/B0DZX7F2LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Squishy Sensory Toys For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZX7F2LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Squishy Sensory Toys for Kids with Autism, ADHD, Calming Toy for Kids, Teens, Quiet Fidgets Items for Classroom, Squishy Fidget Toys, Autism Sensory Toys, Marble Maze Fidget" src="https://m.media-amazon.com/images/I/51ZDeVhMtFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZX7F2LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Squishy Sensory Toys for Kids with Autism, ADHD, Calming Toy for Kids, Teens, Quiet Fidgets Items for Classroom, Squishy Fidget Toys, Autism Sensory Toys, Marble Maze Fidget" src="https://m.media-amazon.com/images/I/51ZDeVhMtFL._SL500_.jpg"/></a>
 
 
 The **Squishy Sensory Toys for Kids with Autism, ADHD** are ideal for children and teens who benefit from tactile stimulation and calming activities. These toys are perfect for individuals who struggle with focus, anxiety, or sensory processing challenges and need a discreet, quiet way to stay engaged, especially in classroom or home environments.
@@ -298,7 +298,7 @@ The **Squishy Sensory Toys** feature a compact, 2.5-inch cube design that fits c
 
 Manufactured by **Jinhua Rui Chi Toys Co., LTD** under the **witkidome** brand, this toy guarantees high-quality craftsmanship and safety. Its quiet operation ensures that it won't distract others, making it perfect for classroom settings or quiet environments. Overall, this fidget toy supports emotional regulation and focus, making it a valuable tool for kids and teens with **Autism**, **ADHD**, or other sensory processing challenges.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DZX7F2LB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DZX7F2LB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

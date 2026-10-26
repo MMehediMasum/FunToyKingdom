@@ -189,8 +189,8 @@ Using these tents in creative ways can make outdoor time exciting. Kids can lear
 
 Setting up a camouflage tent in the backyard creates a fun camping spot. Kids can sleep or play inside. It feels like a real adventure close to home.
 
-* Bring [sleeping bags](https://www.amazon.com/s?k=kids+sleeping+bags&tag=gearcookware-20) and pillows for comfort
-* Use a [small lantern](https://www.amazon.com/s?k=kids+camping+lantern&tag=gearcookware-20) for light inside the tent
+* Bring [sleeping bags](https://www.amazon.com/s?k=kids+sleeping+bags&tag=mofb05-20) and pillows for comfort
+* Use a [small lantern](https://www.amazon.com/s?k=kids+camping+lantern&tag=mofb05-20) for light inside the tent
 * Plan simple meals like sandwiches or snacks
 * Tell stories or sing songs around the tent
 * Invite friends or siblings for group camping
@@ -232,8 +232,8 @@ Whether you are looking for a budget-friendly option or a premium tent, understa
 Several popular brands make durable and fun camouflage tents for kids. These companies focus on safety and creativity.
 
 * Playhut: Known for easy setup and colorful designs.
-* [Pacific Play Tents](https://www.amazon.com/s?k=Pacific+Play+Tents+camouflage&tag=gearcookware-20): Offers a variety of sizes and sturdy materials.
-* [Sunny Days Entertainment](https://www.amazon.com/s?k=Sunny+Days+Entertainment+camo+tent&tag=gearcookware-20): Features unique themes that spark imagination.
+* [Pacific Play Tents](https://www.amazon.com/s?k=Pacific+Play+Tents+camouflage&tag=mofb05-20): Offers a variety of sizes and sturdy materials.
+* [Sunny Days Entertainment](https://www.amazon.com/s?k=Sunny+Days+Entertainment+camo+tent&tag=mofb05-20): Features unique themes that spark imagination.
 
 ### Customer Favorites
 
@@ -242,7 +242,7 @@ Parents love tents that are easy to assemble and clean. Reviews highlight featur
 #### Top Customer Picks:
 
 * Fun Zone Camouflage Tent: Loved for its roomy space.
-* [Adventure Kids Pop-Up Tent](https://www.amazon.com/s?k=kids+camo+pop+up+tent&tag=gearcookware-20): Praised for its ease of use.
+* [Adventure Kids Pop-Up Tent](https://www.amazon.com/s?k=kids+camo+pop+up+tent&tag=mofb05-20): Praised for its ease of use.
 * Explorer's Club Tent: Appreciated for its realistic look.
 
 ### Budget Vs. Premium Options

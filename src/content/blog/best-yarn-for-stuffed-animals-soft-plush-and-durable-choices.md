@@ -23,10 +23,10 @@ Polyester fiberfill adds the perfect stuffing softness inside. Safety eyes and n
 
 
 
-## <a href="https://www.amazon.com/dp/B0DNF2PCHX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chunky Yarn For Crocheting</a>
+## <a href="https://www.amazon.com/dp/B0DNF2PCHX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chunky Yarn For Crocheting</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNF2PCHX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chunky Yarn for Crocheting - Chenille Yarn for Knitting - Bulky Blanket Yarn for Crocheting Blankets/Amigurumi/Craft/Hat/Shoes, Plush Fluffy Soft Yarn 71 yds/3.5 oz Each Skein(Light Purple)" src="https://m.media-amazon.com/images/I/41DUE8kjy3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNF2PCHX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chunky Yarn for Crocheting - Chenille Yarn for Knitting - Bulky Blanket Yarn for Crocheting Blankets/Amigurumi/Craft/Hat/Shoes, Plush Fluffy Soft Yarn 71 yds/3.5 oz Each Skein(Light Purple)" src="https://m.media-amazon.com/images/I/41DUE8kjy3L._SL500_.jpg"/></a>
 
 
 The **Chunky Yarn for Crocheting** in **Light Purple** is perfect for crafters and knitters who love creating cozy, plush items quickly. Ideal for beginners and experienced artisans alike, this yarn is especially suited for making **blankets, amigurumi, hats, and shoes** that require a soft, bulky texture. If you're looking for a yarn that combines ease of use with a luxurious feel, this product from **Mooaske** is an excellent choice.
@@ -49,10 +49,10 @@ This **Chenille yarn** stands out for its plush, fluffy feel and bulky size, mak
 
 Manufactured by **Mooaske**, this yarn offers consistent quality and a beautiful **light purple** shade that adds a soothing, pastel vibe to any project. Whether you're creating a statement blanket or charming amigurumi figures, this yarn's thickness and softness provide an excellent balance of durability and comfort. Its 71 yards per skein length strikes a good compromise between quantity and manageability, allowing crafters to work efficiently while enjoying the tactile benefits.
 
-## <a href="https://www.amazon.com/dp/B08S7HR1BG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yexixsr Safety Eyes And Noses For Amigurumi </a>
+## <a href="https://www.amazon.com/dp/B08S7HR1BG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Yexixsr Safety Eyes And Noses For Amigurumi </a>
 
 
-<a href="https://www.amazon.com/dp/B08S7HR1BG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yexixsr 566PCS Safety Eyes and Noses for Amigurumi, Stuffed Crochet Eyes with Washers, Craft Doll Eyes and Nose for Teddy Bear, Crochet Toy, Stuffed Doll and Plush Animal (Various Sizes)" src="https://m.media-amazon.com/images/I/51RgJ4o4JsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08S7HR1BG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yexixsr 566PCS Safety Eyes and Noses for Amigurumi, Stuffed Crochet Eyes with Washers, Craft Doll Eyes and Nose for Teddy Bear, Crochet Toy, Stuffed Doll and Plush Animal (Various Sizes)" src="https://m.media-amazon.com/images/I/51RgJ4o4JsL._SL500_.jpg"/></a>
 
 
 The **Yexixsr 566PCS Safety Eyes and Noses for Amigurumi** is ideal for crafters and hobbyists who create **stuffed crochet toys, amigurumi, and plush animals**. Whether you are making teddy bears, dolls, or other stuffed creations, these safety eyes and noses provide a secure and professional finish. This product is perfect for anyone looking to add realistic and durable features to their handmade toys with ease.
@@ -75,10 +75,10 @@ The **Yexixsr 566PCS Safety Eyes and Noses** set features a variety of sizes to 
 
 The compact dimensions of the pieces make them easy to handle and attach, while their durable plastic construction ensures that your creations will withstand handling and play over time. Crafters will appreciate the convenience of having a large quantity of eyes and noses in one package, reducing the need for multiple purchases and allowing for consistent quality across projects. Overall, this set is an excellent choice for anyone serious about producing high-quality, safe, and attractive stuffed toys.
 
-## <a href="https://www.amazon.com/dp/B0BZRXPHZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Junreox 820pcs Safety Eyes For Amigurumi</a>
+## <a href="https://www.amazon.com/dp/B0BZRXPHZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Junreox 820pcs Safety Eyes For Amigurumi</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZRXPHZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Junreox 820pcs Safety Eyes for Amigurumi- Premium Safety Eyes and Noses for Crochet Animals, Assorted Size Crochet Eyes with Washers for Dolls Plushies Toys, Safety Eyes for Stuffed Animals Teddy Bear" src="https://m.media-amazon.com/images/I/51XGWca+wrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZRXPHZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Junreox 820pcs Safety Eyes for Amigurumi- Premium Safety Eyes and Noses for Crochet Animals, Assorted Size Crochet Eyes with Washers for Dolls Plushies Toys, Safety Eyes for Stuffed Animals Teddy Bear" src="https://m.media-amazon.com/images/I/51XGWca+wrL._SL500_.jpg"/></a>
 
 
 The **Junreox 820pcs Safety Eyes for Amigurumi** is perfect for crafters and hobbyists who create **crochet animals, dolls, plushies, and stuffed toys**. If you are someone passionate about making detailed and safe handmade toys, this set offers a versatile selection of sizes and colors to enhance your creations with professional-looking eyes and noses. It is ideal for both beginners and experienced makers who want durable, secure, and easy-to-use safety eyes for their projects.
@@ -100,10 +100,10 @@ The **Junreox Safety Eyes** set stands out by providing an extensive variety of 
 
 Additionally, the quality of the materials used ensures that these safety eyes are not only visually appealing but also robust enough to withstand handling and play. Whether you are making a teddy bear, doll, or any plush toy, the Junreox safety eyes provide a reliable solution to bring your amigurumi to life with a professional finish. This set is a valuable investment for anyone serious about crafting adorable and safe stuffed animals.
 
-## <a href="https://www.amazon.com/dp/B0BMKQN493?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coopay Crochet &amp; Knitting Yarn</a>
+## <a href="https://www.amazon.com/dp/B0BMKQN493?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coopay Crochet &amp; Knitting Yarn</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMKQN493?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coopay Crochet &amp; Knitting Yarn, 25g x 14 Multicolor Acrylic Yarn, 1071yd, 4ply Soft, Beginner/Professional Kit" src="https://m.media-amazon.com/images/I/51R6698B+VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMKQN493?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coopay Crochet &amp; Knitting Yarn, 25g x 14 Multicolor Acrylic Yarn, 1071yd, 4ply Soft, Beginner/Professional Kit" src="https://m.media-amazon.com/images/I/51R6698B+VL._SL500_.jpg"/></a>
 
 
 The **Coopay Crochet & Knitting Yarn** is ideal for both **beginners** and **professional crafters** who are looking for a versatile and vibrant yarn option. Whether you are just starting your crochet or knitting journey or are an experienced artisan seeking high-quality materials, this multicolor acrylic yarn kit provides the perfect balance of softness and durability. Its convenient 25g skeins and wide color range make it suitable for a variety of projects, from simple scarves to intricate patterns.
@@ -125,10 +125,10 @@ The **Coopay Crochet & Knitting Yarn** features a 4ply acrylic blend that provid
 
 Beyond its physical characteristics, this yarn kit offers users the flexibility to experiment with various stitches and techniques, thanks to the consistent thickness and smooth texture. Whether you are creating intricate patterns or simple stitches, the yarn glides effortlessly on hooks and needles, enhancing your crafting experience. For both beginners and seasoned knitters or crocheters, the **Coopay Crochet & Knitting Yarn** is a reliable and colorful choice to bring creative ideas to life.
 
-## <a href="https://www.amazon.com/dp/B0BFJSX87Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Woobles Easy Peasy Yarn For Beginners</a>
+## <a href="https://www.amazon.com/dp/B0BFJSX87Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Woobles Easy Peasy Yarn For Beginners</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFJSX87Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Woobles Easy Peasy Yarn for Beginners - Crochet &amp; Knitting Yarn with Easy-to-See Stitches - Medium #4 Worsted Cotton-Nylon Blend" src="https://m.media-amazon.com/images/I/41frYcCVqdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFJSX87Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Woobles Easy Peasy Yarn for Beginners - Crochet &amp; Knitting Yarn with Easy-to-See Stitches - Medium #4 Worsted Cotton-Nylon Blend" src="https://m.media-amazon.com/images/I/41frYcCVqdL._SL500_.jpg"/></a>
 
 
 The **Woobles Easy Peasy Yarn for Beginners** is ideal for those new to **crochet** and **knitting**, especially beginners who want a yarn that makes it easier to see their stitches and track their progress. If you are looking for a medium weight yarn that balances softness and durability, this yarn is perfect for crafting simple and vibrant projects without frustration.
@@ -151,10 +151,10 @@ The **Woobles Easy Peasy Yarn** is thoughtfully designed to help beginners easil
 
 Additionally, its manageable dimensions and lightweight nature make it comfortable to hold for long crafting sessions. The yarn’s versatility supports a wide range of beginner projects, from simple scarves to cozy blankets. With The Woobles’ reputation for quality, this yarn provides a reliable and enjoyable experience for anyone starting their crochet or knitting journey.
 
-## <a href="https://www.amazon.com/dp/B0BYSC6HQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jmuiiu Polyester Fill Premium Fiberfill</a>
+## <a href="https://www.amazon.com/dp/B0BYSC6HQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jmuiiu Polyester Fill Premium Fiberfill</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYSC6HQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jmuiiu 1.8oz-70.5oz Polyester Fill, Premium Polyester Fiberfill, Recycled Polyester Fiber, Stuffing for Stuffed Animals, High Resilience Stuffing Fluff Fiberfill for Pillow Filling, Animals Dolls DlY" src="https://m.media-amazon.com/images/I/31pBvlwWtJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYSC6HQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jmuiiu 1.8oz-70.5oz Polyester Fill, Premium Polyester Fiberfill, Recycled Polyester Fiber, Stuffing for Stuffed Animals, High Resilience Stuffing Fluff Fiberfill for Pillow Filling, Animals Dolls DlY" src="https://m.media-amazon.com/images/I/31pBvlwWtJL._SL500_.jpg"/></a>
 
 
 The **Jmuiiu 1.8oz-70.5oz Polyester Fill** is ideal for crafters, DIY enthusiasts, and hobbyists who need a reliable and versatile stuffing material. Whether you're making stuffed animals, pillows, or dolls, this premium **polyester fiberfill** offers a perfect balance of softness and resilience, making it a great choice for anyone looking to create plush, comfortable, and durable projects.
@@ -176,10 +176,10 @@ The **Jmuiiu Polyester Fiberfill** is crafted from high-quality recycled polyest
 
 Available in a range of weights from 1.8oz to 70.5oz, this stuffing allows users to select the perfect amount for projects of any size. Its compact dimensions make storage and handling easy, while the premium quality ensures that your DIY stuffed animals, pillows, or dolls will have a professional finish. Overall, the Jmuiiu Polyester Fiberfill is an excellent choice for anyone looking to enhance the quality and longevity of their handmade crafts.
 
-## <a href="https://www.amazon.com/dp/B079P99STM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lion Brand Yarn Feels Like Butta Yarn</a>
+## <a href="https://www.amazon.com/dp/B079P99STM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lion Brand Yarn Feels Like Butta Yarn</a>
 
 
-<a href="https://www.amazon.com/dp/B079P99STM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lion Brand Yarn Feels Like Butta Yarn, Velvety-Soft Yarn for Crocheting and Knitting, 1 Pack, Dusty Pink" src="https://m.media-amazon.com/images/I/41pBuJ9CIWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079P99STM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lion Brand Yarn Feels Like Butta Yarn, Velvety-Soft Yarn for Crocheting and Knitting, 1 Pack, Dusty Pink" src="https://m.media-amazon.com/images/I/41pBuJ9CIWL._SL500_.jpg"/></a>
 
 
 The **Lion Brand Yarn Feels Like Butta Yarn** in **Dusty Pink** is perfect for crafters who value a **velvety-soft texture** in their knitting or crocheting projects. Ideal for both beginners and experienced artisans, this yarn is suited for those looking to create cozy garments, accessories, or home decor items with a luxurious feel. If you want a yarn that combines softness with durability, this product is an excellent choice.
@@ -201,10 +201,10 @@ The **Lion Brand Yarn Feels Like Butta** stands out due to its exceptionally sof
 
 Additionally, this yarn's dimensions make it convenient to store and carry, allowing crafters to take their projects on the go. The high-quality material ensures durability and a beautiful finished product that retains its softness over time. Overall, the **Lion Brand Yarn Feels Like Butta** offers a delightful crafting experience with results that are both visually appealing and comfortable to wear.
 
-## <a href="https://www.amazon.com/dp/B07B7M5RBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">20 Acrylic Yarn Skeins</a>
+## <a href="https://www.amazon.com/dp/B07B7M5RBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">20 Acrylic Yarn Skeins</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7M5RBW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="20 Acrylic Yarn Skeins - 438 Yards Multicolored Yarn in Total – Great Crochet and Knitting Starter Kit for Colorful Craft – Assorted Colors" src="https://m.media-amazon.com/images/I/61Lv6O4V2eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07B7M5RBW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="20 Acrylic Yarn Skeins - 438 Yards Multicolored Yarn in Total – Great Crochet and Knitting Starter Kit for Colorful Craft – Assorted Colors" src="https://m.media-amazon.com/images/I/61Lv6O4V2eL._SL500_.jpg"/></a>
 
 
 The **20 Acrylic Yarn Skeins** set is perfect for beginners and experienced crafters who want a vibrant and versatile yarn collection. Ideal for those who love **crochet** and **knitting**, this starter kit offers a wide range of **assorted bright colors** that inspire creativity and add a colorful touch to any project.
@@ -226,10 +226,10 @@ This **multicolored yarn kit** features an extensive range of bright colors that
 
 Additionally, the lightweight nature of each skein makes this kit ideal for on-the-go crafting or for those with limited storage space. Whether you're just starting your crochet journey or looking to expand your collection with vibrant options, this set from **Mira HandCrafts** offers excellent value and versatility for colorful and creative crafting experiences.
 
-## <a href="https://www.amazon.com/dp/B09LD3JSNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Estako Velvet Chenille Blanket Amigurumi Yarn</a>
+## <a href="https://www.amazon.com/dp/B09LD3JSNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Estako Velvet Chenille Blanket Amigurumi Yarn</a>
 
 
-<a href="https://www.amazon.com/dp/B09LD3JSNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Estako Velvet Chenille Blanket amigurumi Yarn for Crocheting and Knitting Super Bulky 100 gr (132 yds) (1310 - Baby Pink)" src="https://m.media-amazon.com/images/I/21FE3dBiqjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09LD3JSNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Estako Velvet Chenille Blanket amigurumi Yarn for Crocheting and Knitting Super Bulky 100 gr (132 yds) (1310 - Baby Pink)" src="https://m.media-amazon.com/images/I/21FE3dBiqjL._SL500_.jpg"/></a>
 
 
 The **Estako Velvet Chenille Blanket amigurumi Yarn** in **Baby Pink** is perfect for crafters who want to create soft, cozy, and visually appealing projects. Ideal for both beginners and experienced crocheters or knitters, this yarn is especially suited for those working on amigurumi, blankets, or bulky winter accessories. If you seek a plush texture combined with ease of use, this super bulky yarn will meet your crafting needs.
@@ -252,10 +252,10 @@ The **Estako Velvet Chenille Blanket amigurumi Yarn** stands out for its plush, 
 
 Additionally, the delightful **Baby Pink** hue makes this yarn a perfect choice for baby blankets, soft toys, or decorative accents that require a gentle and soothing color palette. The generous length per skein ensures you have enough yarn to complete your projects without frequent stops, enhancing workflow and creativity. Overall, this yarn offers a balance of comfort, aesthetics, and practical features for hobbyists and professionals alike.
 
-## <a href="https://www.amazon.com/dp/B0DFWJ72R5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chunky Chenille Yarn</a>
+## <a href="https://www.amazon.com/dp/B0DFWJ72R5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chunky Chenille Yarn</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFWJ72R5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pack 590 (yd) Chunky Chenille Yarn for Crocheting and Hand Knitting with Black Red White Green Yellow Orange Plush Velvet Yarn，Baby Blanket Yarn for Crocheting Soft Amigurumi Yarn" src="https://m.media-amazon.com/images/I/51kVrlN3TeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFWJ72R5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12 Pack 590 (yd) Chunky Chenille Yarn for Crocheting and Hand Knitting with Black Red White Green Yellow Orange Plush Velvet Yarn，Baby Blanket Yarn for Crocheting Soft Amigurumi Yarn" src="https://m.media-amazon.com/images/I/51kVrlN3TeL._SL500_.jpg"/></a>
 
 
 The **12 Pack 590 (yd) Chunky Chenille Yarn** is ideal for crafters and knitting enthusiasts who love creating cozy, soft projects such as baby blankets, amigurumi, and home decor. If you're someone who values plush texture and vibrant colors in your yarn for hand knitting or crocheting, this **OMoiut brand** yarn set is perfect for you. Beginners and experienced knitters alike will appreciate the ease of use and versatility this yarn offers.

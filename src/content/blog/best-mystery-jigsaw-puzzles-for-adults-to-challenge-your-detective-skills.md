@@ -23,10 +23,10 @@ Themes range from classic detective tales to thrilling murder mysteries. Some pu
 
 
 
-## <a href="https://www.amazon.com/dp/B003G9MAM8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Classic Mystery Jigsaw Puzzle - Sherlock Holmes</a>
+## <a href="https://www.amazon.com/dp/B003G9MAM8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Classic Mystery Jigsaw Puzzle - Sherlock Holmes</a>
 
 
-<a href="https://www.amazon.com/dp/B003G9MAM8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bepuzzled Classic Mystery Jigsaw Puzzle - Sherlock Holmes, 1000" src="https://m.media-amazon.com/images/I/51+szW2fVOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003G9MAM8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bepuzzled Classic Mystery Jigsaw Puzzle - Sherlock Holmes, 1000" src="https://m.media-amazon.com/images/I/51+szW2fVOL._SL500_.jpg"/></a>
 
 
 The **Bepuzzled Classic Mystery Jigsaw Puzzle - Sherlock Holmes, 1000** is perfect for puzzle enthusiasts and mystery lovers who enjoy a challenging and engaging pastime. Ideal for adults and teenagers who appreciate intricate designs and classic literary themes, this puzzle offers a stimulating way to relax and sharpen cognitive skills. If you love immersing yourself in the world of Sherlock Holmes while piecing together a beautiful and complex jigsaw, this is the perfect choice for you.
@@ -49,10 +49,10 @@ The **Bepuzzled Classic Mystery Jigsaw Puzzle** brings the timeless intrigue of 
 
 Additionally, the puzzle’s thematic focus on a classic mystery adds an immersive storytelling element, making the activity more engaging and enjoyable. As users piece together the puzzle, they not only develop their spatial reasoning and memory skills but also get to appreciate the iconic imagery associated with Sherlock Holmes. Its manageable size and weight make it a versatile option for home or travel use, appealing to those who want a portable yet challenging puzzle experience.
 
-## <a href="https://www.amazon.com/dp/B0026MSNT0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Classic Mystery Jigsaw Puzzle</a>
+## <a href="https://www.amazon.com/dp/B0026MSNT0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Classic Mystery Jigsaw Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B0026MSNT0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bepuzzled Classic Mystery Jigsaw Puzzle - Foul Play &amp; Cabernet, Red" src="https://m.media-amazon.com/images/I/51b5l2Vzz-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0026MSNT0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bepuzzled Classic Mystery Jigsaw Puzzle - Foul Play &amp; Cabernet, Red" src="https://m.media-amazon.com/images/I/51b5l2Vzz-L._SL500_.jpg"/></a>
 
 
 The **Bepuzzled Classic Mystery Jigsaw Puzzle - Foul Play & Cabernet, Red** is ideal for puzzle enthusiasts who enjoy a thrilling twist to their pastime. This item is perfect for those who love combining the challenge of a traditional jigsaw puzzle with an engaging murder mystery theme, making it an excellent choice for social gatherings, family game nights, or solo relaxation. If you appreciate intricate designs and storytelling elements in your puzzles, this product is designed specifically for you.
@@ -75,10 +75,10 @@ The **Bepuzzled Classic Mystery Jigsaw Puzzle** offers a blend of entertainment 
 
 Its compact size makes it a convenient option for puzzlers who want a quick yet stimulating activity without the commitment of larger puzzles. The theme introduces an interactive element that can spark conversation and creative thinking, making it ideal for group settings or as a thoughtful gift for mystery lovers. Overall, this puzzle balances storytelling and craftsmanship, offering a unique pastime for its target audience.
 
-## <a href="https://www.amazon.com/dp/B001GRY5OI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grounds For Murder</a>
+## <a href="https://www.amazon.com/dp/B001GRY5OI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grounds For Murder</a>
 
 
-<a href="https://www.amazon.com/dp/B001GRY5OI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled | Unravel the Mystery, Grounds for Murder - Classic Mystery 1000 pc. Jigsaw Puzzle for Thrill-Seekers and Puzzle Enthusiasts!" src="https://m.media-amazon.com/images/I/51NsR3yxtIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001GRY5OI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BePuzzled | Unravel the Mystery, Grounds for Murder - Classic Mystery 1000 pc. Jigsaw Puzzle for Thrill-Seekers and Puzzle Enthusiasts!" src="https://m.media-amazon.com/images/I/51NsR3yxtIL._SL500_.jpg"/></a>
 
 
 The **BePuzzled | Grounds for Murder - Classic Mystery 1000 pc. Jigsaw Puzzle** is ideal for **thrill-seekers** and **puzzle enthusiasts** who enjoy immersing themselves in a challenging and engaging mystery experience. This puzzle is perfect for those who appreciate intricate designs and a storyline element while testing their problem-solving skills in a relaxing and entertaining way.
@@ -101,10 +101,10 @@ The **Grounds for Murder puzzle** combines the classic allure of a murder myster
 
 Beyond entertainment, this puzzle also offers cognitive benefits such as improving spatial reasoning, enhancing memory, and fostering patience. By piecing together the mystery scene, users can immerse themselves in a stimulating activity that doubles as a mental workout, perfect for both individual relaxation and social gatherings.
 
-## <a href="https://www.amazon.com/dp/B001B80RXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Murder Mystery Party</a>
+## <a href="https://www.amazon.com/dp/B001B80RXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Murder Mystery Party</a>
 
 
-<a href="https://www.amazon.com/dp/B001B80RXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Murder Mystery Party | Classic Mystery Jigsaw Puzzle, Death on The Istanbul Express, 1,000 Piece Jigsaw Puzzle, Orange" src="https://m.media-amazon.com/images/I/51Zm32EqflL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001B80RXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Murder Mystery Party | Classic Mystery Jigsaw Puzzle, Death on The Istanbul Express, 1,000 Piece Jigsaw Puzzle, Orange" src="https://m.media-amazon.com/images/I/51Zm32EqflL._SL500_.jpg"/></a>
 
 
 The **Murder Mystery Party | Classic Mystery Jigsaw Puzzle, Death on The Istanbul Express, 1,000 Piece Jigsaw Puzzle** is ideal for puzzle enthusiasts who enjoy a challenging and engaging activity combined with a thrilling storyline. This item is perfect for adults and older teens who love mystery themes and want to spend quality time solving a complex puzzle that doubles as a captivating murder mystery experience. It’s also great for group activities, such as family game nights or social gatherings, where teamwork and problem-solving are key.
@@ -127,10 +127,10 @@ This **Classic Mystery Jigsaw Puzzle** combines traditional puzzle assembly with
 
 Beyond just assembling the puzzle, this product offers the added benefit of engaging users in a classic murder mystery, encouraging critical thinking and attention to detail. As users piece together the image, they simultaneously unravel the story, making it an interactive and entertaining activity. The quality craftsmanship from **Murder Mystery Party** and **University Games** ensures durability and longevity, making this puzzle a valuable addition to any game or puzzle collection.
 
-## <a href="https://www.amazon.com/dp/B0CL7W9S43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Time Warp Puzzle Mystery Jigsaw Puzzle 1000 Pieces For Adults Day Night Series</a>
+## <a href="https://www.amazon.com/dp/B0CL7W9S43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Time Warp Puzzle Mystery Jigsaw Puzzle 1000 Pieces For Adults Day Night Series</a>
 
 
-<a href="https://www.amazon.com/dp/B0CL7W9S43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Time Warp Puzzle Mystery Jigsaw Puzzle 1000 Pieces for Adults Day Night Series - A Challenging, Difficult, Picture Changing Puzzle to Solve 26.625 x 19.25 in (Starwatchers)" src="https://m.media-amazon.com/images/I/51qucBwYCvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CL7W9S43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Time Warp Puzzle Mystery Jigsaw Puzzle 1000 Pieces for Adults Day Night Series - A Challenging, Difficult, Picture Changing Puzzle to Solve 26.625 x 19.25 in (Starwatchers)" src="https://m.media-amazon.com/images/I/51qucBwYCvL._SL500_.jpg"/></a>
 
 
 The **Time Warp Puzzle Mystery Jigsaw Puzzle 1000 Pieces** from the **Day Night Series** is ideal for puzzle enthusiasts seeking a challenging and unique experience. Perfect for **adults** who enjoy complex, picture-changing puzzles, this item is designed for those who appreciate intricate designs and a satisfying mental workout. If you love puzzles that test your patience and problem-solving skills while providing a stunning visual reward, this puzzle is a great choice.
@@ -153,10 +153,10 @@ The **Time Warp Puzzle Mystery Jigsaw Puzzle** stands out due to its innovative 
 
 Made by **da Vinci's Room**, this puzzle boasts high-quality materials and precise cuts to ensure pieces fit snugly together. The dimensions and weight make it manageable yet substantial enough to display once completed. The combination of bright and dark shades in blues, purples, and greens creates a mesmerizing night sky effect, perfect for anyone fascinated by astronomy or abstract art.
 
-## <a href="https://www.amazon.com/dp/B0007LXWD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Murder Mystery Party</a>
+## <a href="https://www.amazon.com/dp/B0007LXWD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Murder Mystery Party</a>
 
 
-<a href="https://www.amazon.com/dp/B0007LXWD4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Murder Mystery Party, Classic Mystery Jigsaw Puzzle, Murder by The Pyramids, 1,000 Piece Jigsaw Puzzle" src="https://m.media-amazon.com/images/I/51v4ez90k4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0007LXWD4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Murder Mystery Party, Classic Mystery Jigsaw Puzzle, Murder by The Pyramids, 1,000 Piece Jigsaw Puzzle" src="https://m.media-amazon.com/images/I/51v4ez90k4L._SL500_.jpg"/></a>
 
 
 The **Murder Mystery Party, Classic Mystery Jigsaw Puzzle, Murder by The Pyramids, 1,000 Piece Jigsaw Puzzle** is ideal for puzzle enthusiasts and fans of mystery-themed games. This item is perfect for individuals or groups who enjoy challenging their problem-solving skills and love immersive storytelling through interactive entertainment. Whether you are hosting a game night or looking for a unique gift for someone who enjoys both puzzles and mysteries, this product offers an engaging experience.
@@ -179,10 +179,10 @@ The **Murder Mystery Party, Classic Mystery Jigsaw Puzzle** stands out by combin
 
 Thanks to its substantial size and high piece count, this puzzle is perfect for extended sessions that encourage focus and teamwork. The packaging and design by **University Games** ensure quality and durability, making it a lasting addition to any puzzle collection. Overall, this product is a fantastic way to enjoy a classic puzzle while diving into a captivating mystery scenario.
 
-## <a href="https://www.amazon.com/dp/B0085093IC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Classic Mystery Recipe For Murder Jigsaw Puzzle</a>
+## <a href="https://www.amazon.com/dp/B0085093IC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bepuzzled Classic Mystery Recipe For Murder Jigsaw Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B0085093IC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bepuzzled Classic Mystery Recipe For Murder Jigsaw Puzzle by University Games |Comes with Murder Mystery and Jigsaw Puzzle | 1,000 Piece Jigsaw | For Ages 12 Years and Up" src="https://m.media-amazon.com/images/I/51awSc---SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0085093IC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bepuzzled Classic Mystery Recipe For Murder Jigsaw Puzzle by University Games |Comes with Murder Mystery and Jigsaw Puzzle | 1,000 Piece Jigsaw | For Ages 12 Years and Up" src="https://m.media-amazon.com/images/I/51awSc---SL._SL500_.jpg"/></a>
 
 
 The **Bepuzzled Classic Mystery Recipe For Murder Jigsaw Puzzle** by **University Games** is perfect for puzzle enthusiasts aged **12 years and up** who enjoy a blend of challenging jigsaw puzzles and engaging murder mystery games. Ideal for those who love immersive, interactive entertainment, this product offers a unique experience combining a **1,000 piece jigsaw puzzle** with a thrilling murder mystery story, making it a great choice for family game nights or gatherings with friends.
@@ -205,10 +205,10 @@ The **Bepuzzled Classic Mystery Recipe For Murder Jigsaw Puzzle** stands out by 
 
 Beyond its entertainment value, this product promotes cognitive development by enhancing spatial reasoning, critical thinking, and attention to detail. Its size and weight make it practical for use at home or during travel, while the inclusion of a mystery game adds a creative twist that differentiates it from typical jigsaw puzzles. Overall, it is an excellent choice for anyone looking to combine mental stimulation with a captivating storyline in a single, well-designed game.
 
-## <a href="https://www.amazon.com/dp/B00005S0J0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tdc Games Alphabet Mystery Jigsaw Puzzle For Adults</a>
+## <a href="https://www.amazon.com/dp/B00005S0J0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tdc Games Alphabet Mystery Jigsaw Puzzle For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B00005S0J0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TDC Games Alphabet Mystery Jigsaw Puzzle for Adults, 500 Piece Puzzle Game - A is for Arson" src="https://m.media-amazon.com/images/I/51fhczSvewL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00005S0J0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TDC Games Alphabet Mystery Jigsaw Puzzle for Adults, 500 Piece Puzzle Game - A is for Arson" src="https://m.media-amazon.com/images/I/51fhczSvewL._SL500_.jpg"/></a>
 
 
 The **TDC Games Alphabet Mystery Jigsaw Puzzle for Adults, 500 Piece Puzzle Game - A is for Arson** is ideal for puzzle enthusiasts who enjoy a unique and challenging experience. This item is perfect for adults who love combining their passion for puzzles with intriguing and thematic designs. If you appreciate detailed artwork, mystery elements, and a moderate level of difficulty, this puzzle will provide hours of engaging entertainment.
@@ -231,10 +231,10 @@ The **TDC Games Alphabet Mystery Jigsaw Puzzle** offers a distinctive blend of m
 
 Crafted by **Wood Expressions, Inc.**, this puzzle boasts excellent build quality, ensuring the pieces fit snugly and are durable. Its compact size of 13 by 13 inches makes it versatile for various settings, whether you want to work on it at home, take it to a friend's house, or display the finished piece. The lightweight and single-color design further contribute to its user-friendly nature, making it a great addition to any puzzle lover’s collection.
 
-## <a href="https://www.amazon.com/dp/B0D9ZPMDKL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">White Mountain Puzzles Hollywood Murder Mystery</a>
+## <a href="https://www.amazon.com/dp/B0D9ZPMDKL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">White Mountain Puzzles Hollywood Murder Mystery</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9ZPMDKL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="White Mountain Puzzles Hollywood Murder Mystery 1000 Piece Jigsaw Fun Collage Puzzle" src="https://m.media-amazon.com/images/I/51OANwzzzSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9ZPMDKL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="White Mountain Puzzles Hollywood Murder Mystery 1000 Piece Jigsaw Fun Collage Puzzle" src="https://m.media-amazon.com/images/I/51OANwzzzSL._SL500_.jpg"/></a>
 
 
 The **White Mountain Puzzles Hollywood Murder Mystery 1000 Piece Jigsaw Fun Collage Puzzle** is ideal for puzzle enthusiasts and fans of classic Hollywood who enjoy a challenging and engaging activity. This puzzle is perfect for adults and older teens who appreciate detailed artwork and want to immerse themselves in a nostalgic murder mystery theme. It's also a great choice for those looking to enhance their cognitive skills and spend quality time with family or friends.
@@ -256,10 +256,10 @@ This **jigsaw puzzle** brings together the excitement of a **murder mystery** wi
 
 Beyond entertainment, completing this puzzle offers cognitive benefits such as improved problem-solving skills, better hand-eye coordination, and enhanced memory. The compact yet sizable dimensions mean that once assembled, the puzzle can be easily displayed as a piece of art. Whether you’re looking to unwind or engage your mind, the **White Mountain Puzzles Hollywood Murder Mystery** offers both enjoyment and a rewarding challenge.
 
-## <a href="https://www.amazon.com/dp/B09XP5RNK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Odd Pieces Mystery Jigsaw Puzzle</a>
+## <a href="https://www.amazon.com/dp/B09XP5RNK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Odd Pieces Mystery Jigsaw Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B09XP5RNK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Odd Pieces Mystery Jigsaw Puzzle-1,000 Pcs Mystery Puzzle with Storytelling Comics, Secret Ending-1000 Piece Puzzle for Adults &amp; Kids –19.7'' x 27.6'' Frameable Magic Art (Snack Attack)" src="https://m.media-amazon.com/images/I/51b6CKw0i0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XP5RNK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Odd Pieces Mystery Jigsaw Puzzle-1,000 Pcs Mystery Puzzle with Storytelling Comics, Secret Ending-1000 Piece Puzzle for Adults &amp; Kids –19.7'' x 27.6'' Frameable Magic Art (Snack Attack)" src="https://m.media-amazon.com/images/I/51b6CKw0i0L._SL500_.jpg"/></a>
 
 
 Ideal for **puzzle enthusiasts**, families, and anyone who enjoys a challenging yet entertaining activity, the **Odd Pieces Mystery Jigsaw Puzzle-1,000 Pcs** offers a unique blend of traditional puzzle-solving with an intriguing storytelling twist. Perfect for both **adults and kids**, this puzzle is designed for those who appreciate a creative challenge that goes beyond just assembling pieces.

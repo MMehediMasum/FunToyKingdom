@@ -23,10 +23,10 @@ Realistic baby dolls and small mini dolls both offer fun ways for toddlers to ex
 
 
 
-## <a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Babeside 4pcs Doll Bedding For 17–22 Inch Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Babeside 4pcs Doll Bedding For 17–22 Inch Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BABESIDE 4Pcs Doll Bedding for 17–22 Inch Reborn Baby Dolls,Baby Dolls Accessories with Rainbow Floral Pattern Padded Mattress, Quilt and 2 Pillow for Realistic Babies Dolls" src="https://m.media-amazon.com/images/I/41K0Obp3CqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BABESIDE 4Pcs Doll Bedding for 17–22 Inch Reborn Baby Dolls,Baby Dolls Accessories with Rainbow Floral Pattern Padded Mattress, Quilt and 2 Pillow for Realistic Babies Dolls" src="https://m.media-amazon.com/images/I/41K0Obp3CqL._SL500_.jpg"/></a>
 
 
 The **BABESIDE 4Pcs Doll Bedding** set is perfect for collectors and parents who own **17–22 inch reborn baby dolls** and want to enhance their dolls' realism and comfort. Ideal for those seeking high-quality, detailed accessories to create a cozy and visually appealing environment for their **baby dolls**, this bedding set brings both charm and functionality to doll care and display.
@@ -48,10 +48,10 @@ The **BABESIDE 4Pcs Doll Bedding** set is thoughtfully crafted to enhance the ov
 
 Beyond its visual appeal, this bedding set supports imaginative play and doll nurturing, making it an excellent accessory for children and collectors alike. Its tailored dimensions ensure the bedding fits snugly, preventing slipping or bunching. Furthermore, the durable materials provide ease of maintenance, so the bedding remains fresh and inviting over time. Overall, the **BABESIDE Doll Bedding** set is a valuable addition to any reborn doll collection, combining beauty, comfort, and practicality.
 
-## <a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Onest 2 Sets 5 Inch Dolls Cute Girl Doll</a>
+## <a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Onest 2 Sets 5 Inch Dolls Cute Girl Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ONEST 2 Sets 5 Inch Dolls Cute Girl Doll Include 2 Pieces Girl Mini Dolls, 2 Sets Handmade Doll Clothes and Accessories" src="https://m.media-amazon.com/images/I/417QedHJmmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D4CPYTV1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ONEST 2 Sets 5 Inch Dolls Cute Girl Doll Include 2 Pieces Girl Mini Dolls, 2 Sets Handmade Doll Clothes and Accessories" src="https://m.media-amazon.com/images/I/417QedHJmmL._SL500_.jpg"/></a>
 
 
 The **ONEST 2 Sets 5 Inch Dolls Cute Girl Doll** are perfect for collectors, children who enjoy imaginative play, and anyone looking for charming, handcrafted miniature dolls. Ideal for those who appreciate detailed accessories and quality craftsmanship, these dolls offer a delightful experience for both playtime and display.
@@ -73,10 +73,10 @@ These **ONEST 5 Inch Dolls** stand out with their finely crafted details and ado
 
 Crafted by **ONEST**, these dolls are designed with attention to detail and quality materials, ensuring long-lasting enjoyment. The unique **Mouse color** adds a charming aesthetic that appeals to both kids and collectors alike. Whether for gifting or personal use, these dolls offer a blend of fun, style, and craftsmanship that makes them stand out in the miniature doll market.
 
-## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dream Collection Baby Starter Set</a>
+## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Dream Collection Baby Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
 
 
 The **Dream Collection, Baby Starter Set** is ideal for children who enjoy imaginative and realistic pretend play. This set is perfect for young kids who love nurturing role-play, especially those fascinated by lifelike baby dolls and interactive accessories. Parents looking to encourage empathy, creativity, and fine motor skills in their children will find this 12” soft posable baby doll an excellent choice.
@@ -98,10 +98,10 @@ The **Dream Collection, Baby Starter Set** features a meticulously crafted 12-in
 
 Alongside the doll, the included accessories further enrich the pretend play experience by encouraging children to practice caregiving routines such as feeding and dressing. The set is made by **Dream Collection**, a brand known for quality and attention to detail, ensuring durability that withstands active play. This starter set not only provides hours of entertainment but also supports early childhood development in a fun and interactive way.
 
-## <a href="https://www.amazon.com/dp/B0BYYX99C6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Guessbelly Baby Reborn Doll</a>
+## <a href="https://www.amazon.com/dp/B0BYYX99C6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Guessbelly Baby Reborn Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYYX99C6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GUESSBELLY 60CM 3D-Paint Skin Baby Reborn Doll (Fabric Body, Soft Vinyl Limb) with Blood Vessels, 24inch Realistic Bebe Handmade Smiling Princess Toddler Girl Toy Alive" src="https://m.media-amazon.com/images/I/41l7Ho1E2FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYYX99C6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="GUESSBELLY 60CM 3D-Paint Skin Baby Reborn Doll (Fabric Body, Soft Vinyl Limb) with Blood Vessels, 24inch Realistic Bebe Handmade Smiling Princess Toddler Girl Toy Alive" src="https://m.media-amazon.com/images/I/41l7Ho1E2FL._SL500_.jpg"/></a>
 
 
 The **GUESSBELLY 60CM 3D-Paint Skin Baby Reborn Doll** is perfect for collectors, parents, and gift buyers looking for a highly realistic and lifelike toddler girl doll. Ideal for those who appreciate detailed craftsmanship and want a soft, cuddly companion with authentic features such as visible blood vessels and a smiling face. This doll suits anyone seeking a comforting toy for children or a beautiful addition to a doll collection.
@@ -124,10 +124,10 @@ The **GUESSBELLY Reborn Doll** features a beautifully crafted fabric body paired
 
 Beyond its appearance, the doll’s handmade design guarantees that each piece is unique, reflecting careful attention to detail. The smiling princess toddler expression brings a joyful and inviting character, encouraging imaginative play and emotional connection. Its combination of soft materials and realistic features makes it an exceptional gift or a treasured addition to any doll enthusiast’s collection.
 
-## <a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adfo Lifelike Reborn Baby Dolls 20 Inches Girl</a>
+## <a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Adfo Lifelike Reborn Baby Dolls 20 Inches Girl</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ADFO Lifelike Reborn Baby Dolls 20 Inches Girl Realistic Baby Doll with Soft Cloth Body Sleeping Lifelike Baby Doll with Feeding Accessories Gift for Kids Ages 3 4 5 6 7+" src="https://m.media-amazon.com/images/I/41hXKLWSq7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="ADFO Lifelike Reborn Baby Dolls 20 Inches Girl Realistic Baby Doll with Soft Cloth Body Sleeping Lifelike Baby Doll with Feeding Accessories Gift for Kids Ages 3 4 5 6 7+" src="https://m.media-amazon.com/images/I/41hXKLWSq7L._SL500_.jpg"/></a>
 
 
 The **ADFO Lifelike Reborn Baby Dolls 20 Inches Girl** is perfect for children aged **3 to 7+** who enjoy nurturing and imaginative play. This **realistic baby doll** with a **soft cloth body** is ideal for young kids who want a comforting companion that closely mimics the look and feel of a real infant. It also makes a thoughtful gift for parents seeking a safe, interactive toy for their little ones.
@@ -150,10 +150,10 @@ The **ADFO Lifelike Reborn Baby Doll** features a lifelike sleeping baby design 
 
 Additionally, the doll comes with **feeding accessories** that allow children to engage in nurturing activities, enhancing their fine motor skills and fostering a sense of responsibility. Its manageable size ensures that kids can easily carry and care for their doll, making it a versatile toy for home or travel. Manufactured by **ADFO**, this doll guarantees quality and safety, providing peace of mind to parents and hours of joyful play for children.
 
-## <a href="https://www.amazon.com/dp/B0BS73DCXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aurora Enchanting Sea Sparkles Flutter Fashion Sparkles Malala Stuffed Doll</a>
+## <a href="https://www.amazon.com/dp/B0BS73DCXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Aurora Enchanting Sea Sparkles Flutter Fashion Sparkles Malala Stuffed Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS73DCXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Aurora® Enchanting Sea Sparkles™ Flutter Fashion Sparkles™ Malala Stuffed Doll - Imaginative Play - Magical Companions - Pink 18 Inches" src="https://m.media-amazon.com/images/I/31j32kl4VfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS73DCXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Aurora® Enchanting Sea Sparkles™ Flutter Fashion Sparkles™ Malala Stuffed Doll - Imaginative Play - Magical Companions - Pink 18 Inches" src="https://m.media-amazon.com/images/I/31j32kl4VfL._SL500_.jpg"/></a>
 
 
 The **Aurora® Enchanting Sea Sparkles™ Flutter Fashion Sparkles™ Malala Stuffed Doll** is perfect for children who love imaginative play and magical companions. Ideal for kids who enjoy collecting soft, colorful dolls and engaging in creative storytelling, this **18-inch pink stuffed doll** offers both comfort and inspiration for young dreamers. Parents looking for a cuddly, visually appealing toy that encourages imaginative interaction will find this doll an excellent choice.
@@ -176,10 +176,10 @@ Crafted by the reputable **Aurora® brand**, this enchanting stuffed doll stands
 
 Beyond its visual appeal, the doll promotes imaginative play, helping children develop creativity and storytelling skills. Its lightweight design allows kids to bring their magical companion on all sorts of adventures without strain. While the doll is designed with safety and quality in mind, parents should note the delicate sparkles and decorative elements, ensuring they are handled with care to maintain the doll's charm and longevity. Overall, the Aurora® Enchanting Sea Sparkles™ Malala Stuffed Doll is a delightful, magical friend that enriches playtime with imagination and comfort.
 
-## <a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Newtotlove Miniature Silicone Reborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Newtotlove Miniature Silicone Reborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Newtotlove 4.5" babies="" baby="" black="" doll="" eyes="" girl"="" look="" miniature="" newborn="" open="" real="" realistic="" reborn="" silicone="" src="https://m.media-amazon.com/images/I/41w+dmbxviL._SL500_.jpg" the=""/></a>
+<a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Newtotlove 4.5" babies="" baby="" black="" doll="" eyes="" girl"="" look="" miniature="" newborn="" open="" real="" realistic="" reborn="" silicone="" src="https://m.media-amazon.com/images/I/41w+dmbxviL._SL500_.jpg" the=""/></a>
 
 
 The **Newtotlove 4.5" Miniature Silicone Reborn Baby** is perfect for collectors, doll enthusiasts, and anyone looking to gift a highly realistic and lifelike **newborn doll**. Ideal for those who appreciate detailed craftsmanship, this **miniature silicone doll** with **open eyes** captures the innocence and charm of a real baby, making it a wonderful addition to any collection or a comforting companion for children.
@@ -202,10 +202,10 @@ The **Newtotlove 4.5" Miniature Silicone Reborn Baby** stands out with its reali
 
 Additionally, the doll's **open eyes** add an extra layer of realism, making it feel more lifelike and engaging for the user. The gentle **pink color** complements the delicate features, creating an appealing and charming miniature baby doll. Whether used as a collectible item or a comforting toy, this **Newtotlove** creation provides both aesthetic pleasure and emotional connection.
 
-## <a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bddoll Black Doll And 14.5 Inch Baby Girl Doll</a>
+## <a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Bddoll Black Doll And 14.5 Inch Baby Girl Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BDDOLL Black Doll and 14.5 Inch Baby Girl Doll Clothes Set Gift for Girl - African Realstic Silicone Dolls with Rose Skirt Dress and Shoes" src="https://m.media-amazon.com/images/I/41qUbRkVL3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGL5GDCX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="BDDOLL Black Doll and 14.5 Inch Baby Girl Doll Clothes Set Gift for Girl - African Realstic Silicone Dolls with Rose Skirt Dress and Shoes" src="https://m.media-amazon.com/images/I/41qUbRkVL3L._SL500_.jpg"/></a>
 
 
 The **BDDOLL Black Doll and 14.5 Inch Baby Girl Doll Clothes Set Gift** is ideal for parents, relatives, or friends looking to gift young girls a realistic and engaging toy. This product is perfect for children who enjoy imaginative play and nurturing activities, especially those who appreciate dolls that reflect diversity and cultural representation. It is also suitable for collectors of realistic silicone dolls who value detailed craftsmanship and quality materials.
@@ -228,10 +228,10 @@ The **BDDOLL Black Doll** stands out due to its realistic silicone construction,
 
 Additionally, the doll’s design embraces cultural diversity with its **African realistic features**, helping children appreciate and learn about different backgrounds. Manufactured by **BDDOLL**, this product reflects a commitment to quality and safety, ensuring a durable and safe toy. Overall, this doll set is a thoughtful gift that combines educational value with fun, making it a cherished addition to any child's collection.
 
-## <a href="https://www.amazon.com/dp/B0D2Y5HKNR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mud Pie Children's Ballerina Plush Doll</a>
+## <a href="https://www.amazon.com/dp/B0D2Y5HKNR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Mud Pie Children's Ballerina Plush Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2Y5HKNR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 4.5""="" alt="Mud Pie Children's Ballerina Plush Doll, Blonde, 11" src="https://m.media-amazon.com/images/I/21E1wZWX9YL._SL500_.jpg" x=""/></a>
+<a href="https://www.amazon.com/dp/B0D2Y5HKNR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img 4.5""="" alt="Mud Pie Children's Ballerina Plush Doll, Blonde, 11" src="https://m.media-amazon.com/images/I/21E1wZWX9YL._SL500_.jpg" x=""/></a>
 
 
 The **Mud Pie Children's Ballerina Plush Doll** is ideal for parents and gift-givers looking for a charming and soft toy for young children, especially those who love ballet or imaginative play. This doll is perfect for kids who enjoy cuddly companions and role-playing as dancers, making it a thoughtful gift for birthdays, holidays, or special occasions.
@@ -254,10 +254,10 @@ The **Mud Pie Children's Ballerina Plush Doll** features a delicate and detailed
 
 Beyond its charming appearance, the doll supports creative and imaginative play, which is crucial for child development. Children can create stories, practice social skills, and express emotions through their interaction with this ballerina plush doll. Additionally, the high-quality materials and craftsmanship from **Mud Pie** ensure that the doll remains a beloved keepsake for years, encouraging repeated play and attachment.
 
-## <a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kaydora Lifelike Reborn Black Girl Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kaydora Lifelike Reborn Black Girl Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kaydora Lifelike Reborn Black Girl, 20 Inch Realistic Newborn Baby Dolls That Look Real, Vinyl African American Reborn Baby Doll with Soft Body Best Gift for Kids Age 3+" src="https://m.media-amazon.com/images/I/414ETd-ewpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kaydora Lifelike Reborn Black Girl, 20 Inch Realistic Newborn Baby Dolls That Look Real, Vinyl African American Reborn Baby Doll with Soft Body Best Gift for Kids Age 3+" src="https://m.media-amazon.com/images/I/414ETd-ewpL._SL500_.jpg"/></a>
 
 
 The **Kaydora Lifelike Reborn Black Girl** doll is perfect for parents, collectors, and children aged 3 and above who are looking for a **realistic newborn baby doll** that represents diversity and offers a nurturing play experience. This **20 inch vinyl African American reborn baby doll** is ideal for those who want a high-quality, soft-bodied doll that feels and looks like a real baby, making it an excellent gift for young kids or a thoughtful addition to a doll collection.

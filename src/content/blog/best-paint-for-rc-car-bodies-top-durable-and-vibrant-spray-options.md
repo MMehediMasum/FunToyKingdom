@@ -22,10 +22,10 @@ Traxxas offers race-ready colors such as candy magenta and race red. Some paints
 
 
 
-## <a href="https://www.amazon.com/dp/B0000WS04G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Tamiya Paint Spray </a>
+## <a href="https://www.amazon.com/dp/B0000WS04G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"> Tamiya Paint Spray </a>
 
 
-<a href="https://www.amazon.com/dp/B0000WS04G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya 86001 Paint Spray, White" src="https://m.media-amazon.com/images/I/414z380eUwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0000WS04G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya 86001 Paint Spray, White" src="https://m.media-amazon.com/images/I/414z380eUwL._SL500_.jpg"/></a>
 
 
 The **Tamiya 86001 Paint Spray, White** is ideal for hobbyists and model enthusiasts who seek a high-quality, precise spray paint to enhance the appearance of their scale models or craft projects. This product is perfect for those who value detailed finishes and want an easy-to-use spray paint that delivers consistent results on plastic, metal, and other modeling materials.
@@ -46,10 +46,10 @@ The **Tamiya 86001 Paint Spray** stands out for its excellent spray control and 
 
 Additionally, the spray can's compact size and lightweight nature make it convenient for both beginners and experienced modelers to handle during detailed painting sessions. The trusted **Tamiya brand** reputation further assures customers of the product's quality, durability, and color vibrancy, contributing to a satisfying and successful painting experience.
 
-## <a href="https://www.amazon.com/dp/B0F94HDHK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-line Racing Pro-line Rc Body Spray Paint</a>
+## <a href="https://www.amazon.com/dp/B0F94HDHK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-line Racing Pro-line Rc Body Spray Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B0F94HDHK5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-line Racing Pro-Line RC Body Spray Paint - Silver Aluminum, PRO643700" src="https://m.media-amazon.com/images/I/31E3aCTay-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F94HDHK5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-line Racing Pro-Line RC Body Spray Paint - Silver Aluminum, PRO643700" src="https://m.media-amazon.com/images/I/31E3aCTay-L._SL500_.jpg"/></a>
 
 
 The **Pro-line Racing Pro-Line RC Body Spray Paint - Silver Aluminum, PRO643700** is ideal for RC enthusiasts and hobbyists looking to customize and enhance the appearance of their remote control vehicles. If you want a professional-quality finish with a sleek **silver aluminum** color, this spray paint is perfect for adding a durable and attractive coat to your RC bodies. Whether you are a beginner or an experienced racer, this product offers excellent coverage and a smooth finish that will make your model stand out.
@@ -72,10 +72,10 @@ The **Pro-Line RC Body Spray Paint** in silver aluminum offers a premium finish 
 
 Additionally, the product's compact dimensions make it user-friendly and easy to handle, allowing for precise spraying in tight spots. Manufactured by **Horizon Hobby**, it meets high standards expected by RC hobbyists, ensuring consistent quality. This spray paint is an excellent choice for those wanting to quickly and effectively upgrade their RC vehicle’s look with a professional touch.
 
-## <a href="https://www.amazon.com/dp/B000BN6JFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamiya Paint Spray</a>
+## <a href="https://www.amazon.com/dp/B000BN6JFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamiya Paint Spray</a>
 
 
-<a href="https://www.amazon.com/dp/B000BN6JFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya 86016 Paint Spray, Metallic Blue" src="https://m.media-amazon.com/images/I/41zcsNAIQ8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BN6JFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya 86016 Paint Spray, Metallic Blue" src="https://m.media-amazon.com/images/I/41zcsNAIQ8L._SL500_.jpg"/></a>
 
 
 The **Tamiya 86016 Paint Spray, Metallic Blue** is ideal for hobbyists and model enthusiasts seeking a high-quality, vibrant paint finish for their scale models. Whether you are a beginner or an experienced model builder, this spray paint offers ease of application and professional results, making it perfect for those who want to add a striking metallic blue color to their projects.
@@ -98,10 +98,10 @@ The **Tamiya 86016 Paint Spray** stands out with its vibrant **metallic blue col
 
 Besides its aesthetic appeal, the paint dries quickly, which helps users complete their projects faster without compromising quality. The reputable **Tamiya brand** guarantees consistent performance, making this paint spray a trusted choice among model builders worldwide. However, users should ensure proper surface preparation and follow safety guidelines to achieve the best results and maintain a safe working environment. Overall, this spray paint is a valuable addition to any model-building toolkit, offering both ease of use and professional-grade finish.
 
-## <a href="https://www.amazon.com/dp/B001Q11IRG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamiya Polycarbonate Ps-45 Translucent Purple Spray</a>
+## <a href="https://www.amazon.com/dp/B001Q11IRG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamiya Polycarbonate Ps-45 Translucent Purple Spray</a>
 
 
-<a href="https://www.amazon.com/dp/B001Q11IRG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya Polycarbonate PS-45 Translucent Purple Spray 100 ml TAM86045 Lacquer Primers &amp; Paints" src="https://m.media-amazon.com/images/I/418c95lc5uL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001Q11IRG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya Polycarbonate PS-45 Translucent Purple Spray 100 ml TAM86045 Lacquer Primers &amp; Paints" src="https://m.media-amazon.com/images/I/418c95lc5uL._SL500_.jpg"/></a>
 
 
 The **Tamiya Polycarbonate PS-45 Translucent Purple Spray 100 ml TAM86045** is ideal for hobbyists and model builders who seek high-quality, vibrant paint specifically designed for polycarbonate surfaces. Whether you're customizing RC cars or enhancing plastic models, this spray offers excellent adhesion and a stunning translucent finish, making it perfect for those wanting to add a professional touch to their projects.
@@ -124,10 +124,10 @@ The **Tamiya Polycarbonate PS-45 Translucent Purple Spray** stands out for its s
 
 Beyond aesthetics, this lacquer paint offers durability and resistance to wear, making it suitable for items that experience handling or outdoor exposure. The convenient spray format simplifies application, saving time while delivering professional results. Whether for enhancing RC car bodies or other plastic crafts, this product offers both performance and visual impact, making it a valuable addition to any modeler's toolkit.
 
-## <a href="https://www.amazon.com/dp/B001Q11GCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamiya Paint Spray Fluorescent Orange</a>
+## <a href="https://www.amazon.com/dp/B001Q11GCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tamiya Paint Spray Fluorescent Orange</a>
 
 
-<a href="https://www.amazon.com/dp/B001Q11GCI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya 86024 Paint Spray, Fluorescent Orange" src="https://m.media-amazon.com/images/I/4153zNnWPCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001Q11GCI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tamiya 86024 Paint Spray, Fluorescent Orange" src="https://m.media-amazon.com/images/I/4153zNnWPCL._SL500_.jpg"/></a>
 
 
 The **Tamiya 86024 Paint Spray, Fluorescent Orange** is ideal for hobbyists, model builders, and DIY enthusiasts who seek a vibrant and eye-catching finish for their projects. If you want to add a striking fluorescent orange color to plastic models, miniatures, or other craft items, this product offers excellent coverage and brightness, making it perfect for detailed and precise applications.
@@ -149,10 +149,10 @@ The **Tamiya 86024 Paint Spray** offers an excellent solution for adding a bold 
 
 Additionally, the compact and lightweight design makes it easy to store and handle, perfect for hobbyists working in small spaces or on the go. Whether you are customizing scale models, toys, or decorative items, this paint spray delivers consistent performance with the trusted quality of the **Tamiya** brand, helping you achieve professional-looking finishes with ease.
 
-## <a href="https://www.amazon.com/dp/B07KNXCBNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-line Racing Rc Body Paint - Black</a>
+## <a href="https://www.amazon.com/dp/B07KNXCBNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-line Racing Rc Body Paint - Black</a>
 
 
-<a href="https://www.amazon.com/dp/B07KNXCBNN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-line Racing RC Body Paint - Black PRO632501 Car Paint" src="https://m.media-amazon.com/images/I/31Nfi8OuSXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KNXCBNN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-line Racing RC Body Paint - Black PRO632501 Car Paint" src="https://m.media-amazon.com/images/I/31Nfi8OuSXL._SL500_.jpg"/></a>
 
 
 The **Pro-line Racing RC Body Paint - Black PRO632501 Car Paint** is ideal for hobbyists and professional RC car enthusiasts who want to customize and enhance the appearance of their remote control vehicles. This product is perfect for those seeking a high-quality, durable paint that provides a sleek and professional finish on RC car bodies. If you are looking to protect your RC car's exterior while giving it a bold, black color, this paint is an excellent choice.
@@ -173,10 +173,10 @@ The **Pro-line Racing RC Body Paint** is specially designed to meet the demands 
 
 Additionally, the paint's compact and lightweight packaging makes it convenient for hobbyists to carry and use during RC car events or workshops. The professional-grade quality guarantees that the finish not only looks great but also offers protection against wear and tear caused by racing conditions. Overall, this product is an excellent investment for anyone serious about maintaining the appearance and durability of their RC cars.
 
-## <a href="https://www.amazon.com/dp/B09BX735PX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Traxxas Body Paint</a>
+## <a href="https://www.amazon.com/dp/B09BX735PX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Traxxas Body Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B09BX735PX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Traxxas 5057 Body Paint, Race Red 5oz" src="https://m.media-amazon.com/images/I/410lXHxMaiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BX735PX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Traxxas 5057 Body Paint, Race Red 5oz" src="https://m.media-amazon.com/images/I/410lXHxMaiL._SL500_.jpg"/></a>
 
 
 The **Traxxas 5057 Body Paint, Race Red 5oz** is ideal for RC car enthusiasts and hobbyists who want to customize their vehicle’s appearance with a vibrant and durable color. If you are looking to refresh or personalize your RC car body with a professional-quality paint that offers excellent coverage, this product is perfect for you. Whether you are a casual user or a serious racer, this paint provides an easy and effective way to achieve a stunning finish.
@@ -198,10 +198,10 @@ The **Traxxas 5057 Body Paint** offers a high-quality finish that enhances the a
 
 Additionally, this paint is designed with hobbyists in mind, combining ease of use with professional-grade results. It dries quickly, enabling faster project completion and less downtime between coats. The rich color payoff ensures that even a small amount covers a large surface area effectively, making it an economical choice for users who want quality without overspending. Overall, the **Traxxas 5057 Body Paint, Race Red** is a practical and efficient solution for anyone looking to give their RC car a bold, customized look.
 
-## <a href="https://www.amazon.com/dp/B09BWYPJXQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Traxxas 5074 Body Paint</a>
+## <a href="https://www.amazon.com/dp/B09BWYPJXQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Traxxas 5074 Body Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B09BWYPJXQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Traxxas 5074 Body Paint, Metallic Blue 5oz" src="https://m.media-amazon.com/images/I/41AvVrs+xbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BWYPJXQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Traxxas 5074 Body Paint, Metallic Blue 5oz" src="https://m.media-amazon.com/images/I/41AvVrs+xbL._SL500_.jpg"/></a>
 
 
 The **Traxxas 5074 Body Paint** in **Metallic Blue** is ideal for hobbyists and RC enthusiasts looking to customize and enhance the appearance of their remote-controlled vehicles. If you want a vibrant, durable paint that offers an eye-catching finish, this product is perfect for you. It's especially suitable for users who value quality and precision in their RC bodywork.
@@ -224,10 +224,10 @@ The **Traxxas 5074 Body Paint** boasts a compact design with dimensions of 5.75 
 
 This product’s formulation is designed to provide excellent adhesion and a smooth finish that resists chipping and fading, even under intense use. The paint’s durability translates into longer-lasting protection for your RC vehicle bodies, reducing the need for frequent touch-ups. Overall, the **Traxxas 5074 Body Paint** offers both aesthetic enhancement and practical benefits, making it a valuable addition to any RC enthusiast’s toolkit.
 
-## <a href="https://www.amazon.com/dp/B09BX22LGT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Traxxas Body Paint</a>
+## <a href="https://www.amazon.com/dp/B09BX22LGT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Traxxas Body Paint</a>
 
 
-<a href="https://www.amazon.com/dp/B09BX22LGT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Traxxas 5072 Body Paint, Candy Magnenta 5oz" src="https://m.media-amazon.com/images/I/31pTNU3muKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BX22LGT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Traxxas 5072 Body Paint, Candy Magnenta 5oz" src="https://m.media-amazon.com/images/I/31pTNU3muKL._SL500_.jpg"/></a>
 
 
 The **Traxxas 5072 Body Paint, Candy Magenta 5oz** is ideal for hobbyists and RC enthusiasts who want to customize and enhance the appearance of their remote control vehicles. If you are someone who values vibrant, long-lasting colors and wants to give your RC car a unique and eye-catching look, this product is perfect for you.
@@ -250,10 +250,10 @@ The **Traxxas 5072 Body Paint** features a vibrant **candy magenta** color that 
 
 With dimensions designed for easy handling, the 5oz bottle offers enough paint for multiple applications without being bulky. This makes it convenient for both beginners and experienced users to apply the paint with precision and control. Overall, the product offers a seamless way to customize your RC vehicle, making it a must-have for anyone looking to personalize their ride with a bold and durable color.
 
-## <a href="https://www.amazon.com/dp/B0BQLPK8BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-line Racing Pro-line Rc Body Paint - Sky Blue</a>
+## <a href="https://www.amazon.com/dp/B0BQLPK8BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Pro-line Racing Pro-line Rc Body Paint - Sky Blue</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQLPK8BD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-line Racing Pro-Line RC Body Paint - Sky Blue PRO632517 Car Paint" src="https://m.media-amazon.com/images/I/31xsxYyMsuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQLPK8BD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Pro-line Racing Pro-Line RC Body Paint - Sky Blue PRO632517 Car Paint" src="https://m.media-amazon.com/images/I/31xsxYyMsuL._SL500_.jpg"/></a>
 
 
 The **Pro-line Racing Pro-Line RC Body Paint - Sky Blue PRO632517 Car Paint** is ideal for RC car enthusiasts and hobbyists looking to customize their vehicles with a vibrant and durable finish. If you are someone who values precision, quality, and a standout appearance for your remote control car, this paint is tailored for your needs. It is especially suited for those who want a professional-grade, easy-to-apply paint that delivers long-lasting results.

@@ -33,7 +33,7 @@ Many RC Lamborghini models are available. Some look like the Aventador, others l
 
 Choose a model that matches the real Lamborghini you like. Each has different features and speeds.
 
-* [Lamborghini Aventador](https://www.amazon.com/s?k=RC+Lamborghini+Aventador&tag=gearcookware-20): fast and sleek design
+* [Lamborghini Aventador](https://www.amazon.com/s?k=RC+Lamborghini+Aventador&tag=mofb05-20): fast and sleek design
 * Lamborghini Huracán: sporty and agile
 * Lamborghini Veneno: rare and stylish
 
@@ -45,7 +45,7 @@ Common scales are 1:10, 1:18, and 1:24. Larger scales usually have more details 
 
 * 1:10 Scale: big, more detailed, faster
 * 1:18 Scale: medium size, good balance
-* [1:24 Scale](https://www.amazon.com/s?k=1%3A24+Scale+RC+Lamborghini&tag=gearcookware-20): small, easy to carry
+* [1:24 Scale](https://www.amazon.com/s?k=1%3A24+Scale+RC+Lamborghini&tag=mofb05-20): small, easy to carry
 
 ### Electric Vs Nitro
 
@@ -229,7 +229,7 @@ Spare parts ensure that your RC Lamborghini runs smoothly without interruptions.
 | --- | --- |
 | Part | Use |
 | Extra Tires | Replace worn out wheels |
-| [Battery Pack](https://www.amazon.com/s?k=RC+car+battery+pack&tag=gearcookware-20) |
+| [Battery Pack](https://www.amazon.com/s?k=RC+car+battery+pack&tag=mofb05-20) |
 | Body Shell | Protects the car's frame |
 
 ### Remote Controllers
@@ -246,7 +246,7 @@ Proper storage and protection keep your RC Lamborghini in top shape. Invest in q
 
 Consider these storage tips:
 
-* Use a [dust-proof cover](https://www.amazon.com/s?k=RC+car+dust+proof+cover&tag=gearcookware-20) to protect from dirt.
+* Use a [dust-proof cover](https://www.amazon.com/s?k=RC+car+dust+proof+cover&tag=mofb05-20) to protect from dirt.
 * Store in a cool, dry place to prevent damage.
 * Keep away from direct sunlight to avoid fading.
 
@@ -262,7 +262,7 @@ Whether you prefer new or used, online or in-store, there are options for every 
 
 Online marketplaces offer a wide range of RC Lamborghini toy cars. They often have competitive prices and convenient shipping options.
 
-* [Amazon](https://www.amazon.com/s?k=RC+Lamborghini+toy+car&tag=gearcookware-20) has a large selection of different models and brands.
+* [Amazon](https://www.amazon.com/s?k=RC+Lamborghini+toy+car&tag=mofb05-20) has a large selection of different models and brands.
 * eBay offers both new and used options, sometimes with discounts.
 * Walmart's website includes various models with customer reviews.
 

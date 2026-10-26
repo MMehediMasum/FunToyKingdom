@@ -23,10 +23,10 @@ Marvel's Spider-Man Thwip Blast Action Figure amazes with its 11-inch scale and 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DBLWQ6W7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Superman Up In The Sky! Flying Krypto</a>
+## <a href="https://www.amazon.com/dp/B0DBLWQ6W7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Superman Up In The Sky! Flying Krypto</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBLWQ6W7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Superman Up in The Sky! Flying Krypto, RC Toys and Remote Control Toys for Kids, 7.5-Inch Hovering Superdog, for Ages 4 and Up" src="https://m.media-amazon.com/images/I/51sa11yaD9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBLWQ6W7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Superman Up in The Sky! Flying Krypto, RC Toys and Remote Control Toys for Kids, 7.5-Inch Hovering Superdog, for Ages 4 and Up" src="https://m.media-amazon.com/images/I/51sa11yaD9L._SL500_.jpg"/></a>
 
 
 Ideal for young superhero fans and tech-savvy kids aged 4 and up, the **DC Comics Superman Up in The Sky! Flying Krypto** is a thrilling remote control toy that brings the beloved **Superdog** to life. Parents looking for an engaging, interactive, and safe toy that encourages imaginative play and motor skills development will find this hovering RC toy a perfect choice.
@@ -49,10 +49,10 @@ The **Superman Up in The Sky! Flying Krypto** RC toy features a 7.5-inch hoverin
 
 Beyond its entertaining aspects, this toy supports developmental benefits such as improving motor skills and hand-eye coordination. It also fosters creativity by encouraging kids to imagine adventures with their favorite superhero dog. Produced by the reputable **Spin Master** and backed by the iconic **DC Comics** brand, this remote control toy offers both quality and excitement for young fans eager to take flight.
 
-## <a href="https://www.amazon.com/dp/B0CJYZZ5LJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Captain America Brave New World Flight Mode Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0CJYZZ5LJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Captain America Brave New World Flight Mode Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJYZZ5LJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Captain America: Brave New World Flight Mode Action Figure with Accessories, 9-Inch-Scale (22 cm) Super Hero Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/51KLrQBHRQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJYZZ5LJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Captain America: Brave New World Flight Mode Action Figure with Accessories, 9-Inch-Scale (22 cm) Super Hero Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/51KLrQBHRQL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Captain America: Brave New World Flight Mode Action Figure** is ideal for young fans aged 4 and above who love **superhero toys** and want to bring their favorite **Captain America** adventures to life. This action figure is perfect for children who enjoy imaginative play and collectors looking for detailed **Marvel** memorabilia.
@@ -75,10 +75,10 @@ This **Captain America action figure** stands out with its impressive flight mod
 
 Crafted by **Hasbro**, this standard edition figure comes with carefully designed accessories that enhance the imaginative experience. The realistic proportions and vibrant colors make it a standout addition to any **Marvel Avengers** collection. Whether for playtime or display, this figure offers excellent value by combining quality craftsmanship with engaging features tailored for young superhero enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Epic Hero Series Captain America</a>
+## <a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Epic Hero Series Captain America</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Epic Hero Series Captain America: Brave New World Flight Control Action Figure with Accessory, Super Hero Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/413p4jju12L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Epic Hero Series Captain America: Brave New World Flight Control Action Figure with Accessory, Super Hero Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/413p4jju12L._SL500_.jpg"/></a>
 
 
 The **Marvel Epic Hero Series Captain America: Brave New World Flight Control Action Figure** is perfect for young fans of the Marvel Universe, especially children aged 4 and above who enjoy imaginative play and superhero adventures. This toy is ideal for parents seeking a durable, interactive figure that encourages creativity and active play in their kids. Collectors of Marvel memorabilia might also appreciate this detailed and well-crafted action figure.
@@ -101,10 +101,10 @@ This **Marvel Captain America action figure** stands out with its faithful repre
 
 Crafted by **Hasbro**, the toy assures parents of quality and safety standards, providing peace of mind during playtime. The figure’s rugged build supports active use without easily breaking, ensuring that it can withstand the energetic play habits of young superheroes in training. Overall, this action figure combines fun, creativity, and durability, making it a valuable addition to any child’s toy collection or Marvel enthusiast’s display.
 
-## <a href="https://www.amazon.com/dp/B0CQ3Q92GT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Spider-man Thwip Blast Spider-man Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0CQ3Q92GT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Spider-man Thwip Blast Spider-man Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ3Q92GT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Spider-Man Thwip Blast Spider-Man Action Figure with Accessories, 11-Inch-Scale Super Hero Toys for Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/4135XxrtRgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ3Q92GT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Spider-Man Thwip Blast Spider-Man Action Figure with Accessories, 11-Inch-Scale Super Hero Toys for Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/4135XxrtRgL._SL500_.jpg"/></a>
 
 
 The **Marvel Spider-Man Thwip Blast Spider-Man Action Figure** is perfect for young superhero enthusiasts aged 4 and up who love engaging in imaginative play. Ideal for kids who admire the iconic **Spider-Man** character, this **11-inch-scale action figure** offers a dynamic play experience with its exciting accessories and detailed design. Parents looking for a durable and entertaining toy that encourages creativity will also find this item a great choice.
@@ -127,10 +127,10 @@ This **Standard Edition** Spider-Man figure stands approximately 11 inches tall,
 
 Crafted by **Hasbro**, this action figure balances quality with affordability, ensuring it withstands the enthusiastic play of young fans. Its lightweight construction and manageable dimensions allow for easy handling, promoting dexterity and imaginative storytelling. Whether used for solo play or group adventures, this Spider-Man figure inspires creativity and a love for superhero stories, making it a valuable addition to any child’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0DBLTNBR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Superman Heroes Vs. Villains 5-pack</a>
+## <a href="https://www.amazon.com/dp/B0DBLTNBR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Superman Heroes Vs. Villains 5-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBLTNBR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Superman Heroes Vs. Villains 5-Pack, 3-Inch Action Figure, Stylized Superhero Figures with Dynamic Poses and Battle Ready Armor, Kids Toys for Ages 4+" src="https://m.media-amazon.com/images/I/51AMLTHnOAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBLTNBR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, Superman Heroes Vs. Villains 5-Pack, 3-Inch Action Figure, Stylized Superhero Figures with Dynamic Poses and Battle Ready Armor, Kids Toys for Ages 4+" src="https://m.media-amazon.com/images/I/51AMLTHnOAL._SL500_.jpg"/></a>
 
 
 The **DC Comics, Superman Heroes Vs. Villains 5-Pack** is ideal for young fans of the iconic superhero universe, especially children aged 4 and up who love imaginative play. This set is perfect for collectors and kids who enjoy action figures with dynamic poses and detailed battle-ready armor, bringing their favorite heroes and villains to life. Parents looking to encourage creativity and storytelling through toys will find this pack a great addition to their child's collection.
@@ -154,10 +154,10 @@ Each figure in the **Superman Heroes Vs. Villains 5-Pack** showcases meticulous 
 
 Beyond aesthetics, the figures' durable construction ensures they withstand active play by kids aged 4 and above. The multicolor palette and recognizable characters inspire creativity and help children develop storytelling skills. Whether used for solo adventures or group play, this action figure set offers both entertainment and developmental benefits, making it a valuable addition to any young superhero fan’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
+## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Ultimate Protectors Pack** is perfect for young fans of the Marvel universe, especially children aged 4 and up who enjoy imaginative play with their favorite superheroes. This set is ideal for parents or gift-givers looking to inspire creativity and storytelling in boys and girls by providing them with a collection of detailed action figures that bring the excitement of the Avengers to life.
@@ -180,10 +180,10 @@ The **Marvel Avengers Ultimate Protectors Pack** offers a vibrant collection of 
 
 Beyond just being toys, these figures serve as a gateway to imaginative play and social interaction. Children can develop fine motor skills while handling the detailed figures and accessories, and they can also engage in collaborative play with friends or family members. The sturdy construction by **Hasbro** ensures that the figures can withstand energetic play sessions, making this pack a valuable addition to any young Marvel fan’s collection.
 
-## <a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Ninja Strike 12" Batman Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Batman Ninja Strike 12" Batman Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3="" action="" ages="" alt="DC Comics, Batman™ Ninja Strike 12" and="" batman="" boys="" collectible="" figure,="" for="" girls="" hero="" kids="" src="https://m.media-amazon.com/images/I/41Syx3cbzqL._SL500_.jpg" super="" toys="" up"=""/></a>
+<a href="https://www.amazon.com/dp/B0DSCJH6MX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3="" action="" ages="" alt="DC Comics, Batman™ Ninja Strike 12" and="" batman="" boys="" collectible="" figure,="" for="" girls="" hero="" kids="" src="https://m.media-amazon.com/images/I/41Syx3cbzqL._SL500_.jpg" super="" toys="" up"=""/></a>
 
 
 Ideal for young fans and collectors of the **DC Comics** universe, the **Batman™ Ninja Strike 12" Batman Action Figure** is perfect for boys and girls aged 3 and up who enjoy imaginative play and superhero adventures. This figure appeals to children who love **Batman** and want to bring their favorite superhero to life, as well as collectors looking for a colorful and detailed addition to their **super hero collectibles**.
@@ -206,10 +206,10 @@ The **Batman™ Ninja Strike action figure** stands out with its bold and colorf
 
 Produced by **Spin Master** under the trusted **DC Comics** brand, this figure is designed with durability and child-friendliness in mind. The lightweight yet sturdy construction ensures that kids can enjoy endless playtime without worrying about damage. While it may not offer extensive articulation, its solid build and detailed look make it a great choice for younger fans who want a recognizable and exciting superhero companion.
 
-## <a href="https://www.amazon.com/dp/B09PYKMD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poiuyt Super Hero Series Exclusive Figure Set</a>
+## <a href="https://www.amazon.com/dp/B09PYKMD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poiuyt Super Hero Series Exclusive Figure Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09PYKMD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POIUYT Super Hero Series Exclusive Figure Set, 10 Collectible 6.7-Inch Action Figures" src="https://m.media-amazon.com/images/I/51XppJbefQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PYKMD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POIUYT Super Hero Series Exclusive Figure Set, 10 Collectible 6.7-Inch Action Figures" src="https://m.media-amazon.com/images/I/51XppJbefQL._SL500_.jpg"/></a>
 
 
 The **POIUYT Super Hero Series Exclusive Figure Set** is perfect for collectors, fans of superhero memorabilia, and anyone looking to add a vibrant, high-quality set of action figures to their collection. Ideal for both adults and children who appreciate detailed craftsmanship and dynamic poses, this set appeals to those who enjoy displaying or playing with collectible figures that represent their favorite heroes.
@@ -232,10 +232,10 @@ Each figure in the **POIUYT Super Hero Series Exclusive Figure Set** stands at a
 
 The compact dimensions and solid weight of the set ensure that collectors can showcase their heroes without worrying about fragility or instability. Whether you are a seasoned collector or just starting out, this exclusive set offers a great balance of size, detail, and variety, making it a valuable addition to any superhero collection. The combination of artistry and quality makes this set a standout choice for fans seeking both aesthetic appeal and lasting value.
 
-## <a href="https://www.amazon.com/dp/B07T9CCRK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Spider-man 12-inch Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07T9CCRK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Spider-man 12-inch Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07T9CCRK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Spider-Man 12-Inch Action Figure with Fx Port" src="https://m.media-amazon.com/images/I/41CqYz7VTyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T9CCRK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Spider-Man 12-Inch Action Figure with Fx Port" src="https://m.media-amazon.com/images/I/41CqYz7VTyL._SL500_.jpg"/></a>
 
 
 The **Marvel Titan Hero Series Spider-Man 12-Inch Action Figure with Fx Port** is perfect for fans of **Spider-Man** and Marvel enthusiasts, especially children and collectors who appreciate detailed, interactive toys. If you are looking for a durable, medium-sized action figure that captures the essence of the iconic superhero, this figure is an excellent choice.
@@ -258,10 +258,10 @@ The **Marvel Titan Hero Series Spider-Man** action figure features a solid build
 
 One of the standout features is the **Fx Port**, which allows users to connect additional accessories that produce sound and light effects, making the play experience more immersive and engaging. This feature encourages imaginative play and adds value beyond a standard action figure. Manufactured by **Hasbro**, this figure meets quality standards that ensure long-lasting enjoyment for kids and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B0D2352JFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spider-man Marvel Venomversus Titan Hero Series Miles Morales Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0D2352JFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spider-man Marvel Venomversus Titan Hero Series Miles Morales Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2352JFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spider-Man Marvel VenomVersus Titan Hero Series Miles Morales Action Figure, 12 Inch (30 cm) Super Hero Figures &amp; Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/41e+ZDxAmZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2352JFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spider-Man Marvel VenomVersus Titan Hero Series Miles Morales Action Figure, 12 Inch (30 cm) Super Hero Figures &amp; Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/41e+ZDxAmZL._SL500_.jpg"/></a>
 
 
 The **Spider-Man Marvel VenomVersus Titan Hero Series Miles Morales Action Figure** is perfect for young **superhero enthusiasts** aged 4 and up who love the dynamic world of Marvel characters. Ideal for kids who enjoy imaginative play and fans of the **Spider-Man universe**, this 12-inch action figure brings the excitement of Miles Morales to life with detailed design and durable construction.

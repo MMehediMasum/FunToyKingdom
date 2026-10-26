@@ -23,10 +23,10 @@ Some sets include glider planes and birthday cake toppers, making them great gif
 
 
 
-## <a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">United States Air Force 4-pack Toy Jet Squadron Die Cast Airplanes</a>
+## <a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">United States Air Force 4-pack Toy Jet Squadron Die Cast Airplanes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="United Sates Air Force 4-Pack Toy Jet Squadron Die Cast Airplanes, Pull Back Military Fighter Jets, Diecast Air Plane Models" src="https://m.media-amazon.com/images/I/41kq8HlVjSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="United Sates Air Force 4-Pack Toy Jet Squadron Die Cast Airplanes, Pull Back Military Fighter Jets, Diecast Air Plane Models" src="https://m.media-amazon.com/images/I/41kq8HlVjSL._SL500_.jpg"/></a>
 
 
 The **United States Air Force 4-Pack Toy Jet Squadron Die Cast Airplanes** are perfect for children and collectors who have a passion for military aviation and model airplanes. Ideal for kids aged 3 and up, these **pull back military fighter jets** provide hours of imaginative play, while adult enthusiasts will appreciate the detailed **diecast air plane models** for display purposes.
@@ -47,12 +47,12 @@ The **Lollipop brand**, manufactured by **Brooklyn Lollipops Import Corp**, ensu
 
 These toy jets are not only fun but also educational, sparking an interest in aviation history and military technology. The compact size of each model makes them easy to carry around, perfect for on-the-go entertainment. Whether displayed on a shelf or raced across the floor, the **United States Air Force 4-Pack Toy Jet Squadron** offers an excellent blend of playability and collectible value for fans of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Airplane 6 Pack</a>
+## <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Airplane 6 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Airplane 6 Pack, Diecast Airplane Toy for Boys Age 3 4-7 8-12, Alloy Planes Model/Glider Planes/Airlines Plane Toys for Kids Birthday Cake Toppers Airforce Party Favors" src="https://m.media-amazon.com/images/I/51UVjc5B8zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Airplane 6 Pack, Diecast Airplane Toy for Boys Age 3 4-7 8-12, Alloy Planes Model/Glider Planes/Airlines Plane Toys for Kids Birthday Cake Toppers Airforce Party Favors" src="https://m.media-amazon.com/images/I/51UVjc5B8zL._SL500_.jpg"/></a>
 
 
 The **Toy Airplane 6 Pack** by **Tcvents** is ideal for young boys aged **3 to 12 years** who have a fascination with aircraft and enjoy imaginative play. Perfect for parents looking for durable, engaging toys that stimulate creativity, these **diecast alloy airplanes** are also great for birthday gifts, party favors, or cake toppers for kids who love aviation themes.
@@ -74,12 +74,12 @@ These **diecast airplane toys** are crafted with attention to detail and durabil
 
 Additionally, the set's versatility allows it to serve multiple purposes beyond just playtime. Whether used as **birthday cake toppers** or **airforce-themed party favors**, these alloy planes add a fun and thematic touch to celebrations. Overall, the **Toy Airplane 6 Pack** is a thoughtfully designed product that combines entertainment, education, and practicality for young kids.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000V0F5E0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Toy Airplane United Airlines</a>
+## <a href="https://www.amazon.com/dp/B000V0F5E0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Toy Airplane United Airlines</a>
 
 
-<a href="https://www.amazon.com/dp/B000V0F5E0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Toy Airplane – United Airlines – Die-Cast Metal Model Airplane Toy with Plastic Parts for Kids Ages 3+" src="https://m.media-amazon.com/images/I/31BACIg13sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000V0F5E0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Toy Airplane – United Airlines – Die-Cast Metal Model Airplane Toy with Plastic Parts for Kids Ages 3+" src="https://m.media-amazon.com/images/I/31BACIg13sL._SL500_.jpg"/></a>
 
 
 The **Daron Toy Airplane – United Airlines – Die-Cast Metal Model Airplane Toy** is ideal for children ages 3 and up who have a fascination with aviation and enjoy imaginative play. This model is perfect for parents looking to introduce their kids to the world of airplanes through a sturdy, detailed, and realistic toy that also serves as a collectible item for aviation enthusiasts.
@@ -102,12 +102,12 @@ The **Daron Toy Airplane** combines durability and authenticity, making it a sta
 
 Additionally, this model serves a dual purpose as both a plaything and a collectible item, appealing to children and adults alike. The focus on realism with the **United Airlines** branding helps foster an early interest in commercial aviation, making it an educational tool as well. Overall, it offers a balanced combination of fun, learning, and display value for anyone interested in airplanes.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000V0F5E0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000V0F5E0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000TQXNKE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Toy Airplane – Southwest Airlines</a>
+## <a href="https://www.amazon.com/dp/B000TQXNKE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Toy Airplane – Southwest Airlines</a>
 
 
-<a href="https://www.amazon.com/dp/B000TQXNKE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Toy Airplane – Southwest Airlines – Die-Cast Metal Model Airplane Toy with Plastic Parts for Kids Ages 3+" src="https://m.media-amazon.com/images/I/410SdQpZMAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000TQXNKE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Toy Airplane – Southwest Airlines – Die-Cast Metal Model Airplane Toy with Plastic Parts for Kids Ages 3+" src="https://m.media-amazon.com/images/I/410SdQpZMAL._SL500_.jpg"/></a>
 
 
 The **Daron Toy Airplane – Southwest Airlines – Die-Cast Metal Model Airplane Toy** is ideal for **kids ages 3 and up** who have a fascination with aviation or enjoy collecting miniature models. It is perfect for parents and gift-givers looking to inspire imaginative play or introduce children to the excitement of air travel through a durable and visually appealing toy.
@@ -129,12 +129,12 @@ The **Daron Toy Airplane** combines quality craftsmanship with an eye-catching *
 
 Additionally, the toy’s sturdy materials and compact dimensions make it an excellent addition to any toy collection or display shelf. While its size demands supervision for younger kids, the overall design and quality make it an engaging and durable model airplane that encourages creativity and learning through play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000TQXNKE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000TQXNKE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcvents Airplane Toys</a>
+## <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcvents Airplane Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tcvents Airplane Toys, Metal Plane Pull Back Airplane Toys for 3 4 5 6 7 Years Old Boys Girls, Die Cast Aircraft Plane Models, Kids' Play Vehicles Aeroplane Airplanes for Kids Birthday Gift" src="https://m.media-amazon.com/images/I/419q9PMOZUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tcvents Airplane Toys, Metal Plane Pull Back Airplane Toys for 3 4 5 6 7 Years Old Boys Girls, Die Cast Aircraft Plane Models, Kids' Play Vehicles Aeroplane Airplanes for Kids Birthday Gift" src="https://m.media-amazon.com/images/I/419q9PMOZUL._SL500_.jpg"/></a>
 
 
 The **Tcvents Airplane Toys** are perfect for young children aged 3 to 7 years old who have a fascination with aircraft and enjoy imaginative play. These metal plane pull-back toys are ideal for both boys and girls who love collecting die-cast models or want a fun, interactive toy that sparks creativity and motor skills development. Parents looking for a durable and engaging birthday gift will find these airplanes an excellent choice.
@@ -157,12 +157,12 @@ The **Tcvents Airplane Toys** stand out for their realistic **die-cast aircraft 
 
 These metal airplanes are not just toys but tools that foster creativity and learning. The durability of the **die-cast metal** ensures they can withstand rough play, making them a reliable gift option. While they do not feature electronic sounds or lights, this simplicity can be an advantage by focusing children’s attention on imaginative storytelling and manual interaction. Overall, the **Tcvents Airplane Toys** combine quality, design, and play value, making them a great addition to any young child's collection of play vehicles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00UZ95P56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Toy Airplane Rt9904</a>
+## <a href="https://www.amazon.com/dp/B00UZ95P56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Toy Airplane Rt9904</a>
 
 
-<a href="https://www.amazon.com/dp/B00UZ95P56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Toy Airplane RT9904 – Emirates A380 – Die-Cast Metal Model Airplane Toy with Plastic Parts for Kids Ages 3+" src="https://m.media-amazon.com/images/I/31AtvjVHKbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00UZ95P56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Toy Airplane RT9904 – Emirates A380 – Die-Cast Metal Model Airplane Toy with Plastic Parts for Kids Ages 3+" src="https://m.media-amazon.com/images/I/31AtvjVHKbL._SL500_.jpg"/></a>
 
 
 The **Daron Toy Airplane RT9904 – Emirates A380** is ideal for young aviation enthusiasts and collectors aged 3 and above who appreciate detailed die-cast models. This toy appeals to children who enjoy imaginative play with realistic aircraft replicas, as well as to adults looking to add a high-quality model to their collection. Its durable construction and authentic design make it perfect for both playtime and display.
@@ -186,12 +186,12 @@ The **Daron Toy Airplane RT9904 – Emirates A380** showcases impressive craftsm
 
 Beyond its role as a toy, this model serves as an excellent collectible for aviation fans and model enthusiasts. The sturdy construction means it can withstand regular handling while maintaining its detailed appearance. Whether used for imaginative play or as a display item, this airplane model offers educational value and entertainment, making it a versatile addition to any child's toy collection or an adult's model assortment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00UZ95P56?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00UZ95P56?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wngaur Airplane Model</a>
+## <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wngaur Airplane Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WngAur Airplane Model, FedEx Aircraft Die-cast Metal Planes Suitable for Collection and Desktop Decor" src="https://m.media-amazon.com/images/I/31BAVej7VbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WngAur Airplane Model, FedEx Aircraft Die-cast Metal Planes Suitable for Collection and Desktop Decor" src="https://m.media-amazon.com/images/I/31BAVej7VbL._SL500_.jpg"/></a>
 
 
 The **WngAur Airplane Model** is ideal for aviation enthusiasts, collectors of die-cast models, and anyone looking to add a unique piece of **desktop decor** to their office or home. Those who appreciate detailed craftsmanship and have a passion for **FedEx aircraft** or airline memorabilia will find this model particularly appealing. It is perfect for individuals seeking a compact yet visually striking collectible that represents both aviation and logistics excellence.
@@ -214,12 +214,12 @@ The **WngAur Airplane Model** offers a finely detailed representation of a **Fed
 
 Beyond its aesthetic appeal, this model serves as a conversation starter and a symbol of the global logistics industry. Its sleek **white finish** adds a touch of sophistication to any desk or shelf, enhancing the overall ambiance. Whether you are an avid collector or someone looking for a unique gift, the **WngAur Airplane Model** combines quality, authenticity, and style in one compact package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DSJ82ZV4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D2RFC2LR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aviamuse Model Airplane</a>
+## <a href="https://www.amazon.com/dp/B0D2RFC2LR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aviamuse Model Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2RFC2LR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AVIAMUSE Model Airplane, Alaska West Coast Wonders Whales Planes Model Aircraft Suitable for Collection and Christmas, Birthday Gifts" src="https://m.media-amazon.com/images/I/41Cn4jY2lvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2RFC2LR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AVIAMUSE Model Airplane, Alaska West Coast Wonders Whales Planes Model Aircraft Suitable for Collection and Christmas, Birthday Gifts" src="https://m.media-amazon.com/images/I/41Cn4jY2lvL._SL500_.jpg"/></a>
 
 
 The **AVIAMUSE Model Airplane, Alaska West Coast Wonders Whales Planes Model Aircraft** is ideal for aviation enthusiasts, collectors of unique model aircraft, and those seeking a special gift for occasions like **Christmas** or **birthdays**. Its detailed design and compact size make it perfect for display, appealing to both adults and children who appreciate finely crafted models.
@@ -241,12 +241,12 @@ The **AVIAMUSE Model Airplane** showcases intricate design elements inspired by 
 
 Its compact size allows for versatile placement, whether on a desk, shelf, or in a display case, making it accessible to collectors with limited space. Additionally, the model’s sturdy build by the reputable **AVIAMUSE** brand ensures it remains a cherished keepsake for years to come, providing both aesthetic pleasure and sentimental value.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D2RFC2LR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D2RFC2LR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B000WX8DA4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Air Force One Single Plane</a>
+## <a href="https://www.amazon.com/dp/B000WX8DA4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Air Force One Single Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B000WX8DA4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Air Force One Single Plane,White" src="https://m.media-amazon.com/images/I/4188iuh2TYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000WX8DA4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron Air Force One Single Plane,White" src="https://m.media-amazon.com/images/I/4188iuh2TYL._SL500_.jpg"/></a>
 
 
 The **Daron Air Force One Single Plane, White** is an ideal collectible for aviation enthusiasts, model plane collectors, and those who appreciate detailed replicas of iconic aircraft. Perfect for display in offices, homes, or as a gift, this model appeals to anyone who values craftsmanship and historical significance in aviation memorabilia.
@@ -267,12 +267,12 @@ This **Daron Air Force One Single Plane, White** model features precise dimensio
 
 Beyond its aesthetic appeal, the model’s quality construction ensures it will withstand the test of time, providing long-lasting enjoyment for both casual admirers and serious collectors. Whether you’re showcasing it as a centerpiece or adding it to an existing collection, this model offers a tangible connection to aviation history and the prestige associated with Air Force One.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B000WX8DA4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B000WX8DA4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F6NLTDV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">10 Pack Toy Airplanes Diecast Pull Back Airplane Toys</a>
+## <a href="https://www.amazon.com/dp/B0F6NLTDV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">10 Pack Toy Airplanes Diecast Pull Back Airplane Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0F6NLTDV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="10 Pack Toy Airplanes Diecast Pull Back Airplane Toys Alloy Planes Model for Kids Birthday Children's Day Gifts Classroom Rewards Airforce Party Favors" src="https://m.media-amazon.com/images/I/41d5LPtDDIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6NLTDV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="10 Pack Toy Airplanes Diecast Pull Back Airplane Toys Alloy Planes Model for Kids Birthday Children's Day Gifts Classroom Rewards Airforce Party Favors" src="https://m.media-amazon.com/images/I/41d5LPtDDIL._SL500_.jpg"/></a>
 
 
 The **10 Pack Toy Airplanes Diecast Pull Back Airplane Toys** are perfect for parents, teachers, and party planners looking for engaging and durable gifts for **kids**. Ideal for birthdays, **Children's Day**, classroom rewards, or airforce-themed parties, these **alloy planes** offer a fun and educational experience for young aviation enthusiasts. If you want to spark creativity and encourage imaginative play, this set is an excellent choice.
@@ -294,7 +294,7 @@ Each airplane in this **10 pack set** is crafted from **diecast alloy**, which n
 
 The set’s versatility makes it suitable for various occasions, including classroom incentives and party favors, promoting social interaction and group play among children. With their robust build and engaging design, these toy airplanes help develop fine motor skills and stimulate imagination as kids invent their own flying adventures. Overall, these model planes combine quality, value, and entertainment in one attractive package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F6NLTDV8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F6NLTDV8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

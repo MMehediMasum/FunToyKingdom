@@ -117,7 +117,7 @@ Choosing the right fabric makes the costume comfortable and pretty. Soft cotton 
 Felt is thick and easy to cut. It works well for simple shapes and bright colors.
 
 * Cotton: soft, breathable, easy to sew
-* [Felt](https://www.amazon.com/s?k=craft+felt+sheets&tag=gearcookware-20): thick, holds shape, no fray
+* [Felt](https://www.amazon.com/s?k=craft+felt+sheets&tag=mofb05-20): thick, holds shape, no fray
 * Silk: smooth, shiny, delicate
 * Linen: light, natural texture
 
@@ -139,7 +139,7 @@ Choose safe accessories that will not fall off or harm children during play.
 * Buttons: colorful and functional
 * Ribbons: add texture and color
 * Beads: small shiny details
-* [Lace](https://www.amazon.com/s?k=lace+trim+for+crafts+and+sewing&tag=gearcookware-20): delicate and pretty trim
+* [Lace](https://www.amazon.com/s?k=lace+trim+for+crafts+and+sewing&tag=mofb05-20): delicate and pretty trim
 
 ## Inspiring Creativity Through Costumes
 
@@ -197,7 +197,7 @@ These sites make it easy to compare prices and check reviews before buying. You 
 
 * Etsy features many handmade doll costume shops
 * eBay offers vintage and custom doll clothes
-* [Amazon Handmade](https://www.amazon.com/s?k=handmade+doll+clothes&i=handmade&tag=gearcookware-20) has unique, artisan doll outfits
+* [Amazon Handmade](https://www.amazon.com/s?k=handmade+doll+clothes&i=handmade&tag=mofb05-20) has unique, artisan doll outfits
 
 ### Local Artisans And Craft Fairs
 
@@ -243,7 +243,7 @@ Spot cleaning is best for small stains. Use mild soap and cold water, then blot 
 
 Store handmade costumes in a dry, cool place. Avoid direct sunlight to stop colors from fading. Use breathable containers to prevent mold.
 
-Keep costumes separate to avoid tangling or crushing. Soft fabric bags or [acid-free boxes](https://www.amazon.com/s?k=acid-free+garment+storage+boxes&tag=gearcookware-20) work well for storage.
+Keep costumes separate to avoid tangling or crushing. Soft fabric bags or [acid-free boxes](https://www.amazon.com/s?k=acid-free+garment+storage+boxes&tag=mofb05-20) work well for storage.
 
 * Store in a cool, dry area
 * Keep away from direct sunlight
@@ -255,7 +255,7 @@ Keep costumes separate to avoid tangling or crushing. Soft fabric bags or [acid-
 
 Check costumes often for loose threads or small tears. Fix minor problems quickly to stop bigger damage.
 
-Use a needle and matching thread for simple repairs. Keep [sewing tools](https://www.amazon.com/s?k=mini+sewing+kit&tag=gearcookware-20) handy for easy maintenance.
+Use a needle and matching thread for simple repairs. Keep [sewing tools](https://www.amazon.com/s?k=mini+sewing+kit&tag=mofb05-20) handy for easy maintenance.
 
 * Inspect costumes regularly
 * Sew loose threads and small tears

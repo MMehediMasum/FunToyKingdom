@@ -22,10 +22,10 @@ They help kids develop critical thinking and social skills while adults enjoy en
 
 
 
-## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
+## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
 
 
-<a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
 
 
 The **Gamewright - Forbidden Island** is perfect for those who enjoy **cooperative strategy games** and are looking for an engaging experience with family or friends. Ideal for players aged 2 to 4, this game is suited for individuals who appreciate teamwork, problem-solving, and immersive adventure scenarios where everyone works together to achieve a common goal.
@@ -48,10 +48,10 @@ The **Forbidden Island** board game by **Gamewright** features a compact design 
 
 Players benefit from the game's emphasis on collaboration, which fosters communication and collective problem-solving skills. The strategic survival aspect keeps the gameplay dynamic and engaging, making every session unique. Overall, **Forbidden Island** offers an accessible yet challenging experience for those seeking a cooperative board game that combines strategy, adventure, and teamwork.
 
-## <a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Castle Panic 2nd Edition</a>
+## <a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Castle Panic 2nd Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Castle Panic 2nd Edition | Cooperative Board Game for Adults and Family | Ages 8+ | for 1 to 6 Players | Average Playtime 45 Minutes | Made by Fireside Games" src="https://m.media-amazon.com/images/I/61K+5Al2fLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3LGW2KH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Castle Panic 2nd Edition | Cooperative Board Game for Adults and Family | Ages 8+ | for 1 to 6 Players | Average Playtime 45 Minutes | Made by Fireside Games" src="https://m.media-amazon.com/images/I/61K+5Al2fLL._SL500_.jpg"/></a>
 
 
 The **Castle Panic 2nd Edition** is an ideal choice for families and groups of friends looking for a cooperative gaming experience. Perfect for players aged **8 and above**, this game is designed for **1 to 6 players**, making it a versatile option for both small and larger gatherings. If you enjoy strategy-based board games that encourage teamwork and problem-solving, this game is a perfect fit.
@@ -75,10 +75,10 @@ The **Castle Panic 2nd Edition** features a well-balanced game design that chall
 
 With its compact size and lightweight design, this board game is easy to bring to gatherings or family nights. The visually vibrant components and clear rules make setting up and playing straightforward, while the moderate playtime ensures that the game fits comfortably into busy schedules. Overall, **Castle Panic 2nd Edition** offers an entertaining and engaging experience for those seeking a cooperative strategy game that is both accessible and fun for various age groups.
 
-## <a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ravensburger Horrified Games - Greek Monsters</a>
+## <a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ravensburger Horrified Games - Greek Monsters</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ravensburger Horrified Games - Greek Monsters - Strategy Board Game - Boost Critical Thinking &amp; Teamwork - Cooperative Gameplay - Unique Monster Challenges - 1 to 5 Players - Adults &amp; Kids 10+" src="https://m.media-amazon.com/images/I/61I+n0edsvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHDNC8ZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ravensburger Horrified Games - Greek Monsters - Strategy Board Game - Boost Critical Thinking &amp; Teamwork - Cooperative Gameplay - Unique Monster Challenges - 1 to 5 Players - Adults &amp; Kids 10+" src="https://m.media-amazon.com/images/I/61I+n0edsvL._SL500_.jpg"/></a>
 
 
 The **Ravensburger Horrified Games - Greek Monsters** is ideal for families, board game enthusiasts, and anyone looking to engage in a fun, strategic, and cooperative experience. Perfect for players aged 10 and above, this game suits both adults and kids who enjoy teamwork and critical thinking challenges. Whether you're playing solo or with up to five players, this game offers an exciting way to test your problem-solving skills against unique mythical creatures.
@@ -101,10 +101,10 @@ The **Ravensburger Horrified Games - Greek Monsters** features beautifully desig
 
 Players benefit from the cooperative gameplay style, which fosters a sense of unity and shared achievement as they work together to defeat iconic creatures. The game's design supports solo play or group participation, providing flexibility depending on the players' preferences. Overall, this strategy board game is an excellent choice for those seeking a fun, mentally stimulating activity that combines mythology, teamwork, and problem-solving.
 
-## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
+## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
 
 
 The **Asmodee Mysterium Board Game** is an ideal choice for families and groups of friends who enjoy immersive cooperative experiences filled with mystery and intrigue. Designed for players aged **10+** and supporting **2-7 players**, this game is perfect for those looking to engage in a unique blend of storytelling, deduction, and teamwork. Whether you are a casual gamer or a seasoned enthusiast, this game offers a captivating challenge that brings everyone together.
@@ -127,10 +127,10 @@ The **Asmodee Mysterium Board Game** features a unique ghostly theme where one p
 
 Beyond the thrilling gameplay, the game’s quick setup and moderate playtime make it accessible for busy families and casual gatherings. The cooperative element fosters a sense of unity and shared accomplishment, making it not just a game but a memorable group activity. The **Family Edition** and **Kids Edition** further tailor the experience to different age groups, ensuring that everyone can enjoy the enigmatic adventure.
 
-## <a href="https://www.amazon.com/dp/B0B6CSR6SX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gap Closer Games Illiterati</a>
+## <a href="https://www.amazon.com/dp/B0B6CSR6SX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gap Closer Games Illiterati</a>
 
 
-<a href="https://www.amazon.com/dp/B0B6CSR6SX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gap Closer Games | Illiterati | Cooperative Board Game | Word Family Game | 1 to 5 Players | Ages 7+ | 30 Minutes" src="https://m.media-amazon.com/images/I/510-1eQSQoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B6CSR6SX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gap Closer Games | Illiterati | Cooperative Board Game | Word Family Game | 1 to 5 Players | Ages 7+ | 30 Minutes" src="https://m.media-amazon.com/images/I/510-1eQSQoL._SL500_.jpg"/></a>
 
 
 The **Gap Closer Games | Illiterati** is perfect for families, educators, and word game enthusiasts looking for a fun and educational cooperative experience. Ideal for players aged 7 and up, this game suits both solo players and groups of up to five, making it an excellent choice for classroom activities or casual family game nights. If you enjoy enhancing vocabulary and teamwork skills, this **word family game** is designed especially for you.
@@ -154,10 +154,10 @@ The **Gap Closer Games | Illiterati** stands out with its focus on cooperative p
 
 With a quick setup and an average playtime of just 30 minutes, this game fits perfectly into busy schedules without compromising on educational value or entertainment. Its suitability for 1 to 5 players means it can easily adapt to different group sizes, whether playing solo or with family and friends. Overall, **Illiterati** from **Gap Closer Games** is an excellent choice for those seeking a cooperative, educational word game that combines learning with fun.
 
-## <a href="https://www.amazon.com/dp/B07M5BFVP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zombie Kidz Evolution</a>
+## <a href="https://www.amazon.com/dp/B07M5BFVP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zombie Kidz Evolution</a>
 
 
-<a href="https://www.amazon.com/dp/B07M5BFVP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zombie Kidz Evolution | #1 Kids Game on BoardGameGeek | Cooperative Game for Kids and Families | Ages 7+ | 2 to 4 Players | 15 Minutes" src="https://m.media-amazon.com/images/I/51xf+t4q8cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07M5BFVP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zombie Kidz Evolution | #1 Kids Game on BoardGameGeek | Cooperative Game for Kids and Families | Ages 7+ | 2 to 4 Players | 15 Minutes" src="https://m.media-amazon.com/images/I/51xf+t4q8cL._SL500_.jpg"/></a>
 
 
 **Zombie Kidz Evolution** is an ideal game for families and children aged 7 and above who enjoy cooperative and engaging board games. Perfect for kids and parents looking to spend quality time together, this game encourages teamwork and strategic thinking, making it a great choice for 2 to 4 players seeking fun and interactive play sessions.
@@ -180,10 +180,10 @@ The **Zombie Kidz Evolution** game by **Scorpion Masqué** offers a colorful and
 
 This game stands out with its evolving storyline that changes as players progress, adding fresh excitement and unpredictability to each session. The short 15-minute rounds are perfectly tailored to hold children’s attention, while the multiple colors and engaging components appeal visually to younger audiences. Overall, it’s a well-crafted family board game that combines fun, learning, and teamwork in an accessible and entertaining package.
 
-## <a href="https://www.amazon.com/dp/B07JCB7DH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stellar Factory Ravine</a>
+## <a href="https://www.amazon.com/dp/B07JCB7DH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stellar Factory Ravine</a>
 
 
-<a href="https://www.amazon.com/dp/B07JCB7DH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Stellar Factory Ravine: A Crafty and Cooperative Card Game" src="https://m.media-amazon.com/images/I/41ddsWbrJ6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JCB7DH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Stellar Factory Ravine: A Crafty and Cooperative Card Game" src="https://m.media-amazon.com/images/I/41ddsWbrJ6L._SL500_.jpg"/></a>
 
 
 The **Stellar Factory Ravine: A Crafty and Cooperative Card Game** is perfect for board game enthusiasts who enjoy teamwork and strategic play. Ideal for families, friend groups, and casual gamers looking for an engaging cooperative experience, this game encourages collaboration and critical thinking in a fun, multicolor-themed package.
@@ -204,10 +204,10 @@ The **Stellar Factory Ravine** game combines crafty mechanics with cooperative s
 
 Additionally, the game’s compact dimensions and lightweight nature make it an excellent choice for game nights on the go or for families with limited storage space. Manufactured by **Stellar Factory**, this card game ensures lasting quality and a reliable gaming experience. Overall, it’s a well-rounded cooperative game that balances fun, strategy, and portability, making it an excellent addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B00A2HD40E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Pandemic Board Game</a>
+## <a href="https://www.amazon.com/dp/B00A2HD40E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Pandemic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00A2HD40E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Pandemic Board Game (Base Game) - A Cooperative Battle to Save Humanity, Strategy Game for Kids and Adults, Ages 8+, 2-4 Players, 45 Minute Playtime" src="https://m.media-amazon.com/images/I/41RYUd9wRLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00A2HD40E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Pandemic Board Game (Base Game) - A Cooperative Battle to Save Humanity, Strategy Game for Kids and Adults, Ages 8+, 2-4 Players, 45 Minute Playtime" src="https://m.media-amazon.com/images/I/41RYUd9wRLL._SL500_.jpg"/></a>
 
 
 The **Asmodee Pandemic Board Game (Base Game)** is ideal for families, friends, and strategy enthusiasts looking to engage in a cooperative and intellectually stimulating experience. Suitable for ages **8+** and designed for **2-4 players**, this game is perfect for those who enjoy collaborative gameplay and strategic planning, making it an excellent choice for both kids and adults who want to challenge themselves while working together to save humanity.
@@ -230,10 +230,10 @@ The **Asmodee Pandemic Board Game** is built around a compelling premise where p
 
 With its multi-colored, compact design, the game is easy to set up and store, making it accessible for quick sessions or extended play. The cooperative nature not only makes it engaging but also promotes social interaction and problem-solving skills among players. Overall, this strategy game offers a balanced blend of challenge and entertainment, making it a valuable addition to any game collection for those who enjoy working together towards a common goal.
 
-## <a href="https://www.amazon.com/dp/B09HX3CLFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Clue Board Game Treachery At Tudor Mansion </a>
+## <a href="https://www.amazon.com/dp/B09HX3CLFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Clue Board Game Treachery At Tudor Mansion </a>
 
 
-<a href="https://www.amazon.com/dp/B09HX3CLFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game Treachery at Tudor Mansion, Escape Room Game, Cooperative Family Murder Mystery Games, Ages 10 and up, 1-6 Players" src="https://m.media-amazon.com/images/I/51zUel5YrBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09HX3CLFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game Treachery at Tudor Mansion, Escape Room Game, Cooperative Family Murder Mystery Games, Ages 10 and up, 1-6 Players" src="https://m.media-amazon.com/images/I/51zUel5YrBL._SL500_.jpg"/></a>
 
 
 Ideal for families and groups of friends who enjoy immersive, cooperative gameplay, the **Clue Board Game Treachery at Tudor Mansion** is perfect for players aged 10 and up seeking a thrilling escape room experience combined with a classic murder mystery. Whether you're looking for a fun activity for 1 to 6 players or a challenging puzzle to solve together, this game offers engaging entertainment that sparks critical thinking and teamwork.
@@ -257,10 +257,10 @@ The **Clue Board Game Treachery at Tudor Mansion** features a rich storyline set
 
 Beyond its engaging narrative, the game’s mechanics allow for a flexible number of players, from solo gameplay to groups of six, accommodating different social settings. The combination of escape room elements and mystery-solving challenges keeps players intrigued and mentally stimulated, offering hours of entertainment that promote critical thinking and collaboration. Overall, this game is a valuable addition to any collection for those who appreciate immersive and interactive board games.
 
-## <a href="https://www.amazon.com/dp/B07NDKPSB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pandasaurus Cooperative Strategy Card Game</a>
+## <a href="https://www.amazon.com/dp/B07NDKPSB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pandasaurus Cooperative Strategy Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07NDKPSB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pandasaurus Cooperative Strategy Card Game - Fun Interactive Family Game for Ages 8+, 1-5 Players, 20 Minute Playtime" src="https://m.media-amazon.com/images/I/41OP-QRl28L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NDKPSB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pandasaurus Cooperative Strategy Card Game - Fun Interactive Family Game for Ages 8+, 1-5 Players, 20 Minute Playtime" src="https://m.media-amazon.com/images/I/41OP-QRl28L._SL500_.jpg"/></a>
 
 
 The **Pandasaurus Cooperative Strategy Card Game** is perfect for families and groups looking for a **fun, interactive** game experience. Ideal for players aged **8 and up**, this game supports **1 to 5 players**, making it suitable for both solo play and small groups. If you enjoy **quick, strategic gameplay** that encourages teamwork, this game is a great addition to your collection.

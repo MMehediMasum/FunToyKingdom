@@ -22,10 +22,10 @@ Datum Labs provides water-soluble glue with a sponge applicator for easy use. Va
 
 
 
-## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver (8-Ounce), CS15068, White** is ideal for puzzle enthusiasts and crafters who want to preserve their completed puzzles as lasting keepsakes. Whether you're an experienced puzzler or someone who enjoys DIY projects, this product is designed to provide a durable, protective finish that seals your puzzle pieces together with ease.
@@ -48,10 +48,10 @@ The **Mod Podge Puzzle Saver** features a specially formulated adhesive that is 
 
 Using this puzzle saver not only protects your completed puzzle from dust and damage but also enables you to display or frame your artwork with confidence. The product’s reliable adhesion keeps all pieces securely in place, preventing any accidental separation. Overall, it is an excellent solution for anyone looking to transform their puzzle hobby into a lasting piece of art.
 
-## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish** is ideal for puzzle enthusiasts and crafters who want to preserve their completed puzzles in a durable, clear finish. If you enjoy displaying your puzzles without the worry of pieces falling apart, or if you want to transform your puzzle into a lasting piece of art, this product is perfect for you. It caters to both beginners and experienced users looking for an easy-to-use sealing solution.
@@ -74,10 +74,10 @@ The **Mod Podge Puzzle Saver** is designed to provide a seamless experience by c
 
 With its compact size and trusted brand backing, this puzzle saver is ideal for users who prioritize quality and convenience. The matte finish minimizes glare, making it easier to display puzzles under various lighting conditions. Although it may require multiple coats for the best results, the product’s all-in-one functionality saves time and effort compared to using separate adhesives and sealers. Overall, it offers excellent value for anyone looking to extend the life and beauty of their favorite puzzles.
 
-## <a href="https://www.amazon.com/dp/B00178QQJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer</a>
+## <a href="https://www.amazon.com/dp/B00178QQJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B00178QQJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41zs6k410RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00178QQJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41zs6k410RL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Gloss Sealer, Glue & Finish** is ideal for crafters, artists, and DIY enthusiasts seeking an all-in-one solution for their projects. Whether you work with **wood**, **paper**, or **fabric**, this product offers a versatile and easy-to-use option to seal, glue, and finish your creations with a beautiful glossy shine. Perfect for both beginners and experienced crafters who want a reliable, quick-drying, and **non-toxic** product made in the USA.
@@ -101,10 +101,10 @@ The **Mod Podge Gloss Sealer** features a versatile formula that simplifies craf
 
 Additionally, the product’s easy clean-up with soap and water adds convenience, especially for frequent users or those working with children. Its compatibility with various materials such as **wood, paper, and fabric** makes it a flexible choice for diverse creative endeavors. Being **non-toxic** ensures safety during use, providing peace of mind when crafting at home or in educational settings. Overall, this Mod Podge formula is a dependable, high-quality choice for anyone looking to elevate their craft projects effortlessly.
 
-## <a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Datum Labs Jigsaw Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Datum Labs Jigsaw Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="[240mL] Datum Labs Jigsaw Puzzle Glue | Easy Sponge Head and Scaper | Adults and Children | Clear Water-Soluble Special Craft Puzzle Glue Quick-Dry | Non-Toxic | 1000/1500/3000 Pieces Per Bottle" src="https://m.media-amazon.com/images/I/51nIIzf1BgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJ1RCW55?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="[240mL] Datum Labs Jigsaw Puzzle Glue | Easy Sponge Head and Scaper | Adults and Children | Clear Water-Soluble Special Craft Puzzle Glue Quick-Dry | Non-Toxic | 1000/1500/3000 Pieces Per Bottle" src="https://m.media-amazon.com/images/I/51nIIzf1BgL._SL500_.jpg"/></a>
 
 
 The **Datum Labs Jigsaw Puzzle Glue** is ideal for puzzle enthusiasts of all ages, including both **adults and children**, who want to preserve their completed puzzles beautifully. Whether you are working on a 1000, 1500, or even 3000-piece puzzle, this **clear water-soluble special craft puzzle glue** provides a quick and easy way to secure your masterpiece for display or framing. It is perfect for hobbyists who value a **non-toxic** and user-friendly product that ensures their puzzles stay intact without damaging the pieces.
@@ -127,10 +127,10 @@ The **Datum Labs Jigsaw Puzzle Glue** is designed with user convenience in mind,
 
 Additionally, the product's **non-toxic** and **water-soluble** properties make it a safe choice for families, encouraging creative bonding moments between adults and children. Its clear formula guarantees that the puzzle's vibrant colors remain unchanged, preserving the original look. With the practical dimensions of the bottle, handling and storing the glue is hassle-free, making it a reliable companion for all your puzzle crafting needs.
 
-## <a href="https://www.amazon.com/dp/B0C1966VWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vansylife Updated Diamond Painting Sealer</a>
+## <a href="https://www.amazon.com/dp/B0C1966VWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vansylife Updated Diamond Painting Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1966VWP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VansyLife Updated Diamond Painting Sealer 2 Pack 500ML with Silicone Brush, 5D Diamond Painting Glue Accessories Permanent Hold &amp; Shine Effect for Diamond Painting and Jigsaw Puzzles (17.6 OZ)" src="https://m.media-amazon.com/images/I/41g3YZrX8BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1966VWP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VansyLife Updated Diamond Painting Sealer 2 Pack 500ML with Silicone Brush, 5D Diamond Painting Glue Accessories Permanent Hold &amp; Shine Effect for Diamond Painting and Jigsaw Puzzles (17.6 OZ)" src="https://m.media-amazon.com/images/I/41g3YZrX8BL._SL500_.jpg"/></a>
 
 
 The **VansyLife Updated Diamond Painting Sealer 2 Pack 500ML** is ideal for crafters and hobbyists who want to preserve and enhance their **diamond paintings** or **jigsaw puzzles**. If you’re looking for a reliable and easy-to-use product to provide a **permanent hold** and add a beautiful **shine effect** to your artwork, this sealer is a perfect choice. Whether you’re a beginner or an experienced artist, the included **silicone brush** makes application smooth and mess-free.
@@ -153,10 +153,10 @@ The **VansyLife Diamond Painting Sealer** is specially formulated to provide a s
 
 The included **silicone brush** enhances user experience by allowing smooth and precise application without waste or mess. Applying the sealer is straightforward, and once dried, it leaves a beautiful, glossy finish that adds depth and brilliance to your creations. This product is a valuable addition to any crafter’s toolkit, offering both protection and aesthetic enhancement in one easy step.
 
-## <a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ainiv Jigsaw Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ainiv Jigsaw Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ainiv 2 Pack 120ml Jigsaw Puzzle Glue with Sponge Head, PVA Clear Quick Dry Craft Puzzle Glue, Non-Toxic Water-Soluble Puzzle Saver, Suitable for 1000/1500/3000 Pieces Puzzle of Paper/Wood(Blue)" src="https://m.media-amazon.com/images/I/41IFuymauJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DTH6NL2C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ainiv 2 Pack 120ml Jigsaw Puzzle Glue with Sponge Head, PVA Clear Quick Dry Craft Puzzle Glue, Non-Toxic Water-Soluble Puzzle Saver, Suitable for 1000/1500/3000 Pieces Puzzle of Paper/Wood(Blue)" src="https://m.media-amazon.com/images/I/41IFuymauJL._SL500_.jpg"/></a>
 
 
 The **Ainiv 2 Pack 120ml Jigsaw Puzzle Glue with Sponge Head** is ideal for puzzle enthusiasts who frequently work on large puzzles ranging from 1000 to 3000 pieces. Whether you're a hobbyist looking to preserve your completed puzzles or a crafter wanting to turn puzzles into decorative art, this product offers an easy and efficient solution. Its suitability for both paper and wood puzzles makes it perfect for users seeking versatility in puzzle preservation.
@@ -179,10 +179,10 @@ The **Ainiv Jigsaw Puzzle Glue** features a **PVA clear quick dry** formula that
 
 Additionally, this puzzle glue is **non-toxic** and **water-soluble**, prioritizing user safety and ease of cleanup. Its capacity to work on both paper and wood puzzles expands its usability, making it a versatile choice for a variety of puzzle types. With this glue, users can confidently preserve their cherished puzzles, transform them into display pieces, or create personalized gifts with lasting durability.
 
-## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
 
 
 The **PHILODOGS Puzzle Glue** is ideal for puzzle enthusiasts of all ages, including both **kids** and **adults**. Whether you are a casual puzzler looking to preserve your completed jigsaw for display or a dedicated hobbyist wanting to keep your intricate work intact, this **clear, quick-drying, and non-toxic glue** offers an excellent solution for perfectly preserving your puzzles. It is especially suited for families who enjoy puzzle-building together and want to create lasting memories.
@@ -205,10 +205,10 @@ The **PHILODOGS Puzzle Glue** features a **quick-drying** and **clear formulatio
 
 Designed with puzzle enthusiasts in mind, this glue comes in a compact **120ml bottle** that provides enough adhesive for multiple projects without taking up much space. The **Family Edition** packaging reflects its user-friendly approach, making it accessible for all skill levels. Whether you want to frame your masterpiece or simply keep it intact for future enjoyment, PHILODOGS Puzzle Glue offers a reliable and convenient way to protect your puzzles.
 
-## <a href="https://www.amazon.com/dp/B001IKES5O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
+## <a href="https://www.amazon.com/dp/B001IKES5O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
 
 
-<a href="https://www.amazon.com/dp/B001IKES5O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41-iDD8CrqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001IKES5O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41-iDD8CrqL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Matte Sealer, Glue & Finish** is ideal for crafters and DIY enthusiasts looking for an all-in-one solution to protect and enhance their projects. Whether you work with **wood**, **paper**, **fabric**, or other materials, this product is perfect for those who want a quick-drying, easy-to-use, and **non-toxic** finishing touch. It’s also suitable for beginners and professionals who value a reliable, American-made craft supply.
@@ -232,10 +232,10 @@ The **Mod Podge Matte Sealer** offers a versatile crafting experience by combini
 
 Additionally, the product’s easy clean-up with just soap and water removes the hassle often associated with craft adhesives and sealers. The **non-toxic formula** ensures safety for all ages, making it a great choice for family craft sessions or classroom use. Manufactured by **Plaid Enterprises, Inc.** in the USA, this 16 oz. bottle delivers consistent quality and reliability for every creative endeavor.
 
-## <a href="https://www.amazon.com/dp/B0DMK38RKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kisrel Diamond Painting Sealer</a>
+## <a href="https://www.amazon.com/dp/B0DMK38RKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kisrel Diamond Painting Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMK38RKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KISREL 240ML Diamond Painting Sealer, 8OZ Diamond Painting Adhesive with Applicator, 5D Diamond Painting Glue Sealer Permanent Hold, Shine Effect Conserver for Jigsaw Puzzles" src="https://m.media-amazon.com/images/I/41uSGUSw-bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMK38RKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KISREL 240ML Diamond Painting Sealer, 8OZ Diamond Painting Adhesive with Applicator, 5D Diamond Painting Glue Sealer Permanent Hold, Shine Effect Conserver for Jigsaw Puzzles" src="https://m.media-amazon.com/images/I/41uSGUSw-bL._SL500_.jpg"/></a>
 
 
 The **KISREL 240ML Diamond Painting Sealer** is perfect for crafting enthusiasts who want to preserve their **5D diamond paintings** or **jigsaw puzzles** with a lasting, glossy finish. Ideal for both beginners and experienced artists, this sealer ensures that your artwork remains intact and vibrant, making it a must-have for anyone looking to protect and enhance their creative projects.
@@ -257,10 +257,10 @@ The **KISREL Diamond Painting Sealer** stands out with its user-friendly applica
 
 Manufactured by **Nanjing Maojie Trading Co., Ltd**, this sealer comes in a compact 1-inch cube-sized bottle, making it easy to store and handle. The adhesive quality ensures that your masterpieces remain intact without the risk of diamonds falling off over time. Overall, it’s an excellent choice for anyone looking to preserve their artistic creations with a professional touch.
 
-## <a href="https://www.amazon.com/dp/B09LZ53NFM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vansylife Diamond Painting Sealer</a>
+## <a href="https://www.amazon.com/dp/B09LZ53NFM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vansylife Diamond Painting Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B09LZ53NFM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VansyLife Diamond Painting Sealer 120ML with Sponge Head, 5D Diamond Painting Glue and Jigsaw Puzzle Glue for Permanent Hold &amp; Shine Effect (4 OZ)" src="https://m.media-amazon.com/images/I/31AgJMwaGBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09LZ53NFM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VansyLife Diamond Painting Sealer 120ML with Sponge Head, 5D Diamond Painting Glue and Jigsaw Puzzle Glue for Permanent Hold &amp; Shine Effect (4 OZ)" src="https://m.media-amazon.com/images/I/31AgJMwaGBL._SL500_.jpg"/></a>
 
 
 The **VansyLife Diamond Painting Sealer 120ML** is ideal for craft enthusiasts who want to preserve their **5D diamond paintings** or **jigsaw puzzles** with a professional finish. If you are someone who enjoys creating sparkling artwork and wishes to ensure a **permanent hold** and **shine effect**, this sealer is perfect for you. Whether you are a beginner or an experienced hobbyist, this product helps maintain the longevity and beauty of your projects.

@@ -23,10 +23,10 @@ Aircraft toys make great birthday gifts and spark interest in aviation and histo
 
 
 
-## <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcvents Airplane Toys</a>
+## <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tcvents Airplane Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tcvents Airplane Toys, Metal Plane Pull Back Airplane Toys for 3 4 5 6 7 Years Old Boys Girls, Die Cast Aircraft Plane Models, Kids' Play Vehicles Aeroplane Airplanes for Kids Birthday Gift" src="https://m.media-amazon.com/images/I/419q9PMOZUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tcvents Airplane Toys, Metal Plane Pull Back Airplane Toys for 3 4 5 6 7 Years Old Boys Girls, Die Cast Aircraft Plane Models, Kids' Play Vehicles Aeroplane Airplanes for Kids Birthday Gift" src="https://m.media-amazon.com/images/I/419q9PMOZUL._SL500_.jpg"/></a>
 
 
 The **Tcvents Airplane Toys** are perfect for young children aged **3 to 7 years old** who have a fascination with airplanes and vehicles. These **die cast aircraft plane models** are ideal for both boys and girls who enjoy imaginative play and hands-on activities. Parents looking for a durable and engaging **birthday gift** or a fun addition to their child's toy collection will find these pull-back airplanes a great choice.
@@ -48,12 +48,12 @@ The **Tcvents Airplane Toys** feature a sturdy **metal build** that withstands r
 
 Additionally, the bright **color palette** of white, blue, and yellow adds visual appeal, helping to capture and maintain children's attention. These toys not only foster creativity and role-playing but also support the development of hand-eye coordination. Overall, the **Tcvents Airplane Toys** are a delightful mix of fun, education, and durability that make them a thoughtful gift for young aviation enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B2CNHW9M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07DB3839X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Corper Toys Diecast Plane</a>
+## <a href="https://www.amazon.com/dp/B07DB3839X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Corper Toys Diecast Plane</a>
 
 
-<a href="https://www.amazon.com/dp/B07DB3839X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CORPER TOYS Diecast Plane Metal Pull-Back Aircraft Toys Air Plane Model for Kids Boy Birthday" src="https://m.media-amazon.com/images/I/41507wYRJlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DB3839X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CORPER TOYS Diecast Plane Metal Pull-Back Aircraft Toys Air Plane Model for Kids Boy Birthday" src="https://m.media-amazon.com/images/I/41507wYRJlL._SL500_.jpg"/></a>
 
 
 The **CORPER TOYS Diecast Plane Metal Pull-Back Aircraft Toy** is ideal for young boys who have a keen interest in aviation and enjoy engaging with durable, realistic model toys. Perfect as a **birthday gift** or a collectible item, this toy appeals to children who love imaginative play and parents seeking high-quality, safe toys that stimulate creativity.
@@ -75,12 +75,12 @@ The **CORPER TOYS Diecast Plane** features a high-quality metal construction tha
 
 Additionally, the toy’s weight and size are perfectly balanced to provide a satisfying tactile experience without being too heavy or cumbersome. The gray color gives it a sleek, authentic look that can also appeal to collectors or aviation enthusiasts. Overall, this model airplane combines fun, durability, and educational benefits, making it a smart choice for parents looking to inspire creativity and active play in their children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07DB3839X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07DB3839X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B9HB4SF2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci Aircraft Carrier Military Naval Ship Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0B9HB4SF2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Crelloci Aircraft Carrier Military Naval Ship Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9HB4SF2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci Aircraft Carrier Military Naval Ship with Pull Back Army Fighter Jet Toy Small Scale Model Plane Submarine Kids' Play Vehicle Set for Boy Girl Children" src="https://m.media-amazon.com/images/I/41hQMy7dqEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9HB4SF2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Crelloci Aircraft Carrier Military Naval Ship with Pull Back Army Fighter Jet Toy Small Scale Model Plane Submarine Kids' Play Vehicle Set for Boy Girl Children" src="https://m.media-amazon.com/images/I/41hQMy7dqEL._SL500_.jpg"/></a>
 
 
 The **Crelloci Aircraft Carrier Military Naval Ship** is an ideal choice for children who love imaginative play involving military and naval themes. Perfect for both boys and girls, this small scale model set appeals to kids fascinated by airplanes, submarines, and naval ships, encouraging creative storytelling and hands-on interaction. Parents looking for a durable and engaging toy to spark their child's interest in history, vehicles, or military adventures will find this set highly suitable.
@@ -102,12 +102,12 @@ The **Crelloci Aircraft Carrier Military Naval Ship** set features a realistic *
 
 Beyond just fun, this toy set offers educational benefits by helping children develop fine motor skills through manipulation of the models and encouraging strategic thinking as they create various military scenarios. The compact size and sturdy build make it a reliable play companion at home or on the go. Overall, this set by **Crelloci** successfully balances entertainment with learning, making it a valuable addition to any child’s toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B9HB4SF2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B9HB4SF2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09SPF5RW5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deao Aircraft Carrier Toy</a>
+## <a href="https://www.amazon.com/dp/B09SPF5RW5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deao Aircraft Carrier Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09SPF5RW5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="deAO Aircraft Carrier Toy with Scale Model Warplanes Warships Military Vehicles Battleship Helicopter Planes Trucks Tank Army Men Toys for Kids Boys Girls 18 Inches" src="https://m.media-amazon.com/images/I/51oJ1zHxjfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SPF5RW5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="deAO Aircraft Carrier Toy with Scale Model Warplanes Warships Military Vehicles Battleship Helicopter Planes Trucks Tank Army Men Toys for Kids Boys Girls 18 Inches" src="https://m.media-amazon.com/images/I/51oJ1zHxjfL._SL500_.jpg"/></a>
 
 
 The **deAO Aircraft Carrier Toy** is ideal for children who have a keen interest in **military vehicles** and **warplanes**. Perfect for boys and girls who enjoy imaginative play and want to explore the world of **battleships, helicopters, planes, trucks, tanks**, and **army men**, this toy offers an engaging experience for kids around 18 inches in size. It is well-suited for parents looking for a durable and educational toy that sparks creativity and strategic thinking.
@@ -130,12 +130,12 @@ The **deAO Aircraft Carrier Toy** stands out with its detailed and realistic sca
 
 Beyond entertainment, the set promotes learning through role-playing, helping kids understand military strategy and coordination. The assortment of pieces encourages cooperative play, making it a great choice for social interaction among peers or family members. Overall, this **Classic Edition** toy offers both fun and educational value, making it a worthy addition to any child’s toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09SPF5RW5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09SPF5RW5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07DB3KXPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Corper Toys Airplane Toys Set</a>
+## <a href="https://www.amazon.com/dp/B07DB3KXPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Corper Toys Airplane Toys Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07DB3KXPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CORPER TOYS Airplane Toys Set Die Cast Metal Military Fighter Jets for Kids Boy Pullback Plane Model Pack of 4" src="https://m.media-amazon.com/images/I/51GW8adWQyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DB3KXPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CORPER TOYS Airplane Toys Set Die Cast Metal Military Fighter Jets for Kids Boy Pullback Plane Model Pack of 4" src="https://m.media-amazon.com/images/I/51GW8adWQyL._SL500_.jpg"/></a>
 
 
 The **CORPER TOYS Airplane Toys Set Die Cast Metal Military Fighter Jets** is ideal for young boys who have a fascination with aviation and military aircraft. This set is perfect for children who enjoy imaginative play and collecting detailed model planes. Parents looking for durable and realistic toy airplanes that encourage creativity and fine motor skills will find this product especially suitable.
@@ -158,12 +158,12 @@ The **CORPER TOYS Airplane Toys Set** features four meticulously crafted die-cas
 
 One of the standout features is the pullback mechanism, which allows the planes to zoom forward when released, adding an exciting dynamic to playtime. This interactive element not only entertains but also helps children develop hand-eye coordination and motor skills. Additionally, the blue color and military design appeal to young aviation enthusiasts, inspiring hours of imaginative scenarios and storytelling.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07DB3KXPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07DB3KXPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DLKQ2JMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Airplane Toys</a>
+## <a href="https://www.amazon.com/dp/B0DLKQ2JMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Airplane Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLKQ2JMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Airplane Toys, Metal and Plastic Plane Pull Back Airplane Toys for 3 4 5 6 Years Old Boys Girls, Die Cast Aircraft Plane Models, Kids' Play Vehicles Aeroplane Airplanes for Birthday Gifts (2 pack)" src="https://m.media-amazon.com/images/I/31HIgN9BjFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLKQ2JMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Airplane Toys, Metal and Plastic Plane Pull Back Airplane Toys for 3 4 5 6 Years Old Boys Girls, Die Cast Aircraft Plane Models, Kids' Play Vehicles Aeroplane Airplanes for Birthday Gifts (2 pack)" src="https://m.media-amazon.com/images/I/31HIgN9BjFL._SL500_.jpg"/></a>
 
 
 The **Airplane Toys** by **AtomDream Tech** are perfect for young children aged 3 to 6 years who have a fascination with aircraft and enjoy imaginative play. These pull-back plane toys, crafted from both **metal** and **plastic**, are ideal for boys and girls who love vehicles and want durable, engaging toys that encourage creativity and motor skill development. Parents and gift buyers looking for a fun and educational birthday present will also find these models an excellent choice.
@@ -185,12 +185,12 @@ These **die-cast aircraft plane models** feature a smooth pull-back mechanism th
 
 Additionally, the size of each airplane is optimized for small hands, fostering improved motor skills as children grasp, pull back, and release the toys. The set of two offers variety and the opportunity for interactive play with siblings or friends. These airplane toys are a wonderful combination of fun, education, and quality, making them a thoughtful birthday gift for any young aviation enthusiast.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DLKQ2JMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DLKQ2JMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B097C8K6DH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Otonopi Fighter Jet Military Plane Model F-35</a>
+## <a href="https://www.amazon.com/dp/B097C8K6DH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Otonopi Fighter Jet Military Plane Model F-35</a>
 
 
-<a href="https://www.amazon.com/dp/B097C8K6DH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OTONOPI Fighter Jet Military Plane Model F-35 Aircraft Army Air Force Diecast Metal Pull Back Bomber Attack Plane with Lights and Sounds for Kids or Commemorate Collection" src="https://m.media-amazon.com/images/I/51RB0qBa3WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B097C8K6DH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OTONOPI Fighter Jet Military Plane Model F-35 Aircraft Army Air Force Diecast Metal Pull Back Bomber Attack Plane with Lights and Sounds for Kids or Commemorate Collection" src="https://m.media-amazon.com/images/I/51RB0qBa3WL._SL500_.jpg"/></a>
 
 
 The **OTONOPI Fighter Jet Military Plane Model F-35** is ideal for kids who love aviation toys as well as collectors looking to commemorate iconic military aircraft. This diecast metal model appeals to enthusiasts who appreciate detailed replicas with interactive features such as lights and sounds, making it perfect for imaginative play or display.
@@ -214,12 +214,12 @@ The **OTONOPI Fighter Jet F-35 model** stands out with its high-quality **diecas
 
 Designed with precise attention to the iconic **F-35 aircraft** look, this model is an excellent addition to any military plane collection. Its manageable size and lightweight make it convenient for display or transportation. Whether used as a toy or collector’s piece, the **OTONOPI Fighter Jet** provides a satisfying blend of authenticity, entertainment, and educational value about modern air force technology.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B097C8K6DH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B097C8K6DH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F8J7WT64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guarsiliymi Fighter Airplane F18 Toy Model</a>
+## <a href="https://www.amazon.com/dp/B0F8J7WT64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guarsiliymi Fighter Airplane F18 Toy Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0F8J7WT64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Guarsiliymi Fighter Airplane F18 Toy Model, Military Die-cast Alloy Pull Back Airplane Toy for Kids Adults, Aircraft Display &amp; Collection, Gift Gray" src="https://m.media-amazon.com/images/I/315EdNkVIzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F8J7WT64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Guarsiliymi Fighter Airplane F18 Toy Model, Military Die-cast Alloy Pull Back Airplane Toy for Kids Adults, Aircraft Display &amp; Collection, Gift Gray" src="https://m.media-amazon.com/images/I/315EdNkVIzL._SL500_.jpg"/></a>
 
 
 The **Guarsiliymi Fighter Airplane F18 Toy Model** is perfect for both **kids and adults** who have a passion for military aircraft and model collections. Whether you are a young enthusiast looking for a durable and fun toy or a collector seeking a detailed **die-cast alloy** airplane to display, this model offers a great balance of playability and authenticity. It also makes an excellent **gift** for aviation fans and hobbyists.
@@ -241,12 +241,12 @@ The **Guarsiliymi Fighter Airplane F18 Toy Model** stands out with its sturdy **
 
 Designed with attention to detail, the model captures the sleek lines and iconic features of the **F18 fighter jet**, appealing to military enthusiasts and collectors alike. Its **gray** color scheme adds to the realistic military aesthetic, while the compact size ensures it can be easily transported or gifted. Overall, this airplane toy model combines quality, design, and functionality to meet the needs of a diverse range of users.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F8J7WT64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F8J7WT64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0714FRV4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ttkbhhq 3pc Vintage Metal Planes Model</a>
+## <a href="https://www.amazon.com/dp/B0714FRV4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ttkbhhq 3pc Vintage Metal Planes Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0714FRV4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TTKBHHQ 3pc Vintage Metal Planes Model Iron Retro Aircraft Glider Biplane Pendant Model Airplane Kids Toy,Christmas,Home Decor,Ornament,Desktop Decoration" src="https://m.media-amazon.com/images/I/41OV65bZOGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0714FRV4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TTKBHHQ 3pc Vintage Metal Planes Model Iron Retro Aircraft Glider Biplane Pendant Model Airplane Kids Toy,Christmas,Home Decor,Ornament,Desktop Decoration" src="https://m.media-amazon.com/images/I/41OV65bZOGL._SL500_.jpg"/></a>
 
 
 The **TTKBHHQ 3pc Vintage Metal Planes Model** is perfect for aviation enthusiasts, collectors of retro decor, and anyone looking to add a unique touch to their home or office. Ideal for those who appreciate **classic design** and want a distinctive **desktop decoration** or a charming **Christmas ornament**, this set is also great for kids who enjoy imaginative play with vintage-style toys.
@@ -268,12 +268,12 @@ The **TTKBHHQ Vintage Metal Planes Model** features a meticulously crafted desig
 
 Beyond its decorative value, this model set sparks creativity in children by encouraging imaginative play with a historical aviation twist. For adults, it serves as a conversation starter and a stylish accent piece that reflects a passion for aviation history. Whether used as a festive **Christmas ornament** or a permanent fixture on a desk, these metal planes bring character and charm to any environment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0714FRV4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0714FRV4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0943G8LRT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lucky Doug Building Toys Model Airplane Set</a>
+## <a href="https://www.amazon.com/dp/B0943G8LRT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lucky Doug Building Toys Model Airplane Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0943G8LRT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lucky Doug Building Toys Model Airplane Set - DIY Building Stem Projects Toys for Kids Boys Ages 8-12, Assembly Science Toys for Model Fans" src="https://m.media-amazon.com/images/I/511m5dCt8OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0943G8LRT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lucky Doug Building Toys Model Airplane Set - DIY Building Stem Projects Toys for Kids Boys Ages 8-12, Assembly Science Toys for Model Fans" src="https://m.media-amazon.com/images/I/511m5dCt8OL._SL500_.jpg"/></a>
 
 
 The **Lucky Doug Building Toys Model Airplane Set** is perfect for **kids aged 8-12** who have a passion for **DIY projects** and enjoy hands-on learning experiences. Ideal for young model fans and aspiring engineers, this set encourages **STEM education** by combining fun with science, technology, engineering, and math principles. Parents looking for an engaging and educational toy that promotes creativity and problem-solving skills will find this set a great choice.
@@ -295,7 +295,7 @@ The **Lucky Doug Building Toys Model Airplane Set** offers a comprehensive and e
 
 In addition to fostering creativity, this set aids in developing critical thinking and dexterity, which are essential skills for young learners. Its manageable dimensions ensure that kids can easily handle and display their creations. Overall, this model airplane set is an excellent tool for parents and educators aiming to inspire a love for **STEM subjects** through interactive and entertaining projects.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0943G8LRT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0943G8LRT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

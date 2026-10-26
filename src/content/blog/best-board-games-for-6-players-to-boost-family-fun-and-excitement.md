@@ -22,10 +22,10 @@ HUES and CUES challenges players to guess colors from clues, perfect for larger 
 
 
 
-## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
+## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
 
 
-<a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
 
 
 **Taco Cat Goat Cheese Pizza** is an ideal card game for families and groups looking for a **wildly entertaining** and **easy-to-learn** activity. Perfect for **kids, teens, adults, and families**, this game suits anyone who enjoys fast-paced, engaging gameplay during game night or social gatherings. Whether you have a small group or a larger party of up to **8 players**, this game promises quick rounds and lots of laughter.
@@ -48,10 +48,10 @@ The **Taco Cat Goat Cheese Pizza** card game features a unique combination of si
 
 This game’s design encourages quick thinking and sharp reflexes, enhancing hand-eye coordination and social interaction among players. Because it’s easy to grasp, players can jump right into the fun without lengthy explanations. Families and groups will appreciate how it fosters laughter and connection, making every game night more memorable. Overall, it’s a fantastic choice for anyone seeking an entertaining and accessible card game experience.
 
-## <a href="https://www.amazon.com/dp/B07MV4NN5Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato The Chameleon</a>
+## <a href="https://www.amazon.com/dp/B07MV4NN5Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato The Chameleon</a>
 
 
-<a href="https://www.amazon.com/dp/B07MV4NN5Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato The Chameleon, Award-Winning Board Game for Families &amp; Friends for 3-8 Players" src="https://m.media-amazon.com/images/I/51gLHIQNTBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MV4NN5Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato The Chameleon, Award-Winning Board Game for Families &amp; Friends for 3-8 Players" src="https://m.media-amazon.com/images/I/51gLHIQNTBL._SL500_.jpg"/></a>
 
 
 The **Big Potato The Chameleon** is an **award-winning board game** ideal for **families and friends** looking for a fun, engaging activity that supports **3-8 players**. Perfect for those who enjoy social games that challenge observation and bluffing skills, this game is especially suitable for players aged 8 and up who want to bring laughter and excitement to their gatherings.
@@ -75,10 +75,10 @@ The **Big Potato The Chameleon** offers a unique blend of fun and challenge thro
 
 Designed by **Cardinal Games** and brought to you by **Big Potato**, this game boasts high-quality components and accessible rules that make it a hit with both kids and adults. The game's ability to engage 3 to 8 players ensures that it fits a variety of social settings, encouraging laughter, teamwork, and a healthy dose of friendly competition for all participants.
 
-## <a href="https://www.amazon.com/dp/B084D2XQ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hues And Cues</a>
+## <a href="https://www.amazon.com/dp/B084D2XQ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hues And Cues</a>
 
 
-<a href="https://www.amazon.com/dp/B084D2XQ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUES and CUES - Vibrant Color Guessing Board Game for 3-10 Players Ages 8+, Connect Clues and Guess from 480 Color Squares" src="https://m.media-amazon.com/images/I/51T6eBQpNnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084D2XQ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUES and CUES - Vibrant Color Guessing Board Game for 3-10 Players Ages 8+, Connect Clues and Guess from 480 Color Squares" src="https://m.media-amazon.com/images/I/51T6eBQpNnL._SL500_.jpg"/></a>
 
 
 The **HUES and CUES** board game is ideal for families, friends, and party groups looking for a fun and engaging way to challenge their knowledge of colors. Suitable for **3-10 players** ages **8 and up**, this game is perfect for anyone who enjoys vibrant visuals and strategic guessing games that encourage creativity and communication. Whether you are a casual gamer or a color enthusiast, this game offers an entertaining experience for diverse groups.
@@ -101,10 +101,10 @@ The **HUES and CUES** board game is ideal for families, friends, and party group
 
 The game's design emphasizes portability and ease of use, making it an excellent choice for on-the-go entertainment or casual game nights. Its **multicolor** layout and compact dimensions ensure that it fits comfortably in any setting without requiring extensive setup. Additionally, the collaboration between players fosters a lively atmosphere where everyone can participate, making **HUES and CUES** a versatile and inclusive game option for various occasions.
 
-## <a href="https://www.amazon.com/dp/B0DYK1LYDT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Catan 5-6 Player Board Game Expansion</a>
+## <a href="https://www.amazon.com/dp/B0DYK1LYDT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Catan 5-6 Player Board Game Expansion</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYK1LYDT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CATAN 5-6 Player Board Game Expansion (6th Edition) Add More Players to Your Adventure, Ages 10+, 3-6 Players, 60-90 Minute Playtime" src="https://m.media-amazon.com/images/I/41s+lM1CZGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYK1LYDT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CATAN 5-6 Player Board Game Expansion (6th Edition) Add More Players to Your Adventure, Ages 10+, 3-6 Players, 60-90 Minute Playtime" src="https://m.media-amazon.com/images/I/41s+lM1CZGL._SL500_.jpg"/></a>
 
 
 The **CATAN 5-6 Player Board Game Expansion (6th Edition)** is ideal for fans of the original CATAN game who want to include more players in their gaming sessions. Designed for ages **10+** and supporting **3-6 players**, this expansion is perfect for families, gaming groups, or anyone looking to enhance their board game experience by adding more friends or family members to the adventure.
@@ -127,10 +127,10 @@ This **CATAN 5-6 Player Board Game Expansion** seamlessly extends the classic CA
 
 Furthermore, the expansion's compatibility with the 6th Edition means that players can easily integrate it into their existing CATAN sets. The slightly extended playtime of 60-90 minutes reflects the increased number of participants, allowing everyone to fully immerse themselves in the adventure. Overall, this expansion is a valuable addition for those looking to bring more excitement and camaraderie to their CATAN sessions.
 
-## <a href="https://www.amazon.com/dp/B07Q2K1Y33?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rummikub Six Player Edition</a>
+## <a href="https://www.amazon.com/dp/B07Q2K1Y33?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rummikub Six Player Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q2K1Y33?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rummikub Six Player Edition - The Classic Rummy Tile Game - More Tiles and More Players for More Fun! by Pressman , Blue" src="https://m.media-amazon.com/images/I/512L8JD7ujS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q2K1Y33?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rummikub Six Player Edition - The Classic Rummy Tile Game - More Tiles and More Players for More Fun! by Pressman , Blue" src="https://m.media-amazon.com/images/I/512L8JD7ujS._SL500_.jpg"/></a>
 
 
 The **Rummikub Six Player Edition** by **Pressman** is perfect for families, game night enthusiasts, and anyone looking to enjoy a classic rummy tile game with more friends. Ideal for groups who want to include up to six players, this edition offers more tiles and an extended playing experience, making it suitable for social gatherings and parties.
@@ -153,10 +153,10 @@ The **Rummikub Six Player Edition** features an expanded set of tiles that enabl
 
 Crafted with quality materials by **Pressman**, this edition maintains the classic rules and charm of the original Rummikub game, while enhancing social play with more participants. Its appealing **blue color** and sturdy construction provide both aesthetic and durable value, ensuring it remains a favorite for years to come.
 
-## <a href="https://www.amazon.com/dp/B0C3VQ32DG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vamslove Shut The Box Game</a>
+## <a href="https://www.amazon.com/dp/B0C3VQ32DG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vamslove Shut The Box Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0C3VQ32DG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vamslove Shut The Box Game for 6 Player with 12+4 Dice - Colorful 6 Sided Wooden Board Math Number Games for Kids Adults Families Party Club (Instructions Included)" src="https://m.media-amazon.com/images/I/51tg6mRmFZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C3VQ32DG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Vamslove Shut The Box Game for 6 Player with 12+4 Dice - Colorful 6 Sided Wooden Board Math Number Games for Kids Adults Families Party Club (Instructions Included)" src="https://m.media-amazon.com/images/I/51tg6mRmFZL._SL500_.jpg"/></a>
 
 
 The **Vamslove Shut The Box Game** is ideal for families, party enthusiasts, and educators looking for a fun and educational activity that accommodates up to six players. Whether you're seeking a way to enhance children's **math skills** or want an engaging game for social gatherings, this colorful wooden board game offers an excellent solution for both kids and adults.
@@ -179,10 +179,10 @@ The **Vamslove Shut The Box Game** features a well-crafted multicolored wooden b
 
 By engaging multiple players, the game fosters healthy competition and social interaction, making it ideal for family gatherings, parties, or even classroom settings. Its compact yet substantial size ensures easy handling and visibility for all players, enhancing the overall gaming experience. With clear instructions included, players of all ages can quickly grasp the rules and enjoy hours of fun and learning.
 
-## <a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hedbanz 2023 Edition</a>
+## <a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hedbanz 2023 Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, Hedbanz 2023 Edition with New Cards, Picture Guessing Board Game, for Family &amp; Kids, 2-6 Players, for Ages 6 &amp; Up" src="https://m.media-amazon.com/images/I/51vt6os6cyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, Hedbanz 2023 Edition with New Cards, Picture Guessing Board Game, for Family &amp; Kids, 2-6 Players, for Ages 6 &amp; Up" src="https://m.media-amazon.com/images/I/51vt6os6cyL._SL500_.jpg"/></a>
 
 
 The **Spin Master Games, Hedbanz 2023 Edition** is ideal for families and children aged 6 and up who enjoy interactive and engaging board games. Perfect for groups of 2 to 6 players, this game encourages creativity, quick thinking, and laughter, making it an excellent choice for family game nights or gatherings with friends.
@@ -205,10 +205,10 @@ The **Hedbanz 2023 Edition** from **Spin Master Games** features an updated set 
 
 Beyond entertainment, Hedbanz fosters important skills such as **critical thinking, communication, and social interaction**. Players must ask strategic questions and interpret clues, which enhances cognitive abilities and encourages teamwork. Overall, the game provides a fun and educational experience suitable for both children and adults, making it a versatile addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
+## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
 
 
 The **Monopoly Game**, designed for **2 to 6 players** and suitable for **kids ages 8 and up**, is ideal for families and friends who enjoy interactive and strategic board games. This version, known as the **Token Vote Edition**, is perfect for those looking to engage in a classic game with a fun twist, fostering social interaction and friendly competition.
@@ -231,10 +231,10 @@ The **Monopoly Game Token Vote Edition** features a classic board layout enhance
 
 Crafted by **Hasbro**, this edition maintains the traditional Monopoly charm while introducing a voting mechanic for token selection, adding a layer of interaction before the game even begins. Its size and dimensions make it convenient to set up in various spaces, whether at home or on the go. Overall, this game enhances family bonding and social skills, making it a valuable addition to any game collection for those seeking both entertainment and meaningful connections.
 
-## <a href="https://www.amazon.com/dp/B00GDI4HX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Coup </a>
+## <a href="https://www.amazon.com/dp/B00GDI4HX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Coup </a>
 
 
-<a href="https://www.amazon.com/dp/B00GDI4HX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coup - The Fast, Fun Bluffing Party Game for 2-6 Players. Perfect for Family Game Night with your Teens or Friends. Can you get away with your bluff? Over 1 Million copies sold!" src="https://m.media-amazon.com/images/I/41iwiI5wkoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00GDI4HX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coup - The Fast, Fun Bluffing Party Game for 2-6 Players. Perfect for Family Game Night with your Teens or Friends. Can you get away with your bluff? Over 1 Million copies sold!" src="https://m.media-amazon.com/images/I/41iwiI5wkoL._SL500_.jpg"/></a>
 
 
 **Coup - The Fast, Fun Bluffing Party Game** is ideal for anyone looking to add excitement and strategy to their game nights. Perfect for families with teens or groups of friends, this game is designed for 2-6 players who enjoy social interaction, bluffing, and quick decision-making. If you love games that challenge your ability to deceive and read your opponents, **Coup** is a fantastic choice.
@@ -257,10 +257,10 @@ Crafted by **Hasbro**, this edition maintains the traditional Monopoly charm whi
 
 Developed by **Indie Boards and Cards** and published in September 2020, **Coup** offers a modern twist on classic bluffing games. The strategic elements combined with social deduction give players the benefit of honing their critical thinking and interpersonal skills. Whether you're trying to outwit your opponents or maintain a convincing bluff, every moment in the game is filled with suspense and fun.
 
-## <a href="https://www.amazon.com/dp/B09KWZMXLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Camel Up</a>
+## <a href="https://www.amazon.com/dp/B09KWZMXLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Camel Up</a>
 
 
-<a href="https://www.amazon.com/dp/B09KWZMXLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Camel Up (Second Edition) | Strategy , Dice Game | Family Board Game for Adults and Kids | Ages 8 and up | 3 to 8 Players | Average Playtime 30-45 Minutes | Made by Eggertspiele" src="https://m.media-amazon.com/images/I/51s1JbcSAnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KWZMXLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Camel Up (Second Edition) | Strategy , Dice Game | Family Board Game for Adults and Kids | Ages 8 and up | 3 to 8 Players | Average Playtime 30-45 Minutes | Made by Eggertspiele" src="https://m.media-amazon.com/images/I/51s1JbcSAnL._SL500_.jpg"/></a>
 
 
 The **Camel Up (Second Edition)** is perfect for families and groups of friends looking for an engaging and strategic **board game** that is suitable for both adults and kids aged 8 and up. If you enjoy games that combine **dice rolling** with tactical decision-making, and want a fun experience for 3 to 8 players with an average playtime of 30-45 minutes, this game is an excellent choice. It is ideal for those who want a lively and interactive game night that balances luck and strategy.

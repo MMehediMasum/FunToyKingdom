@@ -23,10 +23,10 @@ Fans of pop culture can find models like the Lotus Turbo Esprit from James Bond�
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQKK14Z4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1969 Charger R/t Orange (unrestored) Barn Finds 1/64 Diecast Model Car</a>
+## <a href="https://www.amazon.com/dp/B0CQKK14Z4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1969 Charger R/t Orange (unrestored) Barn Finds 1/64 Diecast Model Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQKK14Z4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1969 Charger R/T Orange (Unrestored) Barn Finds 1/64 Diecast Model Car by Johnny Lightning JLSP192" src="https://m.media-amazon.com/images/I/51I+4cQfqpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQKK14Z4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1969 Charger R/T Orange (Unrestored) Barn Finds 1/64 Diecast Model Car by Johnny Lightning JLSP192" src="https://m.media-amazon.com/images/I/51I+4cQfqpL._SL500_.jpg"/></a>
 
 
 The **1969 Charger R/T Orange (Unrestored) Barn Finds 1/64 Diecast Model Car** by **Johnny Lightning** is perfect for diecast collectors and classic car enthusiasts who appreciate detailed replicas of iconic vehicles. Ideal buyers include hobbyists who value authenticity and collectors looking to expand their collection with a high-quality miniature model of a legendary muscle car.
@@ -49,12 +49,12 @@ This **1/64 scale diecast model** car captures the essence of the classic **1969
 
 Crafted by **Johnny Lightning Diecast** under the reputable **Round 2** brand, this model boasts durable metal construction that ensures it will withstand handling and display over time. The vibrant orange paint and realistic features, such as accurate body lines and detailing, offer enthusiasts a tangible connection to one of the most iconic muscle cars in American automotive history. Overall, this diecast model is a must-have for anyone passionate about classic cars and quality collectibles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CQKK14Z4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CQKK14Z4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BP4D7DNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning Captain Terror's Car #11 Red Speed Racer Diecast Model Car</a>
+## <a href="https://www.amazon.com/dp/B0BP4D7DNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning Captain Terror's Car #11 Red Speed Racer Diecast Model Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0BP4D7DNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning Captain Terror's Car #11 Red (Raced Version) Speed Racer (1967) TV Series Pop Culture 2022 Release 4 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/414daaAlJwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BP4D7DNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning Captain Terror's Car #11 Red (Raced Version) Speed Racer (1967) TV Series Pop Culture 2022 Release 4 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/414daaAlJwL._SL500_.jpg"/></a>
 
 
 The **Johnny Lightning Captain Terror's Car #11 Red (Raced Version)** from the **Speed Racer (1967) TV Series** is an ideal collectible for enthusiasts of classic television memorabilia and diecast model car collectors. If you are a fan of vintage pop culture items or looking to expand your collection with a detailed and nostalgic piece, this **1/64 scale diecast model car** by **Johnny Lightning** is perfect for you. Its compact size and authentic design make it suitable for display in limited spaces or as part of a larger collection.
@@ -76,12 +76,12 @@ This **diecast model car** brings to life the charm and excitement of the classi
 
 Beyond aesthetics, owning this **Johnny Lightning** release allows fans to celebrate a piece of pop culture history. The quality construction guarantees durability, making it a lasting addition to your memorabilia. Whether you are a seasoned collector or a new enthusiast, this model car offers a tangible connection to the beloved 1967 TV series, enhancing your collection with a piece that honors the legacy of Speed Racer’s thrilling racing adventures.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BP4D7DNL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BP4D7DNL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CW3KR4TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1980 Toyota Land Cruiser</a>
+## <a href="https://www.amazon.com/dp/B0CW3KR4TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1980 Toyota Land Cruiser</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW3KR4TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1980 Toyota Land Cruiser Gray and Red Primer (Weathered) Limited Edition to 4800 Pieces Worldwide 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/41VoMGxmJ0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW3KR4TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1980 Toyota Land Cruiser Gray and Red Primer (Weathered) Limited Edition to 4800 Pieces Worldwide 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/41VoMGxmJ0L._SL500_.jpg"/></a>
 
 
 The **Johnny Lightning 1980 Toyota Land Cruiser Gray and Red Primer (Weathered) Limited Edition** is ideal for diecast car collectors and automotive enthusiasts who appreciate detailed replicas of classic vehicles. This model, limited to only 4800 pieces worldwide, is perfect for those seeking a unique addition to their collection or a special gift for vintage car lovers. Its compact size and weathered finish make it an exceptional display piece for hobbyists who value authenticity and exclusivity.
@@ -104,12 +104,12 @@ This **Johnny Lightning diecast model** impresses with its precise craftsmanship
 
 Beyond aesthetics, this limited edition model offers significant collectible value, being part of a restricted production run. Its compact dimensions allow for easy display in various settings, from office desks to dedicated shelves. Manufactured by the trusted Johnny Lightning brand, the model promises durability and a high-quality finish that collectors can rely on to maintain its appeal over time.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CW3KR4TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CW3KR4TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CQRYN3MW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2007 Fj Cruiser Titanium Silver Metallic</a>
+## <a href="https://www.amazon.com/dp/B0CQRYN3MW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2007 Fj Cruiser Titanium Silver Metallic</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQRYN3MW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2007 FJ Cruiser Titanium Silver Metallic with White Top and Roofrack Classic Gold Collection Series Limited Edition 1/64 Diecast Model Car by Johnny Lightning JLCG030-JLSP278A" src="https://m.media-amazon.com/images/I/413kRYy2wGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQRYN3MW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2007 FJ Cruiser Titanium Silver Metallic with White Top and Roofrack Classic Gold Collection Series Limited Edition 1/64 Diecast Model Car by Johnny Lightning JLCG030-JLSP278A" src="https://m.media-amazon.com/images/I/413kRYy2wGL._SL500_.jpg"/></a>
 
 
 The **2007 FJ Cruiser Titanium Silver Metallic with White Top and Roofrack Classic Gold Collection Series Limited Edition 1/64 Diecast Model Car** by **Johnny Lightning** is perfect for diecast collectors and automotive enthusiasts who appreciate detailed scale models. Ideal for those who want to own a miniature replica of a classic SUV, this item suits hobbyists looking to add a rare and finely crafted piece to their collection.
@@ -130,12 +130,12 @@ This collectible model boasts intricate detailing that captures the essence of t
 
 Manufactured by **Johnny Lightning Diecast** under the reputable **Round 2** brand, this limited edition model ensures authenticity and quality craftsmanship. Collectors benefit from owning a piece that not only looks great on display but also holds potential value as a rare collectible. The Classic Gold Collection Series adds an extra layer of prestige, making it a must-have for serious diecast enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CQRYN3MW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CQRYN3MW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BCTXF125?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1965 Chevrolet Tow Truck</a>
+## <a href="https://www.amazon.com/dp/B0BCTXF125?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1965 Chevrolet Tow Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCTXF125?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1965 Chevrolet Tow Truck #65 Derby Smoke Gray with Graphics Demolition Derby Street Freaks Series Limited Edition to 15196 Pieces Worldwide 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/41ljYx7-XiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCTXF125?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1965 Chevrolet Tow Truck #65 Derby Smoke Gray with Graphics Demolition Derby Street Freaks Series Limited Edition to 15196 Pieces Worldwide 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/41ljYx7-XiL._SL500_.jpg"/></a>
 
 
 The **Johnny Lightning 1965 Chevrolet Tow Truck #65 Derby Smoke Gray** is perfect for diecast model collectors and automotive enthusiasts who appreciate limited edition collectibles. Ideal customers are those who value intricate details and rarity, especially since this piece is part of the **Demolition Derby Street Freaks Series** and limited to **15,196 pieces worldwide**. Its compact **1/64 scale** makes it a great addition for display or for those who enjoy collecting miniature vehicles with historical and cultural significance.
@@ -158,12 +158,12 @@ This **Johnny Lightning 1965 Chevrolet Tow Truck** stands out with its precise c
 
 Beyond its visual appeal, this diecast model serves as a tangible piece of automotive history, especially for fans of demolition derby culture. The limited edition nature ensures exclusivity, enhancing its desirability and potential value over time. Whether displayed individually or as part of a larger collection, this model embodies both nostalgia and craftsmanship, making it a must-have for serious collectors and enthusiasts alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BCTXF125?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BCTXF125?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B61ZHC8X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1980 Lotus Turbo Esprit S3</a>
+## <a href="https://www.amazon.com/dp/B0B61ZHC8X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1980 Lotus Turbo Esprit S3</a>
 
 
-<a href="https://www.amazon.com/dp/B0B61ZHC8X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (1981)="" 1="" 2022="" 64="" alt="Johnny Lightning 1980 Lotus Turbo Esprit S3 Orange Metallic with Stripes James Bond 007 " car"="" culture="" diecast="" eyes="" for="" model="" movie="" only="" pop="" release="" src="https://m.media-amazon.com/images/I/41o2TSCcgeL._SL500_.jpg" your=""/></a>
+<a href="https://www.amazon.com/dp/B0B61ZHC8X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (1981)="" 1="" 2022="" 64="" alt="Johnny Lightning 1980 Lotus Turbo Esprit S3 Orange Metallic with Stripes James Bond 007 " car"="" culture="" diecast="" eyes="" for="" model="" movie="" only="" pop="" release="" src="https://m.media-amazon.com/images/I/41o2TSCcgeL._SL500_.jpg" your=""/></a>
 
 
 The **Johnny Lightning 1980 Lotus Turbo Esprit S3 Orange Metallic with Stripes James Bond 007 "for Your Eyes Only (1981) Movie Pop Culture 2022 Release 1 1/64 Diecast Model Car** is perfect for collectors and fans of **James Bond memorabilia**, diecast model enthusiasts, and anyone who appreciates iconic movie cars in detailed miniature form. This item is ideal for those who want to add a piece of cinematic history to their collection or gift a unique and nostalgic item to a Bond fan.
@@ -186,12 +186,12 @@ This **Johnny Lightning Lotus Turbo Esprit S3** model car brings the iconic 1980
 
 Beyond aesthetics, this diecast model serves as a tangible connection to the **pop culture legacy** of the Bond franchise, appealing to enthusiasts who value both automotive craftsmanship and cinematic nostalgia. The model's quality construction by Johnny Lightning ensures durability, making it suitable for careful handling and long-term preservation. Whether for personal enjoyment or as a special gift, this collectible is a meaningful addition to any fan's collection, blending entertainment history with expert model-making.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B61ZHC8X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B61ZHC8X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BLZYBMCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning Jlpc008 Pop Culture 1965 Car Mustang 007 60 Years Bond</a>
+## <a href="https://www.amazon.com/dp/B0BLZYBMCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning Jlpc008 Pop Culture 1965 Car Mustang 007 60 Years Bond</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLZYBMCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning JLPC008 Pop Culture 1965 Car Mustang 007 60 Years Bond" src="https://m.media-amazon.com/images/I/41BXFAbFkmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLZYBMCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning JLPC008 Pop Culture 1965 Car Mustang 007 60 Years Bond" src="https://m.media-amazon.com/images/I/41BXFAbFkmL._SL500_.jpg"/></a>
 
 
 The **Johnny Lightning JLPC008 Pop Culture 1965 Car Mustang 007 60 Years Bond** is perfect for collectors and enthusiasts of classic cars and James Bond memorabilia. Ideal customers include fans of the iconic 1965 Mustang, die-cast model collectors, and those who appreciate detailed replicas celebrating the 60-year legacy of the Bond franchise. This item is especially suited for display purposes or as a unique gift for movie and car aficionados.
@@ -214,12 +214,12 @@ The **Johnny Lightning JLPC008 Pop Culture 1965 Car Mustang 007 60 Years Bond** 
 
 Beyond aesthetics, this collectible model offers fans a tangible connection to the legendary spy series, making it more than just a display piece—it’s a celebration of cinematic history. Its manageable size and light weight allow for easy placement on shelves or desks, while the multiple color options provide collectors with choices to personalize their collections. Overall, it’s a valuable item that combines nostalgia, quality, and style.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BLZYBMCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BLZYBMCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CXQ5Z4ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1971 Plymouth Barracuda Convertible</a>
+## <a href="https://www.amazon.com/dp/B0CXQ5Z4ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1971 Plymouth Barracuda Convertible</a>
 
 
-<a href="https://www.amazon.com/dp/B0CXQ5Z4ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1971 Plymouth Barracuda Convertible Blue Fire Metallic with Blue Interior Mecum Auctions Limited Edition to 2496 Pieces Worldwide Hobby Exclusive Series 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/414pMTUwXXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CXQ5Z4ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1971 Plymouth Barracuda Convertible Blue Fire Metallic with Blue Interior Mecum Auctions Limited Edition to 2496 Pieces Worldwide Hobby Exclusive Series 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/414pMTUwXXL._SL500_.jpg"/></a>
 
 
 The **Johnny Lightning 1971 Plymouth Barracuda Convertible Blue Fire Metallic** is ideal for collectors and automotive enthusiasts who appreciate detailed **1/64 diecast model cars**. This limited edition piece, part of the **Mecum Auctions Limited Edition to 2496 Pieces Worldwide**, is perfect for those who value exclusivity and precision craftsmanship in their collection. If you are passionate about classic American muscle cars or looking to add a rare, beautifully crafted model to your hobby collection, this item is a great choice.
@@ -242,12 +242,12 @@ The **Johnny Lightning 1971 Plymouth Barracuda Convertible** stands out with its
 
 As a limited edition release with only **2496 pieces worldwide**, this model offers exclusivity and potential investment value for collectors. The Johnny Lightning brand is well-known for its dedication to quality and authenticity, ensuring that each piece meets high standards. Whether you are a seasoned collector or a hobbyist looking to expand your collection, this model provides a blend of aesthetic appeal and collectible rarity that enhances its desirability.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CXQ5Z4ZF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CXQ5Z4ZF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BD91F21X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1982 Mazda Rx-7 Sunrise Red Classic Gold Collection 1/64 Diecast Model Car</a>
+## <a href="https://www.amazon.com/dp/B0BD91F21X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1982 Mazda Rx-7 Sunrise Red Classic Gold Collection 1/64 Diecast Model Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0BD91F21X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1982 Mazda RX-7 Sunrise Red w/Black Stripes Classic Gold Collection Ltd Ed to 12480 pcs 1/64 Diecast Model Car by Johnny Lightning JLCG029-JLSP244 B" src="https://m.media-amazon.com/images/I/41cr5f1w2xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BD91F21X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1982 Mazda RX-7 Sunrise Red w/Black Stripes Classic Gold Collection Ltd Ed to 12480 pcs 1/64 Diecast Model Car by Johnny Lightning JLCG029-JLSP244 B" src="https://m.media-amazon.com/images/I/41cr5f1w2xL._SL500_.jpg"/></a>
 
 
 The **1982 Mazda RX-7 Sunrise Red w/Black Stripes Classic Gold Collection Ltd Ed** by **Johnny Lightning** is perfect for diecast model car enthusiasts, collectors of limited edition items, and fans of classic Japanese sports cars. If you appreciate detailed craftsmanship and want to add a rare piece to your collection, this 1/64 scale model is an ideal choice.
@@ -270,12 +270,12 @@ This **1/64 diecast model car** captures the essence of the **classic 1982 Mazda
 
 Crafted by **Johnny Lightning**, a trusted name in diecast manufacturing, this model delivers exceptional attention to detail, from the iconic black stripes to the accurate body shape. The combination of quality and rarity ensures that this collectible not only looks great but also holds value over time. Whether displayed individually or as part of a larger collection, the **1982 Mazda RX-7 Sunrise Red** model is a standout piece that celebrates automotive history.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BD91F21X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BD91F21X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CN7DFBK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1964 Pontiac Gto Nocturne Blue Metallic Limited Edition Diecast Model Car</a>
+## <a href="https://www.amazon.com/dp/B0CN7DFBK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Johnny Lightning 1964 Pontiac Gto Nocturne Blue Metallic Limited Edition Diecast Model Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN7DFBK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1964 Pontiac GTO Nocturne Blue Metallic Limited Edition to 2500 Pieces Worldwide OK Used Cars 2023 Series 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/41UpG0+hXaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN7DFBK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Johnny Lightning 1964 Pontiac GTO Nocturne Blue Metallic Limited Edition to 2500 Pieces Worldwide OK Used Cars 2023 Series 1/64 Diecast Model Car" src="https://m.media-amazon.com/images/I/41UpG0+hXaL._SL500_.jpg"/></a>
 
 
 The **Johnny Lightning 1964 Pontiac GTO Nocturne Blue Metallic Limited Edition** is perfect for **diecast model car collectors** and **classic car enthusiasts** who appreciate detailed replicas of iconic vehicles. Ideal for those seeking a rare piece, this model is limited to just **2500 pieces worldwide**, making it a valuable addition to any collection. Its compact size and authentic design also appeal to hobbyists who enjoy showcasing miniature versions of legendary cars.
@@ -298,7 +298,7 @@ The **Johnny Lightning 1964 Pontiac GTO Nocturne Blue Metallic** model showcases
 
 Additionally, being part of the **OK Used Cars 2023 Series** adds an extra layer of collectibility and relevance to modern collectors. The limited production run of only **2500 pieces worldwide** guarantees exclusivity, making this model not just a toy, but an investment piece for serious collectors. The combination of precision craftsmanship and rarity makes this model a prized possession for anyone passionate about automotive history and scale models.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CN7DFBK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CN7DFBK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

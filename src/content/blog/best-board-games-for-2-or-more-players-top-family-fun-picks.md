@@ -23,10 +23,10 @@ Fast-paced games like TAPPLE and SAVANA Crack List keep energy high. Classics li
 
 
 
-## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
+## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
 
 
 The **Battleship Classic Board Game** is ideal for both **kids aged 7 and up** and adults who enjoy engaging, strategic gameplay. Perfect for families looking to spend quality time together or friends seeking a fun and competitive experience, this game suits players who appreciate classic strategy challenges in a compact, easy-to-learn format. It’s designed for **2 players**, making it a great choice for intimate game nights or casual play sessions.
@@ -49,10 +49,10 @@ The **Battleship Classic Board Game** features a streamlined design that emphasi
 
 Additionally, the game’s vibrant multicolor aesthetic enhances the visual appeal and makes it more engaging for younger players, while the classic edition ensures that it maintains the timeless gameplay loved by generations. Overall, this game provides a balanced mix of fun and mental challenge, making it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Scattergories Classic Game</a>
+## <a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Scattergories Classic Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Scattergories Classic Game, Party Game for Adults and Teens Ages 13 and up, Board Game for 2+ Players" src="https://m.media-amazon.com/images/I/51oPWgdEzjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFG4JVC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Scattergories Classic Game, Party Game for Adults and Teens Ages 13 and up, Board Game for 2+ Players" src="https://m.media-amazon.com/images/I/51oPWgdEzjL._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Scattergories Classic Game** is perfect for families, friends, and party enthusiasts looking for an engaging and fun way to challenge their creativity and quick thinking. Ideal for **adults and teens ages 13 and up**, this game suits groups of two or more players who enjoy lively, fast-paced word games that encourage imagination and friendly competition. If you want a game that sparks laughter and lively conversation during gatherings, this is an excellent choice.
@@ -74,10 +74,10 @@ The **Hasbro Gaming Scattergories Classic Game** features a unique gameplay mech
 
 Additionally, Scattergories supports flexible player counts, accommodating two or more participants, making it versatile for various group sizes. The game’s structure fosters interaction and friendly rivalry, which can enhance social bonding and provide hours of entertainment. While it is geared towards teens and adults, it also offers an educational edge by expanding vocabulary and encouraging quick cognitive responses, making it a well-rounded addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
+## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
 
 
-<a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
 
 
 The **"I should have known that! - A Trivia Game About Things You Oughta Know"** is perfect for **trivia enthusiasts**, families, and friends looking for an **engaging and educational** game experience. Ideal for those who enjoy testing their general knowledge and learning fun facts, this game is suited for casual gatherings or more competitive game nights. Its compact size and vibrant **green color** make it a great addition to any game collection.
@@ -100,10 +100,10 @@ The game features a well-thought-out collection of trivia questions that cover a
 
 Additionally, the design and manufacturing by **Kylskapspoesi** and **Hygge** promise quality and durability, making it a reliable choice for repeated play sessions. The appealing **green color** adds a visual charm that stands out on any game shelf, while the game's educational nature encourages learning in a fun and interactive way. Overall, it’s a great choice for anyone looking to combine entertainment with knowledge enhancement.
 
-## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
+## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
 
 
 The **Original TAPPLE** is perfect for families and friends who enjoy fast-paced, interactive games that challenge their vocabulary and quick thinking. Ideal for players aged **8 and up**, this game suits groups of **2 to 8 players** looking for an engaging, educational experience that combines fun and learning in a short playtime.
@@ -126,10 +126,10 @@ The **Original TAPPLE** offers a unique gaming experience by combining the thril
 
 With its simple yet dynamic mechanics, players race against the clock to come up with words that fit the chosen category, adding excitement and a healthy competitive edge. The game fosters social interaction and quick thinking, which are beneficial for both kids and adults. Overall, the **Original TAPPLE** is a fun, educational, and accessible board game that delivers value in every round.
 
-## <a href="https://www.amazon.com/dp/B008J87PVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Twister Party Classic Board Game</a>
+## <a href="https://www.amazon.com/dp/B008J87PVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Twister Party Classic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B008J87PVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Twister Party Classic Board Game for 2 or More Players,Indoor and Outdoor Game for Kids 6 and Up,Packaging May Vary" src="https://m.media-amazon.com/images/I/51VTuDboYkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008J87PVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Twister Party Classic Board Game for 2 or More Players,Indoor and Outdoor Game for Kids 6 and Up,Packaging May Vary" src="https://m.media-amazon.com/images/I/51VTuDboYkL._SL500_.jpg"/></a>
 
 
 The **Hasbro Twister Party Classic Board Game** is ideal for families and friends looking for an engaging and active group game. Perfect for kids aged 6 and up, this game is designed for those who enjoy physical challenges and social interaction, whether indoors or outdoors. If you want to encourage laughter, coordination, and friendly competition, this game is a great addition to your collection.
@@ -153,10 +153,10 @@ The **Hasbro Twister Party Classic Board Game** features a colorful mat with lar
 
 The game’s interactive nature promotes balance, flexibility, and quick reflexes, making it not just entertaining but also beneficial for physical development. Its simple rules and inclusive play style ensure that everyone can join in, enhancing social bonds and creating memorable moments. Being a **30th Anniversary Edition**, it carries a nostalgic value while still appealing to new generations of players.
 
-## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
+## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
 
 
-<a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
 
 
 The **SCRABBLE CLASSIC REFRESH** is ideal for word game enthusiasts, families, and friends looking to enjoy a fun and educational board game. If you appreciate strategic thinking, vocabulary building, and interactive gameplay, this classic edition by **Hasbro Gaming** is perfect for you.
@@ -179,10 +179,10 @@ The **SCRABBLE CLASSIC REFRESH** brings the timeless word-building experience wi
 
 Players benefit from improved vocabulary, spelling, and critical thinking skills while having a great time. The standard edition keeps the traditional gameplay intact, making it a perfect gift for both new players and seasoned SCRABBLE fans who want to revisit the classic challenge.
 
-## <a href="https://www.amazon.com/dp/B0CBHVBSGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Savana Crack List</a>
+## <a href="https://www.amazon.com/dp/B0CBHVBSGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Savana Crack List</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBHVBSGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAVANA Crack List - The Crack-You-Up Categories Card Game | 2+ Players | Quick and Hilarious Game for Kids, Teens and Adults | Family Board Games" src="https://m.media-amazon.com/images/I/41bnx8fzoqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBHVBSGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SAVANA Crack List - The Crack-You-Up Categories Card Game | 2+ Players | Quick and Hilarious Game for Kids, Teens and Adults | Family Board Games" src="https://m.media-amazon.com/images/I/41bnx8fzoqL._SL500_.jpg"/></a>
 
 
 The **SAVANA Crack List - The Crack-You-Up Categories Card Game** is ideal for families, friends, and social groups looking for a **quick** and **hilarious game** that can be enjoyed by **kids, teens, and adults**. If you want to add laughter and excitement to your gatherings with a game that supports **2 or more players**, this is the perfect choice for you.
@@ -204,10 +204,10 @@ The **SAVANA Crack List** card game features a vibrant set of cards designed to 
 
 Beyond its entertaining gameplay, this card game encourages **social interaction** and sharpens cognitive skills like quick thinking and creativity. It suits a wide range of players, from young children to adults, making it a versatile addition to any family board game collection. Whether you're looking for a way to break the ice or simply want a fast, fun activity, the SAVANA Crack List delivers both excitement and memorable moments.
 
-## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
+## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
 
 
-<a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
 
 
 The **Gamewright - Forbidden Island** board game is perfect for **families**, **friends**, and **strategy enthusiasts** looking for a cooperative gaming experience. Designed for **2-4 players**, this game suits those who enjoy teamwork, problem-solving, and immersive adventure scenarios where players work together to survive and win. If you appreciate engaging strategy games that foster communication and collaboration, this is an ideal choice.
@@ -230,10 +230,10 @@ The **Gamewright - Forbidden Island** features a unique cooperative survival con
 
 This board game benefits users by fostering collaboration and communication skills, making it an excellent choice for family game nights or friendly gatherings. The balance between strategy and accessibility ensures that both beginners and experienced players can enjoy the challenge and excitement. Its cooperative nature also means no one is left out, creating a fun and inclusive gaming environment.
 
-## <a href="https://www.amazon.com/dp/B00D7OAOYI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Trouble Kids Board Game</a>
+## <a href="https://www.amazon.com/dp/B00D7OAOYI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Trouble Kids Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00D7OAOYI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Trouble Kids Board Game, Pop-o-Matic Trouble Game, Kids Games for 2-4 Players, Family Board Games for Kids, Kids Gifts, Ages 5 and Up, Packaging May Vary" src="https://m.media-amazon.com/images/I/51B2XoENFeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D7OAOYI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Trouble Kids Board Game, Pop-o-Matic Trouble Game, Kids Games for 2-4 Players, Family Board Games for Kids, Kids Gifts, Ages 5 and Up, Packaging May Vary" src="https://m.media-amazon.com/images/I/51B2XoENFeL._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Trouble Kids Board Game** is perfect for families and children aged 5 and up who enjoy interactive and entertaining board games. Ideal for kids who love a bit of friendly competition, this game is designed for 2-4 players, making it a great choice for family game nights or playdates. If you’re looking for a simple yet engaging game that encourages turn-taking and strategic thinking, this is an excellent pick.
@@ -256,10 +256,10 @@ The **Hasbro Gaming Trouble Kids Board Game** stands out with its unique Pop-o-M
 
 Additionally, the game promotes important skills such as turn-taking, counting, and strategic decision-making in a fun and engaging way. Its vibrant colors and playful design hold the attention of young players, making it a perfect gift for kids who are just beginning to explore the world of board games. Overall, this family-friendly game offers hours of entertainment while encouraging positive social interaction and cognitive development.
 
-## <a href="https://www.amazon.com/dp/B00NQQTXNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Trivial Pursuit Game</a>
+## <a href="https://www.amazon.com/dp/B00NQQTXNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Trivial Pursuit Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00NQQTXNK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Trivial Pursuit Game: Family Edition Board Game, Family Trivia Games for Adults and Kids, 2+ Players, Ages 8+ (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51hm+Loo-+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NQQTXNK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Trivial Pursuit Game: Family Edition Board Game, Family Trivia Games for Adults and Kids, 2+ Players, Ages 8+ (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51hm+Loo-+L._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Trivial Pursuit Game: Family Edition** is perfect for families and groups looking to enjoy a fun and educational board game that caters to both **adults and kids aged 8 and up**. Ideal for those who want to engage in a friendly trivia challenge, this game is great for players seeking a mix of entertainment and learning in a family-friendly setting.

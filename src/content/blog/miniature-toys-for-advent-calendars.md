@@ -23,10 +23,10 @@ Some calendars have playsets like gingerbread houses or winter villages for crea
 
 
 
-## <a href="https://www.amazon.com/dp/B0BRSJG5FL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thomas &amp; Friends Minis Advent Calendar 2023</a>
+## <a href="https://www.amazon.com/dp/B0BRSJG5FL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Thomas &amp; Friends Minis Advent Calendar 2023</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRSJG5FL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thomas &amp; Friends MINIS Advent Calendar 2023, Christmas 24 Miniature Toy Trains and Vehicles for Preschool Kids Ages 3+ Years" src="https://m.media-amazon.com/images/I/51ncbRG5TcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRSJG5FL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Thomas &amp; Friends MINIS Advent Calendar 2023, Christmas 24 Miniature Toy Trains and Vehicles for Preschool Kids Ages 3+ Years" src="https://m.media-amazon.com/images/I/51ncbRG5TcL._SL500_.jpg"/></a>
 
 
 The **Thomas & Friends MINIS Advent Calendar 2023** is perfect for **preschool kids ages 3+** who love trains and imaginative play. This set is ideal for parents or gift-givers seeking a festive and engaging way to count down to Christmas with a collection of **24 miniature toy trains and vehicles** that spark creativity and excitement every day.
@@ -49,10 +49,10 @@ The **Thomas & Friends MINIS Advent Calendar 2023** offers a delightful way to e
 
 Crafted by **Fisher-Price** under the reputable **Thomas & Friends** brand, this advent calendar guarantees both safety and quality. Its multi-color assortment and familiar characters make it a treasured addition to any young train enthusiast’s collection. The set is not only fun but also educational, helping kids develop patience and counting skills during the countdown to Christmas.
 
-## <a href="https://www.amazon.com/dp/B0DMWGLZ5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Polly Pocket Doll Advent Calendar</a>
+## <a href="https://www.amazon.com/dp/B0DMWGLZ5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Polly Pocket Doll Advent Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMWGLZ5G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Polly Pocket Doll Advent Calendar, DIY Gingerbread House Playset with 24+ Surprises, Dollhouse Furniture, and Holiday Accessories" src="https://m.media-amazon.com/images/I/51MqJ8jDFnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMWGLZ5G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Polly Pocket Doll Advent Calendar, DIY Gingerbread House Playset with 24+ Surprises, Dollhouse Furniture, and Holiday Accessories" src="https://m.media-amazon.com/images/I/51MqJ8jDFnL._SL500_.jpg"/></a>
 
 
 The **Polly Pocket Doll Advent Calendar, DIY Gingerbread House Playset** is perfect for children who love interactive holiday toys and creative play. Ideal for kids aged 4 and up, this set combines the excitement of an advent calendar with the fun of building and decorating a **miniature gingerbread house**. It’s especially suited for young fans of **Polly Pocket** and those who enjoy imaginative storytelling with **dollhouse furniture** and **holiday accessories**.
@@ -75,10 +75,10 @@ This **Polly Pocket Doll Advent Calendar** offers a unique blend of festive chee
 
 Beyond the fun, this set promotes fine motor skills and imaginative play, as children assemble the pieces and create stories around their dollhouse. Its compact and lightweight design ensures it can be easily taken on the go, perfect for holiday trips or playdates. Overall, this advent calendar is a delightful gift that combines creativity, tradition, and the beloved world of **Polly Pocket**.
 
-## <a href="https://www.amazon.com/dp/B0DMWSKXC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barbie Mini Land Collectible Advent Calendar</a>
+## <a href="https://www.amazon.com/dp/B0DMWSKXC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Barbie Mini Land Collectible Advent Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMWSKXC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barbie Mini Land Collectible Advent Calendar with 1.5-Inch Dolls &amp; 24 Days of Surprises, Winter Village Play Areas for Storytelling Fun" src="https://m.media-amazon.com/images/I/510Xgk2EpaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMWSKXC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Barbie Mini Land Collectible Advent Calendar with 1.5-Inch Dolls &amp; 24 Days of Surprises, Winter Village Play Areas for Storytelling Fun" src="https://m.media-amazon.com/images/I/510Xgk2EpaL._SL500_.jpg"/></a>
 
 
 The **Barbie Mini Land Collectible Advent Calendar** is perfect for children and collectors who love immersive storytelling and festive surprises. Ideal for those who enjoy **miniature dolls** and interactive play, this calendar offers a unique way to count down the days to the holidays with **24 days of surprises** featuring **1.5-inch Barbie dolls** and charming **winter village play areas**. It's a great gift for kids who adore **Barbie** and want to engage in creative play throughout the holiday season.
@@ -101,10 +101,10 @@ The **Barbie Mini Land Collectible Advent Calendar** stands out with its detaile
 
 Crafted by **Mattel**, a renowned brand in the toy industry, this advent calendar guarantees quality and safety, making it a reliable choice for parents. Its vibrant **multicolor design** adds festive cheer and enhances the visual appeal of any play area. While the calendar is themed around winter, its detailed accessories and dolls provide ample opportunity for creative storytelling, making it an engaging and charming addition to the holiday season.
 
-## <a href="https://www.amazon.com/dp/B0DMWL2XDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Furby Minis Advent Calendar</a>
+## <a href="https://www.amazon.com/dp/B0DMWL2XDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Furby Minis Advent Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMWL2XDY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FURBY Minis Advent Calendar for Kids 6 Years and Up, 24 Days of Surprise Holiday Toys with 1-Inch Figures, Stickers &amp; Fun Accessories" src="https://m.media-amazon.com/images/I/51AbuqxyUzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMWL2XDY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FURBY Minis Advent Calendar for Kids 6 Years and Up, 24 Days of Surprise Holiday Toys with 1-Inch Figures, Stickers &amp; Fun Accessories" src="https://m.media-amazon.com/images/I/51AbuqxyUzL._SL500_.jpg"/></a>
 
 
 The **FURBY Minis Advent Calendar** is perfect for children aged **6 years and up** who love interactive toys and holiday surprises. Ideal for kids who enjoy collecting small figures and engaging with fun accessories, this advent calendar offers a delightful way to count down to the holidays with **24 days of excitement**. Parents looking for a creative and entertaining gift that encourages daily anticipation will find this item especially suitable.
@@ -127,10 +127,10 @@ This **FURBY Minis Advent Calendar** stands out by combining the joy of Furby ch
 
 Crafted by **Hasbro**, a renowned toy manufacturer, this product guarantees quality and safety, which is essential for peace of mind among parents. The inclusion of stickers and accessories enhances the overall play experience, encouraging creativity and imaginative scenarios. Overall, this advent calendar offers a unique blend of holiday tradition and interactive fun that children will cherish every day leading up to the festivities.
 
-## <a href="https://www.amazon.com/dp/B0CNBJM33Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Squishmallows Original Holiday Advent Calendar</a>
+## <a href="https://www.amazon.com/dp/B0CNBJM33Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Squishmallows Original Holiday Advent Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNBJM33Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Squishmallows Original 24-Day Micromallows Holiday Advent Calendar" src="https://m.media-amazon.com/images/I/51d-SPx6D-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNBJM33Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Squishmallows Original 24-Day Micromallows Holiday Advent Calendar" src="https://m.media-amazon.com/images/I/51d-SPx6D-L._SL500_.jpg"/></a>
 
 
 The **Squishmallows Original 24-Day Micromallows Holiday Advent Calendar** is perfect for children, collectors, and anyone who loves cute, cuddly plush toys. Ideal for those who enjoy a fun and festive countdown to the holidays, this advent calendar offers a delightful surprise each day, making it an excellent gift for both young fans and Squishmallows enthusiasts.
@@ -153,10 +153,10 @@ The **Squishmallows Original 24-Day Micromallows Holiday Advent Calendar** featu
 
 Beyond the fun of daily surprises, this advent calendar encourages a sense of anticipation and joy for the holiday season. The high-quality materials and trusted brand reputation from **Jazwares LLC** ensure durability and safety, making it suitable for children. The compact and lightweight design also means it can be easily placed on shelves or desks, adding a festive touch to any space without taking up too much room.
 
-## <a href="https://www.amazon.com/dp/B084YXK293?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">5 Surprise Toy Mini Brands Limited Edition Advent Calendar By Zuru</a>
+## <a href="https://www.amazon.com/dp/B084YXK293?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">5 Surprise Toy Mini Brands Limited Edition Advent Calendar By Zuru</a>
 
 
-<a href="https://www.amazon.com/dp/B084YXK293?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="5 Surprise Toy Mini Brands Limited Edition Advent Calendar by ZURU with 24 Surprise Pack &amp; 6 Exclusive Minis, Toys Mystery Capsule Real Miniature Brands Collectibles" src="https://m.media-amazon.com/images/I/51KsP25OBtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084YXK293?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="5 Surprise Toy Mini Brands Limited Edition Advent Calendar by ZURU with 24 Surprise Pack &amp; 6 Exclusive Minis, Toys Mystery Capsule Real Miniature Brands Collectibles" src="https://m.media-amazon.com/images/I/51KsP25OBtL._SL500_.jpg"/></a>
 
 
 The **5 Surprise Toy Mini Brands Limited Edition Advent Calendar by ZURU** is ideal for children and collectors who love the excitement of unwrapping mystery surprises. Perfect for fans of miniature collectibles and brand enthusiasts, this advent calendar offers a fun and interactive way to discover new toys every day leading up to a special occasion. It’s especially suited for those who enjoy the thrill of mystery capsules and the joy of collecting exclusive miniatures.
@@ -179,10 +179,10 @@ The **5 Surprise Toy Mini Brands Limited Edition Advent Calendar** is designed t
 
 Additionally, the calendar’s thoughtful dimensions make it a convenient item to place in any room without occupying much space. The high-quality manufacturing by **ZURU** ensures that each mini brand is durable and safe to play with. Overall, this advent calendar combines the joy of surprise with the fun of collecting, making it an excellent choice for anyone looking to add a bit of daily excitement to their holiday season or gift-giving experience.
 
-## <a href="https://www.amazon.com/dp/B07T8H9M7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Construction Toys, Little Machines Advent Calendar</a>
+## <a href="https://www.amazon.com/dp/B07T8H9M7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Construction Toys, Little Machines Advent Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/B07T8H9M7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAT Construction Toys, Little Machines Advent Calendar - Kids Toys for Ages 3 and Up - 24 Piece Set with 10 Little Machines Vehicles &amp; Magic Insta-Dirt!" src="https://m.media-amazon.com/images/I/51CeyJHj-kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T8H9M7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAT Construction Toys, Little Machines Advent Calendar - Kids Toys for Ages 3 and Up - 24 Piece Set with 10 Little Machines Vehicles &amp; Magic Insta-Dirt!" src="https://m.media-amazon.com/images/I/51CeyJHj-kL._SL500_.jpg"/></a>
 
 
 The **CAT Construction Toys, Little Machines Advent Calendar** is ideal for young children aged 3 and up who are fascinated by construction vehicles and enjoy interactive play. This set is perfect for parents looking to provide an engaging and educational toy that combines the excitement of a countdown calendar with the fun of miniature construction machines. It's also great for gift-givers seeking a unique and playful present that encourages imaginative play and fine motor skills development.
@@ -205,10 +205,10 @@ The **CAT Construction Toys, Little Machines Advent Calendar** combines the thri
 
 Designed with young children in mind, the toy vehicles are sized perfectly for small hands, promoting easy manipulation and coordination. The trusted **CAT** brand and reliable manufacturing by **Funrise, Inc.** guarantee quality and safety, giving parents peace of mind. The advent calendar format not only builds excitement but also encourages daily playtime, making it an excellent tool for developing patience and routine in young children. Overall, this set offers both fun and educational value in a compact and appealing package.
 
-## <a href="https://www.amazon.com/dp/B0DMWKPLJT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Star Wars Advent Calendar</a>
+## <a href="https://www.amazon.com/dp/B0DMWKPLJT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Star Wars Advent Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMWKPLJT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STAR WARS Advent Calendar, 24 Pieces Including Micro Figures &amp; Vehicles, Countdown Calendar, Surprise Toys for Boys &amp; Girls Ages 4+ (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51OS2sMpKiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMWKPLJT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STAR WARS Advent Calendar, 24 Pieces Including Micro Figures &amp; Vehicles, Countdown Calendar, Surprise Toys for Boys &amp; Girls Ages 4+ (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51OS2sMpKiL._SL500_.jpg"/></a>
 
 
 The **STAR WARS Advent Calendar** is perfect for young fans aged 4 and up who love the iconic galaxy far, far away. This **Amazon Exclusive** set is ideal for parents and gift-givers looking to add excitement to the holiday season with a countdown full of surprises featuring beloved **Star Wars** micro figures and vehicles. It’s especially suited for children who enjoy collectible toys and imaginative play inspired by their favorite characters and scenes.
@@ -231,10 +231,10 @@ This **STAR WARS Advent Calendar** offers a unique way to celebrate the holiday 
 
 Beyond just being a toy, this calendar encourages imaginative play and storytelling, helping children develop creativity while engaging with their favorite characters. The high-quality manufacturing by **Hasbro** guarantees durability, making it a keepsake that can be enjoyed year after year. Overall, this advent calendar is a delightful gift that combines anticipation, surprise, and the magic of **Star Wars** for young fans during the holiday season.
 
-## <a href="https://www.amazon.com/dp/B0DN23L5Z7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Toy Cars &amp; Playset Advent Calendar</a>
+## <a href="https://www.amazon.com/dp/B0DN23L5Z7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Toy Cars &amp; Playset Advent Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/B0DN23L5Z7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Toy Cars &amp; Playset, 2026 Advent Calendar with 10 Vehicles in 1:64 Scale, 10 Ornament Clips &amp; 14 Winter-Themed Accessories" src="https://m.media-amazon.com/images/I/51ocLhJf7vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DN23L5Z7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Toy Cars &amp; Playset, 2026 Advent Calendar with 10 Vehicles in 1:64 Scale, 10 Ornament Clips &amp; 14 Winter-Themed Accessories" src="https://m.media-amazon.com/images/I/51ocLhJf7vL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Toy Cars & Playset, 2026 Advent Calendar** is ideal for children and collectors who love miniature cars and holiday-themed playsets. Perfect for kids who enjoy imaginative play and fans of the **Hot Wheels brand**, this advent calendar offers a fun and festive way to count down to the holidays with a variety of detailed vehicles and accessories. It's also great for parents looking to provide an engaging, daily surprise that encourages creativity and excitement.
@@ -257,10 +257,10 @@ The **Hot Wheels 2026 Advent Calendar** stands out with its carefully curated se
 
 This playset's compact dimensions make it easy to store or gift, while the vibrant multicolor design keeps it visually appealing. Manufactured by **Mattel**, the calendar promises durability and quality, ensuring that each vehicle and accessory withstands regular use. Overall, this advent calendar is not just a toy but an engaging holiday experience that combines the thrill of Hot Wheels with the joy of seasonal celebration.
 
-## <a href="https://www.amazon.com/dp/B0BLJSF9ND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Little People Barbie Toddler Toy Advent Calendar Playset</a>
+## <a href="https://www.amazon.com/dp/B0BLJSF9ND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Little People Barbie Toddler Toy Advent Calendar Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLJSF9ND?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Little People Barbie Toddler Toy Advent Calendar Playset, 24 Christmas Figures &amp; Pieces for Pretend Play Kids Ages 18+ Months" src="https://m.media-amazon.com/images/I/51pYAxDPWyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLJSF9ND?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Little People Barbie Toddler Toy Advent Calendar Playset, 24 Christmas Figures &amp; Pieces for Pretend Play Kids Ages 18+ Months" src="https://m.media-amazon.com/images/I/51pYAxDPWyL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Little People Barbie Toddler Toy Advent Calendar Playset** is perfect for parents and caregivers looking to introduce their toddlers to the joy of holiday traditions through engaging and safe play. Ideal for children aged **18 months and older**, this playset encourages imaginative play while helping little ones develop fine motor skills and early counting abilities. If you want a festive, interactive toy that keeps your toddler entertained throughout the holiday season, this advent calendar is a great choice.

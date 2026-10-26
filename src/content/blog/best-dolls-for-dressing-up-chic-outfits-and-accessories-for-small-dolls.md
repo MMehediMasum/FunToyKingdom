@@ -22,10 +22,10 @@ Sets with multiple pieces let children mix and match easily. Soft plush dolls al
 
 
 
-## <a href="https://www.amazon.com/dp/B0FCCF3RBQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For 15-17cm Dolls, Chic Designer Outfits Clothing For Doll Dressing Up, Accessories For 5.91-6.69inch Doll</a>
+## <a href="https://www.amazon.com/dp/B0FCCF3RBQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For 15-17cm Dolls, Chic Designer Outfits Clothing For Doll Dressing Up, Accessories For 5.91-6.69inch Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCCF3RBQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for 15-17cm/5.91“-6.69” Dolls (No Doll), Chic Designer Outfits Clothing for Doll Dressing up, Accessories for 5.91-6.69inch Doll (No Shoes)" src="https://m.media-amazon.com/images/I/51fQtzOmTqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCCF3RBQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for 15-17cm/5.91“-6.69” Dolls (No Doll), Chic Designer Outfits Clothing for Doll Dressing up, Accessories for 5.91-6.69inch Doll (No Shoes)" src="https://m.media-amazon.com/images/I/51fQtzOmTqL._SL500_.jpg"/></a>
 
 
 These **Clothes for 15-17cm/5.91“-6.69” Dolls** are perfect for doll collectors and parents looking to dress up their dolls with stylish and high-quality outfits. Ideal for those who own dolls within this specific size range, these chic designer outfits by **Dincken** provide a fashionable and versatile wardrobe addition, enhancing the playtime experience and display options without including the doll or shoes.
@@ -48,10 +48,10 @@ The **dimensions** of these outfits are precisely tailored, with a height of 4.5
 
 These clothes not only enhance the aesthetic appeal of your doll but also encourage imaginative play and creativity. The included accessories add a layer of customization, allowing users to mix and match pieces to create unique looks. Whether for display or play, these outfits serve as a versatile addition, making them an excellent choice for anyone seeking to elevate their doll's wardrobe with chic, high-quality clothing.
 
-## <a href="https://www.amazon.com/dp/B0FGQ6VCHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gdlsylghy 2026 Version Doll Clothes Set For Labubu</a>
+## <a href="https://www.amazon.com/dp/B0FGQ6VCHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gdlsylghy 2026 Version Doll Clothes Set For Labubu</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGQ6VCHL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GDLSYLGHY 2026 Version Doll Clothes Set for Labubu, Beautiful Outfits Suits Optimal for Your 5.9-6.7in Dolls Dressing Up, Clothing Accessories for Labubu(Pink Dress Suit with Bow)" src="https://m.media-amazon.com/images/I/41Yoz082jmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGQ6VCHL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GDLSYLGHY 2026 Version Doll Clothes Set for Labubu, Beautiful Outfits Suits Optimal for Your 5.9-6.7in Dolls Dressing Up, Clothing Accessories for Labubu(Pink Dress Suit with Bow)" src="https://m.media-amazon.com/images/I/41Yoz082jmL._SL500_.jpg"/></a>
 
 
 The **GDLSYLGHY 2026 Version Doll Clothes Set** is ideal for collectors and enthusiasts who own **5.9-6.7 inch dolls**, especially those who have the popular **Labubu** dolls. If you are looking to enhance your doll’s wardrobe with stylish and beautifully crafted outfits, this set offers a perfect solution. It is designed for anyone who wants to dress up their dolls in trendy and eye-catching clothing accessories, making it a great choice for both casual dressers and serious doll fashion collectors.
@@ -74,10 +74,10 @@ The **GDLSYLGHY 2026 Version Doll Clothes Set** stands out with its meticulous d
 
 Additionally, the compact dimensions and lightweight nature of the clothing set make it practical for collectors who often travel with their dolls or display them in limited spaces. The quality assurance from the well-known **GDLSYLGHY** brand adds to the confidence buyers can have in the product’s craftsmanship. Overall, this clothing set is a stylish and functional accessory that enhances the doll dressing experience while offering a charming aesthetic.
 
-## <a href="https://www.amazon.com/dp/B0FCCHRGVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For 15-17cm Dolls</a>
+## <a href="https://www.amazon.com/dp/B0FCCHRGVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clothes For 15-17cm Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCCHRGVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for 15-17cm Dolls (No Doll), Chic Designer Outfits Clothing for Doll Dressing up" src="https://m.media-amazon.com/images/I/51QPmj2dJ2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCCHRGVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for 15-17cm Dolls (No Doll), Chic Designer Outfits Clothing for Doll Dressing up" src="https://m.media-amazon.com/images/I/51QPmj2dJ2L._SL500_.jpg"/></a>
 
 
 These **Clothes for 15-17cm Dolls** by **Dincken** are perfect for doll enthusiasts and collectors who want to enhance their doll's appearance with **chic designer outfits**. Ideal for those who own dolls within this specific size range and enjoy dressing up their dolls in stylish and high-quality clothing, these outfits cater to hobbyists who value detailed craftsmanship and fashionable designs.
@@ -100,10 +100,10 @@ The **Clothes for 15-17cm Dolls** feature a well-thought-out design tailored spe
 
 Made by **Dincken**, a trusted manufacturer known for quality, these outfits offer both style and practicality. The materials used are durable yet comfortable, allowing for repeated use without wear and tear. Whether for display or interactive play, these chic designer outfits provide a delightful way to personalize your doll collection and express creativity through fashion choices.
 
-## <a href="https://www.amazon.com/dp/B09MFH59HG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">June Garden Dressy Friends Belle</a>
+## <a href="https://www.amazon.com/dp/B09MFH59HG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">June Garden Dressy Friends Belle</a>
 
 
-<a href="https://www.amazon.com/dp/B09MFH59HG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 2="" alt="June Garden 15.5" and="" belle="" buckle="" doll="" dressy="" educational="" for="" friends="" kids="" montessori="" plush="" soft="" src="https://m.media-amazon.com/images/I/51p9wyFGELL._SL500_.jpg" stuffed="" toddlers="" toy"="" up="" years=""/></a>
+<a href="https://www.amazon.com/dp/B09MFH59HG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 2="" alt="June Garden 15.5" and="" belle="" buckle="" doll="" dressy="" educational="" for="" friends="" kids="" montessori="" plush="" soft="" src="https://m.media-amazon.com/images/I/51p9wyFGELL._SL500_.jpg" stuffed="" toddlers="" toy"="" up="" years=""/></a>
 
 
 The **June Garden 15.5" Dressy Friends Belle** is an ideal choice for parents and caregivers seeking a charming, educational stuffed plush doll for **kids and toddlers aged 2 years and up**. This Montessori-inspired **buckle soft toy** is perfect for young children who are beginning to develop fine motor skills and enjoy imaginative play, making it a wonderful companion for early learning and sensory development.
@@ -126,10 +126,10 @@ The **June Garden Dressy Friends Belle** doll is thoughtfully crafted to combine
 
 Beyond skill development, this doll encourages imaginative and social play. Children can create stories and scenarios around Belle, enhancing creativity and language skills. The high-quality construction from **June Garden** guarantees durability, so this soft toy can withstand the energetic play typical of toddlers. Overall, this educational plush doll is a valuable addition to any child's toy collection, supporting early growth in a playful, engaging manner.
 
-## <a href="https://www.amazon.com/dp/B0FCCHDNMM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chic Designer Outfits For Doll Dressing Up</a>
+## <a href="https://www.amazon.com/dp/B0FCCHDNMM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chic Designer Outfits For Doll Dressing Up</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCCHDNMM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for 15-17cm/5.91“-6.69” Dolls (No Doll), Chic Designer Outfits for Doll Dressing up, Accessories for 17cm Dolls, 3pcs Set for Christmas" src="https://m.media-amazon.com/images/I/41ST0VV9v9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCCHDNMM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clothes for 15-17cm/5.91“-6.69” Dolls (No Doll), Chic Designer Outfits for Doll Dressing up, Accessories for 17cm Dolls, 3pcs Set for Christmas" src="https://m.media-amazon.com/images/I/41ST0VV9v9L._SL500_.jpg"/></a>
 
 
 Ideal for **doll enthusiasts** and collectors who own **15-17cm (5.91"-6.69") dolls**, this **3pcs set of chic designer outfits** by **Dincken** is perfect for those looking to enhance their doll's wardrobe with stylish and festive clothing. Whether you're dressing up your doll for **Christmas** or everyday play, these **accessories** offer a fashionable upgrade without the need to purchase a doll separately.
@@ -152,10 +152,10 @@ The **Dincken 3pcs clothing set** offers a wonderful blend of style and practica
 
 Beyond aesthetics, these outfits provide versatility and ease of use, allowing doll owners to effortlessly change styles and create unique ensembles. The attention to detail in the design and quality materials used by **Dincken** ensure durability and a realistic look, which enhances the overall doll-playing experience. This set is an excellent investment for anyone looking to expand their doll's wardrobe with high-quality, stylish options.
 
-## <a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vip Girls Hair Makeover Quinn Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vip Girls Hair Makeover Quinn Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10="" 5="" accessories="" ages="" alt="VIP Girls Hair Makeover Quinn Fashion Doll with 11" and="" boys="" colorful="" doll"="" fashion="" girls="" hair="" inch="" long="" src="https://m.media-amazon.com/images/I/31az-+PIfJL._SL500_.jpg" styling="" toy,="" up,=""/></a>
+<a href="https://www.amazon.com/dp/B0CNKYH2RW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10="" 5="" accessories="" ages="" alt="VIP Girls Hair Makeover Quinn Fashion Doll with 11" and="" boys="" colorful="" doll"="" fashion="" girls="" hair="" inch="" long="" src="https://m.media-amazon.com/images/I/31az-+PIfJL._SL500_.jpg" styling="" toy,="" up,=""/></a>
 
 
 The **VIP Girls Hair Makeover Quinn Fashion Doll** is perfect for children aged 5 and up who love imaginative play and styling fun. This toy is ideal for both **girls and boys** interested in fashion dolls with colorful, long hair and creative accessory options. Parents looking for an engaging, hands-on gift that encourages creativity and fine motor skills will find this doll a great choice.
@@ -178,10 +178,10 @@ The **VIP Girls Hair Makeover Quinn Fashion Doll** stands out with its vibrant, 
 
 Additionally, the included five accessories add variety and encourage role-playing scenarios, making this doll more than just a simple toy. The high-quality materials from **IMC Toys** ensure durability and safety, giving parents peace of mind. Overall, this fashion doll is a fantastic gift that blends fun with developmental benefits for young imaginative minds.
 
-## <a href="https://www.amazon.com/dp/B0BQLTD74Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artst 18 Inch Doll Clothes Accessories-10 Set Doll Outfits For Girl Doll Clothes</a>
+## <a href="https://www.amazon.com/dp/B0BQLTD74Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Artst 18 Inch Doll Clothes Accessories-10 Set Doll Outfits For Girl Doll Clothes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQLTD74Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ARTST 18 inch Doll Clothes Accessories-10 Set Doll Outfits for Girl Doll Clothes, Toys for Kids Dressing up" src="https://m.media-amazon.com/images/I/51ELzjgAQSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQLTD74Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ARTST 18 inch Doll Clothes Accessories-10 Set Doll Outfits for Girl Doll Clothes, Toys for Kids Dressing up" src="https://m.media-amazon.com/images/I/51ELzjgAQSL._SL500_.jpg"/></a>
 
 
 The **ARTST 18 inch Doll Clothes Accessories-10 Set** is perfect for parents and gift buyers looking to enhance their child's imaginative play with their favorite 18-inch girl dolls. Ideal for kids who love dressing up dolls, this colorful and versatile outfit set encourages creativity and role-playing, making it a great addition to any doll collection.
@@ -203,10 +203,10 @@ The **ARTST 18 inch Doll Clothes Accessories** set offers a wide range of vibran
 
 Beyond aesthetics, these doll clothes are made from durable materials that withstand regular play, ensuring long-lasting enjoyment. Their lightweight construction makes them easy for kids to manage independently, fostering confidence and fine motor skills. This set not only enhances the doll-playing experience but also supports developmental growth through imaginative role-playing scenarios.
 
-## <a href="https://www.amazon.com/dp/B0FB39JV49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ztweden 17cm Doll Clothes 5-piece Set</a>
+## <a href="https://www.amazon.com/dp/B0FB39JV49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ztweden 17cm Doll Clothes 5-piece Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0FB39JV49?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZTWEDEN 17cm Doll Clothes 5-Piece Set: Stylish Cotton Outfit (Black Hat White Top Khaki Shorts Denim Vest Leather Shoes) - Fit for 17cm Dolls, Perfect for Dressing Up, Collecting &amp; Gifting​" src="https://m.media-amazon.com/images/I/41U6st05owL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FB39JV49?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZTWEDEN 17cm Doll Clothes 5-Piece Set: Stylish Cotton Outfit (Black Hat White Top Khaki Shorts Denim Vest Leather Shoes) - Fit for 17cm Dolls, Perfect for Dressing Up, Collecting &amp; Gifting​" src="https://m.media-amazon.com/images/I/41U6st05owL._SL500_.jpg"/></a>
 
 
 The **ZTWEDEN 17cm Doll Clothes 5-Piece Set** is ideal for collectors, doll enthusiasts, and parents looking to dress up their **17cm dolls** with stylish and versatile outfits. If you want a complete, fashionable set that enhances the appearance of your doll while offering comfort and durability, this set is perfect for you. It is also a great gift option for children and hobbyists who enjoy customizing their dolls.
@@ -228,10 +228,10 @@ The **ZTWEDEN 17cm Doll Clothes 5-Piece Set** stands out with its thoughtfully d
 
 Additionally, the set offers great versatility for doll owners who enjoy changing styles or creating new looks. The combination of classic colors like **white, khaki, and denim** makes it easy to pair these clothes with other accessories or outfits. Whether you are dressing up your doll for playtime, adding to a collection, or searching for a thoughtful gift, this set provides both style and function. The attention to detail, such as the tiny **leather shoes**, adds an extra layer of sophistication that collectors and children alike will appreciate.
 
-## <a href="https://www.amazon.com/dp/B07MH6G6LM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">My Felt Story Dress Me Up 56 Pcs</a>
+## <a href="https://www.amazon.com/dp/B07MH6G6LM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">My Felt Story Dress Me Up 56 Pcs</a>
 
 
-<a href="https://www.amazon.com/dp/B07MH6G6LM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="My Felt Story Dress Me Up 56 Pcs - Weather | Felt 8” Doll Figures for Kids | Multicultural Skin Tone Diversity | Fun Classroom Learning Activities" src="https://m.media-amazon.com/images/I/51Uqt1wdRNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MH6G6LM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="My Felt Story Dress Me Up 56 Pcs - Weather | Felt 8” Doll Figures for Kids | Multicultural Skin Tone Diversity | Fun Classroom Learning Activities" src="https://m.media-amazon.com/images/I/51Uqt1wdRNL._SL500_.jpg"/></a>
 
 
 The **My Felt Story Dress Me Up 56 Pcs - Weather** set is perfect for parents and educators looking to engage young children in creative and educational play. Ideal for kids who enjoy imaginative activities and learning about diversity and weather concepts, this felt doll set encourages hands-on interaction and multicultural awareness. It is especially suitable for classroom environments and home learning sessions where fostering creativity and social understanding is a priority.
@@ -254,10 +254,10 @@ The **My Felt Story Dress Me Up 56 Pcs - Weather** set offers a rich combination
 
 Crafted by **My Felt Story**, this set ensures quality and durability with its soft felt fabric that is gentle on children's hands. The size and number of pieces allow for multiple children to participate simultaneously, encouraging social interaction and teamwork. Whether used in a classroom or at home, this felt doll collection inspires creativity, enhances fine motor skills, and promotes empathy through multicultural representation.
 
-## <a href="https://www.amazon.com/dp/B0F66GK9L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">17cm Doll Outfits For Labubu</a>
+## <a href="https://www.amazon.com/dp/B0F66GK9L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">17cm Doll Outfits For Labubu</a>
 
 
-<a href="https://www.amazon.com/dp/B0F66GK9L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="17cm Doll Outfits for Labubu - Kawaii Chic Style Set for 17cm Dolls, Cute Doll Clothes with Accessories -Button Up Stripe Black Sweater + Black Hat + White Bag (Clothes Only)" src="https://m.media-amazon.com/images/I/41te2W9+mrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F66GK9L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="17cm Doll Outfits for Labubu - Kawaii Chic Style Set for 17cm Dolls, Cute Doll Clothes with Accessories -Button Up Stripe Black Sweater + Black Hat + White Bag (Clothes Only)" src="https://m.media-amazon.com/images/I/41te2W9+mrL._SL500_.jpg"/></a>
 
 
 Ideal for **17cm doll** enthusiasts looking to enhance their doll’s wardrobe, the **17cm Doll Outfits for Labubu - Kawaii Chic Style Set** is perfect for collectors and kids who want to dress their dolls in trendy, stylish clothing. This set is especially suited for those who appreciate **cute doll clothes with accessories** that add personality and charm to their doll’s appearance.

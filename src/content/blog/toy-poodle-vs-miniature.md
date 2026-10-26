@@ -20,10 +20,10 @@ Miniature Poodles need slightly more space and exercise. Choosing between them d
 
 
 
-## <a href="https://www.amazon.com/dp/B07BVS75FD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibwell Mini Bobbing-head Dog For Car Dash Board Decor</a>
+## <a href="https://www.amazon.com/dp/B07BVS75FD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibwell Mini Bobbing-head Dog For Car Dash Board Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B07BVS75FD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IBWell Mini Bobbing-Head Dog for Car Dash Board Decor,Dashboard Doggy Puppy Teddy Toy with Adhesive Tab（Poodle） (Brownish Red)" src="https://m.media-amazon.com/images/I/51WkDtAc2jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BVS75FD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IBWell Mini Bobbing-Head Dog for Car Dash Board Decor,Dashboard Doggy Puppy Teddy Toy with Adhesive Tab（Poodle） (Brownish Red)" src="https://m.media-amazon.com/images/I/51WkDtAc2jL._SL500_.jpg"/></a>
 
 
 The **IBWell Mini Bobbing-Head Dog** is perfect for car owners who enjoy adding a touch of personality and charm to their vehicle interiors. Ideal for those who appreciate cute and quirky dashboard accessories, especially dog lovers seeking a playful yet compact decoration that doesn’t overwhelm the space. This **Brownish Red Poodle** bobbing-head figurine is designed to bring joy and a sense of fun to daily commutes or road trips.
@@ -46,10 +46,10 @@ The **IBWell Mini Bobbing-Head Dog** stands out for its adorable design and prac
 
 Beyond aesthetics, this dashboard puppy toy serves as a simple stress reliever, offering a gentle nodding motion that can be soothing to watch. Its compact dimensions and lightweight build mean it won’t interfere with your view or take up valuable dashboard space. Overall, it’s a fun and thoughtful accessory for dog enthusiasts who want to personalize their car with a cute, functional item.
 
-## <a href="https://www.amazon.com/dp/B07K7GT5M4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funny Poodle Shirt</a>
+## <a href="https://www.amazon.com/dp/B07K7GT5M4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funny Poodle Shirt</a>
 
 
-<a href="https://www.amazon.com/dp/B07K7GT5M4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funny Poodle Shirt, Joke Dog Tshirt, Miniature, Toy Tee T-Shirt" src="https://m.media-amazon.com/images/I/31V0GDL9z5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07K7GT5M4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funny Poodle Shirt, Joke Dog Tshirt, Miniature, Toy Tee T-Shirt" src="https://m.media-amazon.com/images/I/31V0GDL9z5L._SL500_.jpg"/></a>
 
 
 The **Funny Poodle Shirt** is perfect for pet lovers, especially those who own or admire miniature and toy dogs. If you enjoy showcasing your love for dogs with a touch of humor, this **Joke Dog Tshirt** is an ideal addition to your casual wardrobe. Its playful design appeals to individuals who appreciate novelty apparel that sparks conversations and lightens the mood.
@@ -71,10 +71,10 @@ The **Funny Poodle Shirt** stands out with its witty and engaging print, tailore
 
 Beyond its amusing design, the shirt offers comfort and durability, making it suitable for daily wear or casual outings. Whether you're attending a dog meetup or just running errands, this tee lets you showcase your love for your furry friends while enjoying the benefits of a well-made garment. Overall, it’s a blend of humor, style, and comfort for dog lovers everywhere.
 
-## <a href="https://www.amazon.com/dp/B08HSDRD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Poodle Toy Figurine</a>
+## <a href="https://www.amazon.com/dp/B08HSDRD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Poodle Toy Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B08HSDRD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World, Realisitc Dog Toys for Boys and Girls Ages 3 and Above, Poodle Toy Figurine" src="https://m.media-amazon.com/images/I/314blK+QGsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HSDRD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World, Realisitc Dog Toys for Boys and Girls Ages 3 and Above, Poodle Toy Figurine" src="https://m.media-amazon.com/images/I/314blK+QGsL._SL500_.jpg"/></a>
 
 
 The **Schleich Farm World Realistic Dog Toys**, specifically the **Poodle Toy Figurine**, is ideal for **boys and girls ages 3 and above** who have a keen interest in farm animals and enjoy imaginative play. Parents and gift-givers looking for a **durable, detailed, and educational toy** will find this item perfect for encouraging creativity and learning about animals in a fun way.
@@ -96,10 +96,10 @@ The **Schleich Poodle Toy Figurine** stands out because of its meticulous crafts
 
 Additionally, the toy's robust construction ensures it can withstand the rough play typical of young kids, providing long-lasting enjoyment. Beyond play, this figurine can also serve as an educational tool, helping children learn about animals and farm life through interactive experiences. Overall, the **Schleich Farm World Poodle Toy** combines fun, learning, and quality, making it a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophrbu Poodle Plush Toys</a>
+## <a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ophrbu Poodle Plush Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OPHRBU Poodle Plush Toys, Soft and Cute Poodle Plush Toys, Pillows, Cushions, The Best Gift for Your Family and Friends. 1 pc. (Light Grey 12 inches)" src="https://m.media-amazon.com/images/I/41P28uxubiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9JCSFZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="OPHRBU Poodle Plush Toys, Soft and Cute Poodle Plush Toys, Pillows, Cushions, The Best Gift for Your Family and Friends. 1 pc. (Light Grey 12 inches)" src="https://m.media-amazon.com/images/I/41P28uxubiL._SL500_.jpg"/></a>
 
 
 The **OPHRBU Poodle Plush Toys** are perfect for anyone looking to add a touch of softness and cuteness to their home or gift collection. Ideal for **children**, **pet lovers**, and those who appreciate **decorative cushions**, this plush toy doubles as a **comfortable pillow** and a charming companion. If you want a cozy, adorable gift for **family** or **friends**, especially those who cherish plush toys, this item is a great choice.
@@ -121,10 +121,10 @@ The **OPHRBU Poodle Plush Toy** stands out with its ultra-soft fabric that enhan
 
 Beyond its aesthetic appeal, this plush toy serves multiple purposes. It can act as a comforting pillow for naps or a decorative cushion that adds a whimsical charm to your sofa or bed. Manufactured by **OPHRBU**, a reliable brand, it guarantees durability and safe materials, making it an excellent gift choice for loved ones of all ages. Whether you want to brighten up your space or give a heartfelt present, this plush poodle is a delightful option.
 
-## <a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cu-mate White Poodle Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cu-mate White Poodle Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CU-MATE White Poodle Stuffed Animal Simulation Dog -Realistic &amp; Lifelike Soft Handmade Standing Dog Plush Toy Puppy -Present Gift for Boys and Girls" src="https://m.media-amazon.com/images/I/31c94+Q0CiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKRWTLXK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CU-MATE White Poodle Stuffed Animal Simulation Dog -Realistic &amp; Lifelike Soft Handmade Standing Dog Plush Toy Puppy -Present Gift for Boys and Girls" src="https://m.media-amazon.com/images/I/31c94+Q0CiL._SL500_.jpg"/></a>
 
 
 The **CU-MATE White Poodle Stuffed Animal** is perfect for children and collectors who appreciate realistic and lifelike plush toys. Ideal for boys and girls who love dogs but may not have the space or ability to care for a real pet, this **handmade standing dog plush toy** offers a charming and soft companion. It is also a thoughtful present for those who enjoy cuddly, high-quality stuffed animals with detailed craftsmanship.
@@ -147,10 +147,10 @@ The **CU-MATE White Poodle Stuffed Animal** features a carefully crafted design 
 
 With its compact size, the plush toy is easy to handle and transport, making it ideal for both playtime and display. The standing posture of the dog adds to its lifelike appeal and allows it to be placed on shelves or desks without tipping over. As a gift, this stuffed animal is a wonderful way to bring joy and companionship to children and dog lovers alike, combining aesthetic appeal with practical design.
 
-## <a href="https://www.amazon.com/dp/B07KG6NJD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mugbrew Cute Brown Toy Poodle Ceramic Coffee Mug Tea Cup</a>
+## <a href="https://www.amazon.com/dp/B07KG6NJD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mugbrew Cute Brown Toy Poodle Ceramic Coffee Mug Tea Cup</a>
 
 
-<a href="https://www.amazon.com/dp/B07KG6NJD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUGBREW Cute Brown Toy Poodle Full Portrait Ceramic Coffee Mug Tea Cup, 11 OZ" src="https://m.media-amazon.com/images/I/41zq0d-pMwS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07KG6NJD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MUGBREW Cute Brown Toy Poodle Full Portrait Ceramic Coffee Mug Tea Cup, 11 OZ" src="https://m.media-amazon.com/images/I/41zq0d-pMwS._SL500_.jpg"/></a>
 
 
 The **MUGBREW Cute Brown Toy Poodle Full Portrait Ceramic Coffee Mug Tea Cup, 11 OZ** is perfect for **dog lovers**, especially those who adore **toy poodles**, and anyone looking to add a touch of charm to their morning coffee or tea routine. This mug is ideal for individuals who appreciate **unique and adorable drinkware** that also serves as a great conversation starter or a gift for pet enthusiasts.
@@ -173,10 +173,10 @@ The **MUGBREW Cute Brown Toy Poodle Mug** stands out with its charming and detai
 
 Additionally, the mug’s design and build make it a thoughtful gift for **pet owners and dog enthusiasts**. The quality finish and attention to detail reflect the brand’s commitment to creating functional yet aesthetically pleasing drinkware. Whether used at home or in the office, this mug adds a cozy and personal touch to your daily beverage experience, combining style with practicality.
 
-## <a href="https://www.amazon.com/dp/B071CVCZ8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Gigi Black Poodle Dog Plush Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B071CVCZ8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Gigi Black Poodle Dog Plush Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B071CVCZ8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Gigi Black Poodle Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/411VWyvlZAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B071CVCZ8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Gigi Black Poodle Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/411VWyvlZAL._SL500_.jpg"/></a>
 
 
 The **Douglas Gigi Black Poodle Dog Plush Stuffed Animal** is perfect for dog lovers, children, and collectors who appreciate high-quality, realistic plush toys. Ideal for those seeking a cuddly companion or a decorative item that brings charm and warmth to any room, this plush poodle appeals to both young and adult audiences who value softness and detail.
@@ -198,10 +198,10 @@ The **Douglas Gigi Black Poodle Dog Plush** combines lifelike design with a soft
 
 Beyond just being a cute stuffed animal, this plush poodle encourages imaginative play and can serve as a charming decorative piece in bedrooms, nurseries, or living spaces. Its durable construction ensures that it can withstand regular use while maintaining its soft feel and detailed appearance. Overall, the **Douglas Gigi Black Poodle** is a delightful blend of quality, realism, and comfort, making it a great addition to any plush collection or a thoughtful gift for dog enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B08FDCRLG7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Standard Poodle T-shirt</a>
+## <a href="https://www.amazon.com/dp/B08FDCRLG7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Standard Poodle T-shirt</a>
 
 
-<a href="https://www.amazon.com/dp/B08FDCRLG7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Standard Poodle Toy Miniature Poodles T-Shirt" src="https://m.media-amazon.com/images/I/41Ub7Cg62-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08FDCRLG7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Standard Poodle Toy Miniature Poodles T-Shirt" src="https://m.media-amazon.com/images/I/41Ub7Cg62-L._SL500_.jpg"/></a>
 
 
 The **Standard Poodle Toy Miniature Poodles T-Shirt** is perfect for dog lovers, especially those who adore or own **Standard Poodles** or **Miniature Poodles**. If you want to showcase your passion for these intelligent and elegant breeds in a stylish and comfortable way, this item is an excellent choice. Ideal for casual wear, dog events, or gifting to poodle enthusiasts, this t-shirt combines breed pride with everyday practicality.
@@ -223,10 +223,10 @@ This **Standard Poodle Toy Miniature Poodles T-Shirt** features a comfortable fa
 
 Manufactured by the trusted **Standard Poodle Breeder** brand, this t-shirt ensures quality and authenticity. The thoughtful design caters to both fashion and function, offering a breathable and durable option for everyday use. Whether you’re gifting it to a poodle enthusiast or adding to your own wardrobe, this t-shirt combines breed loyalty with style and comfort seamlessly.
 
-## <a href="https://www.amazon.com/dp/1804600814?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Poodle Calendar</a>
+## <a href="https://www.amazon.com/dp/1804600814?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Poodle Calendar</a>
 
 
-<a href="https://www.amazon.com/dp/1804600814?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miniature Poodle Calendar - Toy Poodle Calendars - Dog Breed Calendars - 2023 - 2024 wall calendars - 16 Month by Avonside" src="https://m.media-amazon.com/images/I/51qujtTV+FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/1804600814?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miniature Poodle Calendar - Toy Poodle Calendars - Dog Breed Calendars - 2023 - 2024 wall calendars - 16 Month by Avonside" src="https://m.media-amazon.com/images/I/51qujtTV+FL._SL500_.jpg"/></a>
 
 
 The **Miniature Poodle Calendar - Toy Poodle Calendars - Dog Breed Calendars - 2023 - 2024 wall calendars - 16 Month by Avonside** is perfect for dog lovers, especially those who adore the **Miniature and Toy Poodle breeds**. Ideal for pet owners, breeders, or anyone looking to add a charming and functional piece to their home or office, this calendar combines practicality with a passion for dogs. If you appreciate beautifully designed breed-specific calendars and want to stay organized through the year, this item is a great choice.
@@ -249,10 +249,10 @@ This **2024 edition** wall calendar by Avonside Publishing LTD offers a delightf
 
 Each page showcases high-quality images of the beloved Toy Poodle breed, which not only brightens up any room but also appeals to dog enthusiasts who enjoy breed-specific artwork. The calendar's design balances aesthetics with functionality, making it a useful and decorative addition to homes or offices. Overall, this calendar is a charming and practical product for anyone passionate about dogs, especially Miniature Poodles.
 
-## <a href="https://www.amazon.com/dp/B0010EN156?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Poodle Tiny Miniature One Christmas Ornament Apricot Sport Cut</a>
+## <a href="https://www.amazon.com/dp/B0010EN156?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Conversation Concepts Poodle Tiny Miniature One Christmas Ornament Apricot Sport Cut</a>
 
 
-<a href="https://www.amazon.com/dp/B0010EN156?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Poodle Tiny Miniature One Christmas Ornament Apricot Sport Cut - Delightful!" src="https://m.media-amazon.com/images/I/41X6I+9KQGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0010EN156?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Conversation Concepts Poodle Tiny Miniature One Christmas Ornament Apricot Sport Cut - Delightful!" src="https://m.media-amazon.com/images/I/41X6I+9KQGL._SL500_.jpg"/></a>
 
 
 The **Conversation Concepts Poodle Tiny Miniature One Christmas Ornament Apricot Sport Cut** is perfect for dog lovers, especially those who cherish the **poodle breed** and want to add a touch of elegance to their holiday decor. Ideal for collectors of miniature ornaments or anyone looking to gift a charming, detailed piece during the Christmas season, this ornament blends festive spirit with a love for pets.

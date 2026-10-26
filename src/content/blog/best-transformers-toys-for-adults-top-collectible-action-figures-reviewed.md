@@ -23,10 +23,10 @@ Whether displayed on a desk or used for play, these toys bring joy and challenge
 
 
 
-## <a href="https://www.amazon.com/dp/B0F5VZSY11?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hapystar Globe Transforming Toy</a>
+## <a href="https://www.amazon.com/dp/B0F5VZSY11?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hapystar Globe Transforming Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5VZSY11?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hapystar Globe Transforming Toy, 2 in 1 Transform into Robot Action Figure, DIY Transformation Figure Toys for Kids &amp; Adults Action Figures for Boys Party Favors Gift" src="https://m.media-amazon.com/images/I/51PUSemH3bL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5VZSY11?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hapystar Globe Transforming Toy, 2 in 1 Transform into Robot Action Figure, DIY Transformation Figure Toys for Kids &amp; Adults Action Figures for Boys Party Favors Gift" src="https://m.media-amazon.com/images/I/51PUSemH3bL._SL500_.jpg"/></a>
 
 
 The **Hapystar Globe Transforming Toy** is ideal for both **kids and adults** who enjoy interactive and creative play. Perfect for those who love **robot action figures** and DIY transformation challenges, this toy is an excellent choice for **boys’ party favors** or anyone looking to add a unique and engaging figure to their collection. Its 2 in 1 design appeals to imaginative users who appreciate hands-on assembly and transformation.
@@ -49,10 +49,10 @@ The **Hapystar Globe Transforming Toy** stands out with its innovative 2 in 1 de
 
 Additionally, the toy’s lightweight design and vibrant blue color make it visually appealing and easy to handle for children and adults alike. Whether used as a party favor or a personal gift, the **Hapystar Globe Transforming Toy** delivers a unique blend of fun and functionality, encouraging imaginative play and creativity for all ages.
 
-## <a href="https://www.amazon.com/dp/B09XGK8PPR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Studio Series 90 Voyager Class Age Of Extinction Galvatron Action Figure</a>
+## <a href="https://www.amazon.com/dp/B09XGK8PPR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Studio Series 90 Voyager Class Age Of Extinction Galvatron Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B09XGK8PPR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Studio Series 90 Voyager Class Age of Extinction Galvatron Action Figure - Ages 8 and Up, 6.5-inch, Multicolered, F3176" src="https://m.media-amazon.com/images/I/516HLQ3GLnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XGK8PPR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Studio Series 90 Voyager Class Age of Extinction Galvatron Action Figure - Ages 8 and Up, 6.5-inch, Multicolered, F3176" src="https://m.media-amazon.com/images/I/516HLQ3GLnL._SL500_.jpg"/></a>
 
 
 The **Transformers Toys Studio Series 90 Voyager Class Age of Extinction Galvatron Action Figure** is ideal for collectors and fans of the Transformers franchise aged 8 and up who appreciate detailed, high-quality action figures. Whether you're a dedicated enthusiast seeking a collectible or a young fan looking for an engaging toy, this figure offers a perfect blend of nostalgia and playability.
@@ -75,10 +75,10 @@ The **Transformers Studio Series 90 Voyager Class Galvatron** stands out due to 
 
 Produced by **Hasbro**, this action figure boasts a sturdy construction that ensures it can withstand regular handling while maintaining its form. Its collectible primary packaging not only preserves the figure's condition but also appeals to enthusiasts who value presentation and potential resale value. Overall, this Galvatron action figure delivers a satisfying experience for both play and display, catering to a wide range of Transformers fans.
 
-## <a href="https://www.amazon.com/dp/B0BJYRHKL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">52toys Beastdrive Bd-02 Hydro Bullet Shark</a>
+## <a href="https://www.amazon.com/dp/B0BJYRHKL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">52toys Beastdrive Bd-02 Hydro Bullet Shark</a>
 
 
-<a href="https://www.amazon.com/dp/B0BJYRHKL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="52TOYS BEASTDRIVE BD-02 Hydro Bullet Shark Deformation Toys Action Figure, Converting Toys in Vehicle and Beast, Perfect Birthday Party Gift for Teens and Adults" src="https://m.media-amazon.com/images/I/41RuuC0u+YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BJYRHKL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="52TOYS BEASTDRIVE BD-02 Hydro Bullet Shark Deformation Toys Action Figure, Converting Toys in Vehicle and Beast, Perfect Birthday Party Gift for Teens and Adults" src="https://m.media-amazon.com/images/I/41RuuC0u+YL._SL500_.jpg"/></a>
 
 
 The **52TOYS BEASTDRIVE BD-02 Hydro Bullet Shark Deformation Toys Action Figure** is ideal for both **teens and adults** who have a passion for collectible action figures and transforming toys. If you enjoy dynamic play or displaying unique, high-quality figures that convert between a **vehicle and beast form**, this item is perfect for adding excitement to your collection or gifting on special occasions like birthdays.
@@ -100,10 +100,10 @@ The **52TOYS BEASTDRIVE BD-02 Hydro Bullet Shark** features an intricate design 
 
 Beyond its impressive transformation capabilities, this action figure benefits users by encouraging imaginative play and collection building. The sturdy materials and detailed engineering from **52TOYS** ensure longevity and resistance to wear, making it a lasting addition to any collection. Whether you are a fan of mechanical beasts or simply looking for a unique gift, the BD-02 Hydro Bullet Shark stands out as a creative and enjoyable toy for enthusiasts of all ages.
 
-## <a href="https://www.amazon.com/dp/B0CZM4CK7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Bumblebee Camaro Figure Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0CZM4CK7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Bumblebee Camaro Figure Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZM4CK7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Bumblebee Camaro Figure Model Kit – Easy to Assemble 3D Articulated Action Figure Pre Painted Collectible Series Toys Hobby 08105" src="https://m.media-amazon.com/images/I/519qQc3Fw5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZM4CK7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Bumblebee Camaro Figure Model Kit – Easy to Assemble 3D Articulated Action Figure Pre Painted Collectible Series Toys Hobby 08105" src="https://m.media-amazon.com/images/I/519qQc3Fw5L._SL500_.jpg"/></a>
 
 
 The **Transformers Bumblebee Camaro Figure Model Kit** is perfect for hobbyists and collectors who enjoy assembling detailed, articulated action figures. Ideal for both beginners and experienced model builders, this kit appeals to fans of the Transformers franchise and those looking for a pre-painted, visually striking collectible that brings the iconic Bumblebee Camaro to life.
@@ -125,10 +125,10 @@ This **3D articulated action figure** is crafted with precision by **MTLAKEMOTOR
 
 The articulated joints provide flexibility in posing, making it a dynamic addition to any collection or a playful desk companion. Whether you’re a fan of Transformers or simply enjoy building model kits, this collectible offers both entertainment and aesthetic appeal, making it a rewarding purchase for enthusiasts of all ages.
 
-## <a href="https://www.amazon.com/dp/B0CSGZF9DX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Studio Series Deluxe Class Reactivate 10 Gamer Edition Bumblebee</a>
+## <a href="https://www.amazon.com/dp/B0CSGZF9DX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Studio Series Deluxe Class Reactivate 10 Gamer Edition Bumblebee</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSGZF9DX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Studio Series Deluxe Class Reactivate 10 Gamer Edition Bumblebee, 4.5-inch Converting Action Figure, 8+" src="https://m.media-amazon.com/images/I/51pnNCDNnrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSGZF9DX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Studio Series Deluxe Class Reactivate 10 Gamer Edition Bumblebee, 4.5-inch Converting Action Figure, 8+" src="https://m.media-amazon.com/images/I/51pnNCDNnrL._SL500_.jpg"/></a>
 
 
 The **Transformers Toys Studio Series Deluxe Class Reactivate 10 Gamer Edition Bumblebee** is perfect for collectors and fans aged 8 and above who appreciate high-quality, detailed action figures. Ideal for those who enjoy both displaying collectibles and engaging in imaginative play, this **4.5-inch converting action figure** appeals to enthusiasts of the **Transformers** franchise and gamers alike.
@@ -151,10 +151,10 @@ This **Studio Series Deluxe Class Reactivate 10 Gamer Edition Bumblebee** action
 
 Beyond its visual appeal, the figure offers practical benefits like easy handling due to its size and sturdy construction that withstands playtime. Whether displayed on a shelf or used in imaginative scenarios, this Deluxe Class figure offers versatility and durability. Its design and features make it a standout choice for fans who value both aesthetics and functionality in their collectibles.
 
-## <a href="https://www.amazon.com/dp/B0CSF1RHTN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4d Build Transformers Optimus Prime 3d Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0CSF1RHTN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4d Build Transformers Optimus Prime 3d Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSF1RHTN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4D Build, Transformers Optimus Prime 3D Model Kit with LED Lights, Transformers Collectibles &amp; Desk Décor, Adult Building Toys, 3D Puzzles for Adults &amp; Teens, 321 Pieces, for Ages 12 &amp; Up" src="https://m.media-amazon.com/images/I/4182tM5VEQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSF1RHTN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4D Build, Transformers Optimus Prime 3D Model Kit with LED Lights, Transformers Collectibles &amp; Desk Décor, Adult Building Toys, 3D Puzzles for Adults &amp; Teens, 321 Pieces, for Ages 12 &amp; Up" src="https://m.media-amazon.com/images/I/4182tM5VEQL._SL500_.jpg"/></a>
 
 
 The **4D Build Transformers Optimus Prime 3D Model Kit** is ideal for hobbyists and fans of the **Transformers** franchise who enjoy detailed building projects. Perfect for **adults and teens aged 12 and up**, this kit offers a satisfying challenge for those who appreciate **collectibles** and **desk décor** that combines creativity with fandom. If you are someone looking to enhance your collection with a unique, interactive piece that lights up, this model kit is an excellent choice.
@@ -177,10 +177,10 @@ The **4D Build Transformers Optimus Prime 3D Model Kit** stands out with its int
 
 Beyond its aesthetic appeal, this model kit offers an immersive experience for both **Transformers enthusiasts** and puzzle lovers. The multicolor scheme and precise construction bring the iconic **Optimus Prime** to life, making it more than just a display item. Additionally, the high-quality materials used by **Spin Master** guarantee durability, ensuring that this collectible will remain a prized possession for years to come.
 
-## <a href="https://www.amazon.com/dp/B077YYP739?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Heroic Optimus Prime Action Figure</a>
+## <a href="https://www.amazon.com/dp/B077YYP739?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Heroic Optimus Prime Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B077YYP739?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Heroic Optimus Prime Action Figure - Timeless Large-Scale Figure, Changes into Toy Truck - Toys for Kids 6 and Up, 11-inch (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51oh+cmyHiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077YYP739?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Heroic Optimus Prime Action Figure - Timeless Large-Scale Figure, Changes into Toy Truck - Toys for Kids 6 and Up, 11-inch (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51oh+cmyHiL._SL500_.jpg"/></a>
 
 
 The **Transformers Toys Heroic Optimus Prime Action Figure** is ideal for children aged 6 and up who love imaginative play and fans of the iconic Transformers franchise. This large-scale, **11-inch** figure is perfect for kids and collectors who appreciate detailed craftsmanship and the fun of transforming a figure into a toy truck. It’s especially suited for those looking for a durable and visually striking toy that doubles as both a plaything and a display piece.
@@ -203,10 +203,10 @@ The **Transformers Heroic Optimus Prime Action Figure** stands out with its fait
 
 Beyond play, this **large-scale 11-inch figure** serves as a striking collectible that fans and hobbyists can proudly display. Its size and detailed features provide a tactile and engaging experience that smaller figures often lack. The exclusive availability on Amazon further adds value, making it a sought-after item for collectors and a perfect gift for young Transformers enthusiasts seeking a timeless piece of their favorite franchise.
 
-## <a href="https://www.amazon.com/dp/B09LMBLYF1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gokeey Transformable Fidget Spinners</a>
+## <a href="https://www.amazon.com/dp/B09LMBLYF1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gokeey Transformable Fidget Spinners</a>
 
 
-<a href="https://www.amazon.com/dp/B09LMBLYF1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gokeey Transformable Fidget Spinners 4 Pcs for Kids and Adults Stress Relief Sensory Toys for Boys and Girls Fingertip Gyros for Party Favors Stocking Stuffers Bulk for Kids" src="https://m.media-amazon.com/images/I/51--lWZnSUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09LMBLYF1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gokeey Transformable Fidget Spinners 4 Pcs for Kids and Adults Stress Relief Sensory Toys for Boys and Girls Fingertip Gyros for Party Favors Stocking Stuffers Bulk for Kids" src="https://m.media-amazon.com/images/I/51--lWZnSUL._SL500_.jpg"/></a>
 
 
 The **Gokeey Transformable Fidget Spinners 4 Pcs** are perfect for both **kids and adults** looking for an effective way to relieve stress and improve focus. These **sensory toys** are ideal for individuals who enjoy tactile engagement, whether it's to help with anxiety, ADHD, or simply as a fun pastime. They also make excellent **party favors** or **stocking stuffers** for boys and girls who love interactive and colorful gadgets.
@@ -229,10 +229,10 @@ The **Gokeey Transformable Fidget Spinners** feature a unique design that allows
 
 Each spinner is crafted to provide smooth spinning action with fingertip gyros that enhance dexterity and hand-eye coordination. The set of four ensures that users have multiple spinners to experiment with or share, making it a great bulk purchase for families or group activities. Overall, these fidget spinners combine fun and functionality, catering to anyone seeking a simple yet effective way to manage stress or keep their hands busy.
 
-## <a href="https://www.amazon.com/dp/B07D5SPV3X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Generations War For Cybertron Voyager Soundwave Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07D5SPV3X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Generations War For Cybertron Voyager Soundwave Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07D5SPV3X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Transformers Toys Generations War for Cybertron Voyager Wfc-S25 Soundwave Action Figure - Siege Chapter - Adults &amp; Kids Ages 8 &amp; Up, 7" src="https://m.media-amazon.com/images/I/51VDQV6IavL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07D5SPV3X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img "="" alt="Transformers Toys Generations War for Cybertron Voyager Wfc-S25 Soundwave Action Figure - Siege Chapter - Adults &amp; Kids Ages 8 &amp; Up, 7" src="https://m.media-amazon.com/images/I/51VDQV6IavL._SL500_.jpg"/></a>
 
 
 The **Transformers Toys Generations War for Cybertron Voyager Wfc-S25 Soundwave Action Figure** is ideal for both **adults and kids ages 8 and up** who are fans of the Transformers franchise. Whether you're a collector looking to add an iconic character to your collection or a child eager to engage in imaginative play, this action figure offers a perfect blend of nostalgia and modern design.
@@ -255,10 +255,10 @@ The **Soundwave Action Figure** stands out with its impressive dimensions of app
 
 One of the standout features of this action figure is its ability to transform seamlessly, offering both a robot mode and an alternate form, which enhances imaginative play and collector value. The detailed sculpting and articulation points allow for dynamic posing, making it an excellent choice for photography and display. Overall, this figure combines quality craftsmanship with engaging play features, making it a great addition for anyone passionate about the Transformers universe.
 
-## <a href="https://www.amazon.com/dp/B0B3G1DVLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Legacy Evolution Voyager Metalhawk Toy</a>
+## <a href="https://www.amazon.com/dp/B0B3G1DVLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Transformers Toys Legacy Evolution Voyager Metalhawk Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3G1DVLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Legacy Evolution Voyager Metalhawk Toy, 7-inch, Action Figure for Boys and Girls Ages 8 and Up" src="https://m.media-amazon.com/images/I/51Cqm1qJr1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3G1DVLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Transformers Toys Legacy Evolution Voyager Metalhawk Toy, 7-inch, Action Figure for Boys and Girls Ages 8 and Up" src="https://m.media-amazon.com/images/I/51Cqm1qJr1L._SL500_.jpg"/></a>
 
 
 The **Transformers Toys Legacy Evolution Voyager Metalhawk Toy** is ideal for children aged **8 and up** who are fans of action figures and the iconic Transformers franchise. This toy is perfect for both boys and girls who enjoy imaginative play and collectors looking to add a detailed, high-quality figure to their collection.

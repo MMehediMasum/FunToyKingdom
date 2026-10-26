@@ -22,10 +22,10 @@ You will find vintage grain trucks, refuse trash bins, and sleeper cab tractors 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DXX4DHY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Dcp White Peterbilt 389 With Landoll Traveling Axle Trailer</a>
+## <a href="https://www.amazon.com/dp/B0DXX4DHY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Dcp White Peterbilt 389 With Landoll Traveling Axle Trailer</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXX4DHY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear DCP 1/64 White Peterbilt 389 w/Landoll 440B-50CA Traveling Axle Trailer 60-2033" src="https://m.media-amazon.com/images/I/31gtA4DunCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXX4DHY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear DCP 1/64 White Peterbilt 389 w/Landoll 440B-50CA Traveling Axle Trailer 60-2033" src="https://m.media-amazon.com/images/I/31gtA4DunCL._SL500_.jpg"/></a>
 
 
 The **First Gear DCP 1/64 White Peterbilt 389 w/Landoll 440B-50CA Traveling Axle Trailer 60-2033** is an ideal collectible for enthusiasts of detailed scale models and truck aficionados. Those who appreciate precision craftsmanship and realistic replicas will find this item perfect for their collection or display. Additionally, it suits hobbyists looking to enhance their miniature trucking setups with authentic and durable models.
@@ -48,12 +48,12 @@ The **First Gear DCP 1/64 White Peterbilt 389 w/Landoll 440B-50CA Traveling Axle
 
 Moreover, the compact size and lightweight design provide flexibility in display options, whether on a shelf or as part of a larger diorama. The clean **white finish** enhances the model’s aesthetic appeal and makes it a versatile addition that blends well with other collectibles. Overall, this model delivers both visual appeal and authentic representation, making it a valuable asset for dedicated collectors.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DXX4DHY3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DXX4DHY3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CWV9D7SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mack Lr With Mcneilus Meridian Front Loader &amp; Dumpster</a>
+## <a href="https://www.amazon.com/dp/B0CWV9D7SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mack Lr With Mcneilus Meridian Front Loader &amp; Dumpster</a>
 
 
-<a href="https://www.amazon.com/dp/B0CWV9D7SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1/64 Mack LR with McNeilus Meridian Front Loader &amp; Dumpster, Waste Management Truck 60-1796D" src="https://m.media-amazon.com/images/I/41zC1p3I8LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CWV9D7SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1/64 Mack LR with McNeilus Meridian Front Loader &amp; Dumpster, Waste Management Truck 60-1796D" src="https://m.media-amazon.com/images/I/41zC1p3I8LL._SL500_.jpg"/></a>
 
 
 The **1/64 Mack LR with McNeilus Meridian Front Loader & Dumpster** by **First Gear** is ideal for collectors and enthusiasts who appreciate detailed scale models of utility vehicles. This model is perfect for those interested in construction, waste management, or heavy-duty trucks, and anyone looking to add a realistic **green Waste Management truck** to their collection.
@@ -75,12 +75,12 @@ The **1/64 Mack LR with McNeilus Meridian Front Loader & Dumpster** stands out w
 
 Built by **First Gear**, a trusted name in model manufacturing, this truck combines durability with authenticity. The solid construction ensures the model withstands handling and display over time. While it is primarily a static model, its accuracy and fine craftsmanship provide an immersive experience for enthusiasts, making it a valuable addition for those passionate about industrial and municipal vehicles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CWV9D7SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CWV9D7SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F9L6THF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear International Loadstar Grain Truck</a>
+## <a href="https://www.amazon.com/dp/B0F9L6THF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear International Loadstar Grain Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9L6THF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 1970s International Loadstar Grain Truck Red 60-2040" src="https://m.media-amazon.com/images/I/41ba-pbmnhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9L6THF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 1970s International Loadstar Grain Truck Red 60-2040" src="https://m.media-amazon.com/images/I/41ba-pbmnhL._SL500_.jpg"/></a>
 
 
 The **First Gear 1/64 1970s International Loadstar Grain Truck Red 60-2040** is ideal for collectors and enthusiasts of vintage model trucks, particularly those who appreciate detailed replicas of classic agricultural vehicles. This item is perfect for hobbyists who enjoy adding authentic, miniature representations of historic trucks to their collection or for anyone interested in the agricultural and trucking history of the 1970s.
@@ -102,12 +102,12 @@ The **First Gear 1/64 1970s International Loadstar Grain Truck** stands out for 
 
 Constructed by **First Gear**, a reputable manufacturer in the model vehicle industry, this grain truck offers durability and collectible value. While it does not feature moving parts or interactive elements, its precision molding and faithful representation provide a satisfying experience for model truck aficionados. Overall, this grain truck is a valuable collectible for those who appreciate vintage agricultural vehicles and quality craftsmanship.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F9L6THF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F9L6THF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BRTCGY3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Wm: Mack Lr</a>
+## <a href="https://www.amazon.com/dp/B0BRTCGY3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Wm: Mack Lr</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRTCGY3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear WM: Mack LR with McNeilus ZR Side Loader" src="https://m.media-amazon.com/images/I/41JUJMbbeQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRTCGY3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear WM: Mack LR with McNeilus ZR Side Loader" src="https://m.media-amazon.com/images/I/41JUJMbbeQL._SL500_.jpg"/></a>
 
 
 The **First Gear WM: Mack LR with McNeilus ZR Side Loader** is an ideal choice for collectors and enthusiasts of detailed scale models, especially those interested in construction and heavy-duty vehicle replicas. If you are someone who appreciates intricate craftsmanship and realistic miniature versions of industrial machinery, this item is perfect for you. Its compact size and authentic design make it a great addition to any display or collection.
@@ -128,12 +128,12 @@ The **First Gear WM: Mack LR with McNeilus ZR Side Loader** stands out with its 
 
 Beyond aesthetics, the model serves as an educational tool for those interested in the mechanics and design of industrial vehicles. The **Mack LR with McNeilus ZR Side Loader** features realistic components that allow users to gain insight into the functionality of such machinery. Collectors will value its authenticity and durability, which contribute to its status as a prized piece within any collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BRTCGY3P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BRTCGY3P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DY21BRN8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Peterbilt 359 With 40ft Vintage Reefer Trailer</a>
+## <a href="https://www.amazon.com/dp/B0DY21BRN8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Peterbilt 359 With 40ft Vintage Reefer Trailer</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY21BRN8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Black &amp; Chrome Peterbilt 359 with 40ft Vintage Reefer Trailer, DCP 60-2043" src="https://m.media-amazon.com/images/I/31kx8-FqQQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY21BRN8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Black &amp; Chrome Peterbilt 359 with 40ft Vintage Reefer Trailer, DCP 60-2043" src="https://m.media-amazon.com/images/I/31kx8-FqQQL._SL500_.jpg"/></a>
 
 
 The **First Gear 1/64 Black & Chrome Peterbilt 359 with 40ft Vintage Reefer Trailer, DCP 60-2043** is ideal for collectors and enthusiasts of detailed scale models, especially those passionate about classic trucks and vintage trailers. If you appreciate high-quality craftsmanship and want to add a realistic and stylish piece to your collection, this model is perfect for you.
@@ -155,12 +155,12 @@ The **First Gear 1/64 Black & Chrome Peterbilt 359** model stands out with its m
 
 Measuring just 2.5 inches in height and 13.5 inches in length, this model is designed to fit comfortably on shelves or display cases. Weighing 3.0 pounds, it feels substantial and well-crafted, reflecting the quality standards of **First Gear**. Whether you're a seasoned collector or a newcomer looking to start a collection, this model offers both aesthetic appeal and a tangible connection to trucking history.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DY21BRN8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DY21BRN8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DJRMFTMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Refuse Trash Bin Green Version</a>
+## <a href="https://www.amazon.com/dp/B0DJRMFTMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Refuse Trash Bin Green Version</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJRMFTMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear Refuse Trash Bin Green Version D 1/34 Diecast Model 90-0169D" src="https://m.media-amazon.com/images/I/41hbuuWlmFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJRMFTMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear Refuse Trash Bin Green Version D 1/34 Diecast Model 90-0169D" src="https://m.media-amazon.com/images/I/41hbuuWlmFL._SL500_.jpg"/></a>
 
 
 The **First Gear Refuse Trash Bin Green Version D 1/34 Diecast Model 90-0169D** is ideal for collectors of detailed miniature models, enthusiasts of waste management equipment replicas, and hobbyists looking to expand their scale model collection with authentic and high-quality pieces. This item is perfect for those who appreciate precision craftsmanship and want a realistic addition to their dioramas or model displays.
@@ -181,12 +181,12 @@ The **First Gear Refuse Trash Bin Green Version** is meticulously crafted to sca
 
 Featuring a striking green finish, this model stands out in any display, bringing a touch of realism that complements dioramas or themed collections focused on municipal services and industrial scenes. The attention to detail by **First Gear** ensures that this trash bin model serves both as a collectible and an educational piece, highlighting the importance of waste disposal equipment in everyday urban life.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DJRMFTMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DJRMFTMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DY1JVHCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Peterbilt 359 With Vtg Reefer Trailer</a>
+## <a href="https://www.amazon.com/dp/B0DY1JVHCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear Peterbilt 359 With Vtg Reefer Trailer</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY1JVHCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Peterbilt 359 w/VTG Reefer Trailer Legacy Series #1 Pirkle DCP 69-2017" src="https://m.media-amazon.com/images/I/31waZ29gEKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY1JVHCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Peterbilt 359 w/VTG Reefer Trailer Legacy Series #1 Pirkle DCP 69-2017" src="https://m.media-amazon.com/images/I/31waZ29gEKL._SL500_.jpg"/></a>
 
 
 The **First Gear 1/64 Peterbilt 359 w/VTG Reefer Trailer Legacy Series #1 Pirkle DCP 69-2017** is ideal for collectors and enthusiasts of detailed die-cast model trucks. This item is perfect for those who appreciate high-quality replicas with authentic features, making it a great addition to any scale model collection or a thoughtful gift for trucking aficionados.
@@ -209,12 +209,12 @@ The **First Gear Peterbilt 359 w/VTG Reefer Trailer** stands out with its precis
 
 Crafted by **First Gear**, this model combines durability with aesthetic appeal, ensuring it remains a cherished part of any collection for years. Whether displayed on a shelf or added to a diorama, this die-cast truck delivers both visual appeal and a tactile sense of authenticity, making it a standout choice for serious collectors and fans of trucking history alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DY1JVHCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DY1JVHCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09BTB1TRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear 1970s Gmc 6500 Single Axle Stake Truck</a>
+## <a href="https://www.amazon.com/dp/B09BTB1TRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear 1970s Gmc 6500 Single Axle Stake Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B09BTB1TRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Scale Diecast Collectible White/Red 1970s GMC 6500 Single Axle Stake Truck (60-0917)" src="https://m.media-amazon.com/images/I/41063sjV2SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BTB1TRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Scale Diecast Collectible White/Red 1970s GMC 6500 Single Axle Stake Truck (60-0917)" src="https://m.media-amazon.com/images/I/41063sjV2SL._SL500_.jpg"/></a>
 
 
 The **First Gear 1/64 Scale Diecast Collectible White/Red 1970s GMC 6500 Single Axle Stake Truck (60-0917)** is ideal for collectors and enthusiasts of vintage vehicles, especially those who appreciate detailed scale models. This item is perfect for hobbyists who want to add an authentic representation of a classic 1970s truck to their collection or for anyone interested in diecast model craftsmanship.
@@ -236,12 +236,12 @@ The **First Gear 1970s GMC 6500 Single Axle Stake Truck** stands out with its ex
 
 Beyond aesthetics, this collectible model offers enthusiasts an opportunity to appreciate the engineering and design of historic trucks. Its manageable size allows for versatile placement on shelves, desks, or within display cases, while the sturdy build resists damage over time. Overall, this scale model is a valuable addition for those passionate about automotive history and diecast collectibles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09BTB1TRX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09BTB1TRX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C9F2RM3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Freightliner M-2 Mcneilus Rear Loader Garbage Truck Diecast Model</a>
+## <a href="https://www.amazon.com/dp/B0C9F2RM3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Freightliner M-2 Mcneilus Rear Loader Garbage Truck Diecast Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9F2RM3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Freightliner M-2 with McNeilus Rear Loader Garbage Truck Waste Management with Garbage Bins 1/34 Diecast Model by First Gear 10-3287D" src="https://m.media-amazon.com/images/I/41Fl2-LfTdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9F2RM3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Freightliner M-2 with McNeilus Rear Loader Garbage Truck Waste Management with Garbage Bins 1/34 Diecast Model by First Gear 10-3287D" src="https://m.media-amazon.com/images/I/41Fl2-LfTdL._SL500_.jpg"/></a>
 
 
 The **Freightliner M-2 with McNeilus Rear Loader Garbage Truck Waste Management 1/34 Diecast Model** by **First Gear** is ideal for collectors of detailed diecast vehicles, waste management enthusiasts, and model hobbyists seeking a realistic and durable replica. This model is perfect for those who appreciate high-quality craftsmanship and want to add an authentic garbage truck to their collection or display.
@@ -264,12 +264,12 @@ The **Freightliner M-2 with McNeilus Rear Loader Garbage Truck** model stands ou
 
 Designed to mimic the actual **rear loader garbage truck**, this model allows users to appreciate the engineering and design of waste management vehicles. The sturdy diecast build not only enhances its visual appeal but also ensures that the model can withstand handling without damage. Collectors and enthusiasts benefit from owning a piece that combines both aesthetic value and robust construction.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C9F2RM3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C9F2RM3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0763SMLTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear 1/64 Scale Diecast Collectible Mack Anthem Sleeper Cab Tractor With 53' Trailer</a>
+## <a href="https://www.amazon.com/dp/B0763SMLTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">First Gear 1/64 Scale Diecast Collectible Mack Anthem Sleeper Cab Tractor With 53' Trailer</a>
 
 
-<a href="https://www.amazon.com/dp/B0763SMLTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Scale Diecast Collectible White/White Mack Anthem Sleeper Cab Tractor with 53' Trailer (#60-0367)" src="https://m.media-amazon.com/images/I/413zadRzP4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0763SMLTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="First Gear 1/64 Scale Diecast Collectible White/White Mack Anthem Sleeper Cab Tractor with 53' Trailer (#60-0367)" src="https://m.media-amazon.com/images/I/413zadRzP4L._SL500_.jpg"/></a>
 
 
 The **First Gear 1/64 Scale Diecast Collectible White/White Mack Anthem Sleeper Cab Tractor with 53' Trailer (#60-0367)** is ideal for scale model collectors, trucking enthusiasts, and hobbyists who appreciate detailed replicas of commercial trucks. This item is perfect for those looking to add a high-quality, realistic model to their collection or for anyone interested in the iconic Mack Anthem tractor design in a compact, display-friendly size.
@@ -291,7 +291,7 @@ The **First Gear 1/64 Scale Diecast Collectible Mack Anthem** stands out due to 
 
 Beyond aesthetics, the model’s compact size and accurate scale make it ideal for collectors who want to showcase their passion for trucking without requiring extensive space. The sturdy build and detailed craftsmanship reflect **First Gear, Inc.’s** commitment to producing top-tier diecast models that not only look great but also stand the test of time. Whether displayed individually or as part of a larger fleet, this collectible offers both visual satisfaction and collectible value.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0763SMLTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0763SMLTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

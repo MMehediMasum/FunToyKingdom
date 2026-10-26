@@ -23,10 +23,10 @@ Fast-paced games like TAPPLE and Taco Cat Goat Cheese Pizza keep the energy high
 
 
 
-## <a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
+## <a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
 
 
 Ideal for groups of friends and family who enjoy interactive and engaging party games, the **Wavelength Party Game – A Mind Reading Party Game** is perfect for those looking to challenge their intuition and communication skills in a fun, social setting. Whether you're hosting a casual get-together or a lively party, this game is designed for players who love to connect and decode each other's thoughts.
@@ -48,10 +48,10 @@ The **Wavelength Party Game** by **CMYK** and manufactured by **Palm Court** boa
 
 At its core, the game challenges players to read each other’s minds by aligning their guesses on a shared spectrum. This feature promotes deep interaction and fosters better understanding among players, enhancing social bonds. The intuitive gameplay combined with the physical dial and card setup provides tactile satisfaction, making every round engaging and memorable for all participants.
 
-## <a href="https://www.amazon.com/dp/B0B3FXMB7Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Taboo Classic Game</a>
+## <a href="https://www.amazon.com/dp/B0B3FXMB7Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Taboo Classic Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B3FXMB7Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Taboo Classic Game, Party Word Guessing Game for Adults and Teens, Board Game for 4+ Players Ages 13 and Up" src="https://m.media-amazon.com/images/I/51Y0lOKvmhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B3FXMB7Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Taboo Classic Game, Party Word Guessing Game for Adults and Teens, Board Game for 4+ Players Ages 13 and Up" src="https://m.media-amazon.com/images/I/51Y0lOKvmhL._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Taboo Classic Game** is ideal for groups of adults and teens aged 13 and up who enjoy lively, interactive party games. Perfect for gatherings of 4 or more players, this game is designed for those who love word-guessing challenges and want to engage in fun, fast-paced social entertainment that tests creativity and communication skills.
@@ -74,10 +74,10 @@ The **Hasbro Gaming Taboo Classic Game** offers a unique twist on traditional wo
 
 Designed with a vibrant, multicolor palette, the game components attract players and keep the energy high during play. The inclusion of a diverse range of words ensures that each round presents a fresh challenge, keeping the game exciting and engaging for repeat sessions. Overall, the **Hasbro Gaming Taboo Classic Game** is a fantastic choice for anyone looking to add an entertaining and intellectually stimulating activity to their social events.
 
-## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
+## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
 
 
-<a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
 
 
 Ideal for trivia enthusiasts and knowledge seekers, **"I should have known that! - A Trivia Game About Things You Oughta Know"** is perfect for those who enjoy testing their general knowledge in a fun and engaging way. This game suits families, friends, and casual gamers looking to challenge themselves and learn interesting facts across various topics.
@@ -99,10 +99,10 @@ The **"I should have known that!"** trivia game is thoughtfully designed to blen
 
 Crafted by **Kylskapspoesi** and **manufactured by Hygge**, this game stands out for its quality materials and attention to detail. The vibrant green color adds a visually appealing touch, while the sturdy build ensures it can withstand frequent use. Whether you're looking to sharpen your mind or simply enjoy a fun trivia night, this game offers both benefits in a compact and stylish package.
 
-## <a href="https://www.amazon.com/dp/B093HBBMPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato Herd Mentality</a>
+## <a href="https://www.amazon.com/dp/B093HBBMPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato Herd Mentality</a>
 
 
-<a href="https://www.amazon.com/dp/B093HBBMPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato Herd Mentality: Udderly Hilarious Board Game for Group Fun | Easy Setup &amp; Play | The Perfect Party Game for 4-20 Players | Includes 20 Extra Exclusive Question Cards" src="https://m.media-amazon.com/images/I/41EMAoyn+0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093HBBMPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato Herd Mentality: Udderly Hilarious Board Game for Group Fun | Easy Setup &amp; Play | The Perfect Party Game for 4-20 Players | Includes 20 Extra Exclusive Question Cards" src="https://m.media-amazon.com/images/I/41EMAoyn+0L._SL500_.jpg"/></a>
 
 
 The **Big Potato Herd Mentality: Udderly Hilarious Board Game** is ideal for anyone looking to inject fun and laughter into group gatherings. Perfect for families, friends, or party hosts seeking an engaging and easy-to-play game that accommodates a wide range of players from **4 to 20**. If you enjoy interactive games that spark conversation and friendly competition, this **party game** is a must-have addition to your collection.
@@ -125,10 +125,10 @@ The **Big Potato Herd Mentality** board game shines with its straightforward rul
 
 Featuring a set of **20 extra exclusive question cards**, this game keeps the experience fresh and engaging, offering new challenges and prompts to keep players guessing. Its lightweight and compact structure means you can easily bring it along to parties, family reunions, or casual hangouts. Overall, this game is a delightful way to break the ice and get everyone involved in a shared experience full of fun and memorable moments.
 
-## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
+## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
 
 
 The **Original TAPPLE** is perfect for families and friends who enjoy fast-paced, interactive games that challenge their quick thinking and vocabulary skills. Ideal for players aged **8 and up**, this game suits groups of **2 to 8 players** looking for a fun, educational activity that can be played in short sessions of about **15-20 minutes**. If you want a lively word game that encourages creativity and quick decision-making, this game is a great choice.
@@ -151,10 +151,10 @@ The **Original TAPPLE** features a vibrant **blue** color and a compact design t
 
 Beyond the fun factor, **TAPPLE** offers educational benefits by encouraging players to expand their vocabulary and sharpen their mental agility. The quick rounds of play foster a lively, competitive atmosphere that keeps everyone engaged. Whether you’re reinforcing learning for younger players or simply looking for a dynamic group activity, this game’s design supports both entertainment and skill development. Manufactured by **USAOpoly**, you can trust the quality and durability of the game components to withstand repeated play.
 
-## <a href="https://www.amazon.com/dp/B07G2VHPRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blank Slate</a>
+## <a href="https://www.amazon.com/dp/B07G2VHPRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blank Slate</a>
 
 
-<a href="https://www.amazon.com/dp/B07G2VHPRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blank Slate - The Game Where Great Minds Think Alike | Fun Family Friendly Word Association Party Game | The Best Choice for Game Night! | Great Family Board Game &amp; Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51T8zbzUu2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G2VHPRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blank Slate - The Game Where Great Minds Think Alike | Fun Family Friendly Word Association Party Game | The Best Choice for Game Night! | Great Family Board Game &amp; Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51T8zbzUu2L._SL500_.jpg"/></a>
 
 
 **Blank Slate - The Game Where Great Minds Think Alike** is ideal for families and friends who enjoy engaging, interactive party games that encourage teamwork and creativity. If you're looking for a **fun, family-friendly word association game** that sparks laughter and connection during game night, this is the perfect choice for you. It suits players of all ages who want a simple yet challenging way to test how well they can think alike with others.
@@ -176,10 +176,10 @@ Beyond the fun factor, **TAPPLE** offers educational benefits by encouraging pla
 
 The game’s compact size and lightweight design make it highly portable, so you can bring the fun wherever you go. Additionally, its focus on collaboration and shared thinking makes it an excellent tool for building connections and understanding among family members and friends. Overall, **Blank Slate** is a top pick for anyone seeking a lively, inclusive board game to brighten up their game nights.
 
-## <a href="https://www.amazon.com/dp/B003BLQG8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spoons Game</a>
+## <a href="https://www.amazon.com/dp/B003BLQG8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spoons Game</a>
 
 
-<a href="https://www.amazon.com/dp/B003BLQG8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spoons in a Case, Card Games for Kids - Spoons Game, Fun Family Games for Kids and Adults, Game Night, Travel Games, 3-6 Players, Ages 7+" src="https://m.media-amazon.com/images/I/41OSBk3kznL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003BLQG8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spoons in a Case, Card Games for Kids - Spoons Game, Fun Family Games for Kids and Adults, Game Night, Travel Games, 3-6 Players, Ages 7+" src="https://m.media-amazon.com/images/I/41OSBk3kznL._SL500_.jpg"/></a>
 
 
 The **Spoons in a Case** card game is perfect for families and friends looking for a lively and engaging activity. Ideal for kids aged 7 and up, as well as adults, this game is designed for 3-6 players and is especially suited for those who enjoy fast-paced, interactive games that can be played during game nights or while traveling. If you're seeking a fun way to bring everyone together and spark some friendly competition, this is an excellent choice.
@@ -202,10 +202,10 @@ The **Spoons in a Case** game combines simplicity with excitement, featuring a s
 
 Manufactured by **PlayMonster LLC**, the game boasts quality craftsmanship and durability, ensuring it withstands enthusiastic play. The **Kids Edition** is thoughtfully tailored to be accessible for younger audiences while still providing enough challenge for adults. This balance makes it a versatile addition to any game collection, promoting social interaction, hand-eye coordination, and lots of laughter among players. Whether you're at home or on the road, this game offers an entertaining way to connect and create lasting memories.
 
-## <a href="https://www.amazon.com/dp/B084D2XQ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hues And Cues</a>
+## <a href="https://www.amazon.com/dp/B084D2XQ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hues And Cues</a>
 
 
-<a href="https://www.amazon.com/dp/B084D2XQ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUES and CUES - Vibrant Color Guessing Board Game for 3-10 Players Ages 8+, Connect Clues and Guess from 480 Color Squares" src="https://m.media-amazon.com/images/I/51T6eBQpNnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084D2XQ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HUES and CUES - Vibrant Color Guessing Board Game for 3-10 Players Ages 8+, Connect Clues and Guess from 480 Color Squares" src="https://m.media-amazon.com/images/I/51T6eBQpNnL._SL500_.jpg"/></a>
 
 
 The **HUES and CUES** board game is ideal for families, friends, and social groups looking for a fun and engaging activity that challenges their color perception and communication skills. Perfect for players aged 8 and above, and accommodating 3-10 participants, this game suits anyone who enjoys vibrant, interactive games that spark creativity and friendly competition. Whether you are hosting a game night or seeking an educational yet entertaining pastime, **HUES and CUES** is designed to bring people together through the fascinating world of colors.
@@ -228,10 +228,10 @@ The **HUES and CUES** game revolves around its 480 vibrant color squares, which 
 
 Additionally, the game's design accommodates a wide range of player counts from 3 up to 10, making it versatile for small family gatherings or larger social events. Its compact dimensions and manageable weight allow for easy storage and portability, so you can take it along for travel or parties. Made by the reputable brand **USAOPOLY**, the game assures durability and quality materials, ensuring that it can withstand regular use and provide lasting entertainment.
 
-## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
+## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
 
 
-<a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
 
 
 The **Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game** is perfect for anyone looking to add excitement and laughter to their **family and group game nights**. Ideal for **kids, teens, adults, and families**, this game is designed for 2 to 8 players, making it a versatile choice whether you’re hosting a small gathering or a larger party. If you want a fast-paced, easy-to-learn game that keeps everyone engaged, this is the perfect pick.
@@ -254,10 +254,10 @@ The **Taco Cat Goat Cheese Pizza** card game features a colorful, compact deck d
 
 Beyond its fun factor, the game promotes quick thinking and sharp reflexes, which helps improve cognitive skills in an enjoyable way. Its design supports 2 to 8 players, making it flexible for different group sizes, whether a family of four or a larger party. The bright, multi-color cards also add a visually appealing element that keeps players engaged throughout each round. Overall, this game is a fantastic addition to any game night, combining simplicity, speed, and social interaction for endless entertainment.
 
-## <a href="https://www.amazon.com/dp/B014Q1XX9S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Codenames Boardgame</a>
+## <a href="https://www.amazon.com/dp/B014Q1XX9S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Codenames Boardgame</a>
 
 
-<a href="https://www.amazon.com/dp/B014Q1XX9S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CGE Czech Games Edition Codenames Boardgame" src="https://m.media-amazon.com/images/I/41yaYl-2d0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B014Q1XX9S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CGE Czech Games Edition Codenames Boardgame" src="https://m.media-amazon.com/images/I/41yaYl-2d0L._SL500_.jpg"/></a>
 
 
 The **CGE Czech Games Edition Codenames Boardgame** is ideal for groups of friends, families, or coworkers who enjoy engaging in word-based party games that challenge their wit and creativity. If you’re looking for a fun, interactive game that encourages teamwork and sharp thinking, this board game is a perfect choice.

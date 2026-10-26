@@ -20,10 +20,10 @@ Products like Hill's Science Diet and Royal Canin provide tailored nutrition. He
 
 
 
-## <a href="https://www.amazon.com/dp/B003CL3PTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hill's Science Diet Small &amp; Mini Adult 1-6 Small &amp; Mini Breeds Premium Nutrition Dry Dog Food Chicken &amp; Brown Rice</a>
+## <a href="https://www.amazon.com/dp/B003CL3PTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hill's Science Diet Small &amp; Mini Adult 1-6 Small &amp; Mini Breeds Premium Nutrition Dry Dog Food Chicken &amp; Brown Rice</a>
 
 
-<a href="https://www.amazon.com/dp/B003CL3PTM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hill's Science Diet Small &amp; Mini, Adult 1-6, Small &amp; Mini Breeds Premium Nutrition, Dry Dog Food, Chicken &amp; Brown Rice, 4.5 lb Bag" src="https://m.media-amazon.com/images/I/41T3dj5I1wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003CL3PTM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hill's Science Diet Small &amp; Mini, Adult 1-6, Small &amp; Mini Breeds Premium Nutrition, Dry Dog Food, Chicken &amp; Brown Rice, 4.5 lb Bag" src="https://m.media-amazon.com/images/I/41T3dj5I1wL._SL500_.jpg"/></a>
 
 
 Ideal for owners of small and mini dog breeds aged 1 to 6 years, the **Hill's Science Diet Small & Mini, Adult 1-6** is specially formulated to meet the unique nutritional needs of smaller dogs. If you're looking for a premium dry dog food that supports overall health and vitality in your petite canine companion, this product is an excellent choice.
@@ -46,10 +46,10 @@ The **Hill's Science Diet Small & Mini Adult Dog Food** is thoughtfully crafted 
 
 Additionally, this dog food supports overall well-being by including essential vitamins and minerals that help maintain a strong immune system and healthy skin and coat. The product's precise formulation ensures that small and mini breeds receive the right balance of nutrients needed to thrive during their adult years, making it a reliable choice for conscientious pet owners.
 
-## <a href="https://www.amazon.com/dp/B003M5ZDGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Adult Dog Food</a>
+## <a href="https://www.amazon.com/dp/B003M5ZDGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Adult Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B003M5ZDGG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food, 10 lb Bag" src="https://m.media-amazon.com/images/I/41MbcO8v+WL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003M5ZDGG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food, 10 lb Bag" src="https://m.media-amazon.com/images/I/41MbcO8v+WL._SL500_.jpg"/></a>
 
 
 The **Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food** is ideal for owners of adult Miniature Schnauzers who want a tailored nutrition plan that supports the unique health needs of this breed. This product is perfect for those seeking a high-quality, breed-specific dog food that promotes overall wellness and addresses breed-related concerns such as skin sensitivity and digestion.
@@ -73,10 +73,10 @@ The **Royal Canin Miniature Schnauzer Adult Breed Specific Dry Dog Food** featur
 
 This dog food also benefits owners by offering an appropriately sized kibble that makes eating easier and more enjoyable for Miniature Schnauzers. The absence of artificial colors aligns with health-conscious pet owners’ preferences, promoting a more natural diet. Overall, this product provides balanced nutrition that helps sustain the vitality and longevity of adult Miniature Schnauzers, making it a worthwhile investment for dedicated pet parents.
 
-## <a href="https://www.amazon.com/dp/B00JN9LR9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Puppy Dry Dog Food</a>
+## <a href="https://www.amazon.com/dp/B00JN9LR9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royal Canin Miniature Schnauzer Puppy Dry Dog Food</a>
 
 
-<a href="https://www.amazon.com/dp/B00JN9LR9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food, 2.5 lb bag" src="https://m.media-amazon.com/images/I/41WA3Y+HTrL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00JN9LR9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food, 2.5 lb bag" src="https://m.media-amazon.com/images/I/41WA3Y+HTrL._SL500_.jpg"/></a>
 
 
 The **Royal Canin Miniature Schnauzer Puppy Breed Specific Dry Dog Food** is ideal for owners of **Miniature Schnauzer puppies** who want a tailored nutrition solution that supports their breed’s unique needs. This product is perfect for those seeking a scientifically formulated diet to promote healthy growth, coat condition, and digestion specifically for this breed.
@@ -99,10 +99,10 @@ The **Royal Canin Miniature Schnauzer Puppy Dry Dog Food** is crafted with a uni
 
 Moreover, this dog food promotes a balanced digestive system by including prebiotics and highly digestible proteins, which help improve stool quality and nutrient uptake. The inclusion of antioxidants and essential vitamins strengthens the puppy’s natural defenses, fostering a robust immune system during their critical early months. Investing in this breed-specific dry food helps ensure that your Miniature Schnauzer puppy receives targeted nutrition for a healthy and happy start in life.
 
-## <a href="https://www.amazon.com/dp/B00OBDQBOQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Multivitamin For Dogs</a>
+## <a href="https://www.amazon.com/dp/B00OBDQBOQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Multivitamin For Dogs</a>
 
 
-<a href="https://www.amazon.com/dp/B00OBDQBOQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Multivitamin for Dogs - Vet Recommended Daily Supplement - Bacon Flavored - 60 Soft Chews" src="https://m.media-amazon.com/images/I/51b9UcEo8zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OBDQBOQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Multivitamin for Dogs - Vet Recommended Daily Supplement - Bacon Flavored - 60 Soft Chews" src="https://m.media-amazon.com/images/I/51b9UcEo8zL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Miniature Schnauzer Multivitamin for Dogs** is ideal for owners of Miniature Schnauzers who want to support their pet's overall health with a daily supplement. This product is perfect for dog parents looking to enhance their furry friend's immune system, skin, coat, and joint health with a vet-recommended formula that is easy to administer and tasty.
@@ -124,10 +124,10 @@ The **Healthy Breeds Miniature Schnauzer Multivitamin** is designed with a compr
 
 Additionally, the soft chew format and appealing **bacon flavor** make it easy to give your dog their daily vitamins without hassle or resistance. The compact size and moderate weight of the packaging ensure it fits conveniently in your pet care supplies. Overall, this product offers a practical and effective way to maintain your Miniature Schnauzer’s health and vitality on a daily basis.
 
-## <a href="https://www.amazon.com/dp/B01GKE1MU6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Bright Whitening Shampoo</a>
+## <a href="https://www.amazon.com/dp/B01GKE1MU6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Bright Whitening Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B01GKE1MU6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Bright Whitening Shampoo 12 oz" src="https://m.media-amazon.com/images/I/412m79piXcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01GKE1MU6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Bright Whitening Shampoo 12 oz" src="https://m.media-amazon.com/images/I/412m79piXcL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Miniature Schnauzer Bright Whitening Shampoo 12 oz.** is ideal for pet owners who want to maintain their Miniature Schnauzer’s coat in pristine condition. This product is perfect for those seeking a specialized shampoo that enhances the natural brightness and whiteness of their dog’s fur, making it suitable for owners focused on breed-specific grooming needs.
@@ -150,10 +150,10 @@ The **Healthy Breeds Miniature Schnauzer Bright Whitening Shampoo** offers a uni
 
 In addition to its whitening properties, the shampoo’s compact dimensions (height: 2.5 inches, width: 2.5 inches, length: 8.2 inches) make it easy to store and handle during grooming sessions. The product’s weight of only 0.9 pounds ensures a comfortable grip, making bath time more efficient and less cumbersome for pet owners. Overall, this shampoo is an excellent choice for anyone committed to maintaining the classic look of their Miniature Schnauzer’s coat.
 
-## <a href="https://www.amazon.com/dp/B0CNM8915H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Petite Paws Balls For Aggressive Chewers</a>
+## <a href="https://www.amazon.com/dp/B0CNM8915H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Petite Paws Balls For Aggressive Chewers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNM8915H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Petite Paws Balls for Aggressive Chewers - Small Dogs and Puppies - 1.5 Inch - 4 Pack - Indestructible Rubber Dog Chew Toys Bulk for Miniature Toy Breeds" src="https://m.media-amazon.com/images/I/41z+6q-B7nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNM8915H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Petite Paws Balls for Aggressive Chewers - Small Dogs and Puppies - 1.5 Inch - 4 Pack - Indestructible Rubber Dog Chew Toys Bulk for Miniature Toy Breeds" src="https://m.media-amazon.com/images/I/41z+6q-B7nL._SL500_.jpg"/></a>
 
 
 The **Petite Paws Balls for Aggressive Chewers** are ideal for owners of **small dogs and puppies** who need durable chew toys that can withstand intense chewing. If you have a miniature or toy breed dog that tends to chew aggressively, these **1.5 inch indestructible rubber balls** provide a safe and long-lasting solution to keep your pet entertained and satisfied.
@@ -175,10 +175,10 @@ Crafted by **BundleBee** under the **Petite Paws** brand, these chew balls are s
 
 Beyond durability, the rubber material provides a satisfying texture that promotes healthy chewing, which is essential for dental health and stress relief. The bulk pack of four balls offers excellent value and ensures you always have a backup toy ready. Overall, these chew balls combine functionality and practicality to deliver a pet-friendly solution for owners of small, energetic chewers.
 
-## <a href="https://www.amazon.com/dp/B00OBDODVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Omega Hp Fatty Acid Skin And Coat Support Soft Chews</a>
+## <a href="https://www.amazon.com/dp/B00OBDODVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Omega Hp Fatty Acid Skin And Coat Support Soft Chews</a>
 
 
-<a href="https://www.amazon.com/dp/B00OBDODVY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Omega HP Fatty Acid Skin and Coat Support Soft Chews 60 Count" src="https://m.media-amazon.com/images/I/51wy-w+iJzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OBDODVY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Omega HP Fatty Acid Skin and Coat Support Soft Chews 60 Count" src="https://m.media-amazon.com/images/I/51wy-w+iJzL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Miniature Schnauzer Omega HP Fatty Acid Skin and Coat Support Soft Chews 60 Count** are ideal for **Miniature Schnauzer owners** seeking to improve their pet's **skin health** and **coat condition**. If your dog suffers from dry, itchy skin or dull fur, these soft chews provide a targeted solution to maintain a **healthy, shiny coat** through essential **omega fatty acids**.
@@ -201,10 +201,10 @@ The **Healthy Breeds Miniature Schnauzer Omega HP Fatty Acid Soft Chews** are cr
 
 Additionally, these soft chews are easy to feed and palatable, making it effortless for pet owners to maintain their dog's daily supplement regimen. The carefully measured dimensions and lightweight packaging (Height: 3.75 Inches, Width: 4.0 Inches, Length: 3.75 Inches, Weight: 0.72 pounds) ensure convenient storage and portability. Overall, this product supports the long-term well-being of your Miniature Schnauzer by enhancing their natural beauty and comfort.
 
-## <a href="https://www.amazon.com/dp/B077Y68NLW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Chamomile Soothing Dog Shampoo</a>
+## <a href="https://www.amazon.com/dp/B077Y68NLW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Miniature Schnauzer Chamomile Soothing Dog Shampoo</a>
 
 
-<a href="https://www.amazon.com/dp/B077Y68NLW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Chamomile Soothing Dog Shampoo 8 oz" src="https://m.media-amazon.com/images/I/41Lfu81ftYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Y68NLW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Miniature Schnauzer Chamomile Soothing Dog Shampoo 8 oz" src="https://m.media-amazon.com/images/I/41Lfu81ftYL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Miniature Schnauzer Chamomile Soothing Dog Shampoo 8 oz.** is ideal for pet owners who want a gentle yet effective grooming solution specifically tailored for their **Miniature Schnauzer**. This product is perfect for those looking to maintain their dog's coat health while providing soothing care, especially for dogs with sensitive skin or prone to irritation.
@@ -226,10 +226,10 @@ The **Healthy Breeds Miniature Schnauzer Chamomile Soothing Dog Shampoo** stands
 
 In addition to its calming properties, the shampoo's compact dimensions (Height: 1.88 inches, Width: 1.88 inches, Length: 7.38 inches) make it an excellent choice for pet owners who prefer a manageable and travel-friendly grooming product. Backed by the trusted **Healthy Breeds** manufacturer, this shampoo ensures both safety and effectiveness, making it a valuable addition to your pet care routine.
 
-## <a href="https://www.amazon.com/dp/B0CMW7B893?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pet Republique Small Breed Toothbrush Kit For Dogs &amp; Cats</a>
+## <a href="https://www.amazon.com/dp/B0CMW7B893?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pet Republique Small Breed Toothbrush Kit For Dogs &amp; Cats</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMW7B893?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pet Republique Small Breed Toothbrush Kit for Dogs &amp; Cats 1/4' Pointed, 1/4' Flat, 3/8' Regular Brushes (3-Piece) - Suitable for Yorkie, Chihuahua &amp; Miniature Breeds" src="https://m.media-amazon.com/images/I/31acu3bCcqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMW7B893?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pet Republique Small Breed Toothbrush Kit for Dogs &amp; Cats 1/4' Pointed, 1/4' Flat, 3/8' Regular Brushes (3-Piece) - Suitable for Yorkie, Chihuahua &amp; Miniature Breeds" src="https://m.media-amazon.com/images/I/31acu3bCcqL._SL500_.jpg"/></a>
 
 
 The **Pet Republique Small Breed Toothbrush Kit** is ideal for pet owners of small dogs and cats, especially breeds like **Yorkies, Chihuahuas, and other miniature breeds**. If you are looking to maintain your pet's oral hygiene with a tailored solution that fits their tiny mouths comfortably, this kit is designed specifically for you. It is perfect for those who want an easy-to-use, effective brushing set to ensure their small pets have healthy teeth and gums.
@@ -251,10 +251,10 @@ The **Pet Republique Small Breed Toothbrush Kit** offers a versatile and effecti
 
 Additionally, the kit’s bright color options not only make the brushes visually appealing but also help keep track of each brush’s use, promoting hygiene by preventing cross-contamination. Being manufactured by **Pet Republique**, the kit assures quality and durability, giving pet owners confidence in their purchase. Overall, this toothbrush kit is a practical and thoughtful solution for anyone committed to keeping their small breed pets’ teeth in top condition.
 
-## <a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jgocot Small Dog Toothbrush</a>
+## <a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jgocot Small Dog Toothbrush</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JGocot Small Dog Toothbrush,|Micro Brush Head|Nano Bristle|Soft Pet Toothbrush for Sensitive Gum&amp;Teeth, Dog Teeth Cleaning Kit for Puppy, Kitten, Cats&amp;Miniature Toy Size Dogs" src="https://m.media-amazon.com/images/I/41gibRcouDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQYN1WP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JGocot Small Dog Toothbrush,|Micro Brush Head|Nano Bristle|Soft Pet Toothbrush for Sensitive Gum&amp;Teeth, Dog Teeth Cleaning Kit for Puppy, Kitten, Cats&amp;Miniature Toy Size Dogs" src="https://m.media-amazon.com/images/I/41gibRcouDL._SL500_.jpg"/></a>
 
 
 The **JGocot Small Dog Toothbrush** is perfect for pet owners seeking a gentle yet effective dental care solution for their **puppies, kittens, cats,** and **miniature toy size dogs**. Ideal for those who want to maintain their pet’s oral hygiene with a brush specifically designed for **sensitive gums and teeth**, this toothbrush ensures a comfortable and thorough cleaning experience.

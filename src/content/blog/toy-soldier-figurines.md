@@ -23,10 +23,10 @@ Kids can create their own battle scenarios, enhancing their creativity and strat
 
 
 
-## <a href="https://www.amazon.com/dp/B07PMYKXY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Us Army Men And Swat Team Toy Soldiers Action Figures</a>
+## <a href="https://www.amazon.com/dp/B07PMYKXY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Us Army Men And Swat Team Toy Soldiers Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B07PMYKXY8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="US Army Men and SWAT Team Toy Soldiers Action Figures with Military Weapons Accessories for Kids Boys Girls,12Pcs" src="https://m.media-amazon.com/images/I/51ccNKw9WdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07PMYKXY8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="US Army Men and SWAT Team Toy Soldiers Action Figures with Military Weapons Accessories for Kids Boys Girls,12Pcs" src="https://m.media-amazon.com/images/I/51ccNKw9WdL._SL500_.jpg"/></a>
 
 
 The **US Army Men and SWAT Team Toy Soldiers Action Figures** are perfect for **kids**, both **boys and girls**, who have an interest in military-themed playsets and imaginative role-playing. Ideal for children who enjoy action figures and want to engage in creative storytelling, these toys encourage active play and help develop fine motor skills and strategic thinking. Parents looking for durable, safe, and engaging toys that inspire adventure will find this set an excellent choice.
@@ -49,10 +49,10 @@ These **US Army Men and SWAT Team Toy Soldiers** stand out because of their deta
 
 The compact size and lightweight nature of the figures make them highly portable and easy to use, whether at home or on the go. Additionally, the set’s durable construction ensures that it can withstand active play sessions, making it a reliable choice for parents. Overall, this toy set offers a great combination of entertainment, education, and quality, making it a valuable addition to any child’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B00362TVN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U. S. Toy Green Army Men Toy Soldiers Set</a>
+## <a href="https://www.amazon.com/dp/B00362TVN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">U. S. Toy Green Army Men Toy Soldiers Set</a>
 
 
-<a href="https://www.amazon.com/dp/B00362TVN6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U. S. Toy Green Army Men Toy Soldiers Set, Classic Military Action Figures for Kids, Imaginative Play, Party Favors, and Collectibles – 36 Piece, Toddler Toys for 3 Years &amp; Up" src="https://m.media-amazon.com/images/I/51VINdMqWRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00362TVN6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="U. S. Toy Green Army Men Toy Soldiers Set, Classic Military Action Figures for Kids, Imaginative Play, Party Favors, and Collectibles – 36 Piece, Toddler Toys for 3 Years &amp; Up" src="https://m.media-amazon.com/images/I/51VINdMqWRL._SL500_.jpg"/></a>
 
 
 Ideal for young children aged 3 years and up, the **U. S. Toy Green Army Men Toy Soldiers Set** is perfect for kids who enjoy imaginative play, storytelling, and action-packed adventures. Parents and gift buyers looking for classic, durable, and engaging toddler toys will find this 36-piece set an excellent choice for encouraging creativity and motor skills development.
@@ -74,10 +74,10 @@ The **U. S. Toy Green Army Men Toy Soldiers Set** offers a timeless play experie
 
 Additionally, the uniform green color promotes focus on the figures’ shapes and roles, encouraging children to invent unique stories and scenarios that enhance cognitive development. Whether used as party favors or for individual play, this set provides hours of entertainment while subtly supporting important early learning skills, making it a valuable addition to any toy collection.
 
-## <a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haptime Classic Toy Soldiers Set</a>
+## <a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haptime Classic Toy Soldiers Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAPTIME Classic Toy Soldiers Set (50 pcs), Green Army Men Action Figures, Plastic Military Toys for Boys- Inspire Creative Play and Learning Adventures for Kids" src="https://m.media-amazon.com/images/I/51wxEsk9VwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNPXPHPN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAPTIME Classic Toy Soldiers Set (50 pcs), Green Army Men Action Figures, Plastic Military Toys for Boys- Inspire Creative Play and Learning Adventures for Kids" src="https://m.media-amazon.com/images/I/51wxEsk9VwL._SL500_.jpg"/></a>
 
 
 The **HAPTIME Classic Toy Soldiers Set** is perfect for parents and gift-givers looking to encourage imaginative play and storytelling in young children. Ideal for boys who enjoy action figures and military-themed toys, this set is designed to inspire creativity and enhance learning through hands-on play. If you want to provide kids with a fun way to develop fine motor skills and strategic thinking, this set is an excellent choice.
@@ -100,10 +100,10 @@ The **HAPTIME Classic Toy Soldiers Set** offers a comprehensive collection of 50
 
 Beyond just being a fun toy, these figures promote valuable developmental benefits. Playing with the set encourages children to build narratives, enhancing their storytelling and social skills. Additionally, handling the small figures helps improve hand-eye coordination and fine motor skills. The set’s design also supports educational play, allowing parents and educators to introduce basic concepts of teamwork, strategy, and history in an entertaining way.
 
-## <a href="https://www.amazon.com/dp/B0BSH8DVTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Mqstarsrise Army Men Soldiers Toys </a>
+## <a href="https://www.amazon.com/dp/B0BSH8DVTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Mqstarsrise Army Men Soldiers Toys </a>
 
 
-<a href="https://www.amazon.com/dp/B0BSH8DVTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MQSTARSRISE Army Men Soldiers Toys for Boys Age 4-7,Army Men Action Figures with Weapons,Military Playset Action Figures Soldier Toy Set Easter Gift for Boys" src="https://m.media-amazon.com/images/I/51C1cHiGtgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BSH8DVTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MQSTARSRISE Army Men Soldiers Toys for Boys Age 4-7,Army Men Action Figures with Weapons,Military Playset Action Figures Soldier Toy Set Easter Gift for Boys" src="https://m.media-amazon.com/images/I/51C1cHiGtgL._SL500_.jpg"/></a>
 
 
 The **MQSTARSRISE Army Men Soldiers Toys** are perfect for young boys aged 4-7 who have a keen interest in imaginative military play. This set is ideal for parents looking to encourage creativity, role-playing, and fine motor skills development in their children through engaging and realistic action figures. It also makes a thoughtful **Easter gift** or birthday present for kids who love action-packed adventures.
@@ -126,10 +126,10 @@ The **MQSTARSRISE Army Men Soldiers Toys** feature a realistic design that captu
 
 Beyond entertainment, these action figures encourage the development of fine motor skills and imaginative storytelling. Kids can create their own missions and scenarios, which helps boost creativity and problem-solving abilities. Additionally, playing with these figures alongside friends or siblings fosters social skills and teamwork. Overall, this toy set offers a fun and educational way to engage young minds in active play.
 
-## <a href="https://www.amazon.com/dp/B07TYT3WPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Life Army Men Toys</a>
+## <a href="https://www.amazon.com/dp/B07TYT3WPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Life Army Men Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B07TYT3WPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOY Life 95 PCS Army Men Toys, Toy Soldiers for Boys, Plastic Action Figures, Soldier Guys Military Playset, Gift for Boy" src="https://m.media-amazon.com/images/I/61JxptYp0MS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TYT3WPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOY Life 95 PCS Army Men Toys, Toy Soldiers for Boys, Plastic Action Figures, Soldier Guys Military Playset, Gift for Boy" src="https://m.media-amazon.com/images/I/61JxptYp0MS._SL500_.jpg"/></a>
 
 
 The **TOY Life 95 PCS Army Men Toys** set is ideal for young boys who enjoy imaginative play and military-themed adventures. It is perfect for parents and gift-givers looking to inspire creativity and role-playing in children, especially those fascinated by action figures and army soldiers. This comprehensive playset encourages strategic thinking and storytelling, making it a great choice for kids who love hands-on fun.
@@ -151,10 +151,10 @@ The **TOY Life Army Men Toys** set features a large assortment of 95 pieces, inc
 
 Beyond just fun, this playset promotes important developmental skills such as strategic thinking, problem-solving, and cooperation when kids play together. The durable plastic construction ensures safety and longevity, making it a reliable gift option for birthdays or holidays. Overall, the **TOY Life 95 PCS Army Men Toys** is a comprehensive and engaging military playset that will captivate young boys and spark their imagination.
 
-## <a href="https://www.amazon.com/dp/B07Q16QFF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haptime Green Toy Soldiers</a>
+## <a href="https://www.amazon.com/dp/B07Q16QFF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haptime Green Toy Soldiers</a>
 
 
-<a href="https://www.amazon.com/dp/B07Q16QFF4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAPTIME 100-Piece Green Toy Soldiers - 12 Poses, Detailed and Balanced Mini Army Men - Perfect for Pretend Play, Educational Projects, Cake Decorations, and Military-Themed Parties - 1 Inches Tall" src="https://m.media-amazon.com/images/I/51XLxAFzRQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Q16QFF4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAPTIME 100-Piece Green Toy Soldiers - 12 Poses, Detailed and Balanced Mini Army Men - Perfect for Pretend Play, Educational Projects, Cake Decorations, and Military-Themed Parties - 1 Inches Tall" src="https://m.media-amazon.com/images/I/51XLxAFzRQL._SL500_.jpg"/></a>
 
 
 The **HAPTIME 100-Piece Green Toy Soldiers** set is ideal for children and hobbyists who enjoy imaginative play, educational projects, or military-themed activities. These detailed and balanced mini army men are perfect for parents looking to encourage creativity and learning in their kids, as well as for event planners needing unique decorations for cake toppers or themed parties. Collectors and enthusiasts of military miniatures will also appreciate the variety and realism offered in this set.
@@ -177,10 +177,10 @@ The **HAPTIME 100-Piece Green Toy Soldiers** set offers an impressive collection
 
 Additionally, the lightweight green plastic material provides durability while remaining safe for handling by children over the recommended age. The uniform green color gives a classic military look which is perfect for themed activities and events. These features combine to make the set not only fun but also educational, helping users learn about teamwork, strategy, and history through engaging play.
 
-## <a href="https://www.amazon.com/dp/B0CN4DRZR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amor Present Army Toys Military Set</a>
+## <a href="https://www.amazon.com/dp/B0CN4DRZR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amor Present Army Toys Military Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CN4DRZR1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMOR PRESENT 120PCS Army Toys Military Set, Army Men Soldier Playset Plastic Toy Soldiers Figures Military Action Figure for Adult Kids Boys Girls" src="https://m.media-amazon.com/images/I/61VLo-bvKQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CN4DRZR1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMOR PRESENT 120PCS Army Toys Military Set, Army Men Soldier Playset Plastic Toy Soldiers Figures Military Action Figure for Adult Kids Boys Girls" src="https://m.media-amazon.com/images/I/61VLo-bvKQL._SL500_.jpg"/></a>
 
 
 The **AMOR PRESENT 120PCS Army Toys Military Set** is ideal for children and adults who have an interest in military-themed play or collectible action figures. This set is perfect for boys and girls who enjoy imaginative play, as well as hobbyists looking to expand their collection of detailed **plastic toy soldiers**. Its variety and realistic design make it suitable for both casual play and display purposes.
@@ -202,10 +202,10 @@ The **AMOR PRESENT Army Men Soldier Playset** stands out with its extensive coll
 
 Beyond play, this set offers value for collectors and enthusiasts who appreciate the authenticity and variety of military action figures. The realistic poses and multi-colored finish add to the overall aesthetic, making it an excellent display piece as well. Whether used for educational purposes or recreational fun, this set delivers both entertainment and engagement for a diverse audience.
 
-## <a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amor Present 307 Pcs Army Men Military Playset</a>
+## <a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amor Present 307 Pcs Army Men Military Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMOR PRESENT 307 PCS Army Men Military Playset, Army Toys Soldier Playset Plastic Toy Soldiers Figures and Accessories with Vehicles, Aircraft, Tanks, Missiles" src="https://m.media-amazon.com/images/I/61P3CcnbSlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1RZWMXY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMOR PRESENT 307 PCS Army Men Military Playset, Army Toys Soldier Playset Plastic Toy Soldiers Figures and Accessories with Vehicles, Aircraft, Tanks, Missiles" src="https://m.media-amazon.com/images/I/61P3CcnbSlL._SL500_.jpg"/></a>
 
 
 The **AMOR PRESENT 307 PCS Army Men Military Playset** is ideal for children and collectors who have a passion for military-themed toys and imaginative play. This set is perfect for kids who enjoy role-playing as soldiers and strategists, as well as hobbyists looking to expand their collection of detailed plastic toy soldiers and military accessories.
@@ -228,10 +228,10 @@ The **AMOR PRESENT 307 PCS Army Men Military Playset** offers an extensive colle
 
 Designed with high-quality **plastic materials** and authentic military colors, this playset is both durable and visually appealing. Its size and weight make it easy for kids to handle while also being convenient for storage. Overall, this set promotes creativity, strategic gameplay, and hands-on interaction, making it a valuable addition to any toy collection.
 
-## <a href="https://www.amazon.com/dp/B0CNSMGG63?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovestown 200pcs Army Men Toy Soldiers</a>
+## <a href="https://www.amazon.com/dp/B0CNSMGG63?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovestown 200pcs Army Men Toy Soldiers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNSMGG63?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LovesTown 200PCS Army Men Toy Soldiers, Green Soldier Figures Plastic Army Men Playset 10 Poses for Boys Birthday Gift" src="https://m.media-amazon.com/images/I/51DwsS+WnbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNSMGG63?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LovesTown 200PCS Army Men Toy Soldiers, Green Soldier Figures Plastic Army Men Playset 10 Poses for Boys Birthday Gift" src="https://m.media-amazon.com/images/I/51DwsS+WnbL._SL500_.jpg"/></a>
 
 
 The **LovesTown 200PCS Army Men Toy Soldiers** set is ideal for young boys who enjoy imaginative play and adventure-themed toys. Perfect as a birthday gift, this playset appeals to children who love creating action-packed scenarios with detailed **green soldier figures** in various poses, enhancing creativity and storytelling skills.
@@ -252,10 +252,10 @@ This **plastic army men playset** features 200 meticulously crafted soldiers, ea
 
 The **compact dimensions** and lightweight nature of the set make it convenient for travel and storage, encouraging play both at home and on the go. Additionally, the uniform green color, a classic choice for army toys, fosters a sense of authenticity and tradition that many young enthusiasts appreciate. Overall, this playset provides hours of imaginative fun while promoting fine motor skills and collaborative play among kids.
 
-## <a href="https://www.amazon.com/dp/B0BQSJWQTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Entervending Army Men Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0BQSJWQTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Entervending Army Men Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0BQSJWQTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Entervending Army Men Action Figure - Small Soldiers Toys for Kids - 24 Pcs Army Soldier Toy Playset - Military Toys - Toy Army Men - Army Party Decorations" src="https://m.media-amazon.com/images/I/31151zZTCCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BQSJWQTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Entervending Army Men Action Figure - Small Soldiers Toys for Kids - 24 Pcs Army Soldier Toy Playset - Military Toys - Toy Army Men - Army Party Decorations" src="https://m.media-amazon.com/images/I/31151zZTCCL._SL500_.jpg"/></a>
 
 
 The **Entervending Army Men Action Figure** set is perfect for parents and gift-givers looking to inspire imaginative play in children who love military-themed toys. Ideal for kids who enjoy creating adventurous battle scenes and engaging in role-play, this **24-piece army soldier toy playset** offers hours of fun and creativity. It is also a great choice for party planners seeking unique **army party decorations** that double as entertaining favors.

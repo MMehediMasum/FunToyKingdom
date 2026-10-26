@@ -23,10 +23,10 @@ Pen’s Spiky Sensory Rings provide discreet relief anywhere. Sensory picking pa
 
 
 
-## <a href="https://www.amazon.com/dp/B0FBMKDT17?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Little Ouchies Pain Fidget Toy</a>
+## <a href="https://www.amazon.com/dp/B0FBMKDT17?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Little Ouchies Pain Fidget Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBMKDT17?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZNZRHXL 4PCS Little Ouchies Pain Fidget Toy - Discreet Silent Stress Relief for Pressure, Perfect for Anxiety, Focus &amp; Skin Picking - Portable Fidget Toys for Office,Travel (4 Pack-A)" src="https://m.media-amazon.com/images/I/510Kcs7W-lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBMKDT17?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZNZRHXL 4PCS Little Ouchies Pain Fidget Toy - Discreet Silent Stress Relief for Pressure, Perfect for Anxiety, Focus &amp; Skin Picking - Portable Fidget Toys for Office,Travel (4 Pack-A)" src="https://m.media-amazon.com/images/I/510Kcs7W-lL._SL500_.jpg"/></a>
 
 
 The **ZNZRHXL 4PCS Little Ouchies Pain Fidget Toy** is ideal for individuals seeking a discreet and effective way to manage **stress, anxiety, and focus challenges**. Whether you are an office worker, student, or traveler, these **portable fidget toys** offer a silent and convenient solution to channel nervous energy and improve concentration without drawing attention. They are especially beneficial for those dealing with **skin picking or sensory processing needs**.
@@ -49,10 +49,10 @@ The **ZNZRHXL 4PCS Little Ouchies Pain Fidget Toy** features a compact dimension
 
 Crafted by the reliable **ZNZRHXL brand and manufacturer**, these fidget toys are designed with durability in mind, ensuring long-lasting use even with frequent handling. Their portability and effectiveness in reducing anxiety and improving focus make them a practical choice for anyone looking to enhance their mental well-being throughout the day. The toys also serve as a constructive alternative for those struggling with skin picking, helping to redirect impulses to a safer, less harmful activity.
 
-## <a href="https://www.amazon.com/dp/B08D3VSRFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Pen Spiky Sensory Rings</a>
+## <a href="https://www.amazon.com/dp/B08D3VSRFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Pen Spiky Sensory Rings</a>
 
 
-<a href="https://www.amazon.com/dp/B08D3VSRFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Pen- Spiky Sensory Rings, 10 Pack, Stress Relief Fidget Sensory Toys, Fidget Rings, Fidget Ring for Anxiety, Stress Relief Rings, Massager for Fidget ADHD Autism, Back to School Supplies" src="https://m.media-amazon.com/images/I/51xXLjzeSvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08D3VSRFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Pen- Spiky Sensory Rings, 10 Pack, Stress Relief Fidget Sensory Toys, Fidget Rings, Fidget Ring for Anxiety, Stress Relief Rings, Massager for Fidget ADHD Autism, Back to School Supplies" src="https://m.media-amazon.com/images/I/51xXLjzeSvL._SL500_.jpg"/></a>
 
 
 The **Mr. Pen Spiky Sensory Rings, 10 Pack**, are ideal for individuals seeking effective **stress relief** and improved focus. These **fidget sensory toys** are perfect for people with **anxiety, ADHD, or autism**, as well as students and professionals who need a discreet way to stay calm and attentive throughout the day. If you are looking for a versatile and portable tool to help manage stress and sensory needs, this pack is an excellent choice.
@@ -75,10 +75,10 @@ Each **fidget ring** in this 10-pack by **Mr. Pen** features a unique spiky text
 
 The variety of **jewel tones** adds an aesthetic appeal that can also serve as a visual distraction to aid concentration. These rings function not only as **stress relief toys** but also as effective massagers for fingers, promoting relaxation and improved circulation. Overall, the **Mr. Pen Spiky Sensory Rings** combine practicality with sensory benefits, making them a reliable choice for managing anxiety and enhancing focus in daily life.
 
-## <a href="https://www.amazon.com/dp/B0D9NBRSM8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Skin Picking Fidget Toys</a>
+## <a href="https://www.amazon.com/dp/B0D9NBRSM8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3pcs Skin Picking Fidget Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9NBRSM8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Skin Picking Fidget Toys, Picking Pad, Sensory Toys for Skin Picking, Portable Fidget Toy for Kids &amp; Adult, Christmas, Halloween, Party Favors, Prizes for Kids, School Supplies (6CM/2.93IN)" src="https://m.media-amazon.com/images/I/518RNwIrPML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9NBRSM8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3Pcs Skin Picking Fidget Toys, Picking Pad, Sensory Toys for Skin Picking, Portable Fidget Toy for Kids &amp; Adult, Christmas, Halloween, Party Favors, Prizes for Kids, School Supplies (6CM/2.93IN)" src="https://m.media-amazon.com/images/I/518RNwIrPML._SL500_.jpg"/></a>
 
 
 The **3Pcs Skin Picking Fidget Toys** are ideal for individuals who struggle with habits like skin picking or those who need a discreet and portable way to manage anxiety and stress. Perfect for both **kids and adults**, these sensory toys serve as effective tools for improving focus and calming restless hands, making them a great choice for students, office workers, and anyone seeking a tactile outlet.
@@ -101,10 +101,10 @@ The **3Pcs Skin Picking Fidget Toys** come in a convenient set of three, each me
 
 Beyond their primary use as a tool to manage skin picking, these fidget toys also double as sensory aids to stimulate touch and improve concentration. Ideal for children who need sensory input or adults needing a discreet outlet during meetings or classes, the portable design ensures that the benefits of these toys are accessible anytime and anywhere. Additionally, their appeal as festive party favors or school supplies makes them versatile and thoughtful gifts for various occasions.
 
-## <a href="https://www.amazon.com/dp/B0DFVCDB43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Picky Pad</a>
+## <a href="https://www.amazon.com/dp/B0DFVCDB43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Picky Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFVCDB43?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Picky Pad | Skin Picking Fidget Toys for Dermatillomania, Trichotillomania Fidget Toys | Sensory Pick Pads for Autism &amp; Stress Relief | Picking Pads for Anxiety &amp; ADHD in Adults &amp; Kids (2 Pack, 10 cm)" src="https://m.media-amazon.com/images/I/51Lay6vXoEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFVCDB43?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Picky Pad | Skin Picking Fidget Toys for Dermatillomania, Trichotillomania Fidget Toys | Sensory Pick Pads for Autism &amp; Stress Relief | Picking Pads for Anxiety &amp; ADHD in Adults &amp; Kids (2 Pack, 10 cm)" src="https://m.media-amazon.com/images/I/51Lay6vXoEL._SL500_.jpg"/></a>
 
 
 The **Picky Pad** is ideal for individuals struggling with **dermatillomania**, **trichotillomania**, or anyone seeking a discreet and effective way to manage **stress**, **anxiety**, or sensory needs. This includes both adults and children, particularly those with **autism** or **ADHD**, who benefit from tactile stimulation to maintain focus and calmness. If you are looking for a portable, easy-to-use fidget toy to help reduce harmful skin picking or hair pulling habits, this product is a great choice.
@@ -128,10 +128,10 @@ The **Picky Pad** features a compact size of 3.94 inches in width and length wit
 
 Users benefit from the dual-pack option, allowing them to keep one at home and one on the go, or share with a friend or family member who might also need stress relief. These picking pads provide a discrete and non-intrusive way to manage anxiety and hyperactivity, making them suitable for both children and adults. Overall, the **Picky Pad** offers a practical and effective solution for those seeking sensory stimulation to improve mental well-being and reduce harmful habits.
 
-## <a href="https://www.amazon.com/dp/B0DC69M33Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Adults Sensory Stone</a>
+## <a href="https://www.amazon.com/dp/B0DC69M33Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Adults Sensory Stone</a>
 
 
-<a href="https://www.amazon.com/dp/B0DC69M33Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Adults Sensory Stone: 6 Pack Textured Worry Stone for Autism Kids Calming Down - Fidget Stress Toys for Anxiety Relief - Small Students Prizes Fidget Toys" src="https://m.media-amazon.com/images/I/51LIWqw13oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DC69M33Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Adults Sensory Stone: 6 Pack Textured Worry Stone for Autism Kids Calming Down - Fidget Stress Toys for Anxiety Relief - Small Students Prizes Fidget Toys" src="https://m.media-amazon.com/images/I/51LIWqw13oL._SL500_.jpg"/></a>
 
 
 The **Fidget Toys Adults Sensory Stone** 6 Pack is ideal for individuals seeking an effective way to manage stress and anxiety, including adults, children with autism, and students who benefit from sensory stimulation. These **textured worry stones** offer a discreet and portable solution to help calm nerves and improve focus during stressful situations, making them perfect for those who need a tactile outlet to regulate emotions.
@@ -154,10 +154,10 @@ These **Fidget Stress Toys for Anxiety Relief** are designed with versatility an
 
 Made by **KLT**, these sensory stones are built to last, with durable materials that withstand frequent handling. Their simplicity is a major benefit — no batteries or complicated mechanisms, just pure sensory engagement. Whether used by children with autism needing sensory input or adults looking for a discreet calming tool, these fidget stones effectively promote focus, relaxation, and emotional regulation. Overall, they offer a practical, portable, and enjoyable solution for managing everyday stress and enhancing concentration.
 
-## <a href="https://www.amazon.com/dp/B0DPS1ZP6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Fidget Toys For Skin Picking</a>
+## <a href="https://www.amazon.com/dp/B0DPS1ZP6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Pack Fidget Toys For Skin Picking</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPS1ZP6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Fidget Toys for Skin Picking, Picking Pad, Silicone Sensory Toys for Skin Picking, Dermatillomania Fidget Toys Relax Anxiety Toy for Children &amp; Adults" src="https://m.media-amazon.com/images/I/51jpqptR8GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPS1ZP6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Pack Fidget Toys for Skin Picking, Picking Pad, Silicone Sensory Toys for Skin Picking, Dermatillomania Fidget Toys Relax Anxiety Toy for Children &amp; Adults" src="https://m.media-amazon.com/images/I/51jpqptR8GL._SL500_.jpg"/></a>
 
 
 The **4 Pack Fidget Toys for Skin Picking** are ideal for individuals struggling with **dermatillomania**, anxiety, or those who need a discreet and effective way to manage stress. These **silicone sensory toys** are perfect for both **children and adults** seeking a safe alternative to skin picking or other nervous habits. If you want a portable, tactile tool to help redirect your focus and calm your mind, this product is an excellent choice.
@@ -179,10 +179,10 @@ The **4 Pack Fidget Toys** offer a simple yet effective solution to help individ
 
 Each toy in this pack engages the senses, promoting relaxation and focus through repetitive, soothing motions. This can be especially beneficial for people with **dermatillomania** or anxiety disorders, as it helps break the cycle of skin picking by redirecting nervous energy. The fact that this set contains four toys also means you can have multiple fidget options or share them with loved ones who may benefit from sensory support.
 
-## <a href="https://www.amazon.com/dp/B0D9PJQH5B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Picky Pad 1 Pack Fidget Toy For Skin Picking</a>
+## <a href="https://www.amazon.com/dp/B0D9PJQH5B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Picky Pad 1 Pack Fidget Toy For Skin Picking</a>
 
 
-<a href="https://www.amazon.com/dp/B0D9PJQH5B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Picky Pad 1 Pack - 1 Count Fidget Toy for Skin Picking with Carrying Case - Trichotillomania Relief Portable Fidget Toy Picky Pad (1 Count Circle)" src="https://m.media-amazon.com/images/I/51UIy3mbrpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D9PJQH5B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Picky Pad 1 Pack - 1 Count Fidget Toy for Skin Picking with Carrying Case - Trichotillomania Relief Portable Fidget Toy Picky Pad (1 Count Circle)" src="https://m.media-amazon.com/images/I/51UIy3mbrpL._SL500_.jpg"/></a>
 
 
 The **Picky Pad 1 Pack** is ideal for individuals struggling with **skin picking** or **trichotillomania** who seek a discreet and effective tool to manage their urges. This **portable fidget toy** offers a simple yet engaging way to redirect compulsive behaviors, making it perfect for those who need a convenient companion during stressful moments or while on the go.
@@ -204,10 +204,10 @@ The **Picky Pad** features a circle-shaped design that fits comfortably in the h
 
 Designed specifically for individuals managing **trichotillomania** or skin picking, this fidget toy promotes healthier coping mechanisms by redirecting restless energy. The inclusion of a **carrying case** protects the toy and maintains hygiene, which is important for users who carry it throughout the day. Overall, the **Picky Pad** combines thoughtful design and functionality to support users in their journey toward better self-control.
 
-## <a href="https://www.amazon.com/dp/B0F1CTXDF8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Packs Skin Picking Fidget Toys</a>
+## <a href="https://www.amazon.com/dp/B0F1CTXDF8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4 Packs Skin Picking Fidget Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1CTXDF8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Packs Skin Picking Fidget Toys Fidget Pick &amp; Flip Fidgets for Anxiety and Trichotillomania Stretchy Loom Picking (Colorful-01)" src="https://m.media-amazon.com/images/I/51eUyrnXGwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1CTXDF8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4 Packs Skin Picking Fidget Toys Fidget Pick &amp; Flip Fidgets for Anxiety and Trichotillomania Stretchy Loom Picking (Colorful-01)" src="https://m.media-amazon.com/images/I/51eUyrnXGwL._SL500_.jpg"/></a>
 
 
 The **4 Packs Skin Picking Fidget Toys** by **Okueejur** are ideal for individuals struggling with **anxiety**, **trichotillomania**, or those who simply need a calming, tactile distraction. These **colorful**, compact fidget toys are designed for anyone looking to reduce stress and keep their hands busy in a discreet and satisfying way.
@@ -230,10 +230,10 @@ These **fidget pick & flip toys** feature a simple yet effective design that tar
 
 Additionally, the vibrant **Colorful-01** design adds a visual appeal that can uplift mood and provide a pleasant tactile focus. Being manufactured by **Okueejur**, these fidget toys maintain quality standards that ensure durability and consistent performance. Overall, these toys offer an accessible and effective tool to help users channel nervous energy and improve concentration in a healthy way.
 
-## <a href="https://www.amazon.com/dp/B0C32YL39S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ganjiang 12pcs Squeeze Bean Keychain Fidget Toys</a>
+## <a href="https://www.amazon.com/dp/B0C32YL39S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ganjiang 12pcs Squeeze Bean Keychain Fidget Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0C32YL39S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ganjiang 12PCS Squeeze Bean Keychain Fidget Toys for Skin Picking, Pea Pod Sensory Fidget Toys,Stress Relief,Party Favor Toys" src="https://m.media-amazon.com/images/I/51qyhDn3-ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C32YL39S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ganjiang 12PCS Squeeze Bean Keychain Fidget Toys for Skin Picking, Pea Pod Sensory Fidget Toys,Stress Relief,Party Favor Toys" src="https://m.media-amazon.com/images/I/51qyhDn3-ML._SL500_.jpg"/></a>
 
 
 The **Ganjiang 12PCS Squeeze Bean Keychain Fidget Toys** are perfect for individuals who experience anxiety, stress, or sensory needs, such as those with ADHD or autism. These toys are ideal for anyone looking for a discreet, portable way to channel nervous energy and improve focus during daily activities or social gatherings. They also serve as fun, engaging party favors for kids and adults alike.
@@ -256,10 +256,10 @@ The **Ganjiang Squeeze Bean Keychain Fidget Toys** feature a unique pea pod desi
 
 Users benefit from the calming effect these fidget toys offer, as the repetitive squeezing motion helps alleviate stress and improve concentration. Additionally, they serve as a practical tool for reducing skin picking behaviors by redirecting nervous energy. Manufactured by **Ganjiang**, these toys guarantee quality and durability, ensuring long-lasting use even with frequent handling.
 
-## <a href="https://www.amazon.com/dp/B0DPKTNXWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Reusable Picky Fidget Pad</a>
+## <a href="https://www.amazon.com/dp/B0DPKTNXWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Reusable Picky Fidget Pad</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPKTNXWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Reusable Picky Fidget Pad Over 30 Times, Skin Picking Fidget Toys, Reusable Picking Pad, Remeltable Big Pick Party Toy, Dermatillomania Toys for Anxiety, Relief Stress, Gifts for Adults" src="https://m.media-amazon.com/images/I/51nIggYHZ9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPKTNXWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Reusable Picky Fidget Pad Over 30 Times, Skin Picking Fidget Toys, Reusable Picking Pad, Remeltable Big Pick Party Toy, Dermatillomania Toys for Anxiety, Relief Stress, Gifts for Adults" src="https://m.media-amazon.com/images/I/51nIggYHZ9L._SL500_.jpg"/></a>
 
 
 The **Reusable Picky Fidget Pad** is ideal for individuals struggling with **dermatillomania** or those who need a discreet and effective way to manage **anxiety** and **stress**. This product is perfect for adults seeking a tactile and reusable tool to help reduce skin picking urges and improve focus during stressful situations. If you want a convenient and sustainable fidget toy that can be used repeatedly, this item is designed for you.

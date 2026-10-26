@@ -23,10 +23,10 @@ Many sets come with multiple boards in bright colors and carry bags, making them
 
 
 
-## <a href="https://www.amazon.com/dp/B07NZF9S8Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Surfer Dudes Classics Wave Powered Mini-surfer And Surfboard Toy</a>
+## <a href="https://www.amazon.com/dp/B07NZF9S8Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Surfer Dudes Classics Wave Powered Mini-surfer And Surfboard Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07NZF9S8Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Surfer Dudes Classics Wave Powered Mini-Surfer and Surfboard Toy - Hossegor Hank" src="https://m.media-amazon.com/images/I/31Ete6YtTkS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NZF9S8Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Surfer Dudes Classics Wave Powered Mini-Surfer and Surfboard Toy - Hossegor Hank" src="https://m.media-amazon.com/images/I/31Ete6YtTkS._SL500_.jpg"/></a>
 
 
 The **Surfer Dudes Classics Wave Powered Mini-Surfer and Surfboard Toy - Hossegor Hank** is perfect for children and collectors who love surfing culture and want a fun, interactive toy. Ideal for kids who enjoy imaginative play and adults who appreciate detailed, themed collectibles, this mini-surfer brings the excitement of wave riding to any small water surface or display shelf.
@@ -49,10 +49,10 @@ The **Surfer Dudes Classics Wave Powered Mini-Surfer** stands out with its innov
 
 Crafted with attention to detail, the **Hossegor Hank** model captures the essence of classic surfer style with its vibrant **Light Blue** color and sleek surfboard design. This makes it a wonderful collectible item for fans of surfing culture and miniature toys alike. Whether used for imaginative play or displayed as part of a collection, this mini-surfer adds charm and excitement to any setting, encouraging creativity and a love for the ocean lifestyle.
 
-## <a href="https://www.amazon.com/dp/B0961NJ4PQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Surfer Dudes Legends &amp; Surfer Pets Wave Powered Mini-surfer</a>
+## <a href="https://www.amazon.com/dp/B0961NJ4PQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Surfer Dudes Legends &amp; Surfer Pets Wave Powered Mini-surfer</a>
 
 
-<a href="https://www.amazon.com/dp/B0961NJ4PQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Surfer Dudes Legends &amp; Surfer Pets Wave Powered Mini-Surfer, Pet and Surfboard Beach Toy - H2O and Rusty" src="https://m.media-amazon.com/images/I/41wd6504UFS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0961NJ4PQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Surfer Dudes Legends &amp; Surfer Pets Wave Powered Mini-Surfer, Pet and Surfboard Beach Toy - H2O and Rusty" src="https://m.media-amazon.com/images/I/41wd6504UFS._SL500_.jpg"/></a>
 
 
 The **Surfer Dudes Legends & Surfer Pets Wave Powered Mini-Surfer** is ideal for children and beach enthusiasts who love interactive and imaginative play. Perfect for kids who enjoy water toys or anyone looking to add a fun and dynamic element to their beach or poolside activities, this mini-surfer combines the excitement of surfing with the charm of collectible pet characters, making it a great choice for both playtime and display.
@@ -75,10 +75,10 @@ The **Surfer Dudes Legends & Surfer Pets Mini-Surfer** stands out with its uniqu
 
 Additionally, the vibrant **H2O and Rusty** edition adds a playful and collectible aspect to the toy, which can stimulate creativity and storytelling among kids. Its sturdy build by the trusted **Surfer Dudes** brand ensures durability, so it can withstand repeated use in both pools and at the beach. Overall, this mini-surfer offers a delightful combination of fun, portability, and imaginative play for young surfers and pet lovers alike.
 
-## <a href="https://www.amazon.com/dp/B0F53YDQHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hpmjz Finger Surfboard Mini Surfboard Finger Surfing Board</a>
+## <a href="https://www.amazon.com/dp/B0F53YDQHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hpmjz Finger Surfboard Mini Surfboard Finger Surfing Board</a>
 
 
-<a href="https://www.amazon.com/dp/B0F53YDQHG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hpmjz 10Pcs Finger Surfboard Mini Surfboard Finger Surfing Board Wind Surfing Toys for Car Riding Teens Adult" src="https://m.media-amazon.com/images/I/41-fYzt4rhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F53YDQHG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hpmjz 10Pcs Finger Surfboard Mini Surfboard Finger Surfing Board Wind Surfing Toys for Car Riding Teens Adult" src="https://m.media-amazon.com/images/I/41-fYzt4rhL._SL500_.jpg"/></a>
 
 
 The **Hpmjz 10Pcs Finger Surfboard Mini Surfboard** is ideal for **teens and adults** who enjoy playful, portable toys that can be used on the go. Whether you are a fan of finger surfing or looking for a fun accessory for **car rides**, this set is perfect for those who want to combine creativity with a bit of friendly competition or simply pass time with an engaging activity.
@@ -101,10 +101,10 @@ The **Hpmjz Finger Surfboard Mini Surfboard** offers an exciting way to engage i
 
 Additionally, the set of 10 finger surfboards encourages social interaction and friendly competitions among friends or family members. The lightweight and portable design from the trusted **Hpmjz manufacturer** ensures that these mini surfboards can be easily stored and transported. Overall, this finger surfing toy set combines entertainment with skill development, making it a great choice for anyone looking for an engaging and portable pastime.
 
-## <a href="https://www.amazon.com/dp/B0BFHGGYVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">La Ken Du 5 Pcs Finger Surfboard</a>
+## <a href="https://www.amazon.com/dp/B0BFHGGYVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">La Ken Du 5 Pcs Finger Surfboard</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFHGGYVP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LA KEN DU,5 PCS Finger Surfboard for Car Ride-Mini Surfboard for Kids and Surfers with Receive Bag(Include Red Green Yellow Blue White)" src="https://m.media-amazon.com/images/I/51R9rAEahNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFHGGYVP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LA KEN DU,5 PCS Finger Surfboard for Car Ride-Mini Surfboard for Kids and Surfers with Receive Bag(Include Red Green Yellow Blue White)" src="https://m.media-amazon.com/images/I/51R9rAEahNL._SL500_.jpg"/></a>
 
 
 The **LA KEN DU, 5 PCS Finger Surfboard** is ideal for **kids** and **surfers** looking for a fun and portable way to enjoy fingerboarding. This mini surfboard set is perfect for those who want to practice their fingerboarding skills during car rides or while on the go. It appeals especially to children and beginners who want a colorful and engaging toy that is easy to carry and use anywhere.
@@ -126,10 +126,10 @@ The **LA KEN DU Finger Surfboard** set features a carefully crafted design that 
 
 Additionally, the compact design and included receive bag enhance portability, making it simple to bring along on car rides or outings. This means users can enjoy fingerboarding anywhere without worrying about losing pieces. The durable construction by **LA KEN DU** ensures these fingerboards withstand frequent use, providing lasting entertainment. Overall, this set combines playful aesthetics with practical features, delivering a delightful mini surfboard experience for both kids and fingerboard enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0DFQ2V36W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wind Finger Surfboard Mini Wind Surfing Toys Finger Surf Boards</a>
+## <a href="https://www.amazon.com/dp/B0DFQ2V36W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wind Finger Surfboard Mini Wind Surfing Toys Finger Surf Boards</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFQ2V36W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="30Pcs Wind Finger Surfboard Mini Wind Surfing Toys Finger Surf Boards, Surfing The Wind Fingertip Surfboard Fingerboard for Kids, Teens, Adult" src="https://m.media-amazon.com/images/I/51OYFKgGlpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFQ2V36W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="30Pcs Wind Finger Surfboard Mini Wind Surfing Toys Finger Surf Boards, Surfing The Wind Fingertip Surfboard Fingerboard for Kids, Teens, Adult" src="https://m.media-amazon.com/images/I/51OYFKgGlpL._SL500_.jpg"/></a>
 
 
 The **30Pcs Wind Finger Surfboard Mini Wind Surfing Toys** are perfect for **kids, teens, and adults** who enjoy fun, interactive, and portable toys. Ideal for those looking to develop finger dexterity, hand-eye coordination, or simply seeking a unique way to pass the time, these **finger surfboards** offer an engaging experience for users of all ages.
@@ -153,10 +153,10 @@ The **CIATBYYJ 30Pcs Wind Finger Surfboard Mini Wind Surfing Toys** are designed
 
 Constructed with durable materials, these finger surfboards feature a sleek black design that remains stylish while resisting visible damage from regular use. Whether you’re a beginner or an experienced fingerboard enthusiast, these toys deliver a smooth and enjoyable surfing experience on your fingertips. Perfect for stress relief or creative play, they combine entertainment with physical benefits for users of all ages.
 
-## <a href="https://www.amazon.com/dp/B0BMWDX6YJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Windeck Finger Surfboard – 3 Pack Mini Surf Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0BMWDX6YJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Windeck Finger Surfboard – 3 Pack Mini Surf Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMWDX6YJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Windeck Finger Surfboard – 3 Pack Mini Surf Toy Set (Blue, Green, Red) with Grip Tape &amp; Finger Leash | Handheld Air Surf Boards for Tricks, Car Rides &amp; Imaginative Play | Skater &amp; Surfer Gift for Kids" src="https://m.media-amazon.com/images/I/41+x06fkFbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMWDX6YJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Windeck Finger Surfboard – 3 Pack Mini Surf Toy Set (Blue, Green, Red) with Grip Tape &amp; Finger Leash | Handheld Air Surf Boards for Tricks, Car Rides &amp; Imaginative Play | Skater &amp; Surfer Gift for Kids" src="https://m.media-amazon.com/images/I/41+x06fkFbL._SL500_.jpg"/></a>
 
 
 The **Windeck Finger Surfboard – 3 Pack Mini Surf Toy Set** is perfect for children and enthusiasts who love **surfing** and **skateboarding** but want a compact and fun way to practice tricks and imaginative play. Ideal for kids who enjoy hands-on activities and parents looking for a creative and portable gift, this set offers vibrant colors and engaging features suitable for all skill levels.
@@ -179,10 +179,10 @@ The **Windeck Finger Surfboard Mini Set** stands out with its detailed design, m
 
 Each surfboard’s vibrant color options not only make them visually appealing but also help kids differentiate between their boards when playing with friends or siblings. The product encourages creativity and physical dexterity, promoting hand-eye coordination and fine motor skills development. Overall, the **Windeck Finger Surfboard – 3 Pack Mini Surf Toy Set** offers a delightful blend of fun, function, and portability for young surfers and skaters alike.
 
-## <a href="https://www.amazon.com/dp/B0BGM7YH71?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loeo Finger Surfboard Finger Toy</a>
+## <a href="https://www.amazon.com/dp/B0BGM7YH71?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Loeo Finger Surfboard Finger Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0BGM7YH71?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOEO Finger Surfboard Finger Toy Surf Board Surf The Wind Mini Surfboard for Kids and Surfers(Frosted Gray)" src="https://m.media-amazon.com/images/I/313XjyiQQkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BGM7YH71?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LOEO Finger Surfboard Finger Toy Surf Board Surf The Wind Mini Surfboard for Kids and Surfers(Frosted Gray)" src="https://m.media-amazon.com/images/I/313XjyiQQkL._SL500_.jpg"/></a>
 
 
 The **LOEO Finger Surfboard Finger Toy** is perfect for both **kids** and **surfers** who enjoy a fun and portable way to practice their surfing skills or simply want a unique desk toy. Ideal for those looking to enhance finger dexterity, relieve stress, or spark creativity, this mini surfboard offers an engaging experience for users of all ages.
@@ -205,10 +205,10 @@ The **LOEO Finger Surfboard** boasts a lightweight and compact design that ensur
 
 Beyond its entertaining aspect, this finger surfboard serves as an excellent tool for improving finger dexterity and hand-eye coordination, which is especially beneficial for children developing fine motor skills. For surfers, it offers a playful way to mentally rehearse surfing moves during downtime. Overall, the **LOEO Finger Surfboard Finger Toy** is a versatile and enjoyable accessory that combines fun with functional benefits for users of all ages.
 
-## <a href="https://www.amazon.com/dp/B0FDSD5HKQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Surfer Dudes Classics Wave Powered Mini-surfer And Surfboard Toy</a>
+## <a href="https://www.amazon.com/dp/B0FDSD5HKQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Surfer Dudes Classics Wave Powered Mini-surfer And Surfboard Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDSD5HKQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Surfer Dudes Classics Wave Powered Mini-Surfer and Surfboard Toy - Outer Bank Olivia &amp; Hanalei Harry" src="https://m.media-amazon.com/images/I/31KxggB6zbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDSD5HKQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Surfer Dudes Classics Wave Powered Mini-Surfer and Surfboard Toy - Outer Bank Olivia &amp; Hanalei Harry" src="https://m.media-amazon.com/images/I/31KxggB6zbL._SL500_.jpg"/></a>
 
 
 The **Surfer Dudes Classics Wave Powered Mini-Surfer and Surfboard Toy** is perfect for children and collectors who love surfing culture and enjoy interactive, wave-powered toys. Ideal for kids who are fascinated by the ocean and beach lifestyle, this toy offers a fun and engaging way to experience surfing on a miniature scale. It’s also great for parents looking to encourage imaginative play and fine motor skills in their children.
@@ -231,10 +231,10 @@ The **Surfer Dudes Classics Wave Powered Mini-Surfer and Surfboard Toy** capture
 
 Crafted by the trusted **Surfer Dudes** brand, this mini-surfer is built with durable materials to withstand active play. Its compact size ensures portability, so children can take their surfing adventures to the beach, pool, or bathtub. Overall, this toy blends fun, education, and quality, making it a fantastic choice for young surfers-in-training and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B004SCEV2E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Volkswagen Classic Bus</a>
+## <a href="https://www.amazon.com/dp/B004SCEV2E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart Volkswagen Classic Bus</a>
 
 
-<a href="https://www.amazon.com/dp/B004SCEV2E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1962 Volkswagen Classic Bus With Surfboard and Hippy Decals Bus 1:32 Scale 5 Inch Die Cast Metal Model Toy Van, Pullback Acation (1 At Random)" src="https://m.media-amazon.com/images/I/31-ckF93D5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004SCEV2E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1962 Volkswagen Classic Bus With Surfboard and Hippy Decals Bus 1:32 Scale 5 Inch Die Cast Metal Model Toy Van, Pullback Acation (1 At Random)" src="https://m.media-amazon.com/images/I/31-ckF93D5L._SL500_.jpg"/></a>
 
 
 The **KiNSMART 1962 Volkswagen Classic Bus** is an ideal purchase for collectors of die-cast model vehicles, vintage car enthusiasts, and fans of retro-themed toys. Its detailed design and nostalgic appeal make it perfect for those who appreciate classic automobiles or are looking for a unique decorative piece. Additionally, children who enjoy imaginative play with model cars will find this **5-inch die-cast metal toy van** an engaging and durable option.
@@ -257,10 +257,10 @@ The **KiNSMART 1962 Volkswagen Classic Bus** stands out with its bright **yellow
 
 Beyond aesthetics, this model features a smooth **pullback action** mechanism that adds a fun, interactive element to playtime. Made from sturdy **die-cast metal**, it offers both durability and a satisfying weight, giving users a realistic feel of a classic vehicle. Whether displayed as a nostalgic keepsake or enjoyed as a toy, this model van provides an engaging experience for a wide range of users.
 
-## <a href="https://www.amazon.com/dp/B0CX53RWVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">10pcs Finger Surfboard</a>
+## <a href="https://www.amazon.com/dp/B0CX53RWVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">10pcs Finger Surfboard</a>
 
 
-<a href="https://www.amazon.com/dp/B0CX53RWVL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="10Pcs Finger Surfboard, Mini Surfing Toys Finger Surf Boards, Surf The Wind, Fingertip Surfboard for Kids, Teens, Adult" src="https://m.media-amazon.com/images/I/51kOuuM9J3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CX53RWVL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="10Pcs Finger Surfboard, Mini Surfing Toys Finger Surf Boards, Surf The Wind, Fingertip Surfboard for Kids, Teens, Adult" src="https://m.media-amazon.com/images/I/51kOuuM9J3L._SL500_.jpg"/></a>
 
 
 The **10Pcs Finger Surfboard** set is perfect for **kids, teens, and adults** who enjoy miniature toys and want to experience the thrill of surfing on a small scale. Ideal for those who love fingerboard sports or are looking for a fun and engaging way to improve their finger dexterity and hand-eye coordination, this set offers endless entertainment and skill-building opportunities.

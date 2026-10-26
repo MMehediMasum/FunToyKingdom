@@ -23,10 +23,10 @@ Others, such as the Tummy Time with Taytum, have hand-rooted hair for added real
 
 
 
-## <a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Perfect In Every Way Reborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Perfect In Every Way Reborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Perfect in Every Way Reborn Baby Doll, 20 Inches, Hand-Painted Features, RealTouch Vinyl Skin, Pink Dress" src="https://m.media-amazon.com/images/I/41yFobTJEsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Perfect in Every Way Reborn Baby Doll, 20 Inches, Hand-Painted Features, RealTouch Vinyl Skin, Pink Dress" src="https://m.media-amazon.com/images/I/41yFobTJEsL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Perfect in Every Way Reborn Baby Doll** is ideal for collectors, doll enthusiasts, and anyone looking for a lifelike, high-quality baby doll. This 20-inch doll appeals to those who appreciate exquisite craftsmanship and desire a comforting, realistic companion or a beautiful addition to their collection.
@@ -48,10 +48,10 @@ The **Ashton-Drake Galleries Perfect in Every Way Reborn Baby Doll** features me
 
 Additionally, the doll’s size and weight are thoughtfully balanced to make it easy to hold and carry, enhancing the interactive experience for collectors and children alike. The adorable **pink dress** adds a touch of charm and makes the doll ready for display or gentle play right out of the box. Overall, this doll combines artistry and quality materials to deliver a product that meets the expectations of discerning buyers.
 
-## <a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Tummy Time With Taytum Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Tummy Time With Taytum Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Tummy Time with Taytum Baby Doll, 20 inches, Realistic Vinyl Skin, Hand-Rooted Hair, by Artist Ping Lau" src="https://m.media-amazon.com/images/I/41G43EmrByL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Tummy Time with Taytum Baby Doll, 20 inches, Realistic Vinyl Skin, Hand-Rooted Hair, by Artist Ping Lau" src="https://m.media-amazon.com/images/I/41G43EmrByL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Tummy Time with Taytum Baby Doll** is ideal for collectors and doll enthusiasts who appreciate lifelike artistry and attention to detail. It’s also perfect for parents and gift-givers seeking a realistic and comforting companion for young children. This **20-inch baby doll** offers a unique blend of craftsmanship and playability, making it suitable for both display and interactive use.
@@ -74,10 +74,10 @@ This **baby doll** stands out due to its **realistic vinyl skin** that mimics th
 
 Designed with attention to detail, this doll supports interactive play such as tummy time, which can be beneficial for young children developing motor skills. The lightweight design ensures that it can be easily carried or repositioned. As a product of **The Ashton-Drake Galleries**, it guarantees quality and durability, appealing to both serious collectors and those looking for a lovable, realistic doll for their family.
 
-## <a href="https://www.amazon.com/dp/B0F1HHWJQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Realtouch Vinyl Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0F1HHWJQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Realtouch Vinyl Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1HHWJQJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries RealTouch Vinyl Baby Doll, Pink Striped Outfit with Heart Design, Weighted Cloth Body, Blue Eyes" src="https://m.media-amazon.com/images/I/41Uq+M4BWaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1HHWJQJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries RealTouch Vinyl Baby Doll, Pink Striped Outfit with Heart Design, Weighted Cloth Body, Blue Eyes" src="https://m.media-amazon.com/images/I/41Uq+M4BWaL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries RealTouch Vinyl Baby Doll** is an excellent choice for collectors, doll enthusiasts, and those seeking a lifelike baby doll for display or gentle play. Ideal for individuals who appreciate finely crafted, realistic dolls, this item is perfect for adding charm to any collection or for gifting to someone who loves detailed, high-quality vinyl dolls. Its weighted cloth body and delicate features make it especially suited for adults and older children who handle dolls with care.
@@ -100,10 +100,10 @@ This **Ashton-Drake Galleries RealTouch Vinyl Baby Doll** stands out with its re
 
 Beyond aesthetics, this doll is made with attention to detail by The Ashton - Drake Galleries, ensuring high-quality craftsmanship. The moderate size and weight make it an ideal collectible or display item that fits comfortably on shelves or in doll cases. While it requires gentle handling, the combination of realistic feel and charming design brings joy to both collectors and gift recipients, making it a treasured keepsake for years to come.
 
-## <a href="https://www.amazon.com/dp/B0FBCT55QF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Gentle Dreams Bella Reborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0FBCT55QF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Gentle Dreams Bella Reborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBCT55QF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Gentle Dreams Bella Reborn Baby Doll by Linda Murray, 18 inches, Lifelike Collectible with Smocked Outfit" src="https://m.media-amazon.com/images/I/41SSlxqMgpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBCT55QF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Gentle Dreams Bella Reborn Baby Doll by Linda Murray, 18 inches, Lifelike Collectible with Smocked Outfit" src="https://m.media-amazon.com/images/I/41SSlxqMgpL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Gentle Dreams Bella Reborn Baby Doll** is ideal for collectors and doll enthusiasts who appreciate lifelike craftsmanship and detailed artistry. It is also perfect for gift-givers seeking a unique and heartwarming present for children or adults who cherish realistic dolls. Those who value high-quality, collectible dolls with a personal touch will find this 18-inch reborn baby doll by **Linda Murray** an excellent choice.
@@ -127,10 +127,10 @@ The **Gentle Dreams Bella Reborn Baby Doll** stands out with its incredibly deta
 
 Made by **The Ashton-Drake Galleries**, a trusted name in collectible dolls, this reborn baby doll offers both quality and authenticity. The realistic features provide an emotional connection for users, making it a treasured keepsake. Whether displayed in a collection or given as a thoughtful gift, this doll’s attention to detail and craftsmanship provide lasting satisfaction.
 
-## <a href="https://www.amazon.com/dp/B0FBGYYV9T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries God's Greatest Gift Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0FBGYYV9T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries God's Greatest Gift Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBGYYV9T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries God's Greatest Gift Baby Doll by Jennifer Costello, 4 Inches, Personalized Cloud Base, Pink and Blue Caps (African American)" src="https://m.media-amazon.com/images/I/31bxWbvf7+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBGYYV9T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries God's Greatest Gift Baby Doll by Jennifer Costello, 4 Inches, Personalized Cloud Base, Pink and Blue Caps (African American)" src="https://m.media-amazon.com/images/I/31bxWbvf7+L._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries God's Greatest Gift Baby Doll** by Jennifer Costello is perfect for collectors and gift-givers seeking a beautifully crafted, personalized keepsake. Ideal for those who appreciate detailed artistry and want a meaningful, charming addition to their collection or a heartfelt present for new parents and loved ones.
@@ -153,10 +153,10 @@ This **4-inch baby doll** stands out due to its exquisite craftsmanship and atte
 
 The inclusion of both **pink and blue caps** offers versatility, allowing the doll to suit any nursery decor or gifting occasion. Its compact dimensions (**3.0 inches height and width, 6.5 inches length**) make it perfect for display on shelves or desks without occupying much space. Representing the **African American** community authentically, it enriches diversity in doll collections and makes a meaningful gift that resonates personally with recipients.
 
-## <a href="https://www.amazon.com/dp/B0D7MYN2SX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Emma Grace's First Words Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0D7MYN2SX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Emma Grace's First Words Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7MYN2SX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Emma Grace's First Words Baby Doll" src="https://m.media-amazon.com/images/I/41wE6C+x0GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7MYN2SX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Emma Grace's First Words Baby Doll" src="https://m.media-amazon.com/images/I/41wE6C+x0GL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Emma Grace's First Words Baby Doll** is perfect for collectors and parents looking for a lifelike, interactive doll that offers both emotional connection and engaging play. Ideal for doll enthusiasts and children aged 3 and above, this doll combines exquisite craftsmanship with interactive features to create a cherished keepsake or a delightful gift.
@@ -179,10 +179,10 @@ The **Emma Grace's First Words Baby Doll** stands out with its impressive size o
 
 Beyond aesthetics, the doll's interactive technology adds a unique benefit by fostering early communication skills in young children. Its durable construction ensures it can withstand playtime while remaining a treasured collectible. Whether used for display or play, this doll offers a combination of emotional warmth and educational value, making it a worthwhile addition to any doll collection or a meaningful gift for a child.
 
-## <a href="https://www.amazon.com/dp/B0DFQKK2CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Lifelike Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0DFQKK2CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Lifelike Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFQKK2CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Lifelike Baby Doll with Blue Floral Dress and Storybook Containing Watercolor Art by Victoria Jordan" src="https://m.media-amazon.com/images/I/417jMa+KzYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFQKK2CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Lifelike Baby Doll with Blue Floral Dress and Storybook Containing Watercolor Art by Victoria Jordan" src="https://m.media-amazon.com/images/I/417jMa+KzYL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Lifelike Baby Doll** with **Blue Floral Dress** and accompanying **Storybook** featuring **Watercolor Art by Victoria Jordan** is perfect for collectors, doll enthusiasts, and anyone looking for a charming, realistic keepsake. Ideal for those who appreciate finely crafted artistry and want a doll that offers both aesthetic beauty and emotional connection. This item is also suitable for gift-giving to loved ones who cherish unique collectibles.
@@ -205,10 +205,10 @@ The **Ashton-Drake Galleries Lifelike Baby Doll** stands out for its exceptional
 
 Crafted by the trusted **Ashton-Drake Galleries**, this doll guarantees quality and durability. Its manageable size of **17.5 inches tall** makes it ideal for display on shelves or in curio cabinets, while still being suitable for gentle handling. Overall, this doll offers a blend of aesthetic beauty, storytelling, and craftsmanship that makes it a cherished addition for any collection or special gift.
 
-## <a href="https://www.amazon.com/dp/B07N66CSL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ndt Therapy Toddler Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B07N66CSL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ndt Therapy Toddler Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B07N66CSL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NDT Therapy Toddler cloth Baby Doll body Jointed 23" katiesdolls"="" src="https://m.media-amazon.com/images/I/31p3D0vBCML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07N66CSL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NDT Therapy Toddler cloth Baby Doll body Jointed 23" katiesdolls"="" src="https://m.media-amazon.com/images/I/31p3D0vBCML._SL500_.jpg"/></a>
 
 
 The **NDT Therapy Toddler cloth Baby Doll body Jointed 23" Katiesdolls** is perfect for parents and caregivers looking to provide children with a realistic, therapeutic, and engaging play experience. This doll is especially ideal for toddlers and young children who benefit from tactile stimulation and imaginative play, as well as for therapy professionals who incorporate dolls into developmental and sensory activities.
@@ -229,10 +229,10 @@ The **NDT Therapy Toddler cloth Baby Doll** features a fully **jointed 23-inch b
 
 Crafted by the reputable **katiesdolls** brand, this doll combines both durability and realistic design. Its size is ideal for toddlers to carry and interact with easily, fostering independence and nurturing skills. Whether used for play or therapeutic purposes, this baby doll serves as a valuable companion that promotes emotional development and sensory engagement.
 
-## <a href="https://www.amazon.com/dp/B0B1JQ34P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hello World Lifelike Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0B1JQ34P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hello World Lifelike Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0B1JQ34P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hello World Lifelike Baby Doll with Magnetic Pacifier by Ashton-Drake" src="https://m.media-amazon.com/images/I/41lQGt8SnQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B1JQ34P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hello World Lifelike Baby Doll with Magnetic Pacifier by Ashton-Drake" src="https://m.media-amazon.com/images/I/41lQGt8SnQL._SL500_.jpg"/></a>
 
 
 The **Hello World Lifelike Baby Doll with Magnetic Pacifier by Ashton-Drake** is perfect for collectors, parents, and gift-givers seeking a realistic and interactive doll experience. Ideal for those who appreciate detailed craftsmanship and want to provide children or loved ones with a lifelike companion that encourages nurturing play. This doll is especially suited for individuals who value quality and authenticity in their collectible or play items.
@@ -255,10 +255,10 @@ The **Hello World Lifelike Baby Doll** stands out with its meticulously crafted 
 
 Manufactured by the reputable **Ashton-Drake Galleries**, this doll guarantees quality and durability, ensuring that it remains a cherished item for years. Whether as a collectible or a companion for children, its blend of realism and functionality offers a unique experience that supports emotional development and creativity. This doll is a thoughtful gift for anyone who values craftsmanship and lifelike detail in toys.
 
-## <a href="https://www.amazon.com/dp/B0FB18WH3F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Secret Garden Reborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0FB18WH3F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Secret Garden Reborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0FB18WH3F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Secret Garden Reborn Baby Doll, 19 Inches Long, Handcrafted by Linda Murray with RealTouch Vinyl Skin" src="https://m.media-amazon.com/images/I/41pkmu414xL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FB18WH3F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Secret Garden Reborn Baby Doll, 19 Inches Long, Handcrafted by Linda Murray with RealTouch Vinyl Skin" src="https://m.media-amazon.com/images/I/41pkmu414xL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Secret Garden Reborn Baby Doll** is an ideal choice for collectors, doll enthusiasts, and anyone seeking a lifelike, handcrafted baby doll. Perfect for those who appreciate detailed artistry and realistic features, this doll is also suitable for gifting to loved ones who cherish sentimental keepsakes or for use in therapeutic settings.

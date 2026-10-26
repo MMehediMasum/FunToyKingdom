@@ -20,10 +20,10 @@ Miniature Poodles offer a bit more energy and playfulness. Choosing between them
 
 
 
-## <a href="https://www.amazon.com/dp/B0DW4FQF2B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poodle T-shirt</a>
+## <a href="https://www.amazon.com/dp/B0DW4FQF2B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poodle T-shirt</a>
 
 
-<a href="https://www.amazon.com/dp/B0DW4FQF2B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Poodle Standard Miniature Toy Poodle Loading T-Shirt" src="https://m.media-amazon.com/images/I/312S2d6y7cL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DW4FQF2B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Poodle Standard Miniature Toy Poodle Loading T-Shirt" src="https://m.media-amazon.com/images/I/312S2d6y7cL._SL500_.jpg"/></a>
 
 
 The **Poodle Standard Miniature Toy Poodle Loading T-Shirt** is perfect for dog lovers, especially those who adore **poodles** of all sizes. If you are someone who enjoys showcasing your passion for pets through your wardrobe or searching for a fun and stylish gift for a poodle enthusiast, this t-shirt is an ideal choice. Its unique design and comfortable fit make it suitable for casual outings and pet-related events alike.
@@ -46,10 +46,10 @@ This t-shirt from **99 Gifts** stands out with its charming depiction of various
 
 Beyond aesthetics, the **Poodle Standard Miniature Toy Poodle Loading T-Shirt** offers comfort and durability, crafted to withstand regular wear while maintaining its shape and vibrant design. Whether attending a dog meet-up or simply running errands, this t-shirt allows wearers to express their love for poodles in a fun, stylish, and comfortable way.
 
-## <a href="https://www.amazon.com/dp/B0D7MQSCGL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Poodle Dog Louie Throw Pillow</a>
+## <a href="https://www.amazon.com/dp/B0D7MQSCGL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Poodle Dog Louie Throw Pillow</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7MQSCGL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miniature Poodle Dog Louie Men Women Kids Boys Girls Teens Throw Pillow" src="https://m.media-amazon.com/images/I/31A+xt6HvlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7MQSCGL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miniature Poodle Dog Louie Men Women Kids Boys Girls Teens Throw Pillow" src="https://m.media-amazon.com/images/I/31A+xt6HvlL._SL500_.jpg"/></a>
 
 
 The **Miniature Poodle Dog Louie Men Women Kids Boys Girls Teens Throw Pillow** is perfect for dog lovers of all ages who want to add a charming and cozy touch to their living space. Ideal for families, pet enthusiasts, and anyone looking for a unique decorative item, this throw pillow appeals to those who appreciate adorable canine-themed accessories that blend comfort with style.

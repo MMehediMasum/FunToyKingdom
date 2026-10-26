@@ -23,10 +23,10 @@ With clear instructions and durable metal parts, the kits combine learning and f
 
 
 
-## <a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enginediy Toyan V8 Engine Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enginediy Toyan V8 Engine Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENGINEDIY TOYAN V8 Engine Model Kit That Works, FS-V800WGPC 1/10 Scale 28cc Water-Cooled Four-Stroke OHV Fully Functional Miniature V8 Engine Kit for Adults" src="https://m.media-amazon.com/images/I/41gs+MC0UGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY4WDF3R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ENGINEDIY TOYAN V8 Engine Model Kit That Works, FS-V800WGPC 1/10 Scale 28cc Water-Cooled Four-Stroke OHV Fully Functional Miniature V8 Engine Kit for Adults" src="https://m.media-amazon.com/images/I/41gs+MC0UGL._SL500_.jpg"/></a>
 
 
 The **ENGINEDIY TOYAN V8 Engine Model Kit** is ideal for **adult hobbyists**, **mechanical enthusiasts**, and those interested in **miniature engineering projects**. If you enjoy hands-on assembly and want to explore the intricate workings of a **four-stroke V8 engine**, this fully functional 1/10 scale model is perfect for you. It offers a unique blend of educational value and mechanical challenge, making it a great purchase for both beginners and experienced model builders.
@@ -49,10 +49,10 @@ The **ENGINEDIY TOYAN V8 Engine Model Kit** stands out with its highly detailed 
 
 Constructed with durable materials and manufactured by **ENGINEDIY**, the kit ensures long-lasting performance and an authentic feel. Its manageable size, just under 7 inches in each dimension and weighing about 5.3 pounds, allows for easy display once assembled. Enthusiasts will appreciate the challenge of putting together this intricate engine, which brings satisfaction and a deeper appreciation of mechanical engineering. Overall, this model kit combines fun, learning, and craftsmanship in one impressive package.
 
-## <a href="https://www.amazon.com/dp/B0DP4HFY76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Model Engine Kit For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DP4HFY76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Model Engine Kit For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP4HFY76?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Model Engine Kit for Adults - L2 Mini Engine Build Kit That Runs on Gas, Twin Cylinder 4 Stroke Nitro Engine DIY Full Metal Car Engine Model Kit Educational Experiment, TOYAN FS L200AC (KIT)" src="https://m.media-amazon.com/images/I/412sGAJZ2eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP4HFY76?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Model Engine Kit for Adults - L2 Mini Engine Build Kit That Runs on Gas, Twin Cylinder 4 Stroke Nitro Engine DIY Full Metal Car Engine Model Kit Educational Experiment, TOYAN FS L200AC (KIT)" src="https://m.media-amazon.com/images/I/412sGAJZ2eL._SL500_.jpg"/></a>
 
 
 The **Model Engine Kit for Adults** is ideal for hobbyists, engineers, and DIY enthusiasts who enjoy hands-on projects and want to deepen their understanding of mechanical engines. Perfect for those interested in **mechanical engineering**, **educational experiments**, or building detailed, functional models, this kit offers a rewarding challenge and a tangible learning experience.
@@ -75,10 +75,10 @@ This **Mini Engine Build Kit** is designed to replicate a real twin cylinder 4 s
 
 The compact size makes it easy to handle and display once assembled, while the detailed build process helps develop fine motor skills and mechanical understanding. This kit encourages users to learn by doing, which is particularly beneficial for those studying engineering or anyone looking to expand their technical skills through a practical, hands-on approach.
 
-## <a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching V8 Engine Model Kit</a>
+## <a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching V8 Engine Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING v8 Engine Model kit That Works Metal Mechanical Metal Assembly DIY Car Engine Model Kit 500+Pcs Educational Experiment (8 Cylinder Engine)" src="https://m.media-amazon.com/images/I/51n6H3jWhRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09ZLLHZVN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING v8 Engine Model kit That Works Metal Mechanical Metal Assembly DIY Car Engine Model Kit 500+Pcs Educational Experiment (8 Cylinder Engine)" src="https://m.media-amazon.com/images/I/51n6H3jWhRL._SL500_.jpg"/></a>
 
 
 The **TECHING v8 Engine Model Kit** is ideal for hobbyists, educators, and anyone fascinated by mechanical engineering and automotive technology. Perfect for DIY enthusiasts and students, this kit offers an engaging hands-on experience to understand the inner workings of an **8-cylinder engine**. If you enjoy building intricate models and exploring mechanical concepts, this **metal assembly kit** is a great choice.
@@ -101,10 +101,10 @@ The **TECHING v8 Engine Model Kit** stands out with its detailed design and func
 
 Beyond just a model, this kit serves as an **educational experiment** that deepens the user's comprehension of how engines work. By engaging with the build process, users develop fine motor skills, patience, and a better grasp of mechanical concepts. Its compact size and attractive gold finish make it an excellent display piece after assembly, combining both functionality and aesthetics in one package.
 
-## <a href="https://www.amazon.com/dp/B0FBRDFWMN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helixsun Toyan Fs-v800wgpc Engine Model</a>
+## <a href="https://www.amazon.com/dp/B0FBRDFWMN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helixsun Toyan Fs-v800wgpc Engine Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBRDFWMN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helixsun TOYAN FS-V800WGPC Engine Model, 1/10 Scale DIY Assembly V8 Engine Model Kit, 28cc Micro Simulated Water-Cooled Four-Stroke Overhead Valve V-Type Model (KIT Version)" src="https://m.media-amazon.com/images/I/41+9t6HjKDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBRDFWMN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helixsun TOYAN FS-V800WGPC Engine Model, 1/10 Scale DIY Assembly V8 Engine Model Kit, 28cc Micro Simulated Water-Cooled Four-Stroke Overhead Valve V-Type Model (KIT Version)" src="https://m.media-amazon.com/images/I/41+9t6HjKDL._SL500_.jpg"/></a>
 
 
 The **Helixsun TOYAN FS-V800WGPC Engine Model** is ideal for hobbyists and model enthusiasts who enjoy hands-on projects and mechanical engineering. This **1/10 scale DIY assembly V8 engine model kit** is perfect for those looking to deepen their understanding of internal combustion engines through a detailed, functional replica. If you appreciate intricate craftsmanship and want a realistic, working model to display or study, this kit is an excellent choice.
@@ -127,10 +127,10 @@ The **Helixsun TOYAN FS-V800WGPC** engine model boasts a compact yet intricate d
 
 Additionally, the **DIY assembly aspect** of this kit encourages users to engage deeply with the model, improving their mechanical skills and patience. The quality of materials used by **Helixsun** ensures durability and a professional finish once assembled. While it is primarily designed for display and educational purposes, the fully functional engine model serves as an excellent demonstration tool for students and enthusiasts alike, bridging the gap between theory and practical experience.
 
-## <a href="https://www.amazon.com/dp/B07QCQNKG7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playz V8 Combustion Engine Model Kit</a>
+## <a href="https://www.amazon.com/dp/B07QCQNKG7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playz V8 Combustion Engine Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B07QCQNKG7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Playz V8 Combustion Engine Model Kit That Runs - Build Your Own STEM Mini V8 Model Engine Kit for Adults &amp; Kids Age 12+, Visible V8 Mini Engine Kit That Works for Adult w/ 270 STEM Parts" src="https://m.media-amazon.com/images/I/51qwR3QfV+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QCQNKG7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Playz V8 Combustion Engine Model Kit That Runs - Build Your Own STEM Mini V8 Model Engine Kit for Adults &amp; Kids Age 12+, Visible V8 Mini Engine Kit That Works for Adult w/ 270 STEM Parts" src="https://m.media-amazon.com/images/I/51qwR3QfV+L._SL500_.jpg"/></a>
 
 
 The **Playz V8 Combustion Engine Model Kit** is perfect for both **adults and kids aged 12+** who have an interest in **STEM learning**, mechanical engineering, or model building. It is an ideal choice for hobbyists and students eager to explore the inner workings of a **mini V8 engine** through hands-on assembly and observation of a fully operational model.
@@ -153,10 +153,10 @@ The **Playz V8 Combustion Engine Model Kit** offers a detailed and interactive e
 
 With **270 parts** included, the kit challenges users to develop problem-solving skills and precision during assembly. The final product is not only a functional engine but also a visually captivating model that can be displayed as a testament to the builder’s accomplishment. Its multicolor parts add to the aesthetic appeal, making it an excellent educational tool and a fascinating project for anyone interested in engines and mechanics.
 
-## <a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching Mini Diesel Engine Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teching Mini Diesel Engine Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING Mini Diesel Engine Model kit That Runs OHV 4-Cylinder Engine Mechanical Metal Assembly DIY Car Engine Model Kit 300+pcs DM-115" src="https://m.media-amazon.com/images/I/41KDdzfvfOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D54PQVBZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TECHING Mini Diesel Engine Model kit That Runs OHV 4-Cylinder Engine Mechanical Metal Assembly DIY Car Engine Model Kit 300+pcs DM-115" src="https://m.media-amazon.com/images/I/41KDdzfvfOL._SL500_.jpg"/></a>
 
 
 The **TECHING Mini Diesel Engine Model Kit** is ideal for hobbyists, engineering students, and DIY enthusiasts who have a keen interest in mechanical models and engine mechanics. If you enjoy hands-on projects that provide both a learning experience and a functional display piece, this intricate **OHV 4-Cylinder Engine** model is perfect for you. It's especially suited for those who appreciate detailed assembly work and want to explore the inner workings of a diesel engine in a compact, manageable format.
@@ -179,10 +179,10 @@ The **TECHING Mini Diesel Engine Model Kit** offers an immersive experience thro
 
 Crafted from durable silver metal, the model ensures both robustness and aesthetic appeal. The mechanical operation provides an authentic feel of engine mechanics, making it a valuable hands-on learning aid. Although assembly requires time and careful attention to detail, the sense of accomplishment and the functional outcome make it well worth the effort for anyone passionate about engineering and mechanical models.
 
-## <a href="https://www.amazon.com/dp/B0DKD9LLJD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modelforgex Toyan Fs-l200ac Engine Kit</a>
+## <a href="https://www.amazon.com/dp/B0DKD9LLJD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Modelforgex Toyan Fs-l200ac Engine Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKD9LLJD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ModelForgeX TOYAN FS-L200AC 7cc Inline 4 Stroke 2 Cylinder Engine Kit, Nitro Internal Combustion DIY Model (Red with Starter Kit A)" src="https://m.media-amazon.com/images/I/51cAiW9Xn2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKD9LLJD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ModelForgeX TOYAN FS-L200AC 7cc Inline 4 Stroke 2 Cylinder Engine Kit, Nitro Internal Combustion DIY Model (Red with Starter Kit A)" src="https://m.media-amazon.com/images/I/51cAiW9Xn2L._SL500_.jpg"/></a>
 
 
 The **ModelForgeX TOYAN FS-L200AC 7cc Inline 4 Stroke 2 Cylinder Engine Kit** is ideal for hobbyists and DIY enthusiasts who enjoy building and customizing **nitro-powered model engines**. If you are passionate about creating realistic and functional model engines with a hands-on approach, this kit offers an excellent blend of complexity and performance to enhance your modeling projects. It is perfect for those seeking a reliable and visually appealing engine to power their scale models or experimental builds.
@@ -205,10 +205,10 @@ The **ModelForgeX TOYAN FS-L200AC engine kit** is engineered with precision to d
 
 Additionally, the compact and lightweight design ensures that this engine can fit into a variety of scale model applications without adding unnecessary bulk. The vibrant **red color** with detailed machining not only provides a professional look but also makes maintenance and inspection easier. Overall, this kit combines aesthetic appeal with functional excellence, making it a worthwhile investment for dedicated modelers who want to elevate their projects with authentic internal combustion power.
 
-## <a href="https://www.amazon.com/dp/B0FD71GNCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goassemb Aluminum Alloy Base Starter Kit For Toyan Fs-v800wgp Engine Model</a>
+## <a href="https://www.amazon.com/dp/B0FD71GNCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goassemb Aluminum Alloy Base Starter Kit For Toyan Fs-v800wgp Engine Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD71GNCK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GoAssemb Aluminum Alloy Base Starter Kit for TOYAN FS-V800WGP Engine Model Includeing Ignition Set, Water Cooling Set, Charger, Gift for Mechanical Model Hobbyists and Science Lovers (Silver)" src="https://m.media-amazon.com/images/I/51ccoUosIOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD71GNCK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GoAssemb Aluminum Alloy Base Starter Kit for TOYAN FS-V800WGP Engine Model Includeing Ignition Set, Water Cooling Set, Charger, Gift for Mechanical Model Hobbyists and Science Lovers (Silver)" src="https://m.media-amazon.com/images/I/51ccoUosIOL._SL500_.jpg"/></a>
 
 
 The **GoAssemb Aluminum Alloy Base Starter Kit** for the **TOYAN FS-V800WGP Engine Model** is ideal for **mechanical model hobbyists** and **science enthusiasts** looking to build and explore engine mechanics. This starter kit is perfect for those who appreciate hands-on learning and want a durable, well-designed base to start their engine modeling projects with ease.
@@ -231,10 +231,10 @@ The **GoAssemb Aluminum Alloy Base Starter Kit** stands out with its robust cons
 
 Moreover, the lightweight yet sturdy design makes it convenient for transport and repositioning, while the sleek **silver color** adds an aesthetic appeal to any workspace. The compact dimensions mean it fits comfortably in most hobby areas without taking up excessive space. Overall, this starter kit is a comprehensive choice for those passionate about mechanical modeling and scientific exploration.
 
-## <a href="https://www.amazon.com/dp/B0DNHBTCML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helixsun Semto Engine St-nf2 Diy Mini Metal Engine Kit</a>
+## <a href="https://www.amazon.com/dp/B0DNHBTCML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Helixsun Semto Engine St-nf2 Diy Mini Metal Engine Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNHBTCML?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helixsun SEMTO Engine ST-NF2 DIY Mini Metal Engine Kit,7.0cc Mini Inline Double-Cylinder Four-Stroke Air-Cooled Nitro Interal Combustion Engine Model Kit,Physics Teaching Experiment(Red)" src="https://m.media-amazon.com/images/I/41fUIYFOUPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNHBTCML?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Helixsun SEMTO Engine ST-NF2 DIY Mini Metal Engine Kit,7.0cc Mini Inline Double-Cylinder Four-Stroke Air-Cooled Nitro Interal Combustion Engine Model Kit,Physics Teaching Experiment(Red)" src="https://m.media-amazon.com/images/I/41fUIYFOUPL._SL500_.jpg"/></a>
 
 
 The **Helixsun SEMTO Engine ST-NF2 DIY Mini Metal Engine Kit** is ideal for hobbyists, educators, and students who have a keen interest in mechanical engineering and physics. This kit is perfect for those looking to explore the workings of a real, functional engine on a smaller scale, especially useful for hands-on learning and experimental physics demonstrations.
@@ -257,10 +257,10 @@ The **Helixsun SEMTO Engine ST-NF2** features a precise 7.0cc inline double-cyli
 
 Constructed with high-quality metal components, this mini engine kit offers durability and reliability, ensuring consistent performance during repeated use. Its compact dimensions, measuring just over 4 inches in length and weighing approximately 1.18 pounds, make it portable and easy to integrate into classroom setups or personal workshops. Overall, this engine kit combines functionality with educational value, making it an excellent investment for anyone interested in mechanical systems and hands-on learning.
 
-## <a href="https://www.amazon.com/dp/B0DJSC9DLL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goekhyrani Engine Model Kit For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DJSC9DLL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Goekhyrani Engine Model Kit For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJSC9DLL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goekhyrani Engine Model Kit for Adults，TOYAN FS-S100AT1D-XP Single-Cylinder Four-Stroke NitroTransparent Chamber Design Engine Model,Perfect Christmas Birthday Gift (Include Chassis/RTR Version)" src="https://m.media-amazon.com/images/I/410wLUT0ahL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJSC9DLL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Goekhyrani Engine Model Kit for Adults，TOYAN FS-S100AT1D-XP Single-Cylinder Four-Stroke NitroTransparent Chamber Design Engine Model,Perfect Christmas Birthday Gift (Include Chassis/RTR Version)" src="https://m.media-amazon.com/images/I/410wLUT0ahL._SL500_.jpg"/></a>
 
 
 The **Goekhyrani Engine Model Kit for Adults** is perfect for hobbyists and engineering enthusiasts who enjoy hands-on projects and detailed mechanical models. Ideal for those interested in understanding the workings of a **single-cylinder four-stroke nitro engine**, this kit offers both educational value and an engaging building experience. It also makes a thoughtful gift for adults seeking a challenging yet rewarding pastime, especially around **Christmas or birthdays**.

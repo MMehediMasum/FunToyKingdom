@@ -23,10 +23,10 @@ Wavelength and Big Potato’s The Chameleon offer unique challenges that keep ev
 
 
 
-## <a href="https://www.amazon.com/dp/B0BCMJQBP5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Friends Card Game</a>
+## <a href="https://www.amazon.com/dp/B0BCMJQBP5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Friends Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCMJQBP5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Friends Card Game in Storage Tin, Collectibles Inspired by the TV Series" src="https://m.media-amazon.com/images/I/61-AZbCuzGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCMJQBP5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Friends Card Game in Storage Tin, Collectibles Inspired by the TV Series" src="https://m.media-amazon.com/images/I/61-AZbCuzGL._SL500_.jpg"/></a>
 
 
 The **Mattel Games UNO Friends Card Game in Storage Tin** is ideal for fans of the popular TV series who enjoy classic card games with a twist. This collectible edition is perfect for families, friends, and collectors looking to add a colorful and themed version of the timeless **UNO** game to their game night repertoire. If you appreciate unique packaging and themed gameplay, this product is designed especially for you.
@@ -49,10 +49,10 @@ The **UNO Friends Card Game** comes in a uniquely designed **storage tin** that 
 
 Beyond its aesthetic appeal, this edition maintains all the classic rules that make **UNO** a favorite worldwide. Players benefit from the familiar, fast-paced card matching gameplay while enjoying the added excitement of themed visuals. Overall, this product combines functionality, entertainment, and fandom into one appealing package that enhances social interaction and game nights.
 
-## <a href="https://www.amazon.com/dp/B082MT8JK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Best Friend Game</a>
+## <a href="https://www.amazon.com/dp/B082MT8JK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Best Friend Game</a>
 
 
-<a href="https://www.amazon.com/dp/B082MT8JK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Best Friend Game - Think You Know Your Friends? [A Party Game]" src="https://m.media-amazon.com/images/I/41qw4b+FFpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082MT8JK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Best Friend Game - Think You Know Your Friends? [A Party Game]" src="https://m.media-amazon.com/images/I/41qw4b+FFpL._SL500_.jpg"/></a>
 
 
 **The Best Friend Game - Think You Know Your Friends? [A Party Game]** is perfect for those who love social gatherings and want to deepen their connections with friends and family. Ideal customers include party enthusiasts, group activity lovers, and anyone looking to add fun and meaningful interaction to their get-togethers. If you enjoy discovering how well you truly know your close circle, this game is designed especially for you.
@@ -75,10 +75,10 @@ The **Best Friend Game** features a thoughtfully designed set of questions that 
 
 Manufactured by **Asmodee** and branded by **DSS Games**, this party game guarantees a high-quality experience with durable components. The appealing blue color adds to its aesthetic charm, making it an inviting addition to any party setup. Whether you're hosting a small gathering or a casual hangout, this game offers a unique way to engage and entertain your group.
 
-## <a href="https://www.amazon.com/dp/B09KZ742NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Let's Get Deep: Friends Edition By Relatable</a>
+## <a href="https://www.amazon.com/dp/B09KZ742NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Let's Get Deep: Friends Edition By Relatable</a>
 
 
-<a href="https://www.amazon.com/dp/B09KZ742NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Let's Get Deep: Friends Edition by Relatable, Fun Group Card Game for Game Night, Perfect for Party Games with Friends, Includes 400 Question Cards, Three Increasingly Personal Levels" src="https://m.media-amazon.com/images/I/41MPY5VhCGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KZ742NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Let's Get Deep: Friends Edition by Relatable, Fun Group Card Game for Game Night, Perfect for Party Games with Friends, Includes 400 Question Cards, Three Increasingly Personal Levels" src="https://m.media-amazon.com/images/I/41MPY5VhCGL._SL500_.jpg"/></a>
 
 
 The **Let's Get Deep: Friends Edition** by **Relatable** is ideal for individuals who enjoy meaningful conversations and want to strengthen their friendships through engaging and personal interactions. This **fun group card game** is perfect for game night enthusiasts, party hosts, and anyone looking to break the ice with friends in a unique and entertaining way.
@@ -101,10 +101,10 @@ The **Let's Get Deep: Friends Edition** features a thoughtfully designed set of 
 
 Beyond its entertaining nature, this game fosters authentic conversations that can transform casual acquaintances into close friends. The compact size ensures that it can be easily packed for trips or social events, making it a versatile addition to any game collection. Whether it's a cozy night in or a lively party, this card game offers a unique blend of fun and meaningful interaction that benefits all players involved.
 
-## <a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
+## <a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wavelength Party Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07T446163?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T446163?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wavelength Party Game – A Mind Reading Party Game" src="https://m.media-amazon.com/images/I/51X1RFmSp2L._SL500_.jpg"/></a>
 
 
 The **Wavelength Party Game – A Mind Reading Party Game** is ideal for social enthusiasts who enjoy interactive and thought-provoking experiences. Perfect for groups of friends, family gatherings, or casual parties, this game encourages teamwork and sharpens communication skills, making it a must-have for anyone looking to add a unique twist to their entertainment lineup.
@@ -125,10 +125,10 @@ The **Wavelength Party Game** features a unique format where players attempt to 
 
 Crafted with quality materials, the game’s vibrant mixed colours and sturdy design ensure durability and an engaging visual experience. Weighing just under 2.5 pounds, it is both lightweight and robust. The collaboration between the reputable **CMYK** brand and **Palm Court** manufacturer guarantees a well-made product that delivers hours of fun and mental stimulation for players of all ages.
 
-## <a href="https://www.amazon.com/dp/B0794TLDLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Trivial Pursuit</a>
+## <a href="https://www.amazon.com/dp/B0794TLDLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Trivial Pursuit</a>
 
 
-<a href="https://www.amazon.com/dp/B0794TLDLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Trivial Pursuit: Friends" src="https://m.media-amazon.com/images/I/51zjzV-VN0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0794TLDLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Trivial Pursuit: Friends" src="https://m.media-amazon.com/images/I/51zjzV-VN0L._SL500_.jpg"/></a>
 
 
 **Trivial Pursuit: Friends** is ideal for fans of the iconic TV show **Friends** who enjoy trivia games and social gatherings. This game is perfect for groups of friends or family members who want to test their knowledge about the beloved sitcom in a fun and engaging way. If you love **pop culture** and want a playful challenge that sparks nostalgia, this special edition is made for you.
@@ -150,10 +150,10 @@ The **Trivial Pursuit: Friends** edition offers a unique twist on the classic tr
 
 Its compact size and multicolor design make it an attractive addition to any game collection, while the trusted **Winning Moves** brand guarantees a quality gaming experience. Whether you're hosting a game night or just looking for a fun way to spend time with fellow **Friends** enthusiasts, this special edition provides both excitement and nostalgia. Overall, it’s a fantastic choice for anyone looking to combine trivia fun with their love for the show.
 
-## <a href="https://www.amazon.com/dp/B07VVLQ5LS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Hasbro Gaming Friends The Tv Series Edition Board Game</a>
+## <a href="https://www.amazon.com/dp/B07VVLQ5LS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Hasbro Gaming Friends The Tv Series Edition Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07VVLQ5LS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Hasbro Gaming Friends The TV Series Edition Board Game for Ages 8 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41V0v8BjQhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07VVLQ5LS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Hasbro Gaming Friends The TV Series Edition Board Game for Ages 8 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41V0v8BjQhL._SL500_.jpg"/></a>
 
 
 Ideal for fans of the iconic TV show **Friends** and classic board game enthusiasts, the **Monopoly Hasbro Gaming Friends The TV Series Edition Board Game** is perfect for players aged **8 and up** who enjoy combining nostalgia with strategic gameplay. This **Amazon Exclusive** edition offers a unique twist on the traditional **Monopoly** experience, making it a great choice for families, friends, and collectors looking to relive their favorite moments from the beloved series while engaging in fun and competitive play.
@@ -176,10 +176,10 @@ The **Monopoly Hasbro Gaming Friends The TV Series Edition** integrates familiar
 
 Beyond its thematic appeal, this edition maintains the core mechanics that make **Monopoly** timeless. The compact size and lightweight design make it easy to store and carry, perfect for both casual play at home or bringing along to gatherings. With a focus on accessibility and fun, the game promotes social interaction, strategic thinking, and friendly competition, making it an excellent addition to any game collection for fans and families alike.
 
-## <a href="https://www.amazon.com/dp/B09S3ZJJRM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato The Chameleon</a>
+## <a href="https://www.amazon.com/dp/B09S3ZJJRM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato The Chameleon</a>
 
 
-<a href="https://www.amazon.com/dp/B09S3ZJJRM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato The Chameleon, Award-Winning Board Game for Families &amp; Friends | Includes 80 Extra Secret Words" src="https://m.media-amazon.com/images/I/51d-MheqjSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09S3ZJJRM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato The Chameleon, Award-Winning Board Game for Families &amp; Friends | Includes 80 Extra Secret Words" src="https://m.media-amazon.com/images/I/51d-MheqjSL._SL500_.jpg"/></a>
 
 
 Ideal for families and groups of friends who enjoy engaging, interactive games, **Big Potato The Chameleon** is perfect for those looking to test their bluffing and deduction skills in a fun, social setting. If you love games that spark laughter, quick thinking, and conversation, this award-winning board game is a fantastic choice.
@@ -202,10 +202,10 @@ Ideal for families and groups of friends who enjoy engaging, interactive games, 
 
 Designed for groups, this board game fosters an inclusive and entertaining atmosphere where players can sharpen their observational and social skills. Thanks to its lightweight and portable nature, it's easy to bring along to gatherings, parties, or family nights. The **Big Potato** brand's commitment to quality ensures a durable product that will provide countless hours of engaging play.
 
-## <a href="https://www.amazon.com/dp/B015HQYDJU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disturbed Friends Party Game</a>
+## <a href="https://www.amazon.com/dp/B015HQYDJU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disturbed Friends Party Game</a>
 
 
-<a href="https://www.amazon.com/dp/B015HQYDJU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disturbed Friends Party Game - Find Out Who Your Friends are! Hilarious Card Game for Adults, Friends, Family, College Students, Fun Parties and Board Games Night with Your Group" src="https://m.media-amazon.com/images/I/41QqH-2iQ4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015HQYDJU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disturbed Friends Party Game - Find Out Who Your Friends are! Hilarious Card Game for Adults, Friends, Family, College Students, Fun Parties and Board Games Night with Your Group" src="https://m.media-amazon.com/images/I/41QqH-2iQ4L._SL500_.jpg"/></a>
 
 
 The **Disturbed Friends Party Game** is perfect for adults, friends, family members, and college students who enjoy engaging, social, and humorous games. If you're looking to spice up your **fun parties**, **board game nights**, or casual gatherings, this game is designed to bring out laughter and reveal surprising truths about your group. Ideal for anyone who loves interactive and entertaining activities, this game helps you find out who your real friends are in the most hilarious way.
@@ -228,10 +228,10 @@ The **Disturbed Friends Party Game** by **Dyce LLC** is crafted to deliver a uni
 
 Beyond just being a source of laughter, this game serves as a fantastic icebreaker, encouraging honest conversations and revealing surprising insights about your friends and family. The quick setup and straightforward rules make it accessible for all groups, whether it's a casual night in or a lively party. With the **Disturbed Friends Party Game**, you’re guaranteed to create memorable moments and strengthen bonds in a fun, unexpected way.
 
-## <a href="https://www.amazon.com/dp/B07QSCQMXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Incohearent</a>
+## <a href="https://www.amazon.com/dp/B07QSCQMXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Incohearent</a>
 
 
-<a href="https://www.amazon.com/dp/B07QSCQMXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Incohearent, The Guess The Gibberish Party Game by Relatable, A Funny Card Game for Adults, Great for Game Night Games, Includes 400 Cards, Instructions, and 1 Sand Timer" src="https://m.media-amazon.com/images/I/41rGFJdfOIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QSCQMXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Incohearent, The Guess The Gibberish Party Game by Relatable, A Funny Card Game for Adults, Great for Game Night Games, Includes 400 Cards, Instructions, and 1 Sand Timer" src="https://m.media-amazon.com/images/I/41rGFJdfOIL._SL500_.jpg"/></a>
 
 
 The **WHAT DO YOU MEME? Incohearent** game is perfect for **adults** who enjoy lively and interactive party games that spark creativity and laughter. If you're someone who loves playing **fun card games** during game nights with friends or family, or if you're looking for a hilarious way to break the ice at gatherings, this game is an excellent choice. It caters to those who appreciate witty challenges and enjoy guessing **gibberish phrases** in a lighthearted setting.
@@ -254,10 +254,10 @@ The **WHAT DO YOU MEME? Incohearent** game is designed to bring laughter and exc
 
 Compact in size with dimensions of 3.0 x 4.5 x 8.5 inches, this game is highly portable, making it a great addition to parties, gatherings, or even travel. The clear **instructions** ensure that new players can quickly understand how to play, allowing everyone to jump right into the fun. Overall, **WHAT DO YOU MEME? Incohearent** is an entertaining and clever card game that elevates any social event by encouraging creativity, quick thinking, and lots of laughs.
 
-## <a href="https://www.amazon.com/dp/B093HBBMPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato Herd Mentality</a>
+## <a href="https://www.amazon.com/dp/B093HBBMPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Big Potato Herd Mentality</a>
 
 
-<a href="https://www.amazon.com/dp/B093HBBMPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato Herd Mentality: Udderly Hilarious Board Game for Group Fun | Easy Setup &amp; Play | The Perfect Party Game for 4-20 Players | Includes 20 Extra Exclusive Question Cards" src="https://m.media-amazon.com/images/I/41EMAoyn+0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093HBBMPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Big Potato Herd Mentality: Udderly Hilarious Board Game for Group Fun | Easy Setup &amp; Play | The Perfect Party Game for 4-20 Players | Includes 20 Extra Exclusive Question Cards" src="https://m.media-amazon.com/images/I/41EMAoyn+0L._SL500_.jpg"/></a>
 
 
 The **Big Potato Herd Mentality** game is ideal for groups looking to spark laughter and connection during gatherings. Perfect for families, friends, and party enthusiasts, this **board game** caters to those who enjoy interactive and humorous challenges. With its **Kids Edition** format and capacity for **4-20 players**, it’s suitable for both younger players and adults seeking easy setup and fun-filled gameplay.

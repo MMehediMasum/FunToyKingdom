@@ -23,10 +23,10 @@ Power outlets and drawers make it easier to store games and charge devices. The 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DL9PL2LV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Board Game Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B0DL9PL2LV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Board Game Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0DL9PL2LV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Board Game Coffee Table with Removable Table Top, Seats 4 Players with 3ft-7in x 2ft-9in Play Area, Includes Play Mat and Detachable Cup Holders, Minimal Assembly Required" src="https://m.media-amazon.com/images/I/510CGwoI4nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DL9PL2LV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Board Game Coffee Table with Removable Table Top, Seats 4 Players with 3ft-7in x 2ft-9in Play Area, Includes Play Mat and Detachable Cup Holders, Minimal Assembly Required" src="https://m.media-amazon.com/images/I/510CGwoI4nL._SL500_.jpg"/></a>
 
 
 The **Board Game Coffee Table with Removable Table Top** is ideal for families, board game enthusiasts, and anyone who enjoys socializing in a comfortable and functional living space. This item is perfect for those who want to combine leisure and utility, offering a stylish piece of furniture that also serves as a dedicated gaming surface for up to four players.
@@ -50,10 +50,10 @@ The **Board Game Coffee Table** features a thoughtfully designed removable top t
 
 Additionally, the detachable cup holders are a practical addition that helps keep beverages secure, minimizing the risk of spills on game components. The sturdy build combined with an elegant **Honey Oak finish** ensures this table fits seamlessly into any living room or game room. With minimal assembly required, users can quickly set up the table and start playing, enhancing convenience without sacrificing style or functionality.
 
-## <a href="https://www.amazon.com/dp/B0BV6718L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rolanstar Coffee Table Lift Top</a>
+## <a href="https://www.amazon.com/dp/B0BV6718L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rolanstar Coffee Table Lift Top</a>
 
 
-<a href="https://www.amazon.com/dp/B0BV6718L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rolanstar Coffee Table Lift Top, Multi-Function Convertible Coffee Table with Drawers and Hidden Compartment, Converts to Dining Table for Living Room, Home Office,Espresso" src="https://m.media-amazon.com/images/I/41GDFWJVWsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BV6718L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rolanstar Coffee Table Lift Top, Multi-Function Convertible Coffee Table with Drawers and Hidden Compartment, Converts to Dining Table for Living Room, Home Office,Espresso" src="https://m.media-amazon.com/images/I/41GDFWJVWsL._SL500_.jpg"/></a>
 
 
 The **Rolanstar Coffee Table Lift Top** is perfect for individuals looking to maximize functionality in a compact living space. Ideal for apartment dwellers, remote workers, and anyone who values versatile furniture, this multi-function convertible coffee table seamlessly blends style and practicality. Whether you need extra storage, a hidden compartment for valuables, or a dining surface in your living room or home office, this coffee table is designed to meet diverse needs with ease.
@@ -76,10 +76,10 @@ The **Rolanstar Coffee Table Lift Top** stands out with its versatile design, co
 
 Beyond functionality, this coffee table's design enhances user experience by allowing easy transition between leisure and productivity. The lift-top mechanism is smooth and reliable, making it simple to adjust the table height when needed. Its ample surface area accommodates meals, laptops, or work materials comfortably. Overall, the **Rolanstar Coffee Table Lift Top** is an excellent choice for those seeking a stylish, multi-functional furniture piece that supports both relaxation and productivity in the living room or home office.
 
-## <a href="https://www.amazon.com/dp/B0DMF77TL6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwvo Farmhouse Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B0DMF77TL6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwvo Farmhouse Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMF77TL6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWVO Farmhouse Coffee Table: 3-in-1 Board Game Center with Removable Top, 4-Drawer Puzzle Station &amp; Built-in Power Outlet, Living Room Furniture with Play Mat (Walnut)" src="https://m.media-amazon.com/images/I/51mpXINi39L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMF77TL6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWVO Farmhouse Coffee Table: 3-in-1 Board Game Center with Removable Top, 4-Drawer Puzzle Station &amp; Built-in Power Outlet, Living Room Furniture with Play Mat (Walnut)" src="https://m.media-amazon.com/images/I/51mpXINi39L._SL500_.jpg"/></a>
 
 
 The **DWVO Farmhouse Coffee Table** is perfect for families and game enthusiasts who want a stylish yet functional centerpiece in their living room. Ideal for those who enjoy board games, puzzles, and convenient tech access, this coffee table combines entertainment with everyday practicality, making it a great buy for anyone looking to enhance their home environment with multi-purpose furniture.
@@ -101,10 +101,10 @@ The **DWVO Farmhouse Coffee Table** is thoughtfully designed with a removable to
 
 Additionally, the table’s **four-drawer puzzle station** offers ample storage for game pieces and accessories, helping to keep the area tidy and organized. The built-in **power outlet** is a modern touch that meets the needs of today’s tech-savvy users, allowing easy charging of devices while relaxing or entertaining guests. Its sturdy walnut finish not only adds durability but also complements various interior styles, making it a functional and attractive piece of **living room furniture**.
 
-## <a href="https://www.amazon.com/dp/B0D176NZH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Board Game Table</a>
+## <a href="https://www.amazon.com/dp/B0D176NZH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Board Game Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0D176NZH9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Board Game Table with Removable Table Top, Seats 4 to 6 Players with 57in x 33in Play Area, Includes Play Mat, Detachable Cup Holders and Dice Trays, Minimal Assembly Required" src="https://m.media-amazon.com/images/I/51E-eNwVrcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D176NZH9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Board Game Table with Removable Table Top, Seats 4 to 6 Players with 57in x 33in Play Area, Includes Play Mat, Detachable Cup Holders and Dice Trays, Minimal Assembly Required" src="https://m.media-amazon.com/images/I/51E-eNwVrcL._SL500_.jpg"/></a>
 
 
 The **Board Game Table with Removable Table Top** is perfect for avid gamers and families who enjoy spending quality time together around a dedicated gaming surface. Ideal for those who host game nights or want a versatile piece of furniture that transitions seamlessly between everyday use and a specialized play area, this table accommodates groups of 4 to 6 players comfortably. If you value convenience, organization, and a stylish design that complements your home, this item is an excellent choice.
@@ -128,10 +128,10 @@ Crafted by **Brimhart**, this **board game table** is designed with both functio
 
 Additional features like **detachable cup holders and dice trays** enhance the gaming experience by keeping drinks secure and game pieces organized, reducing clutter and the risk of spills. The included **play mat** not only protects the table surface but also provides a smooth and cushioned playing surface that improves gameplay and comfort. With minimal assembly required, this table is ready to elevate your game nights in no time.
 
-## <a href="https://www.amazon.com/dp/B0DZCV6VGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwvo Farmhouse Living Room Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B0DZCV6VGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwvo Farmhouse Living Room Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZCV6VGM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWVO Farmhouse Living Room Coffee Table: 3-in-1 Board Game &amp; Puzzle Table with Play Mat, 4 Drawers, Power Outlet, Removable Top Black" src="https://m.media-amazon.com/images/I/51+CMRuE4eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZCV6VGM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWVO Farmhouse Living Room Coffee Table: 3-in-1 Board Game &amp; Puzzle Table with Play Mat, 4 Drawers, Power Outlet, Removable Top Black" src="https://m.media-amazon.com/images/I/51+CMRuE4eL._SL500_.jpg"/></a>
 
 
 The **DWVO Farmhouse Living Room Coffee Table** is ideal for families, board game enthusiasts, and anyone who loves multifunctional furniture. If you want a stylish yet practical centerpiece that combines a coffee table with a **3-in-1 board game and puzzle table**, this item is perfect for your living space. It suits those who value both entertainment and convenience without sacrificing home aesthetics.
@@ -154,10 +154,10 @@ The **DWVO Farmhouse Coffee Table** boasts a thoughtfully designed multifunction
 
 With **4 spacious drawers**, organization is simple and clutter-free, allowing users to neatly store game components or other living room essentials. The integrated **power outlet** is a modern convenience, enabling users to charge devices without leaving the table, which is especially useful during long gaming sessions. The elegant black farmhouse finish complements various décor styles, making it a beautiful yet functional addition to any living room.
 
-## <a href="https://www.amazon.com/dp/B0BS3T7RC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tribesigns Farmhouse Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B0BS3T7RC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tribesigns Farmhouse Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS3T7RC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tribesigns Farmhouse Coffee Table Square LED Engineered Wood Low Coffee Table for Living Room Rustic Brown &amp; Black" src="https://m.media-amazon.com/images/I/51jaVj4okzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS3T7RC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tribesigns Farmhouse Coffee Table Square LED Engineered Wood Low Coffee Table for Living Room Rustic Brown &amp; Black" src="https://m.media-amazon.com/images/I/51jaVj4okzL._SL500_.jpg"/></a>
 
 
 The **Tribesigns Farmhouse Coffee Table Square LED Engineered Wood Low Coffee Table** is ideal for homeowners and renters who appreciate a blend of rustic charm and modern functionality in their living room furniture. This piece is perfect for those seeking a stylish, durable, and practical coffee table that complements a cozy farmhouse or industrial-style decor. If you value both aesthetics and utility in your living space, this coffee table offers an excellent balance of both.
@@ -180,10 +180,10 @@ The **Tribesigns Farmhouse Coffee Table** showcases a harmonious fusion of rusti
 
 With a generous square surface of **35.43 inches** on each side, this coffee table offers ample room for serving snacks, displaying decorative items, or organizing books and magazines. The **rustic brown and black** finish complements a wide array of interior styles, from farmhouse to industrial, helping to tie the room together effortlessly. Although it is slightly heavy, the sturdy construction ensures stability, making it a reliable centerpiece for your living room.
 
-## <a href="https://www.amazon.com/dp/B0FDFMDT8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lynslim Oak Wood Board Game Table For 6 Players</a>
+## <a href="https://www.amazon.com/dp/B0FDFMDT8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lynslim Oak Wood Board Game Table For 6 Players</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDFMDT8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LYNSLIM Oak Wood Board Game Table for 6 Players with Removable Table Top, 64.96in x 38.39in Gaming Area, Includes Game Mat, Detachable Cup Holders &amp; Trays,Convertible Game/Dining Puzzle Table" src="https://m.media-amazon.com/images/I/61fjNnZZSFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDFMDT8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LYNSLIM Oak Wood Board Game Table for 6 Players with Removable Table Top, 64.96in x 38.39in Gaming Area, Includes Game Mat, Detachable Cup Holders &amp; Trays,Convertible Game/Dining Puzzle Table" src="https://m.media-amazon.com/images/I/61fjNnZZSFL._SL500_.jpg"/></a>
 
 
 The **LYNSLIM Oak Wood Board Game Table for 6 Players** is perfect for avid board gamers, families, and social groups who want a versatile and stylish gaming space. Ideal for those who appreciate quality craftsmanship and need a multi-functional table that can easily transition from gaming to dining, this table caters to anyone seeking both entertainment and practicality in one piece of furniture.
@@ -206,10 +206,10 @@ The **LYNSLIM Oak Wood Board Game Table** boasts a large playing surface that en
 
 Additionally, the thoughtful inclusion of **detachable cup holders and trays** adds to the convenience, keeping drinks and snacks organized and reducing the risk of spills on the gaming surface. Crafted from sturdy **oak wood**, this table combines durability with a classic aesthetic, ensuring it remains a centerpiece in any room. While it is somewhat heavy, the robust construction supports long-term use and stability during intense gameplay sessions. Overall, this table is a perfect blend of style, practicality, and gaming functionality for enthusiasts and families alike.
 
-## <a href="https://www.amazon.com/dp/B0FFN9D114?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Board Game Table With Removable Top</a>
+## <a href="https://www.amazon.com/dp/B0FFN9D114?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Board Game Table With Removable Top</a>
 
 
-<a href="https://www.amazon.com/dp/B0FFN9D114?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 6="" 8="" alt="Board Game Table with Removable Top -Solid Wood 72" and="" convertible="" dnd,="" family="" for="" game="" get-togethers"="" nights,="" players="" poker="" seats="" src="https://m.media-amazon.com/images/I/51cATdS-4YL._SL500_.jpg" table="" to=""/></a>
+<a href="https://www.amazon.com/dp/B0FFN9D114?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 6="" 8="" alt="Board Game Table with Removable Top -Solid Wood 72" and="" convertible="" dnd,="" family="" for="" game="" get-togethers"="" nights,="" players="" poker="" seats="" src="https://m.media-amazon.com/images/I/51cATdS-4YL._SL500_.jpg" table="" to=""/></a>
 
 
 The **Board Game Table with Removable Top** is perfect for avid gamers and families who enjoy social gatherings. Ideal for those who host **DND sessions, poker nights, or family get-togethers**, this table combines functionality with style, accommodating 6 to 8 players comfortably. If you want a versatile, durable, and elegant centerpiece for your gaming or dining area, this solid wood table is an excellent choice.
@@ -232,10 +232,10 @@ Featuring a substantial **48-inch width** and **70-inch length**, this table pro
 
 Crafted by **Girarvs**, the table boasts a sturdy build and a warm **brown color** that enhances the ambiance of any room. Whether hosting intense **poker nights** or collaborative **DND campaigns**, the table’s generous size and thoughtful design offer comfort and convenience. This combination of style, function, and durability makes it a must-have for game enthusiasts and families alike.
 
-## <a href="https://www.amazon.com/dp/B0DW8VWBT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwvo Farmhouse Living Room Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B0DW8VWBT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dwvo Farmhouse Living Room Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0DW8VWBT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWVO Farmhouse Living Room Coffee Table: 3-in-1 Game &amp; Puzzle Table with Play Mat, 4 Drawers, Power Outlet, Removable Top Black" src="https://m.media-amazon.com/images/I/41JrjoQnnWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DW8VWBT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DWVO Farmhouse Living Room Coffee Table: 3-in-1 Game &amp; Puzzle Table with Play Mat, 4 Drawers, Power Outlet, Removable Top Black" src="https://m.media-amazon.com/images/I/41JrjoQnnWL._SL500_.jpg"/></a>
 
 
 The **DWVO Farmhouse Living Room Coffee Table** is ideal for families and game enthusiasts looking for a versatile and functional piece of furniture. If you want a stylish **3-in-1 game and puzzle table** that also serves as a practical coffee table with ample storage and convenient power access, this product is perfect for your living space. It caters to those who appreciate a blend of entertainment, organization, and farmhouse design aesthetics.
@@ -257,10 +257,10 @@ The **DWVO Farmhouse Living Room Coffee Table** features a thoughtfully designed
 
 Additionally, the table comes with **4 spacious drawers** that provide ample storage for game pieces, remote controls, and other living room essentials, helping to keep your space neat and organized. The integrated **power outlet** is a convenient feature for charging phones, tablets, or laptops, making it a practical centerpiece for modern homes. With its sturdy build and elegant black farmhouse color, this table offers both aesthetic appeal and long-lasting durability.
 
-## <a href="https://www.amazon.com/dp/B0BNLVZCR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sauder Cottage Road Coffee Table</a>
+## <a href="https://www.amazon.com/dp/B0BNLVZCR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sauder Cottage Road Coffee Table</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNLVZCR7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sauder Cottage Road Coffee Table/Gaming Table with Removable Top, Soft White Finish" src="https://m.media-amazon.com/images/I/31egZt+EaFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNLVZCR7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sauder Cottage Road Coffee Table/Gaming Table with Removable Top, Soft White Finish" src="https://m.media-amazon.com/images/I/31egZt+EaFL._SL500_.jpg"/></a>
 
 
 The **Sauder Cottage Road Coffee Table/Gaming Table with Removable Top** in **Soft White Finish** is ideal for individuals seeking a versatile and stylish piece of furniture that can serve multiple purposes. Whether you are a homeowner wanting a functional coffee table with added storage or a gaming enthusiast looking for a dedicated space to play, this table offers a perfect blend of design and utility. Its removable top makes it especially suitable for those who appreciate flexibility in their living spaces.

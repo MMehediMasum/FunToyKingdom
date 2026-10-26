@@ -20,10 +20,10 @@ The kit's durable construction promises reliability. Simple setup saves time. It
 
 
 
-## <a href="https://www.amazon.com/dp/B078FG5CTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Groz Fuel Dispensing Kit</a>
+## <a href="https://www.amazon.com/dp/B078FG5CTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Groz Fuel Dispensing Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B078FG5CTB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 3="" 4"="" alt="Groz 44094 Fuel Dispensing Kit 3/4" hose="" id="" npt"="" src="https://m.media-amazon.com/images/I/41VSIEfxvDL._SL500_.jpg" with=""/></a>
+<a href="https://www.amazon.com/dp/B078FG5CTB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 3="" 4"="" alt="Groz 44094 Fuel Dispensing Kit 3/4" hose="" id="" npt"="" src="https://m.media-amazon.com/images/I/41VSIEfxvDL._SL500_.jpg" with=""/></a>
 
 
 The **Groz 44094 Fuel Dispensing Kit 3/4" Hose ID with 3/4" NPT** is ideal for individuals and businesses needing a reliable and efficient solution for fuel transfer. Whether you are a mechanic, a fleet manager, or someone who regularly handles fuel dispensing, this kit offers durability and ease of use that suits both professional and personal applications.

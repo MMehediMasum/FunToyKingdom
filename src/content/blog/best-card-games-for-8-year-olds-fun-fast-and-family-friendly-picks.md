@@ -23,10 +23,10 @@ They also encourage healthy competition and teamwork, helping kids develop patie
 
 
 
-## <a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Basketball Fast-paced Card Game</a>
+## <a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Basketball Fast-paced Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Basketball Fast-Paced Card Game for Kids &amp; Adults – 128 Cards &amp; Easy Rules – Quick &amp; Fun Matching Game – 2-8 Players – Ages 8+ – Perfect for Family Games Night, Travel &amp; Parties" src="https://m.media-amazon.com/images/I/51rMk+kQdaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNXLYL9C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Basketball Fast-Paced Card Game for Kids &amp; Adults – 128 Cards &amp; Easy Rules – Quick &amp; Fun Matching Game – 2-8 Players – Ages 8+ – Perfect for Family Games Night, Travel &amp; Parties" src="https://m.media-amazon.com/images/I/51rMk+kQdaL._SL500_.jpg"/></a>
 
 
 The **Basketball Fast-Paced Card Game** is ideal for both **kids and adults** who enjoy engaging, quick, and competitive games. Perfect for families, groups of friends, or party gatherings, this game suits players aged **8 and up** and accommodates **2 to 8 players**. If you're looking for a fun, easy-to-learn activity that can be played anywhere—from family game nights to travel or parties—this card game is an excellent choice.
@@ -48,10 +48,10 @@ The **Basketball Fast-Paced Card Game** features a vibrant **basketball-themed d
 
 Beyond its portability and ease of play, this game enhances social interaction by encouraging friendly competition and quick thinking. The inclusion of **128 cards** ensures a dynamic experience with plenty of matching challenges. Whether you're looking to break the ice at a party, bond during family game night, or keep kids entertained during travel, this game offers a perfect blend of excitement and accessibility.
 
-## <a href="https://www.amazon.com/dp/B09PJ5Y5NH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weird Giraffe Games Gift Of Tulips</a>
+## <a href="https://www.amazon.com/dp/B09PJ5Y5NH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weird Giraffe Games Gift Of Tulips</a>
 
 
-<a href="https://www.amazon.com/dp/B09PJ5Y5NH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weird Giraffe Games Gift of Tulips - Bouquets Building Card Game, Ages 8+, 2-6 Players, 15 Min" src="https://m.media-amazon.com/images/I/51AiK4mJxDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PJ5Y5NH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weird Giraffe Games Gift of Tulips - Bouquets Building Card Game, Ages 8+, 2-6 Players, 15 Min" src="https://m.media-amazon.com/images/I/51AiK4mJxDL._SL500_.jpg"/></a>
 
 
 The **Weird Giraffe Games Gift of Tulips** is perfect for families, friends, and casual gamers looking for a quick and engaging card game experience. Designed for players aged **8 and up**, this game suits groups of **2 to 6 players** who enjoy strategic yet accessible gameplay. If you want a compact, easy-to-learn game that fits into a short playtime, this is an ideal choice.
@@ -74,10 +74,10 @@ The **Gift of Tulips** card game features a streamlined design that emphasizes q
 
 Thanks to its short playing time of around **15 minutes**, this game is ideal for filling small breaks or serving as an appetizer before longer gaming sessions. The game's flexible player count from **2 to 6 players** ensures it adapts well to various group sizes, making it versatile for families and friend circles alike. Overall, the **Weird Giraffe Games Gift of Tulips** offers an enjoyable, quick, and portable gaming option that blends simple mechanics with strategic depth.
 
-## <a href="https://www.amazon.com/dp/B0796W61CK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ginger Fox Maki Staki Sushi Themed Card Game</a>
+## <a href="https://www.amazon.com/dp/B0796W61CK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ginger Fox Maki Staki Sushi Themed Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0796W61CK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ginger Fox Maki Staki Sushi Themed Card Game -Collect The Cards to Make Your Maki Perfect Party Game for Up to 6 Players" src="https://m.media-amazon.com/images/I/415ZOyNAxcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0796W61CK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ginger Fox Maki Staki Sushi Themed Card Game -Collect The Cards to Make Your Maki Perfect Party Game for Up to 6 Players" src="https://m.media-amazon.com/images/I/415ZOyNAxcL._SL500_.jpg"/></a>
 
 
 The **Ginger Fox Maki Staki Sushi Themed Card Game** is perfect for those who love engaging party games with a fun, food-inspired twist. Ideal for families, friends, and groups of up to 6 players, this game combines strategy and light-hearted competition, making it a great choice for social gatherings and game nights. If you enjoy collecting cards and creating themed challenges, this colorful and interactive game is designed with you in mind.
@@ -100,10 +100,10 @@ This **Ginger Fox Maki Staki Sushi Themed Card Game** features vibrant, multicol
 
 Beyond its fun theme, the game promotes social interaction and strategic thinking, as players must decide which cards to collect and when to play them to outsmart their opponents. Its ability to accommodate up to 6 players ensures that it can entertain a variety of group sizes, making it a versatile addition to your game collection. Manufactured by **GINGER FOX**, the game promises reliable quality and a well-designed experience for sushi lovers and card game enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B0DVJ5QS13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Playing Cards Themed Deck</a>
+## <a href="https://www.amazon.com/dp/B0DVJ5QS13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Playing Cards Themed Deck</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVJ5QS13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Playing Cards Themed Deck for Adults - Collectible Card Games for Teens, Women and Men - Card Games For Adults on Family Game Night - 54 Cards for Solitaire or Poker - Fun Gifts for Cat Lovers" src="https://m.media-amazon.com/images/I/61D3A90zGiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DVJ5QS13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cat Playing Cards Themed Deck for Adults - Collectible Card Games for Teens, Women and Men - Card Games For Adults on Family Game Night - 54 Cards for Solitaire or Poker - Fun Gifts for Cat Lovers" src="https://m.media-amazon.com/images/I/61D3A90zGiL._SL500_.jpg"/></a>
 
 
 The **Cat Playing Cards Themed Deck for Adults** is perfect for anyone who loves cats and enjoys card games. Whether you are a **teen, woman, or man** looking for a unique collectible or a fun way to spice up your **family game night**, this deck offers a delightful blend of entertainment and feline charm. It is especially suitable for **cat lovers** who want to add a playful touch to their card game collection.
@@ -125,10 +125,10 @@ The **Cat Playing Cards Themed Deck** stands out with its charming and intricate
 
 Designed for versatility, this 54-card set is ideal for popular games like **poker and solitaire**, allowing users to enjoy classic card games with a feline twist. The cards are also lightweight and portable, making them a convenient addition to any game night or casual get-together. Overall, this deck combines functionality, quality, and a passion for cats, making it a must-have for anyone looking to brighten their card game sessions with a fun, thematic flair.
 
-## <a href="https://www.amazon.com/dp/B0DXCJCD8Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Herdvana Card Game</a>
+## <a href="https://www.amazon.com/dp/B0DXCJCD8Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Herdvana Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXCJCD8Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Herdvana Card Game" src="https://m.media-amazon.com/images/I/31OTHcZAoeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXCJCD8Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Herdvana Card Game" src="https://m.media-amazon.com/images/I/31OTHcZAoeL._SL500_.jpg"/></a>
 
 
 The **Herdvana Card Game** is perfect for social gamers who enjoy engaging and interactive gameplay with friends and family. Ideal for players who appreciate strategic thinking combined with lighthearted fun, this game suits those looking to enhance their game night with a unique and entertaining experience. Whether you're a casual gamer or a dedicated card game enthusiast, the Herdvana Card Game offers something for everyone.
@@ -149,10 +149,10 @@ The **Herdvana Card Game** boasts a sleek and lightweight design, weighing only 
 
 Players will enjoy the balance between strategy and fun that the game offers. It encourages interaction, laughter, and thoughtful decision-making, making each session an enjoyable challenge. This combination not only entertains but also helps improve cognitive skills and teamwork, enhancing the overall gaming experience for users of all ages.
 
-## <a href="https://www.amazon.com/dp/B086FLN1FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outset Media Up A Bit Drawing Card Game</a>
+## <a href="https://www.amazon.com/dp/B086FLN1FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Outset Media Up A Bit Drawing Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B086FLN1FW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outset Media Up a Bit Drawing Card Game - Describe an Object to Draw and Guess - Family Guessing Game Ages 8+ - Contains 100 Objects Cards, 250 Double Sided Grid Sheets" src="https://m.media-amazon.com/images/I/51uoT7b-VNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B086FLN1FW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Outset Media Up a Bit Drawing Card Game - Describe an Object to Draw and Guess - Family Guessing Game Ages 8+ - Contains 100 Objects Cards, 250 Double Sided Grid Sheets" src="https://m.media-amazon.com/images/I/51uoT7b-VNL._SL500_.jpg"/></a>
 
 
 The **Outset Media Up a Bit Drawing Card Game** is perfect for families and friends looking to enjoy an engaging and creative guessing game. Ideal for children aged 8 and above, this game encourages imagination, quick thinking, and teamwork, making it a great choice for game nights, classrooms, or casual gatherings.
@@ -174,10 +174,10 @@ The **Outset Media Up a Bit Drawing Card Game** combines simplicity and fun with
 
 With its thoughtfully designed components, including durable cards and generously sized drawing sheets, this game ensures long-lasting entertainment. It also fosters valuable skills such as observation, interpretation, and collaboration, making it an excellent educational tool as well as a source of family fun. Whether at home or on the go, this game offers hours of interactive enjoyment for all players involved.
 
-## <a href="https://www.amazon.com/dp/B0D385FSH6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Arab Card Game First Edition</a>
+## <a href="https://www.amazon.com/dp/B0D385FSH6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Arab Card Game First Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0D385FSH6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Arab Card Game First Edition - A Fun &amp; Funny Social-Trivia About Being Arab!" src="https://m.media-amazon.com/images/I/31Up+KYAGbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D385FSH6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Arab Card Game First Edition - A Fun &amp; Funny Social-Trivia About Being Arab!" src="https://m.media-amazon.com/images/I/31Up+KYAGbL._SL500_.jpg"/></a>
 
 
 **The Arab Card Game First Edition** is perfect for anyone looking to connect with their **Arab heritage** or those interested in learning about Arab culture in a **fun** and **engaging** way. Ideal for **families, friends, and social gatherings**, this game offers a unique blend of **trivia** and humor, making it a great choice for players of all ages who want to explore cultural identity through interactive play.
@@ -200,10 +200,10 @@ Featuring a compact design and lightweight build, **The Arab Card Game First Edi
 
 The interactive nature of the game makes it a perfect tool for breaking the ice and building connections among players. Whether you are hosting a party or engaging in a quiet evening with loved ones, the game’s blend of humor and knowledge encourages participants to share stories and perspectives, enriching the overall experience. Its authenticity, backed by The Arab Card Game brand, ensures that users receive a genuine and respectful portrayal of Arab culture.
 
-## <a href="https://www.amazon.com/dp/B0DM6TV7V4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fun Express Learn365 Punctuation Clip Cards</a>
+## <a href="https://www.amazon.com/dp/B0DM6TV7V4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fun Express Learn365 Punctuation Clip Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B0DM6TV7V4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fun Express Learn365 Punctuation Clip Cards - 56 Pieces" src="https://m.media-amazon.com/images/I/41dppZ8Dg9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DM6TV7V4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fun Express Learn365 Punctuation Clip Cards - 56 Pieces" src="https://m.media-amazon.com/images/I/41dppZ8Dg9L._SL500_.jpg"/></a>
 
 
 The **Fun Express Learn365 Punctuation Clip Cards - 56 Pieces** are ideal for young learners, educators, and parents looking to enhance punctuation skills in a fun, interactive way. These clip cards are perfect for children who are beginning to grasp the fundamentals of punctuation and want a hands-on approach to learning. Teachers and homeschooling parents will find these cards a valuable resource to support literacy development and classroom engagement.
@@ -226,10 +226,10 @@ The **Fun Express Learn365 Punctuation Clip Cards** come in a set of 56 pieces, 
 
 These clip cards offer a hands-on learning experience that supports active participation. This method encourages children to think critically about punctuation in sentences, fostering better retention and application of punctuation rules. Whether used in a classroom setting or at home, the cards provide a versatile and engaging tool to enhance early literacy skills and build confidence in writing and reading comprehension.
 
-## <a href="https://www.amazon.com/dp/B0DNNG5P1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Word Teasers It’s Raining Cats And Dogs Conversation Cards</a>
+## <a href="https://www.amazon.com/dp/B0DNNG5P1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Word Teasers It’s Raining Cats And Dogs Conversation Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B0DNNG5P1K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="? WORD TEASERS It’s Raining Cats and Dogs Conversation Cards – Conversation Starters for Families &amp; Kids – Funny Sayings Idioms Game – Fun Word Games" src="https://m.media-amazon.com/images/I/41Q0TZ7Ri-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DNNG5P1K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="? WORD TEASERS It’s Raining Cats and Dogs Conversation Cards – Conversation Starters for Families &amp; Kids – Funny Sayings Idioms Game – Fun Word Games" src="https://m.media-amazon.com/images/I/41Q0TZ7Ri-L._SL500_.jpg"/></a>
 
 
 The **? WORD TEASERS It’s Raining Cats and Dogs Conversation Cards** are perfect for families and kids who enjoy playful learning and want to spark engaging conversations. Ideal for parents, teachers, and caregivers looking to introduce children to **funny sayings, idioms, and word games**, this set encourages creativity and language development in an entertaining way. If you want a tool that combines education with laughter, this game is an excellent choice.
@@ -251,10 +251,10 @@ These conversation cards feature a variety of **idiomatic expressions** presente
 
 Additionally, the cards are designed with bright, engaging graphics and easy-to-read text that maintain children’s attention. The portability of the set means families can bring these conversation starters on trips or use them as an educational break during busy days. Overall, this product is a valuable resource for anyone looking to combine learning with laughter through **fun word games** and creative conversation starters.
 
-## <a href="https://www.amazon.com/dp/B0FG3KB6Q5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuh-uh! Science And Nature Expansion Pack</a>
+## <a href="https://www.amazon.com/dp/B0FG3KB6Q5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nuh-uh! Science And Nature Expansion Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0FG3KB6Q5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuh-Uh! Science and Nature Expansion Pack" src="https://m.media-amazon.com/images/I/51hjXdwqn+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FG3KB6Q5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nuh-Uh! Science and Nature Expansion Pack" src="https://m.media-amazon.com/images/I/51hjXdwqn+L._SL500_.jpg"/></a>
 
 
 The **Nuh-Uh! Science and Nature Expansion Pack** is perfect for curious learners and families who enjoy interactive educational games. Ideal for children and adults who want to deepen their knowledge of **science** and **nature**, this expansion pack complements the original Nuh-Uh! game by adding new layers of fun and learning.

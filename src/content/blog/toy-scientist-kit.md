@@ -23,10 +23,10 @@ They help kids develop problem-solving skills and creativity while playing. Many
 
 
 
-## <a href="https://www.amazon.com/dp/B09XGMHGJ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doctor Jupiter My First Science Kit For Kids</a>
+## <a href="https://www.amazon.com/dp/B09XGMHGJ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doctor Jupiter My First Science Kit For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B09XGMHGJ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doctor Jupiter My First Science Kit for Kids Ages 4-5-6-7-8 | Birthday Gift Ideas for 4+ Year Old Boys &amp; Girls | Toy Stem Kit with 100+ Experiments | Learning &amp; Educational Projects" src="https://m.media-amazon.com/images/I/51ezShoPXaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XGMHGJ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doctor Jupiter My First Science Kit for Kids Ages 4-5-6-7-8 | Birthday Gift Ideas for 4+ Year Old Boys &amp; Girls | Toy Stem Kit with 100+ Experiments | Learning &amp; Educational Projects" src="https://m.media-amazon.com/images/I/51ezShoPXaL._SL500_.jpg"/></a>
 
 
 The **Doctor Jupiter My First Science Kit** is perfect for young children aged **4 to 8 years** who are curious about the world around them and eager to explore basic scientific concepts. Ideal for both boys and girls, this kit offers a fun and engaging introduction to **STEM learning**, making it an excellent choice for parents and educators looking to inspire early interest in science through hands-on experimentation.
@@ -48,10 +48,10 @@ The **Doctor Jupiter My First Science Kit** features a thoughtfully designed col
 
 By encouraging active participation in experiments, this kit helps develop important skills such as observation, hypothesis testing, and critical thinking. Its focus on age-appropriate activities ensures that children can grasp concepts without feeling overwhelmed, making science accessible and enjoyable. Whether used at home or in educational settings, the **Doctor Jupiter My First Science Kit** is a valuable tool for fostering a lifelong passion for science and exploration in young minds.
 
-## <a href="https://www.amazon.com/dp/B0D2NMJQLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B0D2NMJQLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2NMJQLP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits for Kids Age 8-10, Science Robot Building Kits for Boys Crafts 8-12 5-7, STEM Toys for 6 7 8 10 12 13 Year Old Boys Girl Gifts, Science Experiments for Kids 6-8, Car Engineering Projects" src="https://m.media-amazon.com/images/I/51zF4XOjYSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2NMJQLP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits for Kids Age 8-10, Science Robot Building Kits for Boys Crafts 8-12 5-7, STEM Toys for 6 7 8 10 12 13 Year Old Boys Girl Gifts, Science Experiments for Kids 6-8, Car Engineering Projects" src="https://m.media-amazon.com/images/I/51zF4XOjYSL._SL500_.jpg"/></a>
 
 
 The **STEM Kits for Kids Age 8-10** by Yutin are perfect for young learners who have a curiosity about **science**, **technology**, **engineering**, and **mathematics**. Ideal for children aged 6 to 13, these kits are especially suited for boys and girls who enjoy hands-on activities like **robot building**, **science experiments**, and **car engineering projects**. Parents and educators looking to encourage critical thinking and creativity in kids will find this product highly beneficial.
@@ -73,10 +73,10 @@ The **Yutin STEM Kits** offer a comprehensive introduction to fundamental engine
 
 Additionally, the kit’s compact and lightweight design ensures that it can be easily stored or transported, encouraging learning both at home and on the go. With its broad age range suitability, it is a versatile choice for families with multiple children or educators seeking an effective tool to introduce STEM concepts in classrooms or workshops.
 
-## <a href="https://www.amazon.com/dp/B0876F6STP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Science Magic Kit</a>
+## <a href="https://www.amazon.com/dp/B0876F6STP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Science Magic Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0876F6STP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Science Magic Kit – Science Kit for Kids with 100+ Unique Experiments and Magic Tricks, Chemistry Set and STEM Project, A Great Gift for Boys and Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51U1LgPuu7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0876F6STP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Science Magic Kit – Science Kit for Kids with 100+ Unique Experiments and Magic Tricks, Chemistry Set and STEM Project, A Great Gift for Boys and Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51U1LgPuu7L._SL500_.jpg"/></a>
 
 
 The **NATIONAL GEOGRAPHIC Science Magic Kit** is perfect for curious young minds who love to explore **science** and enjoy hands-on learning. Ideal for boys and girls interested in **STEM projects**, chemistry, and magic tricks, this kit offers a fun and educational experience that encourages creativity and critical thinking. Parents and educators looking to inspire children with engaging scientific experiments will find this kit an excellent choice.
@@ -100,10 +100,10 @@ The **NATIONAL GEOGRAPHIC Science Magic Kit** offers an immersive experience by 
 
 With its thoughtfully designed experiments and colorful components, this kit encourages kids to explore science outside the classroom. The hands-on nature of the projects helps reinforce STEM concepts, promoting curiosity and problem-solving abilities. Whether used at home or in educational settings, this kit provides a fun and memorable way for children to discover the magic of science.
 
-## <a href="https://www.amazon.com/dp/B082ZLM39R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Earth Science Kit</a>
+## <a href="https://www.amazon.com/dp/B082ZLM39R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Earth Science Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B082ZLM39R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Earth Science Kit – 100+ Science Experiments &amp; Activities for Kids, Crystal Growing, Volcano Science Kit, Rock Collection, STEM Project Toy for Boys &amp; Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51m7Y5kyMnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082ZLM39R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Earth Science Kit – 100+ Science Experiments &amp; Activities for Kids, Crystal Growing, Volcano Science Kit, Rock Collection, STEM Project Toy for Boys &amp; Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51m7Y5kyMnL._SL500_.jpg"/></a>
 
 
 The **NATIONAL GEOGRAPHIC Earth Science Kit** is ideal for curious **kids** and young learners who have a passion for **science** and exploration. Perfect for both **boys and girls**, this kit is designed for children interested in **STEM projects** and hands-on activities that deepen their understanding of **earth science**. Parents and educators looking for an engaging educational toy that encourages creativity and scientific thinking will find this kit especially valuable.
@@ -126,10 +126,10 @@ The **NATIONAL GEOGRAPHIC Earth Science Kit** offers an extensive variety of han
 
 The benefits of using this kit go beyond simple entertainment; it promotes a deeper understanding of natural phenomena and scientific principles. By engaging with over 100 activities, kids develop patience, attention to detail, and a scientific mindset. The kit’s compact design makes it convenient for home use or classroom settings, while its focus on **STEM education** helps prepare children for future academic success in science and technology fields.
 
-## <a href="https://www.amazon.com/dp/B0D348KMCL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Kids Junior Chemistry Set</a>
+## <a href="https://www.amazon.com/dp/B0D348KMCL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Kids Junior Chemistry Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D348KMCL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="National Geographic Kids Junior Chemistry Set - Complete Early Learning Lab Kit with 50 Science Experiments and 20+ Lab Tools for Kids Aged 4-6" src="https://m.media-amazon.com/images/I/51Y0Lqff2ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D348KMCL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="National Geographic Kids Junior Chemistry Set - Complete Early Learning Lab Kit with 50 Science Experiments and 20+ Lab Tools for Kids Aged 4-6" src="https://m.media-amazon.com/images/I/51Y0Lqff2ML._SL500_.jpg"/></a>
 
 
 The **National Geographic Kids Junior Chemistry Set** is ideal for young children aged **4-6 years** who are curious about science and eager to explore basic chemistry concepts through hands-on experiments. This kit is perfect for parents and educators looking to introduce STEM learning in a fun, safe, and engaging way to early learners.
@@ -152,10 +152,10 @@ This **complete early learning lab kit** combines fun and education by providing
 
 Beyond just the experiments, this chemistry set fosters curiosity and a love for science at a formative age. The thoughtfully curated activities are designed to build confidence and encourage kids to ask questions and seek answers, laying the foundation for future STEM learning. Moreover, the compact dimensions and lightweight design make it convenient for use at home or in the classroom, promoting consistent hands-on science education wherever children are.
 
-## <a href="https://www.amazon.com/dp/B09XB4QGM3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Science Kit For Kids</a>
+## <a href="https://www.amazon.com/dp/B09XB4QGM3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Science Kit For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B09XB4QGM3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Science Kit for Kids,80 Science Lab Experiments,Scientist Costume Role Play STEM Educational Learning Scientific Tools,Birthday Gifts and Toys for 6 7 8 9 Years Old Boys Girls Kids" src="https://m.media-amazon.com/images/I/51JKfddVN3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XB4QGM3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Science Kit for Kids,80 Science Lab Experiments,Scientist Costume Role Play STEM Educational Learning Scientific Tools,Birthday Gifts and Toys for 6 7 8 9 Years Old Boys Girls Kids" src="https://m.media-amazon.com/images/I/51JKfddVN3L._SL500_.jpg"/></a>
 
 
 The **Science Kit for Kids** is perfect for young learners aged 6 to 9 years old who have a curiosity about the world around them. Ideal for both boys and girls, this kit is designed for children interested in hands-on STEM activities and scientific exploration. Parents and educators looking to foster a love for science and critical thinking will find this kit an excellent educational tool.
@@ -177,10 +177,10 @@ This **Science Kit for Kids** by **Kuovei** offers a comprehensive and engaging 
 
 The kit’s compact size and lightweight design make it convenient for children to carry around and use anywhere, whether at home or in a classroom setting. Its colorful and diverse scientific tools not only make the experiments more appealing but also help in developing fine motor skills and hand-eye coordination. Overall, this educational toy is a valuable investment for nurturing a child’s interest in science and enhancing their problem-solving abilities in a fun and interactive way.
 
-## <a href="https://www.amazon.com/dp/B08VDDKVL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Gross Science Kit</a>
+## <a href="https://www.amazon.com/dp/B08VDDKVL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Gross Science Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08VDDKVL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Gross Science Kit - 45 Gross Science Experiments- Dissect a Brain, Make Slime, Creepy STEM Project Gifts for Boys and Girls, Halloween Activities for Kids 8-12 (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51gMnZ1MtsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08VDDKVL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Gross Science Kit - 45 Gross Science Experiments- Dissect a Brain, Make Slime, Creepy STEM Project Gifts for Boys and Girls, Halloween Activities for Kids 8-12 (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51gMnZ1MtsL._SL500_.jpg"/></a>
 
 
 The **NATIONAL GEOGRAPHIC Gross Science Kit** is perfect for curious kids aged 8-12 who love hands-on learning and exploring the strange and fascinating world of science. Ideal for young experimenters who enjoy spooky and educational activities, this kit is great for both boys and girls interested in STEM projects, especially those looking for engaging Halloween-themed science fun. Parents and educators seeking an interactive way to spark scientific curiosity will also find this kit highly valuable.
@@ -204,10 +204,10 @@ The **NATIONAL GEOGRAPHIC Gross Science Kit** stands out with its extensive vari
 
 Beyond just entertainment, the kit’s well-designed experiments help children develop fine motor skills, follow scientific procedures, and improve problem-solving abilities. The compact and colorful packaging makes it a fantastic gift or a perfect activity set for Halloween or other occasions. With the trusted backing of **Blue Marble** and **JMW Sales, Inc.**, parents can be confident in the kit’s quality and educational value, making it a smart choice for young science enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0CT58BXF8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Klever Kits Amazing Science Kits</a>
+## <a href="https://www.amazon.com/dp/B0CT58BXF8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Klever Kits Amazing Science Kits</a>
 
 
-<a href="https://www.amazon.com/dp/B0CT58BXF8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Klever Kits Amazing Science Kits- 85+ Experiments Educational Toys, STEM Activities with Erupting Volcano and Growing Crystal Tree for Kids Aged 6 7 8+" src="https://m.media-amazon.com/images/I/51ZzTLqhHNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT58BXF8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Klever Kits Amazing Science Kits- 85+ Experiments Educational Toys, STEM Activities with Erupting Volcano and Growing Crystal Tree for Kids Aged 6 7 8+" src="https://m.media-amazon.com/images/I/51ZzTLqhHNL._SL500_.jpg"/></a>
 
 
 The **Klever Kits Amazing Science Kits** are perfect for young learners aged 6, 7, 8, and above who have a natural curiosity about science and love hands-on activities. Ideal for parents, educators, and caregivers seeking an engaging way to introduce children to **STEM concepts**, this kit encourages exploration and critical thinking through fun and educational experiments. If you want to inspire your child’s passion for science with interactive projects like an erupting volcano and a growing crystal tree, this set is an excellent choice.
@@ -230,10 +230,10 @@ The **Klever Kits Amazing Science Kits** feature a wide range of experiments tha
 
 Compact and thoughtfully designed, the kit’s size makes it easy to set up and clean up, perfect for both home and classroom use. The inclusion of over 85 experiments ensures long-lasting engagement and diverse learning experiences. By encouraging experimentation and discovery, this kit supports children in building confidence and a lifelong love for **STEM education**.
 
-## <a href="https://www.amazon.com/dp/B0C5MMYRJ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unglinga 150 Experiments Science Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B0C5MMYRJ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unglinga 150 Experiments Science Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5MMYRJ3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNGLINGA 150 Experiments Science Kits for Kids, S.T.E.M Educational Project Toys for Boys Girls Birthday Gifts Ideas, Volcano, Chemistry Lab Tools Scientist Set" src="https://m.media-amazon.com/images/I/51mH20OLAHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5MMYRJ3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNGLINGA 150 Experiments Science Kits for Kids, S.T.E.M Educational Project Toys for Boys Girls Birthday Gifts Ideas, Volcano, Chemistry Lab Tools Scientist Set" src="https://m.media-amazon.com/images/I/51mH20OLAHL._SL500_.jpg"/></a>
 
 
 The **UNGLINGA 150 Experiments Science Kits for Kids** is an ideal choice for young curious minds who love to explore **science** through hands-on learning. This **S.T.E.M educational project toy** is perfect for boys and girls who enjoy experimenting and discovering new concepts, making it a thoughtful gift for birthdays or special occasions. Parents and educators looking to encourage children’s interest in **chemistry** and **scientific principles** will find this kit highly suitable.
@@ -255,10 +255,10 @@ The **UNGLINGA 150 Experiments Science Kit** offers a diverse range of activitie
 
 With its well-organized components and clear instructions, this kit benefits users by fostering independent learning while also encouraging parental involvement when needed. The compact and sturdy design ensures that all materials are kept safe and accessible, making it easy to set up and clean after each session. Overall, the **UNGLINGA Science Kit** is a valuable tool that transforms abstract scientific concepts into tangible, enjoyable experiences for young learners.
 
-## <a href="https://www.amazon.com/dp/B09SYN24NT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unglinga 70 Lab Experiments Science Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B09SYN24NT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unglinga 70 Lab Experiments Science Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B09SYN24NT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNGLINGA 70 Lab Experiments Science Kits for Kids Educational Scientist Toys Birthday Gifts Idea for Girls Boys, Chemistry Set, Erupting Volcano, Fruit Circuits, S.T.E.M Activities Science Project" src="https://m.media-amazon.com/images/I/5135mp7lipL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SYN24NT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNGLINGA 70 Lab Experiments Science Kits for Kids Educational Scientist Toys Birthday Gifts Idea for Girls Boys, Chemistry Set, Erupting Volcano, Fruit Circuits, S.T.E.M Activities Science Project" src="https://m.media-amazon.com/images/I/5135mp7lipL._SL500_.jpg"/></a>
 
 
 The **UNGLINGA 70 Lab Experiments Science Kits for Kids** is perfect for young aspiring scientists and curious minds aged 8 and above. This kit is an ideal choice for parents, educators, and gift-givers who want to inspire children with hands-on **S.T.E.M activities** and foster a love for **science and experimentation** through engaging and educational play.

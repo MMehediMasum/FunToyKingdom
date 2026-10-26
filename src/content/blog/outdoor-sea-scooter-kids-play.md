@@ -33,7 +33,7 @@ Kids of different ages need sea scooters that match their size and strength. Cho
 
 Check the manufacturer’s age guidelines. Smaller scooters work better for younger kids, while bigger kids can handle larger models.
 
-* For ages 5-8, choose [lightweight and small scooters](https://www.amazon.com/s?k=lightweight+sea+scooter+for+kids&tag=gearcookware-20)
+* For ages 5-8, choose [lightweight and small scooters](https://www.amazon.com/s?k=lightweight+sea+scooter+for+kids&tag=mofb05-20)
 * Ages 9-12 can use medium-sized scooters with moderate power
 * Older kids may use larger scooters with more speed options
 
@@ -72,7 +72,7 @@ Life jackets help keep kids afloat if they fall into the water. They are the mos
 
 Choose jackets that fit well and are approved by safety standards. Floatation devices are extra help to keep kids safe.
 
-* Pick [life jackets](https://www.amazon.com/s?k=kids+life+jackets&tag=gearcookware-20) with bright colors for visibility
+* Pick [life jackets](https://www.amazon.com/s?k=kids+life+jackets&tag=mofb05-20) with bright colors for visibility
 * Check for adjustable straps for a secure fit
 * Use float belts or arm floaties for younger kids
 * Always test life jackets in shallow water first
@@ -85,7 +85,7 @@ Protective clothing helps shield skin from sunburn and scrapes. Rash guards and 
 
 * Choose helmets with secure chin straps
 * Use rash guards with UV protection
-* Wear [water shoes](https://www.amazon.com/s?k=kids+water+shoes&tag=gearcookware-20) to avoid cuts from rocks
+* Wear [water shoes](https://www.amazon.com/s?k=kids+water+shoes&tag=mofb05-20) to avoid cuts from rocks
 * Consider gloves for better grip on the scooter
 
 ### Waterproof Communication Tools
@@ -94,7 +94,7 @@ Waterproof communication tools help kids call for help if needed. They keep pare
 
 Walkie-talkies and waterproof phones are good choices. Make sure kids know how to use them before going on the water.
 
-* Use simple [waterproof walkie-talkies](https://www.amazon.com/s?k=waterproof+walkie+talkies+for+kids&tag=gearcookware-20)
+* Use simple [waterproof walkie-talkies](https://www.amazon.com/s?k=waterproof+walkie+talkies+for+kids&tag=mofb05-20)
 * Teach kids emergency call numbers
 * Check battery life before each use
 * Keep devices within easy reach on the scooter
@@ -209,7 +209,7 @@ Kids love to race with sea scooters to see who is the fastest. Obstacle courses 
 |  |  |  |
 | --- | --- | --- |
 | Obstacle | Description | Goal |
-| Floating Rings | Swim through several [rings](https://www.amazon.com/s?k=underwater+swim+rings&tag=gearcookware-20) in a row | Keep balance and speed |
+| Floating Rings | Swim through several [rings](https://www.amazon.com/s?k=underwater+swim+rings&tag=mofb05-20) in a row | Keep balance and speed |
 | Buoy Zigzag | Move around buoys placed in zigzag form | Improve steering skills |
 | Underwater Tunnel | Pass under a small tunnel made of pool noodles | Stay low and fast |
 | Finish Line | Cross the line as fast as possible | Beat all opponents |
@@ -272,7 +272,7 @@ Keep it away from heavy objects that might fall on it. Ensure it is stable and c
 
 
 
-[Outdoor sea scooters](https://www.amazon.com/s?k=outdoor+sea+scooters+for+kids&tag=gearcookware-20) are ideal for children aged 6 and above. Always check the manufacturer's age guidelines. Supervision is crucial for safe play and fun.
+[Outdoor sea scooters](https://www.amazon.com/s?k=outdoor+sea+scooters+for+kids&tag=mofb05-20) are ideal for children aged 6 and above. Always check the manufacturer's age guidelines. Supervision is crucial for safe play and fun.
 
 
 

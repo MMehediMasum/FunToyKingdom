@@ -22,10 +22,10 @@ Scrabble sharpens vocabulary and spelling while Jenga tests steady hands and pat
 
 
 
-## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
+## <a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5HLZ8T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Game, Family Board Games for 2 to 6 Players &amp; Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)" src="https://m.media-amazon.com/images/I/51hX6TbwZ5L._SL500_.jpg"/></a>
 
 
 The **Monopoly Game, Family Board Games for 2 to 6 Players & Kids Ages 8 and Up, Includes 8 Tokens (Token Vote Edition)** is ideal for families and groups looking for a fun, interactive way to spend time together. It suits players aged 8 and above who enjoy strategy, negotiation, and classic board game experiences. Whether you are a casual gamer or someone who loves competitive family game nights, this edition offers engaging gameplay for both kids and adults.
@@ -48,10 +48,10 @@ The **Monopoly Token Vote Edition** retains the timeless appeal of the original 
 
 Designed with families in mind, this edition supports 2 to 6 players, making it ideal for small gatherings or larger groups. The game's dimensions ensure it fits comfortably on most tables without occupying excessive space. With rules that are easy to understand for children aged 8 and older, it fosters critical thinking, money management skills, and healthy competition. Overall, this edition is a great choice for those who want a classic board game experience with a fresh, family-friendly twist.
 
-## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
+## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
 
 
 The **Battleship Classic Board Game** is ideal for both **kids and adults** who enjoy **strategy games** and competitive play. Perfect for families looking to engage in a fun and intellectually stimulating activity, this game suits players aged **7 and up**. Whether you're seeking a way to bond with children or challenge friends, this game offers engaging entertainment for **2 players**.
@@ -74,10 +74,10 @@ The **Battleship Classic Board Game** features a durable design by **Hasbro** th
 
 Players benefit from developing critical thinking and tactical skills as they anticipate opponents’ moves and strategically place their ships. The back-and-forth gameplay keeps both participants actively involved, making it an excellent way to strengthen cognitive abilities while having fun. Overall, this classic game offers a timeless experience that combines excitement with mental challenge for players of all ages.
 
-## <a href="https://www.amazon.com/dp/B00D8STBHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Connect 4 Classic Grid</a>
+## <a href="https://www.amazon.com/dp/B00D8STBHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Connect 4 Classic Grid</a>
 
 
-<a href="https://www.amazon.com/dp/B00D8STBHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Connect 4 Classic Grid,4 in a Row Game,Strategy Board Games for Kids,2 Player .for Family and Kids,Ages 6 and Up" src="https://m.media-amazon.com/images/I/513au7sIz0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D8STBHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Connect 4 Classic Grid,4 in a Row Game,Strategy Board Games for Kids,2 Player .for Family and Kids,Ages 6 and Up" src="https://m.media-amazon.com/images/I/513au7sIz0L._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Connect 4 Classic Grid** is perfect for families and kids aged 6 and up who enjoy engaging in strategic, two-player games. Ideal for those looking to enhance critical thinking and problem-solving skills, this game is a fantastic choice for parents seeking a fun and educational activity to play with their children or for kids who love classic board games that challenge the mind.
@@ -100,10 +100,10 @@ The **Hasbro Gaming Connect 4 Classic Grid** features a sturdy, multi-color grid
 
 One of the key benefits of this game is its ability to foster strategic thinking and problem-solving skills in children. By challenging players to align four discs in a row, it encourages careful planning and forward-thinking. Additionally, the two-player format nurtures social skills and healthy competition, making it a valuable bonding experience for families and friends alike.
 
-## <a href="https://www.amazon.com/dp/B00D7OAOYI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Trouble Kids Board Game</a>
+## <a href="https://www.amazon.com/dp/B00D7OAOYI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Trouble Kids Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00D7OAOYI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Trouble Kids Board Game, Pop-o-Matic Trouble Game, Kids Games for 2-4 Players, Family Board Games for Kids, Kids Gifts, Ages 5 and Up, Packaging May Vary" src="https://m.media-amazon.com/images/I/51B2XoENFeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D7OAOYI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Trouble Kids Board Game, Pop-o-Matic Trouble Game, Kids Games for 2-4 Players, Family Board Games for Kids, Kids Gifts, Ages 5 and Up, Packaging May Vary" src="https://m.media-amazon.com/images/I/51B2XoENFeL._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Trouble Kids Board Game** is ideal for families and young children aged 5 and up who enjoy interactive and engaging **board games**. Perfect for 2-4 players, this game is designed to bring kids together for quality playtime, making it an excellent choice for parents looking to encourage social skills, turn-taking, and friendly competition in a fun and colorful setting.
@@ -126,10 +126,10 @@ The **Hasbro Gaming Trouble Kids Board Game** features the classic **Pop-o-Matic
 
 Additionally, the game’s design focuses on portability and convenience, with a lightweight and compact board that is easy to store and carry. This makes it an excellent choice for family travel or playdates. By encouraging friendly competition and turn-taking, the game helps children develop important social skills while having fun together, making it a valuable addition to any family game collection.
 
-## <a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clue Board Game</a>
+## <a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clue Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game for Ages 8 and Up, Reimagined Clue Game for 2-6 Players, Mystery, Detective, Family Games for Kids and Adults" src="https://m.media-amazon.com/images/I/51tjzepfk5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game for Ages 8 and Up, Reimagined Clue Game for 2-6 Players, Mystery, Detective, Family Games for Kids and Adults" src="https://m.media-amazon.com/images/I/51tjzepfk5L._SL500_.jpg"/></a>
 
 
 The **Clue Board Game for Ages 8 and Up** is perfect for families and friends who enjoy engaging in mystery and detective games. Ideal for players aged 8 and older, this game suits both kids and adults looking to challenge their reasoning and deduction skills in a fun and interactive way. If you love classic board games that encourage strategic thinking and social interaction, this reimagined version of Clue is an excellent choice.
@@ -152,10 +152,10 @@ The **Clue Board Game** combines classic detective fun with a modern twist, enha
 
 Additionally, the game’s ability to accommodate 2 to 6 players makes it versatile for different group sizes, from intimate family game nights to larger gatherings. Being suitable for ages 8 and up, it balances complexity and accessibility, ensuring that both kids and adults can enjoy the suspense and excitement of solving the case together.
 
-## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
+## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
 
 
-<a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
 
 
 The **SCRABBLE CLASSIC REFRESH** is ideal for word game enthusiasts, families looking for a fun and educational activity, and anyone who enjoys challenging their vocabulary skills. Whether you’re a casual player or a competitive scrabble fan, this game offers an engaging way to connect with friends and loved ones while sharpening your linguistic abilities.
@@ -178,10 +178,10 @@ The **SCRABBLE CLASSIC REFRESH** retains the classic gameplay mechanics that hav
 
 Additionally, the game encourages critical thinking and vocabulary development, making it an excellent educational tool for both children and adults. The trusted **Hasbro** brand guarantees that the materials used are of high quality, ensuring the game will withstand repeated use over time. Overall, this edition blends timeless fun with practical features, making it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jenga Game</a>
+## <a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jenga Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jenga Game" src="https://m.media-amazon.com/images/I/519Sfo0ES7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jenga Game" src="https://m.media-amazon.com/images/I/519Sfo0ES7L._SL500_.jpg"/></a>
 
 
 The **Jenga Game** is ideal for individuals and families who enjoy engaging, interactive, and strategic games. Perfect for players of all ages, this game is especially suited for those looking to enhance their hand-eye coordination, patience, and critical thinking skills while having fun in a social setting. If you appreciate classic, timeless games that bring people together, the **Hasbro Gaming Jenga** is a great choice.
@@ -204,10 +204,10 @@ The **Jenga Game** features a stack of multi-colored wooden blocks that players 
 
 Crafted by **Hasbro**, a leading manufacturer in the gaming industry, this classic edition ensures reliable quality and longevity. Its vibrant colors not only enhance the visual appeal but also make it easier to spot blocks during gameplay. Overall, the **Jenga Game** offers an entertaining and challenging experience that promotes social interaction and friendly competition among players.
 
-## <a href="https://www.amazon.com/dp/B00TLEMRKM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yahtzee Game</a>
+## <a href="https://www.amazon.com/dp/B00TLEMRKM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yahtzee Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00TLEMRKM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yahtzee Game, Fast-Playing Dice Games for Kids, Teens, and Adults, Strategy Games, Family Games for Kids, 2 or More Players, Ages 8 and Up" src="https://m.media-amazon.com/images/I/51z-dYxge5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TLEMRKM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yahtzee Game, Fast-Playing Dice Games for Kids, Teens, and Adults, Strategy Games, Family Games for Kids, 2 or More Players, Ages 8 and Up" src="https://m.media-amazon.com/images/I/51z-dYxge5L._SL500_.jpg"/></a>
 
 
 The **Yahtzee Game** is ideal for families and groups of friends looking for a fun and fast-paced **strategy game** that accommodates players of all ages, especially those aged **8 and up**. Whether you're a kid, teen, or adult, this game provides an engaging way to develop critical thinking and social skills while enjoying quality time together. It’s perfect for anyone who enjoys **multiplayer games** that combine luck and skill.
@@ -230,10 +230,10 @@ The **Yahtzee Game** by **Hasbro** features a compact size with dimensions of ap
 
 This classic dice game blends chance with strategy, as players aim to score points by rolling specific combinations. The fast-paced rounds keep everyone engaged, ensuring no one is left waiting too long between turns. Its simple rules make it accessible for younger players, while the strategic elements provide enough challenge for teens and adults. Overall, **Yahtzee** offers a timeless and enjoyable way to bond and create lasting memories across generations.
 
-## <a href="https://www.amazon.com/dp/B00000DMF5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Candy Land Kingdom Of Sweet Adventures Board Game</a>
+## <a href="https://www.amazon.com/dp/B00000DMF5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Candy Land Kingdom Of Sweet Adventures Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00000DMF5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Candy Land Kingdom of Sweet Adventures Board Game for Kids, Ages 3 &amp; Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51Z2nqAzSML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00000DMF5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Candy Land Kingdom of Sweet Adventures Board Game for Kids, Ages 3 &amp; Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51Z2nqAzSML._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Candy Land Kingdom of Sweet Adventures Board Game** is perfect for families with young children aged **3 and up** who are looking to introduce their little ones to the joys of board gaming. Ideal for parents, grandparents, and caregivers seeking a colorful and engaging game that encourages early learning, turn-taking, and social interaction.
@@ -256,10 +256,10 @@ The **Hasbro Gaming Candy Land Kingdom of Sweet Adventures Board Game** features
 
 Beyond entertainment, this board game offers valuable benefits such as fostering patience and turn-taking, which are essential social skills for early childhood development. The lightweight and compact **standard edition** design allows for easy setup and cleanup, making it a convenient choice for both home and on-the-go play. Overall, this game offers a delightful blend of fun and learning tailored to young children’s needs.
 
-## <a href="https://www.amazon.com/dp/B0DYK1ZH2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Catan Board Game</a>
+## <a href="https://www.amazon.com/dp/B0DYK1ZH2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Catan Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYK1ZH2D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CATAN Board Game (6th Edition) Trade, Build &amp; Settle in The Classic Strategy Game for Family, Kids &amp; Adults, Ages 10+, 3-4 Players, 60-90 Min Playtime" src="https://m.media-amazon.com/images/I/519S9T-hHyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYK1ZH2D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CATAN Board Game (6th Edition) Trade, Build &amp; Settle in The Classic Strategy Game for Family, Kids &amp; Adults, Ages 10+, 3-4 Players, 60-90 Min Playtime" src="https://m.media-amazon.com/images/I/519S9T-hHyL._SL500_.jpg"/></a>
 
 
 The **CATAN Board Game (6th Edition)** is ideal for families, kids aged 10 and above, and adults who enjoy strategic and social gameplay. Perfect for groups of 3 to 4 players, this classic game blends elements of trade, building, and settling, making it an excellent choice for those seeking an engaging and interactive experience that encourages critical thinking and negotiation skills.

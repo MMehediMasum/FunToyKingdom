@@ -23,10 +23,10 @@ Others, like the DEERC DE52, come with storage cases and altitude hold to keep t
 
 
 
-## <a href="https://www.amazon.com/dp/B00F4WMAAW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Syma S107/s107g R/c Helicopter</a>
+## <a href="https://www.amazon.com/dp/B00F4WMAAW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Syma S107/s107g R/c Helicopter</a>
 
 
-<a href="https://www.amazon.com/dp/B00F4WMAAW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Syma S107/S107G R/C Helicopter with Gyro- Red" src="https://m.media-amazon.com/images/I/41d7kYHzN5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00F4WMAAW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Syma S107/S107G R/C Helicopter with Gyro- Red" src="https://m.media-amazon.com/images/I/41d7kYHzN5L._SL500_.jpg"/></a>
 
 
 The **Syma S107/S107G R/C Helicopter with Gyro - Red** is an ideal choice for beginners and hobbyists looking to experience the excitement of remote-controlled flight. Its compact size and lightweight design make it perfect for indoor flying, while the built-in gyro system ensures stability, making it easier for newcomers to control and maneuver. If you want a reliable and fun entry-level helicopter with intuitive controls, this model is a great fit.
@@ -49,10 +49,10 @@ The **Syma S107/S107G R/C Helicopter** features a highly responsive control syst
 
 Additionally, the helicopter’s lightweight construction at just about **0.5 pounds** allows for agile maneuvering and responsive controls, providing an engaging flying experience. The vibrant **red color** not only enhances visibility but also adds to the aesthetic appeal of the model. Overall, this helicopter balances ease of use with durability, making it a practical and enjoyable choice for those new to R/C flying or looking for a reliable indoor model.
 
-## <a href="https://www.amazon.com/dp/B0DBQJ6JRB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpha Rc Helicopter</a>
+## <a href="https://www.amazon.com/dp/B0DBQJ6JRB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Alpha Rc Helicopter</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBQJ6JRB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="A ALPHA RC Helicopter, 2.4G Remote Control Helicopter with LED Lights, Sky Rover Vigilante, Indoor Outdoor Remote Control Helicóptero Toy for 8 9 10 11 12+ Year Old Boys Gifts, Blue" src="https://m.media-amazon.com/images/I/51tQlBSoWFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBQJ6JRB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="A ALPHA RC Helicopter, 2.4G Remote Control Helicopter with LED Lights, Sky Rover Vigilante, Indoor Outdoor Remote Control Helicóptero Toy for 8 9 10 11 12+ Year Old Boys Gifts, Blue" src="https://m.media-amazon.com/images/I/51tQlBSoWFL._SL500_.jpg"/></a>
 
 
 The **A ALPHA RC Helicopter** is an excellent choice for young enthusiasts aged 8 and above who are fascinated by remote-controlled gadgets. Ideal for boys who enjoy interactive toys that combine technology and fun, this **indoor and outdoor remote control helicopter** offers an engaging experience for beginners and intermediate users alike. It's perfect for parents seeking an exciting and educational gift that encourages hand-eye coordination and spatial awareness.
@@ -75,10 +75,10 @@ The **A ALPHA RC Helicopter** boasts advanced **2.4G remote control** capabiliti
 
 Designed with young users in mind, this helicopter encourages the development of critical skills such as coordination and focus. The durable build ensures that it can withstand minor crashes and rough handling, making it a reliable toy for active play. Overall, the **Sky Rover Vigilante** model by **A ALPHA** stands out as a fun, educational, and visually appealing gift option for boys aged 8 to 12 and beyond.
 
-## <a href="https://www.amazon.com/dp/B0F6YLSWBB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ptght Gesture Sensing Indoor Flying Helicopter Toys</a>
+## <a href="https://www.amazon.com/dp/B0F6YLSWBB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ptght Gesture Sensing Indoor Flying Helicopter Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0F6YLSWBB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PTGHT Gesture Sensing Indoor Flying Helicopter Toys, Remote-Controlled Helicopter Children's Toys with LED Lights, Birthday Gifts for Boys and Girls (Red)" src="https://m.media-amazon.com/images/I/51CTPDgU+tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F6YLSWBB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PTGHT Gesture Sensing Indoor Flying Helicopter Toys, Remote-Controlled Helicopter Children's Toys with LED Lights, Birthday Gifts for Boys and Girls (Red)" src="https://m.media-amazon.com/images/I/51CTPDgU+tL._SL500_.jpg"/></a>
 
 
 The **PTGHT Gesture Sensing Indoor Flying Helicopter Toy** is ideal for children who love interactive and tech-savvy toys. Perfect as a **birthday gift for boys and girls**, this remote-controlled helicopter offers an engaging experience for kids interested in flying gadgets and hands-on play. Parents looking for a safe and entertaining indoor flying toy will also find this product suitable.
@@ -101,10 +101,10 @@ The **PTGHT Gesture Sensing Indoor Flying Helicopter** stands out with its innov
 
 Its compact dimensions and lightweight construction make it perfectly suited for indoor environments, minimizing the risk of damage or loss. The remote control aspect further enhances usability, providing precise navigation and making it suitable for kids who are new to flying toys. Crafted by **PTGHT** under the reliable manufacturing of **YIWU CONGYUE TOYS CO., LTD**, this helicopter combines fun with quality, making it a thoughtful and enjoyable gift option for children.
 
-## <a href="https://www.amazon.com/dp/B07DB2NQ3N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holy Stone Mini Drone For Kids And Beginners</a>
+## <a href="https://www.amazon.com/dp/B07DB2NQ3N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holy Stone Mini Drone For Kids And Beginners</a>
 
 
-<a href="https://www.amazon.com/dp/B07DB2NQ3N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Holy Stone Mini Drone for Kids and Beginners RC Nano Quadcopter Indoor Small Helicopter Plane with Auto Hovering, 3D Flips, Headless Mode and 3 Batteries, Great Gift Toy for Boys and Girls, HS210 Red" src="https://m.media-amazon.com/images/I/41Nr+h3miuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DB2NQ3N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Holy Stone Mini Drone for Kids and Beginners RC Nano Quadcopter Indoor Small Helicopter Plane with Auto Hovering, 3D Flips, Headless Mode and 3 Batteries, Great Gift Toy for Boys and Girls, HS210 Red" src="https://m.media-amazon.com/images/I/41Nr+h3miuL._SL500_.jpg"/></a>
 
 
 The **Holy Stone Mini Drone for Kids and Beginners** is perfect for young enthusiasts and novice pilots who want an easy-to-use, fun, and safe flying experience. Ideal for children, beginners, and those looking for a compact indoor drone, this **RC Nano Quadcopter** offers user-friendly features that make learning to fly enjoyable and stress-free.
@@ -126,10 +126,10 @@ The **Holy Stone Mini Drone** is designed with beginner-friendly features such a
 
 This mini quadcopter also supports exciting maneuvers like **3D flips**, adding an element of fun and skill development. The bright **red color** enhances visibility, making it easier for kids to keep track of the drone during flight. Overall, the Holy Stone Mini Drone offers an engaging and safe flying experience for beginners and kids, making it a great gift choice for boys and girls interested in RC flying toys.
 
-## <a href="https://www.amazon.com/dp/B0D1MWJWW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Syma Remote Control Helicopter X990</a>
+## <a href="https://www.amazon.com/dp/B0D1MWJWW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Syma Remote Control Helicopter X990</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1MWJWW4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SYMA Remote Control Helicopter, X990 RC Helicopter with Thrilling Aerobatic Stunts, Altitude Hold, LED Lights, High &amp; Low Speed, Safe Indoor/Outdoor Toy Gift for Boys and Girls" src="https://m.media-amazon.com/images/I/41rPS9phW2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1MWJWW4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SYMA Remote Control Helicopter, X990 RC Helicopter with Thrilling Aerobatic Stunts, Altitude Hold, LED Lights, High &amp; Low Speed, Safe Indoor/Outdoor Toy Gift for Boys and Girls" src="https://m.media-amazon.com/images/I/41rPS9phW2L._SL500_.jpg"/></a>
 
 
 The **SYMA Remote Control Helicopter, X990 RC Helicopter** is ideal for children and beginners who are looking for a fun and easy-to-use remote control toy. Perfect for both boys and girls, this helicopter is designed to be safe for indoor and outdoor use, making it a great gift for young enthusiasts eager to learn and perform exciting aerial maneuvers.
@@ -152,10 +152,10 @@ The **SYMA X990 RC Helicopter** boasts a special edition blue design that is bot
 
 Thanks to its dual-speed settings, users can start with a slower pace to build confidence and then switch to a higher speed for more challenging stunts. This versatility makes the helicopter suitable for a wide range of ages and skill levels. The compact and lightweight design ensures easy maneuverability, while the robust construction supports safe indoor and outdoor use, making it a reliable choice for kids eager to explore remote control flying.
 
-## <a href="https://www.amazon.com/dp/B08YRCSZ67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deerc De52 Remote Control Helicopter</a>
+## <a href="https://www.amazon.com/dp/B08YRCSZ67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deerc De52 Remote Control Helicopter</a>
 
 
-<a href="https://www.amazon.com/dp/B08YRCSZ67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEERC DE52 Remote Control Helicopter,Altitude Hold RC Helicopters with Storage Case Extra Shell,2.4GHz Aircraft Indoor Flying Toy with High&amp;Low Speed Mode,2 Modular Battery for 24 Min Play Boys Girls" src="https://m.media-amazon.com/images/I/51YGSaR-ZHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08YRCSZ67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEERC DE52 Remote Control Helicopter,Altitude Hold RC Helicopters with Storage Case Extra Shell,2.4GHz Aircraft Indoor Flying Toy with High&amp;Low Speed Mode,2 Modular Battery for 24 Min Play Boys Girls" src="https://m.media-amazon.com/images/I/51YGSaR-ZHL._SL500_.jpg"/></a>
 
 
 The **DEERC DE52 Remote Control Helicopter** is perfect for both beginners and experienced hobbyists looking for an engaging indoor flying toy. Ideal for **boys and girls** who enjoy remote-controlled gadgets, this helicopter offers a blend of fun and skill development. With its user-friendly controls and safety features, it’s also suitable for younger users under supervision.
@@ -179,10 +179,10 @@ The **DEERC DE52 Remote Control Helicopter** boasts an impressive set of feature
 
 Another standout benefit is the package’s completeness: the **storage case** keeps the helicopter and accessories safe and organized, while the **extra shell** allows for easy replacement or customization. Moreover, the **2.4GHz control system** provides a responsive and interference-free flying experience indoors. With **two modular batteries**, users can enjoy longer continuous playtime, making the DE52 a reliable and entertaining remote-controlled helicopter for children and hobbyists alike.
 
-## <a href="https://www.amazon.com/dp/B0D7ZXYS1X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vatos Remote Control Helicopter For Kids</a>
+## <a href="https://www.amazon.com/dp/B0D7ZXYS1X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vatos Remote Control Helicopter For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7ZXYS1X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VATOS Remote Control Helicopter for Kids, Camouflage RC Helicopter, 2.4GHz Radio Controlled Airplane with Gyro 3 Channel Indoor Toy, One-Key Take-Off, Gift for Boys Adults" src="https://m.media-amazon.com/images/I/410bwX9wErL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7ZXYS1X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VATOS Remote Control Helicopter for Kids, Camouflage RC Helicopter, 2.4GHz Radio Controlled Airplane with Gyro 3 Channel Indoor Toy, One-Key Take-Off, Gift for Boys Adults" src="https://m.media-amazon.com/images/I/410bwX9wErL._SL500_.jpg"/></a>
 
 
 The **VATOS Remote Control Helicopter for Kids** is perfect for young enthusiasts and adults alike who enjoy interactive and engaging indoor flying toys. Ideal for children looking to develop hand-eye coordination, as well as hobbyists seeking a compact and easy-to-use RC helicopter, this **camouflage 2.4GHz radio controlled helicopter** offers a great balance of fun and functionality.
@@ -205,10 +205,10 @@ The **VATOS Remote Control Helicopter** features a 3-channel gyro system that pr
 
 Thanks to its **compact size** and sturdy build, this RC helicopter is perfectly suited for indoor flying, allowing users to enjoy aerial fun regardless of weather conditions outside. The **2.4GHz radio control** technology minimizes signal interference, ensuring consistent responsiveness during flight. Additionally, the **camouflage green color** adds an exciting visual appeal for those who appreciate a tactical look in their remote-controlled toys.
 
-## <a href="https://www.amazon.com/dp/8677805966?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Syma 3 Channel S107/s107g Mini Indoor Co-axial R/c Helicopter</a>
+## <a href="https://www.amazon.com/dp/8677805966?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Syma 3 Channel S107/s107g Mini Indoor Co-axial R/c Helicopter</a>
 
 
-<a href="https://www.amazon.com/dp/8677805966?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Syma 3 Channel S107/S107G Mini Indoor Co-Axial R/C Helicopter w/ Gyro (Green Color)" src="https://m.media-amazon.com/images/I/41fm12wyGLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/8677805966?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Syma 3 Channel S107/S107G Mini Indoor Co-Axial R/C Helicopter w/ Gyro (Green Color)" src="https://m.media-amazon.com/images/I/41fm12wyGLL._SL500_.jpg"/></a>
 
 
 The **Syma 3 Channel S107/S107G Mini Indoor Co-Axial R/C Helicopter** in **Green Color** is ideal for beginners and hobbyists looking for an affordable and easy-to-fly remote-controlled helicopter. This compact model is perfect for indoor use and those who want to experience flying an R/C helicopter without complicated controls or large outdoor spaces.
@@ -231,10 +231,10 @@ The **Syma S107/S107G Mini Helicopter** features a lightweight yet sturdy frame 
 
 Users will appreciate the intuitive **3-channel remote control** that enables basic maneuvers such as ascending, descending, and directional flying. This makes it a great training tool for those new to R/C helicopters. Additionally, the helicopter's bright green color not only adds visual appeal but also improves visibility during flight. Despite its small size, the Syma S107/S107G delivers reliable performance, making it a fun and educational gadget for all ages.
 
-## <a href="https://www.amazon.com/dp/B0BP2FTJL7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vatos Remote Control Helicopter For Kids</a>
+## <a href="https://www.amazon.com/dp/B0BP2FTJL7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vatos Remote Control Helicopter For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0BP2FTJL7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VATOS Remote Control Helicopter for Kids, Camouflage RC Helicopter, 2.4GHz Radio Controlled Helicopter with Gyro 3 Channel Indoor Toy, One-Key Take-Off, Gift for Boys Adults" src="https://m.media-amazon.com/images/I/41HD9XgNezL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BP2FTJL7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VATOS Remote Control Helicopter for Kids, Camouflage RC Helicopter, 2.4GHz Radio Controlled Helicopter with Gyro 3 Channel Indoor Toy, One-Key Take-Off, Gift for Boys Adults" src="https://m.media-amazon.com/images/I/41HD9XgNezL._SL500_.jpg"/></a>
 
 
 The **VATOS Remote Control Helicopter for Kids** is an excellent choice for both children and adults who are looking to explore the exciting world of remote-controlled flying toys. Ideal for beginners and hobbyists alike, this **camouflage RC helicopter** offers an engaging indoor flying experience with its easy controls and durable design. Whether you are buying a gift for a young boy, a tech enthusiast, or simply want a fun and interactive way to develop hand-eye coordination, this helicopter is a perfect fit.
@@ -257,10 +257,10 @@ The **VATOS Remote Control Helicopter** stands out with its **3-channel control 
 
 Another notable feature is the **one-key take-off** function, which simplifies the launching process and is especially useful for kids who are new to remote-controlled flying devices. Its compact and lightweight design, along with a camouflage color scheme, makes it an appealing gift choice. The helicopter’s dimensions allow for smooth indoor operation, ensuring entertainment without the worry of losing or damaging the toy outdoors. Overall, this helicopter combines practical features with user-friendly benefits to create a fun and educational flying experience.
 
-## <a href="https://www.amazon.com/dp/B0DK15QCQX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xos Mini 3 In 1 Indoor &amp; Outdoor Remote Drone</a>
+## <a href="https://www.amazon.com/dp/B0DK15QCQX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xos Mini 3 In 1 Indoor &amp; Outdoor Remote Drone</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK15QCQX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XOS Mini 3 in 1 Indoor &amp; Outdoor Remote Drone, RC Airplane Plane, RC Quadcopter Multirotor Helicopter, RC Car &amp; RC Boat with Auto Hovering, 3D Flips, Headless Mode for Kids Birthday Gifts" src="https://m.media-amazon.com/images/I/41Wd6Rigi8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK15QCQX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XOS Mini 3 in 1 Indoor &amp; Outdoor Remote Drone, RC Airplane Plane, RC Quadcopter Multirotor Helicopter, RC Car &amp; RC Boat with Auto Hovering, 3D Flips, Headless Mode for Kids Birthday Gifts" src="https://m.media-amazon.com/images/I/41Wd6Rigi8L._SL500_.jpg"/></a>
 
 
 The **XOS Mini 3 in 1 Indoor & Outdoor Remote Drone** is perfect for kids and beginners who are eager to explore the exciting world of remote-controlled vehicles. Ideal for birthday gifts, this versatile toy combines multiple functions including an **RC airplane**, **quadcopter multirotor helicopter**, **RC car**, and **RC boat**, making it a great choice for young enthusiasts looking to try different modes of fun in one compact device.

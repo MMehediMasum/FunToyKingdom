@@ -23,10 +23,10 @@ Some sets are exclusive to Amazon, adding unique options for collectors. The toy
 
 
 
-## <a href="https://www.amazon.com/dp/B07ZHS1L15?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Adventures 5-inch Action Figure 5-pack</a>
+## <a href="https://www.amazon.com/dp/B07ZHS1L15?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Adventures 5-inch Action Figure 5-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B07ZHS1L15?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Adventures 5-Inch Action Figure 5-Pack, Includes Captain America, Spider-Man, 5 Accessories (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51dZj9XX1AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07ZHS1L15?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Adventures 5-Inch Action Figure 5-Pack, Includes Captain America, Spider-Man, 5 Accessories (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51dZj9XX1AL._SL500_.jpg"/></a>
 
 
 The **Marvel Super Hero Adventures 5-Inch Action Figure 5-Pack** is perfect for young fans of **Marvel superheroes** and collectors looking to expand their collection with exclusive figures. Ideal for children who enjoy imaginative play or adults who appreciate detailed action figures, this set offers a great blend of fun and display value. If you love **Captain America, Spider-Man**, and other iconic heroes, this pack is a must-have addition.
@@ -49,10 +49,10 @@ This **Marvel Super Hero Adventures 5-Pack** showcases impressive craftsmanship 
 
 Manufactured by **Hasbro**, these action figures boast durability and quality, ensuring they withstand hours of imaginative play. The **Amazon exclusive** status makes this pack a special find for collectors looking to own unique Marvel memorabilia. Overall, this set offers excellent value by combining iconic characters, accessories, and collectible appeal in one compact package.
 
-## <a href="https://www.amazon.com/dp/B011MIV3EU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Playskool Heroes Super Hero Adventures Ultimate Set</a>
+## <a href="https://www.amazon.com/dp/B011MIV3EU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Playskool Heroes Super Hero Adventures Ultimate Set</a>
 
 
-<a href="https://www.amazon.com/dp/B011MIV3EU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Playskool Heroes Super Hero Adventures Ultimate Set, 10 Collectible 2.5-Inch Action Figures, Toys for Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51JGVPXHFNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B011MIV3EU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Playskool Heroes Super Hero Adventures Ultimate Set, 10 Collectible 2.5-Inch Action Figures, Toys for Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51JGVPXHFNL._SL500_.jpg"/></a>
 
 
 The **Marvel Playskool Heroes Super Hero Adventures Ultimate Set** is ideal for young fans of the Marvel universe, especially kids aged **3 and up** who enjoy imaginative play and collecting action figures. This set is perfect for parents and gift-givers looking to inspire creativity and superhero role-play in children while ensuring safe, age-appropriate toys.
@@ -75,10 +75,10 @@ The **Marvel Playskool Heroes Super Hero Adventures Ultimate Set** stands out wi
 
 Beyond the fun factor, this set promotes important developmental benefits such as fine motor skills, storytelling, and social interaction. By collecting all ten figures, kids are encouraged to engage in imaginative scenarios that foster creativity and problem-solving. Additionally, the trusted **Marvel** and **Hasbro** brands provide parents with confidence in the product’s safety and quality, making it a valuable addition to any young superhero fan’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0D821J7P1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Captain America Shield-shot Cycle</a>
+## <a href="https://www.amazon.com/dp/B0D821J7P1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Captain America Shield-shot Cycle</a>
 
 
-<a href="https://www.amazon.com/dp/B0D821J7P1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Epic World of Action Captain America Shield-Shot Cycle, 4-Inch (10 cm) Figure &amp; Toy Motorcycle Playset, Super Hero Toys for Kids, 4+" src="https://m.media-amazon.com/images/I/41OeY+RKRbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D821J7P1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Epic World of Action Captain America Shield-Shot Cycle, 4-Inch (10 cm) Figure &amp; Toy Motorcycle Playset, Super Hero Toys for Kids, 4+" src="https://m.media-amazon.com/images/I/41OeY+RKRbL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Epic World of Action Captain America Shield-Shot Cycle** is an ideal toy for young fans aged 4 and above who love **superhero action** and imaginative play. Perfect for kids who enjoy recreating their favorite Marvel adventures, this playset combines a detailed **4-inch Captain America figure** with an exciting **toy motorcycle**, making it a great choice for both solo and group play. Parents looking for a durable, engaging, and officially licensed **Marvel superhero toy** will find this product an excellent addition to their child's collection.
@@ -100,10 +100,10 @@ This **Marvel Avengers Epic World of Action Captain America Shield-Shot Cycle** 
 
 Crafted by **Hasbro**, this playset guarantees durability and safety, providing parents peace of mind. The multicolor paint and detailed sculpting enhance the authenticity of the toy, making it a prized collectible for young Marvel enthusiasts. Overall, the set encourages creativity and role-playing, helping children develop social and cognitive skills while having fun with their favorite superhero.
 
-## <a href="https://www.amazon.com/dp/B0CQCY93WV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Epic Hero Series Team-up Gift Pack</a>
+## <a href="https://www.amazon.com/dp/B0CQCY93WV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Epic Hero Series Team-up Gift Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQCY93WV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Epic Hero Series Team-Up Gift Pack, 4-Inch-Scale (10cm) Captain America, Thor, Iron Man Action Figures, Toys for Kids Ages 4 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41RyQRRktXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQCY93WV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Epic Hero Series Team-Up Gift Pack, 4-Inch-Scale (10cm) Captain America, Thor, Iron Man Action Figures, Toys for Kids Ages 4 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41RyQRRktXL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Epic Hero Series Team-Up Gift Pack** is perfect for young fans of the iconic superhero team, especially children aged 4 and up who love imaginative play and collecting action figures. Ideal for parents, gift-givers, and Marvel enthusiasts looking to introduce kids to the thrilling world of **Captain America, Thor, and Iron Man**, this set encourages creativity and storytelling.
@@ -125,10 +125,10 @@ The **Marvel Avengers Epic Hero Series Team-Up Gift Pack** brings together three
 
 Beyond their impressive appearance, these action figures promote imaginative play, helping children develop storytelling skills as they recreate epic battles and heroic team-ups. As a brand, **Marvel** ensures authenticity and quality, making this gift pack an excellent choice for fans and parents seeking a fun, durable, and engaging toy set.
 
-## <a href="https://www.amazon.com/dp/B07TP9HR35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Action Figures</a>
+## <a href="https://www.amazon.com/dp/B07TP9HR35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B07TP9HR35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Action Figures - Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine &amp; Falcon! (8)" src="https://m.media-amazon.com/images/I/51p3eKZ3adL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TP9HR35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Action Figures - Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine &amp; Falcon! (8)" src="https://m.media-amazon.com/images/I/51p3eKZ3adL._SL500_.jpg"/></a>
 
 
 Ideal for **Marvel fans** and **collectors**, the **Marvel Avengers Action Figures** set is perfect for children and adults who enjoy imaginative play or want to display iconic superheroes like **Iron Man**, **Hulk**, **Black Panther**, and **Captain America**. This set appeals to those seeking a comprehensive collection of **8 detailed action figures** from the beloved Avengers lineup, making it a great gift for birthdays or special occasions.
@@ -151,10 +151,10 @@ The **Marvel Avengers Action Figures** set features highly detailed models of ic
 
 Additionally, the figures' lightweight and manageable size make them easy to pose and rearrange, encouraging creativity without overwhelming younger users. The inclusion of fan-favorite heroes like **Spider-Man**, **Ant-Man**, and **Falcon** alongside the core Avengers adds value and excitement to the collection. Overall, this set is an excellent choice for those looking to celebrate the Marvel universe with a quality product that balances detail, durability, and versatility.
 
-## <a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Epic Hero Series Captain America</a>
+## <a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Epic Hero Series Captain America</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Epic Hero Series Captain America: Brave New World Flight Control Action Figure with Accessory, Super Hero Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/413p4jju12L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHXP3BYL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Epic Hero Series Captain America: Brave New World Flight Control Action Figure with Accessory, Super Hero Toys for Kids Ages 4+" src="https://m.media-amazon.com/images/I/413p4jju12L._SL500_.jpg"/></a>
 
 
 The **Marvel Epic Hero Series Captain America: Brave New World Flight Control Action Figure** is ideal for young **superhero enthusiasts** aged 4 and up who love engaging in imaginative play. This action figure is perfect for kids who admire **Captain America** and enjoy recreating thrilling superhero adventures with detailed toys that come with exciting accessories.
@@ -176,10 +176,10 @@ This action figure stands out with its impressive attention to detail, capturing
 
 Crafted by **Hasbro**, this toy ensures durability and quality, ideal for active kids who enjoy hands-on play. The figure’s realistic look not only encourages creativity but also makes it a great collectible for fans of all ages. Whether it’s for solo play or sharing adventures with friends, this action figure delivers a fun and engaging superhero experience.
 
-## <a href="https://www.amazon.com/dp/B09RQXP8L3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Supersized Iron Man Action Figure</a>
+## <a href="https://www.amazon.com/dp/B09RQXP8L3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends Supersized Iron Man Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B09RQXP8L3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends Supersized Iron Man Action Figure, 9-Inch Avengers Action Figures, Marvel Super Hero Preschool Toys for 3+ Years" src="https://m.media-amazon.com/images/I/41BHYEpzF3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09RQXP8L3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends Supersized Iron Man Action Figure, 9-Inch Avengers Action Figures, Marvel Super Hero Preschool Toys for 3+ Years" src="https://m.media-amazon.com/images/I/41BHYEpzF3L._SL500_.jpg"/></a>
 
 
 Ideal for young Marvel fans aged 3 and above, the **Spidey and his Amazing Friends Supersized Iron Man Action Figure** is perfect for preschoolers who love imaginative play with their favorite superheroes. This **9-inch Avengers action figure** brings the excitement of the Marvel universe right into the hands of little kids, encouraging creativity and storytelling in early childhood development.
@@ -201,10 +201,10 @@ The **Spidey and his Amazing Friends Supersized Iron Man Action Figure** boasts 
 
 Designed specifically for young children, this **Marvel superhero toy** helps stimulate creativity by enabling kids to invent their own superhero adventures. While it may lack advanced articulation for complex poses, its simplicity is ideal for the target age group. Overall, this action figure offers a fantastic combination of fun, durability, and educational value for early childhood play.
 
-## <a href="https://www.amazon.com/dp/B09DM87QX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Nerf Power Moves Avengers Captain America Shield Sling</a>
+## <a href="https://www.amazon.com/dp/B09DM87QX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Nerf Power Moves Avengers Captain America Shield Sling</a>
 
 
-<a href="https://www.amazon.com/dp/B09DM87QX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Nerf Power Moves Avengers Captain America Shield Sling Disc-Launching Toy for Kids Roleplay, Toys for Ages 5 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41OvA9G5DKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09DM87QX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Nerf Power Moves Avengers Captain America Shield Sling Disc-Launching Toy for Kids Roleplay, Toys for Ages 5 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41OvA9G5DKL._SL500_.jpg"/></a>
 
 
 The **Marvel Nerf Power Moves Avengers Captain America Shield Sling Disc-Launching Toy** is perfect for young fans of the Marvel universe, especially kids aged 5 and up who love imaginative roleplay and action-packed adventures. This toy is ideal for children who enjoy interactive and active play, combining the excitement of Nerf disc launching with the iconic design of Captain America’s shield. It’s a great choice for parents looking to encourage creativity and physical activity in their children.
@@ -228,10 +228,10 @@ This **Captain America Shield Sling** toy combines the thrill of Nerf disc launc
 
 Beyond its fun factor, the toy’s size and lightweight construction make it suitable for younger children to handle comfortably. The vibrant multicolored design captures the essence of the Avengers, encouraging kids to roleplay as their favorite hero. Manufactured by Hasbro, the toy promises durability and safety, making it a reliable choice for active play sessions. Overall, this exclusive Marvel Nerf toy offers a perfect blend of excitement, creativity, and quality for young Avengers fans.
 
-## <a href="https://www.amazon.com/dp/B084P514Z9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Adventures Figure And Jetquarters Multipack</a>
+## <a href="https://www.amazon.com/dp/B084P514Z9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Super Hero Adventures Figure And Jetquarters Multipack</a>
 
 
-<a href="https://www.amazon.com/dp/B084P514Z9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Adventures Figure and Jetquarters Multipack, 3 Action Figures and 3 Vehicles, 5-Inch Toys for Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41GMdzvJhUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B084P514Z9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Super Hero Adventures Figure and Jetquarters Multipack, 3 Action Figures and 3 Vehicles, 5-Inch Toys for Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41GMdzvJhUL._SL500_.jpg"/></a>
 
 
 The **Marvel Super Hero Adventures Figure and Jetquarters Multipack** is ideal for young fans of **Marvel superheroes**, particularly children aged **3 and up** who enjoy imaginative play. This set is perfect for parents seeking an engaging and creative toy that combines action figures with vehicles, fostering storytelling and motor skills development in kids.
@@ -254,10 +254,10 @@ The **Marvel Super Hero Adventures Figure and Jetquarters Multipack** boasts a c
 
 Crafted by **Hasbro**, this set meets high standards of durability and safety, ensuring long-lasting fun for kids. The vibrant, multi-colored figures and vehicles appeal visually to children, helping them to immerse themselves in their favorite superhero stories. This toy set not only entertains but also supports the development of fine motor skills and imaginative thinking, making it a valuable addition to any young Marvel fan’s collection.
 
-## <a href="https://www.amazon.com/dp/B0CBKQQV3X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends, Iron Man Action Figure &amp; Toy Motorcycle Playset</a>
+## <a href="https://www.amazon.com/dp/B0CBKQQV3X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spidey And His Amazing Friends, Iron Man Action Figure &amp; Toy Motorcycle Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBKQQV3X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends, Iron Man Action Figure &amp; Toy Motorcycle Playset, Marvel Super Hero Preschool Toys for Kids 3 and Up" src="https://m.media-amazon.com/images/I/419yz61q3zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBKQQV3X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spidey and his Amazing Friends, Iron Man Action Figure &amp; Toy Motorcycle Playset, Marvel Super Hero Preschool Toys for Kids 3 and Up" src="https://m.media-amazon.com/images/I/419yz61q3zL._SL500_.jpg"/></a>
 
 
 The **Spidey and his Amazing Friends, Iron Man Action Figure & Toy Motorcycle Playset** is perfect for young Marvel enthusiasts, especially children aged **3 and up** who love imaginative play and superhero adventures. This playset is ideal for preschoolers who enjoy interactive toys featuring their favorite characters, offering a fun and engaging way to develop creativity and motor skills.

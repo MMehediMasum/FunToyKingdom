@@ -23,10 +23,10 @@ Popular items include the Yoyoom Medieval Castle Toy, Enajucy soldier figures, a
 
 
 
-## <a href="https://www.amazon.com/dp/B0DRYVFKLL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yoyoom Medieval Castle Toy</a>
+## <a href="https://www.amazon.com/dp/B0DRYVFKLL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yoyoom Medieval Castle Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRYVFKLL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yoyoom Medieval Castle Toy, Solider Army Figures Castle Playset, DIY Castle Building Set Miniature Playset with Castle Cavalry and Arrow Tower Simulated Siege War of Attack" src="https://m.media-amazon.com/images/I/519Q5TkxikL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRYVFKLL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yoyoom Medieval Castle Toy, Solider Army Figures Castle Playset, DIY Castle Building Set Miniature Playset with Castle Cavalry and Arrow Tower Simulated Siege War of Attack" src="https://m.media-amazon.com/images/I/519Q5TkxikL._SL500_.jpg"/></a>
 
 
 The **Yoyoom Medieval Castle Toy** is perfect for children and hobbyists who have a passion for history, strategy games, or imaginative play. Ideal for kids aged 6 and above, this playset appeals to those who enjoy building and creating their own miniature worlds, as well as collectors of medieval-themed figurines. Parents looking for an educational and engaging toy that promotes creativity and fine motor skills will also find this set an excellent choice.
@@ -49,12 +49,12 @@ The **Yoyoom Medieval Castle Toy** offers an engaging and interactive experience
 
 Additionally, the set’s manageable size and weight make it convenient for both playtime and storage, while the sturdy construction ensures that the toy withstands active use. Whether used as a solo project or a group activity, this miniature playset encourages collaboration, patience, and creativity. Overall, the **Yoyoom Medieval Castle Toy** is a versatile and educational toy that brings medieval adventures to life for young enthusiasts and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DRYVFKLL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DRYVFKLL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B7XLYVQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enajucy Medieval Castle Knights Toy Soldier Set</a>
+## <a href="https://www.amazon.com/dp/B0B7XLYVQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Enajucy Medieval Castle Knights Toy Soldier Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7XLYVQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Enajucy 254pcs/set Medieval Castle Knights Toy Soldier - Army Figures Miniature Playset with Castle, Four-Color Soldier, Cavalry and Arrow Tower (Castle and 4 Color Soldiers)" src="https://m.media-amazon.com/images/I/51XQP-K5NBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7XLYVQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Enajucy 254pcs/set Medieval Castle Knights Toy Soldier - Army Figures Miniature Playset with Castle, Four-Color Soldier, Cavalry and Arrow Tower (Castle and 4 Color Soldiers)" src="https://m.media-amazon.com/images/I/51XQP-K5NBL._SL500_.jpg"/></a>
 
 
 The **Enajucy 254pcs/set Medieval Castle Knights Toy Soldier** is ideal for children and collectors who are passionate about medieval history and imaginative play. Perfect for kids who enjoy building scenes and enacting battles, as well as hobbyists who appreciate detailed miniature figures. This set offers a comprehensive play experience with its castle, four-color soldiers, cavalry, and arrow tower, making it suitable for educational purposes and creative storytelling.
@@ -77,12 +77,12 @@ The **Enajucy Medieval Castle Knights Toy Soldier set** brings history to life w
 
 Each soldier and cavalry figure is crafted with attention to detail, providing a realistic feel that appeals to both kids and collectors. The variety of colors and types of soldiers encourages creativity, enabling users to organize their armies in countless ways. Furthermore, the compact size of the figures and structures makes this set convenient to display or carry for on-the-go entertainment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B7XLYVQW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B7XLYVQW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CP9GZRQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovestown Medieval Dragon Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0CP9GZRQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lovestown Medieval Dragon Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP9GZRQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LovesTown 241PCS Medieval Dragon Toy Set, Assembled Castle Toys Knight Warrior Figures Medieval Knights for Kids Birthday" src="https://m.media-amazon.com/images/I/51oNHXPuOVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP9GZRQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LovesTown 241PCS Medieval Dragon Toy Set, Assembled Castle Toys Knight Warrior Figures Medieval Knights for Kids Birthday" src="https://m.media-amazon.com/images/I/51oNHXPuOVL._SL500_.jpg"/></a>
 
 
 The **LovesTown 241PCS Medieval Dragon Toy Set** is ideal for children who have a keen interest in **medieval history**, **fantasy stories**, or **role-playing games**. It is perfect for kids celebrating birthdays or any special occasion, offering a creative and interactive play experience that encourages imagination and storytelling. Parents and gift-givers looking for a comprehensive, engaging, and educational toy will find this set particularly appealing.
@@ -104,12 +104,12 @@ The **LovesTown 241PCS Medieval Dragon Toy Set** offers an immersive play experi
 
 Crafted by **LOVESTOWN**, the set promises sturdy and safe materials, ideal for active play sessions. The inclusion of knight warriors and dragons adds an element of fantasy and excitement, perfect for young adventurers. Overall, this toy set is an excellent choice for parents seeking an educational yet fun gift that encourages creativity and historical interest in children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CP9GZRQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CP9GZRQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B078PSS8DV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Liberty Imports Medieval Castle Kingdom Knights Action Figure Toy Army Playset</a>
+## <a href="https://www.amazon.com/dp/B078PSS8DV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Liberty Imports Medieval Castle Kingdom Knights Action Figure Toy Army Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B078PSS8DV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Liberty Imports Medieval Castle Kingdom Knights Action Figure Toy Army Playset with Castle, Figurines, Catapult, and Acessories Kids Playset in Storage Bucket" src="https://m.media-amazon.com/images/I/51enO9Nh4PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B078PSS8DV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Liberty Imports Medieval Castle Kingdom Knights Action Figure Toy Army Playset with Castle, Figurines, Catapult, and Acessories Kids Playset in Storage Bucket" src="https://m.media-amazon.com/images/I/51enO9Nh4PL._SL500_.jpg"/></a>
 
 
 The **Liberty Imports Medieval Castle Kingdom Knights Action Figure Toy Army Playset** is perfect for children who love imaginative play and historical themes. Ideal for kids who enjoy creating their own adventures, battles, and stories, this playset encourages creativity and interactive play for ages that enjoy medieval fantasy and role-playing. Parents looking for a comprehensive, all-in-one toy that combines fun and education will find this set a great choice.
@@ -131,12 +131,12 @@ The **Liberty Imports Medieval Castle Kingdom Knights Playset** offers an engagi
 
 Additionally, the playset’s **storage bucket** helps keep all pieces organized, encouraging responsibility and making cleanup hassle-free for parents and children alike. The compact and lightweight design means it can be easily transported for playdates or travel. Overall, this set combines entertainment with educational value, making it a versatile choice for young enthusiasts of medieval adventures.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B078PSS8DV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B078PSS8DV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07KWR92DG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Mario Nintendo Deluxe Bowser's Castle Playset</a>
+## <a href="https://www.amazon.com/dp/B07KWR92DG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Super Mario Nintendo Deluxe Bowser's Castle Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B07KWR92DG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img action="" alt="Super Mario Nintendo Deluxe Bowser's Castle Playset with 2.5" articulated="" authentic="" bowser="" exclusive="" figure,="" in-game="" interactive="" play="" set="" sounds"="" src="https://m.media-amazon.com/images/I/5172CJ1D8IL._SL500_.jpg" with=""/></a>
+<a href="https://www.amazon.com/dp/B07KWR92DG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img action="" alt="Super Mario Nintendo Deluxe Bowser's Castle Playset with 2.5" articulated="" authentic="" bowser="" exclusive="" figure,="" in-game="" interactive="" play="" set="" sounds"="" src="https://m.media-amazon.com/images/I/5172CJ1D8IL._SL500_.jpg" with=""/></a>
 
 
 The **Super Mario Nintendo Deluxe Bowser's Castle Playset** is perfect for avid **Super Mario fans**, collectors of Nintendo memorabilia, and children who love interactive and imaginative play. This playset is designed for those who want to bring the excitement of the iconic Bowser's Castle to life, combining authentic **in-game sounds** with a detailed environment and an exclusive articulated Bowser figure. It is ideal for kids aged 4 and above who enjoy immersive play experiences as well as adult fans who appreciate high-quality collectibles.
@@ -159,12 +159,12 @@ The **Super Mario Nintendo Deluxe Bowser's Castle Playset** stands out due to it
 
 Beyond play, this item serves as a collectible for Nintendo enthusiasts, blending nostalgia with quality construction from **Jakks Pacific Inc.**. Its manageable size and weight make it easy to store or display, while providing ample space for dynamic play scenarios. Whether for solo play or group fun, this set enhances the Super Mario experience, making it a must-have for fans looking to bring the magic of Bowser's Castle into their everyday lives.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07KWR92DG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07KWR92DG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B081MY4F7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cfopiryx Medieval Castle Toys</a>
+## <a href="https://www.amazon.com/dp/B081MY4F7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cfopiryx Medieval Castle Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B081MY4F7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CfoPiryx Medieval Castle Toys,Knight Game Soldier Model Building Accessories, DIY Assembled Castle Model Set,Playset Gifts" src="https://m.media-amazon.com/images/I/51SmZR+PcSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081MY4F7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CfoPiryx Medieval Castle Toys,Knight Game Soldier Model Building Accessories, DIY Assembled Castle Model Set,Playset Gifts" src="https://m.media-amazon.com/images/I/51SmZR+PcSL._SL500_.jpg"/></a>
 
 
 The **CfoPiryx Medieval Castle Toys** set is ideal for children and hobbyists who enjoy **DIY assembled models** and imaginative play. Perfect for young knights and castle enthusiasts, this **knight game soldier model building accessory** encourages creativity, fine motor skills, and historical interest, making it a great gift for kids and collectors alike.
@@ -186,12 +186,12 @@ The **CfoPiryx Medieval Castle Toys** set features intricate components designed
 
 This DIY castle model encourages users to engage in hands-on assembly, fostering patience and attention to detail. The realistic knight game soldiers add an authentic touch, enhancing imaginative role-playing scenarios. As a result, the set not only entertains but also supports educational growth by promoting historical interest and fine motor development. Overall, the **CfoPiryx Medieval Castle Toys** set is a thoughtfully crafted playset that combines fun, learning, and creativity for young enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B081MY4F7N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B081MY4F7N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BLJSHQ3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Princess Toys, Ultimate Castle</a>
+## <a href="https://www.amazon.com/dp/B0BLJSHQ3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Princess Toys, Ultimate Castle</a>
 
 
-<a href="https://www.amazon.com/dp/B0BLJSHQ3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Princess Toys, Ultimate Castle 4 Ft Tall with Lights &amp; Sounds, 3 Levels, 10 Play Areas and 25+ Furniture &amp; Pieces, Inspired by Disney Movies" src="https://m.media-amazon.com/images/I/515tx8UA39L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BLJSHQ3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Princess Toys, Ultimate Castle 4 Ft Tall with Lights &amp; Sounds, 3 Levels, 10 Play Areas and 25+ Furniture &amp; Pieces, Inspired by Disney Movies" src="https://m.media-amazon.com/images/I/515tx8UA39L._SL500_.jpg"/></a>
 
 
 The **Mattel Disney Princess Toys Ultimate Castle** is ideal for young children who love imaginative play and are fans of **Disney Princesses**. Perfect for kids who enjoy storytelling and role-playing, this expansive playset invites hours of creative fun, making it a great gift for birthdays or special occasions. Parents looking for an engaging, interactive toy that combines iconic characters with a detailed play environment will find this castle an excellent choice.
@@ -215,12 +215,12 @@ This **Ultimate Castle** from Mattel offers an expansive and detailed environmen
 
 Additionally, the castle's numerous play areas and extensive set of furniture and accessories allow for versatile role-playing scenarios, helping to develop creativity and storytelling skills. Made by the reputable **Mattel** brand, this toy promises durability and quality, ensuring it withstands hours of enthusiastic play. Overall, it is a wonderful addition to any child’s toy collection, especially for fans of Disney Princesses seeking an immersive and magical playset.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BLJSHQ3S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BLJSHQ3S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B099ZW4LG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Garlictoys Wooden Castle Blocks</a>
+## <a href="https://www.amazon.com/dp/B099ZW4LG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Garlictoys Wooden Castle Blocks</a>
 
 
-<a href="https://www.amazon.com/dp/B099ZW4LG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Garlictoys 75 Pieces Wooden Castle Blocks Medieval Knights Princesses Wooden Castle Building Blocks Kit for Kids Boys and Girls" src="https://m.media-amazon.com/images/I/4118dp7hiaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099ZW4LG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Garlictoys 75 Pieces Wooden Castle Blocks Medieval Knights Princesses Wooden Castle Building Blocks Kit for Kids Boys and Girls" src="https://m.media-amazon.com/images/I/4118dp7hiaL._SL500_.jpg"/></a>
 
 
 Ideal for imaginative young builders, the **Garlictoys 75 Pieces Wooden Castle Blocks** set is perfect for **kids, boys, and girls** who enjoy creative play and storytelling. This **medieval knights and princesses themed** building kit encourages **hands-on learning** and fine motor skill development, making it a great choice for parents seeking an educational yet entertaining toy.
@@ -242,12 +242,12 @@ The **Garlictoys Wooden Castle Blocks Kit** offers a thoughtfully designed colle
 
 Beyond simple construction, the inclusion of **knights and princesses figures** invites children to create stories and role-play scenarios, which enhances their social and language development. Weighing just under 3 pounds, the set is portable and easy to store, making it suitable for use at home or on the go. Overall, this kit is a valuable addition to any child's toy collection, combining creativity, education, and classic play in one comprehensive set.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B099ZW4LG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B099ZW4LG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CGPZT81P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plustopoy Medieval Castle Knight Toy Soldier Figures Army Men Toys</a>
+## <a href="https://www.amazon.com/dp/B0CGPZT81P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plustopoy Medieval Castle Knight Toy Soldier Figures Army Men Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGPZT81P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plustopoy Medieval Castle Knight Toy Soldier Figures Army Men Toys, The Medieval Times Middle Ages DIY Castle Building Toy Piracy Knight Action Figurines with with 20 Piracies, 12 Soldiers, 8 Cavalry" src="https://m.media-amazon.com/images/I/51VgO5DZ3YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGPZT81P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plustopoy Medieval Castle Knight Toy Soldier Figures Army Men Toys, The Medieval Times Middle Ages DIY Castle Building Toy Piracy Knight Action Figurines with with 20 Piracies, 12 Soldiers, 8 Cavalry" src="https://m.media-amazon.com/images/I/51VgO5DZ3YL._SL500_.jpg"/></a>
 
 
 The **Plustopoy Medieval Castle Knight Toy Soldier Figures** are ideal for children and collectors who have a passion for **medieval history**, **DIY castle building**, and imaginative play. This set is perfect for young enthusiasts looking to recreate the **Middle Ages** battles or for hobbyists who enjoy assembling detailed **castle and army figurines**.
@@ -270,12 +270,12 @@ The **Plustopoy Medieval Castle Knight Toy Soldier Figures** offer an immersive 
 
 With its sturdy construction and attention to detail, this set supports long-lasting enjoyment. The manageable size and weight make it easy to set up and integrate into various play environments, whether at home or in educational settings. Overall, this toy set is a fantastic blend of fun, education, and creativity for anyone interested in the **Middle Ages** or military figurines.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CGPZT81P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CGPZT81P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CGPZ8S9Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plustopoy Medieval Castle Knight Toy Soldier Army Figurines</a>
+## <a href="https://www.amazon.com/dp/B0CGPZ8S9Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Plustopoy Medieval Castle Knight Toy Soldier Army Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGPZ8S9Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plustopoy Medieval Castle Knight Toy Soldier Army Figurines, DIY Assembled Cavalry, Arrow Tower,8 Knights and 8 Horse, 36 Soldiers, Simulated Siege War of Attack Castle Toy for Boys" src="https://m.media-amazon.com/images/I/51sVq2WcJyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGPZ8S9Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Plustopoy Medieval Castle Knight Toy Soldier Army Figurines, DIY Assembled Cavalry, Arrow Tower,8 Knights and 8 Horse, 36 Soldiers, Simulated Siege War of Attack Castle Toy for Boys" src="https://m.media-amazon.com/images/I/51sVq2WcJyL._SL500_.jpg"/></a>
 
 
 The **Plustopoy Medieval Castle Knight Toy Soldier Army Figurines** are ideal for young boys and enthusiasts who love historical playsets and imaginative war games. This set is perfect for children who enjoy building and assembling detailed models, as well as anyone interested in medieval history and strategy-based play. Parents looking to encourage creativity and fine motor skills in their kids will find this DIY assembled cavalry set highly engaging.
@@ -298,7 +298,7 @@ The **Plustopoy Medieval Castle Knight Toy Soldier Army Figurines** stand out fo
 
 Additionally, the set’s compact yet sturdy build makes it ideal for both playtime and display. Its gray color scheme adds a realistic touch, simulating authentic medieval warfare scenarios. Overall, this toy set is a fantastic choice for parents seeking an engaging, educational, and entertaining gift that fosters imaginative play centered around medieval history.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CGPZ8S9Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CGPZ8S9Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

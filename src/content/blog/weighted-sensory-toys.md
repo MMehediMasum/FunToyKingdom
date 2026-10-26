@@ -23,10 +23,10 @@ Some feature removable weights to adjust the heaviness, making them suitable for
 
 
 
-## <a href="https://www.amazon.com/dp/B0BY3JJPQL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Lilly's Love Weighted Stuffed Animal </a>
+## <a href="https://www.amazon.com/dp/B0BY3JJPQL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Lilly's Love Weighted Stuffed Animal </a>
 
 
-<a href="https://www.amazon.com/dp/B0BY3JJPQL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lilly's Love Weighted Stuffed Animal, 5lb | Sensory Plush for Kids &amp; Adults | Machine Washable Plushie w/Removable Inner | Calming Weighted Stuffed Animal for Anxiety, Stevie The Sloth" src="https://m.media-amazon.com/images/I/414Gs+VH6jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BY3JJPQL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lilly's Love Weighted Stuffed Animal, 5lb | Sensory Plush for Kids &amp; Adults | Machine Washable Plushie w/Removable Inner | Calming Weighted Stuffed Animal for Anxiety, Stevie The Sloth" src="https://m.media-amazon.com/images/I/414Gs+VH6jL._SL500_.jpg"/></a>
 
 
 The **Lilly's Love Weighted Stuffed Animal, 5lb**, is perfect for individuals seeking a comforting and calming companion. Ideal for both **kids and adults** dealing with **anxiety**, sensory processing issues, or anyone who benefits from tactile stimulation, this **weighted plushie** provides soothing pressure that promotes relaxation and a sense of security.
@@ -49,12 +49,12 @@ The **Lilly's Love Weighted Stuffed Animal** features a perfectly balanced **5lb
 
 Additionally, the plush is fully **machine washable**, making it practical for everyday use and easy to keep clean. Its soft texture and appealing design make it not just a therapeutic tool but also a lovable companion that encourages emotional well-being. Whether used for sensory therapy or simply as a relaxing plush toy, this weighted stuffed animal offers both comfort and convenience in one package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BY3JJPQL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BY3JJPQL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CHN1PF46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meavia Weighted Sensory Lap Pad Sea Turtle Plush</a>
+## <a href="https://www.amazon.com/dp/B0CHN1PF46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meavia Weighted Sensory Lap Pad Sea Turtle Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHN1PF46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEAVIA Weighted Sensory Lap Pad Sea Turtle Plush, Stuffed Turtle Toy with Detachable Lap Pillow, FEELix Collection" src="https://m.media-amazon.com/images/I/417PjtdhPzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHN1PF46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEAVIA Weighted Sensory Lap Pad Sea Turtle Plush, Stuffed Turtle Toy with Detachable Lap Pillow, FEELix Collection" src="https://m.media-amazon.com/images/I/417PjtdhPzL._SL500_.jpg"/></a>
 
 
 The **MEAVIA Weighted Sensory Lap Pad Sea Turtle Plush** from the **FEELix Collection** is perfect for individuals who benefit from sensory support and calming tactile experiences. Ideal customers include children and adults with sensory processing disorders, autism, anxiety, or anyone seeking comfort through gentle pressure and soft textures. This plush, weighted lap pad offers both soothing weight and a cuddly companion, making it a great choice for sensory therapy or relaxation.
@@ -77,12 +77,12 @@ The **MEAVIA Weighted Sensory Lap Pad** stands out with its combination of tacti
 
 With its moderate weight of approximately 3 pounds, this lap pad offers gentle deep pressure stimulation that can help reduce anxiety and improve focus. Its manageable size and lightweight design make it easy to carry around or use in various settings such as classrooms, therapy sessions, or at home. Overall, this sensory tool blends therapeutic benefits with an inviting plush design, making it a valuable addition for anyone seeking comfort and sensory support.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CHN1PF46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CHN1PF46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DPLWM6B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Calmee The Caterpillar Weighted Sensory Plush Toy</a>
+## <a href="https://www.amazon.com/dp/B0DPLWM6B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Calmee The Caterpillar Weighted Sensory Plush Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPLWM6B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Calmee The Caterpillar Weighted Sensory Plush Toy for Kids, Breathing Exercise and Mindfulness Tool for Focus and Emotional Regulation, SEL Classroom or Home Toy, Soft and Washable – MESH Accredited" src="https://m.media-amazon.com/images/I/41smA9yACxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPLWM6B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Calmee The Caterpillar Weighted Sensory Plush Toy for Kids, Breathing Exercise and Mindfulness Tool for Focus and Emotional Regulation, SEL Classroom or Home Toy, Soft and Washable – MESH Accredited" src="https://m.media-amazon.com/images/I/41smA9yACxL._SL500_.jpg"/></a>
 
 
 The **Calmee The Caterpillar Weighted Sensory Plush Toy** is ideal for children who benefit from calming sensory input, such as those with anxiety, attention challenges, or sensory processing needs. It is perfect for parents, educators, and therapists looking for a practical tool to support **focus, emotional regulation, and mindfulness** in both home and classroom settings.
@@ -106,12 +106,12 @@ The **Calmee The Caterpillar** features a thoughtfully weighted plush design tha
 
 This sensory toy is compact and portable, making it easy for children to carry it around or keep it on their desks as a steady calming presence. The **MESH Accreditation** assures parents and educators of its adherence to quality and sensory effectiveness. Overall, this weighted sensory plush serves as a gentle yet effective tool to help children develop emotional regulation skills and improve their focus in a fun and approachable way.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DPLWM6B6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DPLWM6B6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DSVTXFNW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckdoor Silicone Magnetic Balls Fidget Toys</a>
+## <a href="https://www.amazon.com/dp/B0DSVTXFNW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luckdoor Silicone Magnetic Balls Fidget Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSVTXFNW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckdoor Silicone Magnetic Balls Fidget Toys for Adults &amp; Teens,4PCS Stress Relief Sensory Toys for Autism ADHD Anxiety,Fun Textures Gadgets,Office Desk Toy,Stocking Stuffers for Women Men Teen Gift" src="https://m.media-amazon.com/images/I/41tUeiyBWOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSVTXFNW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="luckdoor Silicone Magnetic Balls Fidget Toys for Adults &amp; Teens,4PCS Stress Relief Sensory Toys for Autism ADHD Anxiety,Fun Textures Gadgets,Office Desk Toy,Stocking Stuffers for Women Men Teen Gift" src="https://m.media-amazon.com/images/I/41tUeiyBWOL._SL500_.jpg"/></a>
 
 
 The **luckdoor Silicone Magnetic Balls Fidget Toys** are ideal for **adults and teens** seeking effective **stress relief** and sensory stimulation. Perfectly suited for individuals with **Autism, ADHD, or anxiety**, these toys offer a discreet and fun way to improve focus and calmness. They also make excellent **office desk toys** or thoughtful **gifts for men, women, and teens** looking to enhance their concentration or simply enjoy a tactile experience.
@@ -133,12 +133,12 @@ The **luckdoor Silicone Magnetic Balls** stand out due to their combination of *
 
 Additionally, these fidget toys are thoughtfully designed to meet the needs of people with sensory challenges such as **Autism and ADHD**. The avocado green color is visually calming, and the durable silicone material ensures long-lasting use without wear or discomfort. Beyond therapeutic benefits, they serve as fun and practical gadgets for anyone looking to reduce anxiety or improve concentration, whether at work, school, or home. This makes the **luckdoor Silicone Magnetic Balls** a versatile and valuable tool for a wide range of users.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DSVTXFNW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DSVTXFNW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C2J5WLL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weighted Stuffed Animal For Anxiety</a>
+## <a href="https://www.amazon.com/dp/B0C2J5WLL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weighted Stuffed Animal For Anxiety</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2J5WLL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weighted Stuffed Animal for Anxiety | Calming &amp; Comforting 5 Lbs | Weighted Plush Animal Sloth | Anxiety Stuffed Animals for Adults &amp; Kids | Carrying Bag Included | Machine Washable Weighted Plushie" src="https://m.media-amazon.com/images/I/51pkPvf3fiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2J5WLL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Weighted Stuffed Animal for Anxiety | Calming &amp; Comforting 5 Lbs | Weighted Plush Animal Sloth | Anxiety Stuffed Animals for Adults &amp; Kids | Carrying Bag Included | Machine Washable Weighted Plushie" src="https://m.media-amazon.com/images/I/51pkPvf3fiL._SL500_.jpg"/></a>
 
 
 The **Weighted Stuffed Animal for Anxiety** by **ODOXIA** is ideal for both **adults** and **kids** who experience feelings of anxiety or stress and are seeking a comforting, calming companion. This **weighted plush animal sloth** offers soothing pressure that helps to reduce anxiety symptoms, making it perfect for individuals looking for a non-medical way to manage stress or sensory processing challenges. Those who appreciate cuddly, soft toys with added therapeutic benefits will find this item particularly appealing.
@@ -161,12 +161,12 @@ This **weighted plush animal sloth** is thoughtfully designed to combine the cal
 
 Additionally, the inclusion of a **carrying bag** enhances portability, allowing users to bring their calming companion wherever they go. The fact that it is **machine washable** ensures that maintaining cleanliness is hassle-free, an important feature for both adults and children. Overall, this plush weighted sloth offers a practical, comforting solution for managing anxiety with the added benefit of being both durable and easy to care for.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C2J5WLL5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C2J5WLL5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BX3CNTMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teytoy Sensory Bean Bag For Kids 10 Pack</a>
+## <a href="https://www.amazon.com/dp/B0BX3CNTMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Teytoy Sensory Bean Bag For Kids 10 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BX3CNTMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="teytoy Sensory Bean Bag for Kids 10 Pack,Texture Sensory Beanbags,Sensory Toys for Autism,Animal Sensory Fine Motor Toys with Storage Bag for Boys and Girls" src="https://m.media-amazon.com/images/I/51xTVPqdPzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BX3CNTMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="teytoy Sensory Bean Bag for Kids 10 Pack,Texture Sensory Beanbags,Sensory Toys for Autism,Animal Sensory Fine Motor Toys with Storage Bag for Boys and Girls" src="https://m.media-amazon.com/images/I/51xTVPqdPzL._SL500_.jpg"/></a>
 
 
 The **teytoy Sensory Bean Bag for Kids 10 Pack** is ideal for parents, educators, and therapists looking to support children with sensory processing needs, including those with **autism**. These **texture sensory beanbags** are designed to engage kids through tactile play, making them perfect for enhancing fine motor skills and sensory exploration in boys and girls of various ages. If you want a versatile, colorful, and educational sensory toy set, this item is a great choice.
@@ -188,12 +188,12 @@ The **teytoy Sensory Bean Bag** set offers a variety of textures that encourage 
 
 Beyond sensory exploration, these beanbags are designed with practical use in mind, including a handy storage bag to keep everything organized and portable. This makes them ideal for use both at home and in educational or therapeutic settings. The set’s focus on fine motor skill development and sensory input support makes it a valuable tool for children with autism or sensory processing challenges, contributing positively to their overall growth and well-being.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BX3CNTMV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BX3CNTMV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BMWF2YXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cuddle Buds 5lbs Weighted Dog Stuffed Animal</a>
+## <a href="https://www.amazon.com/dp/B0BMWF2YXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cuddle Buds 5lbs Weighted Dog Stuffed Animal</a>
 
 
-<a href="https://www.amazon.com/dp/B0BMWF2YXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cuddle Buds 5lbs Weighted Dog Stuffed Animal for Sensory Needs, 20'' Plush Dog, Weighted Stuffed Animals for Adults, Soft Plushie Toy" src="https://m.media-amazon.com/images/I/41uAn5uejVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BMWF2YXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cuddle Buds 5lbs Weighted Dog Stuffed Animal for Sensory Needs, 20'' Plush Dog, Weighted Stuffed Animals for Adults, Soft Plushie Toy" src="https://m.media-amazon.com/images/I/41uAn5uejVL._SL500_.jpg"/></a>
 
 
 The **Cuddle Buds 5lbs Weighted Dog Stuffed Animal** is ideal for individuals seeking a comforting sensory aid, including adults with anxiety, stress, or sensory processing needs. This **20'' plush dog** offers a soothing weight and soft texture, making it perfect for anyone wanting a calming companion or a therapeutic plushie toy.
@@ -216,12 +216,12 @@ The **Cuddle Buds Weighted Dog Stuffed Animal** features a carefully calibrated 
 
 Measuring approximately **20 inches** in length, this plush dog is perfectly sized to be held on the lap or hugged close, providing consistent sensory input without being cumbersome. The durable construction ensures long-lasting use, while the adorable dog design creates a friendly and soothing presence. Overall, this weighted stuffed animal combines functionality with emotional warmth, making it a valuable tool for sensory needs and comfort.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BMWF2YXX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BMWF2YXX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D7QVGKWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sensory4u Weighted Axolotl Plush</a>
+## <a href="https://www.amazon.com/dp/B0D7QVGKWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sensory4u Weighted Axolotl Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7QVGKWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 2.5="" adults="" alt="SENSORY4U Weighted Axolotl Plush - 22" calming="" focus="" for="" kids="" lbs="" long,="" plush="" relaxation"="" sensory="" src="https://m.media-amazon.com/images/I/31iZ6pCsfDL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B0D7QVGKWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 2.5="" adults="" alt="SENSORY4U Weighted Axolotl Plush - 22" calming="" focus="" for="" kids="" lbs="" long,="" plush="" relaxation"="" sensory="" src="https://m.media-amazon.com/images/I/31iZ6pCsfDL._SL500_.jpg" toy=""/></a>
 
 
 The **SENSORY4U Weighted Axolotl Plush** is an ideal choice for both **kids and adults** seeking a comforting and calming sensory toy. Perfect for individuals who benefit from weighted items to enhance focus, relaxation, or anxiety relief, this plush is especially suited for those with sensory processing needs, ADHD, or anyone looking for a soft, soothing companion.
@@ -244,12 +244,12 @@ The **SENSORY4U Weighted Axolotl Plush** combines the benefits of a sensory toy 
 
 Measuring **22 inches in length**, this plush is large enough to provide substantial calming weight while remaining easy to carry around. The **high-quality craftsmanship** ensures durability, making it suitable for daily use. Whether used during stressful moments, study sessions, or relaxation time, this sensory plush offers a practical and enjoyable way to enhance well-being.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D7QVGKWK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D7QVGKWK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BZWHGSQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sesame Street Monster Hugs Cookie Monster Weighted Sensory Plushie</a>
+## <a href="https://www.amazon.com/dp/B0BZWHGSQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sesame Street Monster Hugs Cookie Monster Weighted Sensory Plushie</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZWHGSQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sesame Street Monster Hugs Cookie Monster Weighted Sensory Plushie, Blue, Kids Toys for Ages 18 Month, Amazon Exclusive by Just Play" src="https://m.media-amazon.com/images/I/41mNtblXflL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZWHGSQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sesame Street Monster Hugs Cookie Monster Weighted Sensory Plushie, Blue, Kids Toys for Ages 18 Month, Amazon Exclusive by Just Play" src="https://m.media-amazon.com/images/I/41mNtblXflL._SL500_.jpg"/></a>
 
 
 The **Sesame Street Monster Hugs Cookie Monster Weighted Sensory Plushie** is an ideal choice for parents looking to provide their toddlers, especially those aged 18 months and above, with a comforting and engaging toy. This **Amazon Exclusive** by **Just Play** combines the beloved character of Cookie Monster with sensory features designed to soothe and entertain young children, making it perfect for kids who benefit from tactile stimulation and weighted comfort.
@@ -272,12 +272,12 @@ This **Cookie Monster Weighted Sensory Plushie** is thoughtfully designed to com
 
 The durable construction from **Just Play** ensures that the plushie can withstand regular use and handling by young children. Additionally, its size and sensory attributes make it versatile for various settings, whether at home, daycare, or travel. Overall, this plushie is a wonderful gift for parents seeking a toy that not only entertains but also supports the sensory needs and emotional well-being of their toddlers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BZWHGSQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BZWHGSQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CV4HVBPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meavia Sensory Plush Gift Set</a>
+## <a href="https://www.amazon.com/dp/B0CV4HVBPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Meavia Sensory Plush Gift Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CV4HVBPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEAVIA Sensory Plush Gift Set (Set of 3); Mini Friends, Octopus, Elephant, and Turtle Stuffed Toys" src="https://m.media-amazon.com/images/I/51QkNDoA0GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CV4HVBPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEAVIA Sensory Plush Gift Set (Set of 3); Mini Friends, Octopus, Elephant, and Turtle Stuffed Toys" src="https://m.media-amazon.com/images/I/51QkNDoA0GL._SL500_.jpg"/></a>
 
 
 The **MEAVIA Sensory Plush Gift Set** is perfect for parents and caregivers seeking engaging, soft, and safe toys for young children. Ideal for toddlers and preschoolers, this set of three adorable stuffed toys — including a **Mini Friends Octopus, Elephant, and Turtle** — is designed to stimulate sensory development while providing comforting companionship.
@@ -299,7 +299,7 @@ The **MEAVIA Sensory Plush Gift Set** combines charming design with practical fu
 
 Moreover, the lightweight nature and soft fabric ensure that children can safely interact with the toys without risk of injury. The set also encourages social and emotional growth as children learn to care for their plush friends, fostering empathy and imaginative storytelling. Overall, this gift set offers both developmental benefits and hours of cuddly fun.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CV4HVBPS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CV4HVBPS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -23,10 +23,10 @@ These figurines also make thoughtful gifts for baptisms or religious events. Saf
 
 
 
-## <a href="https://www.amazon.com/dp/B008I3T74Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nj Croce Jesus Of Nazareth Poseable Figure</a>
+## <a href="https://www.amazon.com/dp/B008I3T74Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nj Croce Jesus Of Nazareth Poseable Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B008I3T74Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NJ Croce 6.5" and="" back="" bendable="" bible="" bring="" character="" figure,="" for="" games,="" gift,="" great="" hide="" jesus="" kids,="" life!"="" nazareth="" of="" poseable="" religion="" religious="" safe="" seek="" src="https://m.media-amazon.com/images/I/31zp3CWwtcL._SL500_.jpg" to="" toy,="" your=""/></a>
+<a href="https://www.amazon.com/dp/B008I3T74Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NJ Croce 6.5" and="" back="" bendable="" bible="" bring="" character="" figure,="" for="" games,="" gift,="" great="" hide="" jesus="" kids,="" life!"="" nazareth="" of="" poseable="" religion="" religious="" safe="" seek="" src="https://m.media-amazon.com/images/I/31zp3CWwtcL._SL500_.jpg" to="" toy,="" your=""/></a>
 
 
 The **NJ Croce 6.5" Jesus of Nazareth Poseable Figure** is ideal for families, Sunday school teachers, and religious enthusiasts looking to bring Bible stories to life in a fun and interactive way. This **bendable toy** is perfect for children who enjoy imaginative play, as well as adults seeking a meaningful religious gift or a unique way to teach children about faith.
@@ -48,10 +48,10 @@ The **NJ Croce 6.5" Jesus of Nazareth Poseable Figure** features a compact desig
 
 Crafted by **NJ Croce**, this figure is made with safe, non-toxic materials, ensuring it is child-friendly and durable for regular use. The multicolor finish adds a lifelike touch, helping users connect more deeply with the religious character. Whether used as a teaching tool, a collectible, or a fun toy for hide and seek games, this figure successfully combines faith with play, making it a valuable addition to any home or classroom.
 
-## <a href="https://www.amazon.com/dp/B0D2XZ4F1J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Akfahoif Little Jesus Figures</a>
+## <a href="https://www.amazon.com/dp/B0D2XZ4F1J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Akfahoif Little Jesus Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2XZ4F1J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AKFAHOIF 30Pcs Little Jesus Figures, Set of 30pcs Action Figures Mini Jesus Figurines in Bulk, Tiny Jesus Figures to Hide and Seek Religious Gifts for Easter Egg Stuffers Fillers" src="https://m.media-amazon.com/images/I/51-hhCIR18L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2XZ4F1J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AKFAHOIF 30Pcs Little Jesus Figures, Set of 30pcs Action Figures Mini Jesus Figurines in Bulk, Tiny Jesus Figures to Hide and Seek Religious Gifts for Easter Egg Stuffers Fillers" src="https://m.media-amazon.com/images/I/51-hhCIR18L._SL500_.jpg"/></a>
 
 
 The **AKFAHOIF 30Pcs Little Jesus Figures** are ideal for individuals seeking meaningful and unique **religious gifts**, especially for occasions like **Easter**. Perfect for parents, teachers, or event organizers looking to add a spiritual touch to **egg stuffers** or party favors, this set of **mini Jesus figurines** offers a thoughtful and symbolic option for celebrations or religious education activities.
@@ -74,10 +74,10 @@ These **mini Jesus figures** by **AKFAHOIF** are thoughtfully designed with comp
 
 Beyond their decorative appeal, these figures serve as a subtle yet powerful reminder of faith, making them more than just toys or fillers. Their durable construction allows for repeated use, providing lasting value through multiple celebrations. Whether used for educational purposes or as unique gift fillers, the **AKFAHOIF 30Pcs Little Jesus Figures** effectively combine fun with meaningful symbolism, enriching the experience of any religious event.
 
-## <a href="https://www.amazon.com/dp/B000CIS34U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Accoutrements Dashboard Jesus</a>
+## <a href="https://www.amazon.com/dp/B000CIS34U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Accoutrements Dashboard Jesus</a>
 
 
-<a href="https://www.amazon.com/dp/B000CIS34U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Accoutrements Dashboard Jesus" src="https://m.media-amazon.com/images/I/41L67veJN-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000CIS34U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Accoutrements Dashboard Jesus" src="https://m.media-amazon.com/images/I/41L67veJN-L._SL500_.jpg"/></a>
 
 
 The **Accoutrements Dashboard Jesus** is ideal for individuals seeking a unique and humorous car accessory that adds a touch of personality to their vehicle's interior. Perfect for drivers who appreciate quirky decor and want a conversation starter on their dashboard, this item appeals to those who enjoy blending spirituality with a bit of fun in their daily commute.
@@ -98,10 +98,10 @@ The **Accoutrements Dashboard Jesus** features a compact and lightweight design,
 
 Additionally, the modest dimensions and weight make this item easy to install and remove, catering to drivers who may want to switch up their dashboard decor or travel with the item. Its unique design serves as both a decorative piece and a reflection of the owner's personality, offering a distinctive way to personalize your vehicle with a touch of humor and faith.
 
-## <a href="https://www.amazon.com/dp/B0D6KB1FSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bememo 25 Pcs Little Jesus Figures</a>
+## <a href="https://www.amazon.com/dp/B0D6KB1FSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bememo 25 Pcs Little Jesus Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0D6KB1FSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bememo 25 Pcs Little Jesus Figures Original Design Jesus Love You Mini Rubber Toys to Hide and Seek Religious Party Favors Sunday School Baptism Gifts(Lively Colors)" src="https://m.media-amazon.com/images/I/51KXsZhkHXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D6KB1FSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bememo 25 Pcs Little Jesus Figures Original Design Jesus Love You Mini Rubber Toys to Hide and Seek Religious Party Favors Sunday School Baptism Gifts(Lively Colors)" src="https://m.media-amazon.com/images/I/51KXsZhkHXL._SL500_.jpg"/></a>
 
 
 The **Bememo 25 Pcs Little Jesus Figures** are perfect for individuals looking to add a meaningful touch to their religious gatherings or celebrations. Ideal for **Sunday School teachers**, **party planners**, or anyone seeking unique **Baptism gifts**, these mini rubber toys serve as both fun and inspirational keepsakes. If you want to engage children and guests with lively, faith-inspired items, this set is an excellent choice.
@@ -124,10 +124,10 @@ These **Bememo Little Jesus Figures** feature a carefully crafted original desig
 
 Additionally, the set’s quantity and lightweight nature make it convenient for bulk gifting at **Baptisms** or **Sunday School** events. The durable rubber construction means they can be reused and enjoyed multiple times, enhancing their value. Overall, these figures combine playful interaction with meaningful symbolism, making them an ideal choice for anyone wishing to share faith in a creative and engaging way.
 
-## <a href="https://www.amazon.com/dp/B0DDBTJ97K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cherislpy Jesus Toys Mini Rubber Little Jesus Figurine</a>
+## <a href="https://www.amazon.com/dp/B0DDBTJ97K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cherislpy Jesus Toys Mini Rubber Little Jesus Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDBTJ97K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cherislpy 24 Pcs Jesus Toys Mini Rubber Little Jesus Figurine to Hide and Seek Religious Sunday School Gifts for Kids Girls Boys Party Favors School Baptism Stuffers" src="https://m.media-amazon.com/images/I/51NiLHsBN6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDBTJ97K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Cherislpy 24 Pcs Jesus Toys Mini Rubber Little Jesus Figurine to Hide and Seek Religious Sunday School Gifts for Kids Girls Boys Party Favors School Baptism Stuffers" src="https://m.media-amazon.com/images/I/51NiLHsBN6L._SL500_.jpg"/></a>
 
 
 Ideal for parents, Sunday school teachers, and event organizers looking for meaningful and engaging gifts, the **Cherislpy 24 Pcs Jesus Toys Mini Rubber Little Jesus Figurine** is perfect for children who enjoy interactive play with a religious theme. These mini figurines serve as excellent party favors, school baptism stuffers, or educational tools for kids interested in learning about faith through fun activities like hide and seek.
@@ -149,10 +149,10 @@ The **Cherislpy Mini Rubber Little Jesus Figurines** are thoughtfully designed w
 
 These figurines provide more than just entertainment; they serve as educational tools that reinforce religious teachings in a playful manner. Whether used in a classroom, at a baptism celebration, or as party favors, they encourage social interaction, sharing, and learning. Their compact and lightweight nature also makes them easy to distribute and store, making them a practical choice for educators and parents alike.
 
-## <a href="https://www.amazon.com/dp/B0DZHFQWVS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holydeck 24 Pack Little Jesus Figurines Toys Set</a>
+## <a href="https://www.amazon.com/dp/B0DZHFQWVS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Holydeck 24 Pack Little Jesus Figurines Toys Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZHFQWVS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Holydeck 24 Pack Little Jesus Figurines Toys Set Jesus Love You Mini Rubber Toys Includes 24pcs Organza Bag and Gift Cards Perfect for Kids Sunday School Baptism Gifts Party Favor" src="https://m.media-amazon.com/images/I/51fRefNbHxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZHFQWVS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Holydeck 24 Pack Little Jesus Figurines Toys Set Jesus Love You Mini Rubber Toys Includes 24pcs Organza Bag and Gift Cards Perfect for Kids Sunday School Baptism Gifts Party Favor" src="https://m.media-amazon.com/images/I/51fRefNbHxL._SL500_.jpg"/></a>
 
 
 The **Holydeck 24 Pack Little Jesus Figurines Toys Set** is ideal for parents, Sunday school teachers, and event organizers looking for meaningful, faith-based gifts or party favors. These mini rubber toys are perfect for children attending **Sunday school**, **baptisms**, or religious celebrations, providing a fun and educational way to share the message of **Jesus' love**.
@@ -174,10 +174,10 @@ The **Holydeck Little Jesus Figurines** are thoughtfully designed to combine pla
 
 These figurines serve as excellent tools for teaching children about faith in a tangible way. The durable rubber construction ensures they withstand regular handling, while their multi-colored finish keeps them visually engaging. Whether used as party favors or educational aids, this set supports faith-based activities with a practical and heartfelt approach.
 
-## <a href="https://www.amazon.com/dp/B0D7ZX46SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bememo Little Jesus Figures</a>
+## <a href="https://www.amazon.com/dp/B0D7ZX46SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bememo Little Jesus Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7ZX46SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bememo 100 Pcs Little Jesus Figures Jesus Loves You Original Design Rubber Pocket Toys Little Figures to Hide and Seek Sunday School Religious Party Share Gifts(Bright Colors)" src="https://m.media-amazon.com/images/I/51Q1qHu22vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7ZX46SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bememo 100 Pcs Little Jesus Figures Jesus Loves You Original Design Rubber Pocket Toys Little Figures to Hide and Seek Sunday School Religious Party Share Gifts(Bright Colors)" src="https://m.media-amazon.com/images/I/51Q1qHu22vL._SL500_.jpg"/></a>
 
 
 The **Bememo 100 Pcs Little Jesus Figures** are perfect for parents, Sunday school teachers, and religious event organizers looking for engaging and meaningful toys. These **brightly colored** rubber figures are ideal for children who enjoy interactive play while learning about faith. If you want to add a spiritual touch to party favors or educational activities, this set offers a fun and memorable way to share the message that **Jesus loves you**.
@@ -199,10 +199,10 @@ The **Bememo Little Jesus Figures** stand out for combining religious education 
 
 Made by the trusted **Bememo brand**, these figures are thoughtfully crafted to be safe and appealing. Their size and bright colors ensure they capture children's attention and encourage interaction. Overall, this set is an excellent choice for anyone looking to incorporate meaningful learning into fun activities.
 
-## <a href="https://www.amazon.com/dp/B0FCKXZL8D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">30 Pcs Little Jesus Figures</a>
+## <a href="https://www.amazon.com/dp/B0FCKXZL8D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">30 Pcs Little Jesus Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCKXZL8D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="30 Pcs Little Jesus Figures, Mini Jesus Figurines in Bulk Easter Jesus Loves You Tiny Christ Toys to Hide and Seek Sunday School Religious Party Favors Baptism Gifts for Easter Egg Stuffers" src="https://m.media-amazon.com/images/I/51z7brhY8TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCKXZL8D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="30 Pcs Little Jesus Figures, Mini Jesus Figurines in Bulk Easter Jesus Loves You Tiny Christ Toys to Hide and Seek Sunday School Religious Party Favors Baptism Gifts for Easter Egg Stuffers" src="https://m.media-amazon.com/images/I/51z7brhY8TL._SL500_.jpg"/></a>
 
 
 The **30 Pcs Little Jesus Figures** are perfect for individuals looking to add a meaningful touch to their **Easter celebrations**, **Sunday school activities**, or **religious parties**. Ideal for teachers, parents, and event organizers, these **mini Jesus figurines** serve as thoughtful **party favors**, **baptism gifts**, or **Easter egg stuffers** that emphasize faith and joy in a fun, interactive way.
@@ -224,10 +224,10 @@ The **30 Pcs Little Jesus Figures** are crafted with attention to size and color
 
 These mini Jesus figurines are not only decorative but also functional as teaching aids or party favors. Their bulk quantity allows for easy distribution among groups, reinforcing the message of love and spirituality during key religious events. Whether you're organizing a Sunday school lesson or a baptism celebration, these figures provide a meaningful keepsake that guests can cherish long after the event.
 
-## <a href="https://www.amazon.com/dp/B0DHVD8CMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Akfahoif Little Jesus Figures</a>
+## <a href="https://www.amazon.com/dp/B0DHVD8CMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Akfahoif Little Jesus Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHVD8CMG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AKFAHOIF Little Jesus Figures, Mini Jesus Figurines in Bulk, Multicolor Tiny Jesus Figures, Miniature Figurines to Hide and Seek Religious Gifts for Easter Egg Stuffers (20)" src="https://m.media-amazon.com/images/I/510fdxs55RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHVD8CMG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AKFAHOIF Little Jesus Figures, Mini Jesus Figurines in Bulk, Multicolor Tiny Jesus Figures, Miniature Figurines to Hide and Seek Religious Gifts for Easter Egg Stuffers (20)" src="https://m.media-amazon.com/images/I/510fdxs55RL._SL500_.jpg"/></a>
 
 
 The **AKFAHOIF Little Jesus Figures** are perfect for individuals and families looking to add a meaningful touch to their **Easter celebrations** or religious events. Ideal for those who enjoy creative activities like **Easter egg stuffing** or organizing fun **hide and seek games** with a spiritual theme, these miniature figurines serve as delightful religious gifts and conversation starters. They are especially suitable for parents, Sunday school teachers, and event organizers wanting to combine faith and fun.
@@ -250,10 +250,10 @@ These **mini Jesus figurines** by **AKFAHOIF** are thoughtfully designed with a 
 
 Beyond their decorative appeal, these figures provide a meaningful way to incorporate religious symbolism into fun activities, making them an excellent teaching tool for children. Their bulk packaging ensures you have enough pieces to accommodate larger groups or multiple events, making them both practical and spiritually enriching. Overall, these miniature figurines blend tradition with creativity, perfect for anyone wanting to celebrate Easter with a deeper message.
 
-## <a href="https://www.amazon.com/dp/B0FBVR8MT4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Little Jesus Figures</a>
+## <a href="https://www.amazon.com/dp/B0FBVR8MT4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Little Jesus Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBVR8MT4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="25pcs Little Jesus Figures, Multicolor Mini Jesus Figurines in Bulk Rubber Toys to Hide and Seek, Easter Egg Hunts, Sunday School Supplies, Kids &amp; Adults" src="https://m.media-amazon.com/images/I/519h9cRCWML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBVR8MT4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="25pcs Little Jesus Figures, Multicolor Mini Jesus Figurines in Bulk Rubber Toys to Hide and Seek, Easter Egg Hunts, Sunday School Supplies, Kids &amp; Adults" src="https://m.media-amazon.com/images/I/519h9cRCWML._SL500_.jpg"/></a>
 
 
 Ideal for teachers, parents, and event organizers looking to add a unique and meaningful touch to **Easter egg hunts**, **Sunday school activities**, or family gatherings, the **25pcs Little Jesus Figures** are perfect for both **kids and adults** who appreciate small, colorful religious-themed toys. These **multicolor mini Jesus figurines** serve as engaging surprises that promote faith-based learning and fun.

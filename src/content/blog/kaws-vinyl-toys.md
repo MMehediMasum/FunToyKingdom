@@ -22,10 +22,10 @@ It offers many ways to pose and display. This figure fits well on desks or shelv
 
 
 
-## <a href="https://www.amazon.com/dp/B0CSXNZMLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qaonie 3d Printed 5.54-inch Multi-jointed Action Figures Dummy13</a>
+## <a href="https://www.amazon.com/dp/B0CSXNZMLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qaonie 3d Printed 5.54-inch Multi-jointed Action Figures Dummy13</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSXNZMLR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QAONIE 3D Printed 5.54-inch Multi-Jointed Action Figures Dummy13, Full Body Mechanical Movable Toy, Multiple Accessories, Hand Painted Figure, Desk Decoration, Creative Gifts (White)" src="https://m.media-amazon.com/images/I/51ZujrZ1mML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSXNZMLR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QAONIE 3D Printed 5.54-inch Multi-Jointed Action Figures Dummy13, Full Body Mechanical Movable Toy, Multiple Accessories, Hand Painted Figure, Desk Decoration, Creative Gifts (White)" src="https://m.media-amazon.com/images/I/51ZujrZ1mML._SL500_.jpg"/></a>
 
 
 The **QAONIE 3D Printed 5.54-inch Multi-Jointed Action Figures Dummy13** is ideal for artists, designers, and collectors who seek a versatile and realistic model for drawing reference, display, or creative inspiration. If you want a highly flexible and detailed mechanical movable toy that doubles as a unique desk decoration or a creative gift, this figure is perfect for you.

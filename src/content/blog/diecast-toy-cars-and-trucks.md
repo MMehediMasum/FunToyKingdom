@@ -23,10 +23,10 @@ Some models include lights, sounds, and moving parts for extra fun. These toys s
 
 
 
-## <a href="https://www.amazon.com/dp/B0CPKBVXMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Matchbox Toy Cars Or Trucks 8-pack</a>
+## <a href="https://www.amazon.com/dp/B0CPKBVXMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Matchbox Toy Cars Or Trucks 8-pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPKBVXMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Matchbox Toy Cars or Trucks 8-Pack, Set of 8 Die-Cast 1:64 Scale Vehicles, Themed Multipack, Including 1 Exclusive (Styles May Vary)" src="https://m.media-amazon.com/images/I/416I1ISJ0zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPKBVXMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Matchbox Toy Cars or Trucks 8-Pack, Set of 8 Die-Cast 1:64 Scale Vehicles, Themed Multipack, Including 1 Exclusive (Styles May Vary)" src="https://m.media-amazon.com/images/I/416I1ISJ0zL._SL500_.jpg"/></a>
 
 
 The **Matchbox Toy Cars or Trucks 8-Pack** is ideal for children and collectors who enjoy detailed, miniature vehicles. Perfect for kids aged 3 and up, this set appeals to those who love imaginative play with durable and realistic toy cars. Additionally, collectors looking for a variety of die-cast vehicles in a compact 1:64 scale will find this themed multipack an excellent addition to their collection.
@@ -48,12 +48,12 @@ The **Matchbox Toy Cars or Trucks 8-Pack** features a variety of die-cast vehicl
 
 Constructed by the trusted brand **Mattel**, these vehicles are built to withstand regular use, ensuring long-lasting fun. The compact design allows for easy storage and transport, making them ideal for playdates or travel. Whether used for racing, collecting, or creative storytelling, this multipack offers versatility and quality that benefit both children and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CPKBVXMD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CPKBVXMD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B003EGVIEE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1955 Chevrolet Stepside Pickup Truck</a>
+## <a href="https://www.amazon.com/dp/B003EGVIEE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kinsmart 1955 Chevrolet Stepside Pickup Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B003EGVIEE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (-4Set)" src="https://m.media-amazon.com/images/I/51H8Kkd3LNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003EGVIEE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (-4Set)" src="https://m.media-amazon.com/images/I/51H8Kkd3LNL._SL500_.jpg"/></a>
 
 
 The **KiNSMART 1955 Chevrolet Stepside Pickup Truck 5 Inch 1:32 Scale Die Cast Metal Little Truck (-4Set)** is ideal for collectors, vintage car enthusiasts, and children who love detailed miniature vehicles. If you appreciate classic American trucks or are looking for a durable, realistic toy for imaginative play, this set is perfect for you. Its authentic design and compact size make it suitable for display or hands-on enjoyment.
@@ -76,12 +76,12 @@ The **KiNSMART 1955 Chevrolet Stepside Pickup Truck** features authentic styling
 
 Additionally, the set includes four trucks in varying colors, providing variety and enhancing its appeal. Whether you are setting up a vintage-themed diorama or simply appreciate finely crafted die-cast models, these trucks offer both aesthetic and tactile satisfaction. Their compact dimensions make them easy to showcase on shelves or desks, while their sturdy build ensures long-lasting enjoyment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B003EGVIEE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B003EGVIEE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07Z5J3N45?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Pull Back Cars And Trucks Toy Vehicles Set</a>
+## <a href="https://www.amazon.com/dp/B07Z5J3N45?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Pull Back Cars And Trucks Toy Vehicles Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07Z5J3N45?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 25 Pieces Pull Back Cars and Trucks Toy Vehicles Set for Toddlers, Girls and Boys Kids Play Set, Die-Cast Car, Party Favors, School Gifts, Goodie Bags Stuffers for Kids" src="https://m.media-amazon.com/images/I/51EYbXMZdlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Z5J3N45?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 25 Pieces Pull Back Cars and Trucks Toy Vehicles Set for Toddlers, Girls and Boys Kids Play Set, Die-Cast Car, Party Favors, School Gifts, Goodie Bags Stuffers for Kids" src="https://m.media-amazon.com/images/I/51EYbXMZdlL._SL500_.jpg"/></a>
 
 
 The **JOYIN 25 Pieces Pull Back Cars and Trucks Toy Vehicles Set** is perfect for **toddlers, girls, and boys** who love imaginative play and cars. Ideal for parents, gift-givers, and educators looking for a versatile and engaging toy set, this collection stimulates creativity and motor skills in young children. It is also a great choice for **party favors, school gifts, and goodie bag stuffers**.
@@ -105,12 +105,12 @@ The **JOYIN 25 Pieces Pull Back Cars and Trucks Toy Vehicles Set** offers a fant
 
 Thanks to its sturdy build and child-friendly dimensions, this set is designed to withstand the energetic play of toddlers and young children. It also promotes fine motor skills and hand-eye coordination as kids pull back and release the vehicles. Whether used as a gift, a party favor, or a classroom activity, this set makes a practical and enjoyable addition to any child's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07Z5J3N45?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07Z5J3N45?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CQZWXSD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neureyte 8 Pack Die-cast Mini Monster Truck</a>
+## <a href="https://www.amazon.com/dp/B0CQZWXSD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Neureyte 8 Pack Die-cast Mini Monster Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQZWXSD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Neureyte 8 Pack Die-cast Mini Monster Truck for Boys and Girls,Pull Back Alloy Trucks Toy,Mini Pull Back Cars,Die-cast Race Cars for Kids Party Favors" src="https://m.media-amazon.com/images/I/51OP+Ol645L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQZWXSD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Neureyte 8 Pack Die-cast Mini Monster Truck for Boys and Girls,Pull Back Alloy Trucks Toy,Mini Pull Back Cars,Die-cast Race Cars for Kids Party Favors" src="https://m.media-amazon.com/images/I/51OP+Ol645L._SL500_.jpg"/></a>
 
 
 The **Neureyte 8 Pack Die-cast Mini Monster Truck** is an ideal choice for parents and gift-givers looking for engaging and durable toys for young boys and girls. Perfect for children who love **miniature cars** and enjoy active play, these **pull back alloy trucks** offer an exciting racing experience that sparks creativity and motor skills development. These trucks are also excellent as **party favors** for kids’ birthdays or special events.
@@ -133,12 +133,12 @@ Each **Neureyte Mini Monster Truck** is crafted with a **die-cast metal body** t
 
 The bright, **multicolor finish** on each truck appeals to both boys and girls, making them versatile gifts. Since the set includes eight trucks, it fosters social interaction among children, promoting sharing and group play. These mini trucks are perfect for birthday party favors, classroom rewards, or just adding to a child’s toy collection. Overall, the **Neureyte 8 Pack Die-cast Mini Monster Trucks** combine durability, fun, and value to keep kids entertained for hours.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CQZWXSD6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CQZWXSD6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D5VC61PC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ihaha 78 Inches Transport Truck With 24pcs Die-cast Cars Toys</a>
+## <a href="https://www.amazon.com/dp/B0D5VC61PC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ihaha 78 Inches Transport Truck With 24pcs Die-cast Cars Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5VC61PC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IHAHA 78 inches Transport Truck with 24pcs Die-Cast Cars Toys, Cars Toddler Toys Gifts for 2-7 Years Old Boys &amp; Girls, Blue Modern Truck Toys" src="https://m.media-amazon.com/images/I/51ruWzWS7GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5VC61PC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IHAHA 78 inches Transport Truck with 24pcs Die-Cast Cars Toys, Cars Toddler Toys Gifts for 2-7 Years Old Boys &amp; Girls, Blue Modern Truck Toys" src="https://m.media-amazon.com/images/I/51ruWzWS7GL._SL500_.jpg"/></a>
 
 
 The **IHAHA 78 inches Transport Truck with 24pcs Die-Cast Cars Toys** is an excellent choice for parents and gift-givers looking for a versatile and engaging toy for children aged **2-7 years**. This set is ideal for both **boys and girls** who have a fascination with vehicles and enjoy imaginative play. It encourages fine motor skills, creativity, and social interaction, making it perfect for toddlers and young children who love to explore and learn through play.
@@ -161,12 +161,12 @@ The **IHAHA 78 inches Transport Truck** set stands out due to its combination of
 
 Beyond fun, this toy set supports developmental benefits such as improving fine motor skills and encouraging imaginative storytelling. The variety of cars included provides opportunities for learning about different types of vehicles and practicing sorting and counting. Overall, the **IHAHA Transport Truck with Die-Cast Cars** is a thoughtfully designed toy that combines entertainment with educational value, making it a valuable addition to any child's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D5VC61PC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D5VC61PC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Agsixzlan Little Blue Truck Toy</a>
+## <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Agsixzlan Little Blue Truck Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AGSIXZLAN Little Blue Truck Toy for Kids Ages 2 3 4 5 6 7 8 Year Old Boys Girls,1:32 Alloy Kids Car Toy Driveable,Car Door Can Open,Toy Trucks for Toddlers Easter Christmas Birthday Gifts" src="https://m.media-amazon.com/images/I/415DLLg4qDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AGSIXZLAN Little Blue Truck Toy for Kids Ages 2 3 4 5 6 7 8 Year Old Boys Girls,1:32 Alloy Kids Car Toy Driveable,Car Door Can Open,Toy Trucks for Toddlers Easter Christmas Birthday Gifts" src="https://m.media-amazon.com/images/I/415DLLg4qDL._SL500_.jpg"/></a>
 
 
 The **AGSIXZLAN Little Blue Truck Toy** is perfect for parents and gift-givers looking to delight children aged **2 to 8 years old** with a fun and durable toy. Ideal for both boys and girls, this **1:32 alloy kids car toy** offers an engaging play experience that encourages imaginative play and fine motor skill development. It makes an excellent gift for occasions like **Easter, Christmas, or birthdays**.
@@ -189,12 +189,12 @@ This **AGSIXZLAN Little Blue Truck Toy** combines a realistic and child-friendly
 
 Additionally, the **car doors that open** add an extra layer of interactivity that sparks curiosity and creativity, allowing kids to simulate real-life vehicle experiences. This toy truck serves as both an entertaining and educational tool, making it a valuable addition to any child's collection of toys. Whether for everyday play or special occasions, it is sure to bring joy and lasting memories.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09SWQ9HL3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B092YYY6LH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Die-cast Construction Truck Toy Set</a>
+## <a href="https://www.amazon.com/dp/B092YYY6LH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Die-cast Construction Truck Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B092YYY6LH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="25-Piece Die-cast Construction Truck Toy Set by Joyin" src="https://m.media-amazon.com/images/I/51OoNUzf5wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092YYY6LH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="25-Piece Die-cast Construction Truck Toy Set by Joyin" src="https://m.media-amazon.com/images/I/51OoNUzf5wL._SL500_.jpg"/></a>
 
 
 The **25-Piece Die-cast Construction Truck Toy Set by Joyin** is perfect for young children who love imaginative play and have an interest in construction vehicles. Ideal for kids aged 3 and up, this set is designed for parents and gift-givers seeking a durable, engaging toy that encourages creativity and fine motor skill development.
@@ -216,12 +216,12 @@ The **25-Piece Die-cast Construction Truck Toy Set** by Joyin features a variety
 
 Beyond just fun, this toy set helps develop essential skills such as hand-eye coordination, spatial awareness, and problem-solving. The diverse range of trucks included allows kids to explore different construction roles, fostering creativity and learning about teamwork and engineering basics. Parents will appreciate the quality and safety standards maintained by Joyin Inc, making this an excellent addition to any child's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B092YYY6LH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B092YYY6LH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D95BP7F3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quafret 1/32 Scale Pickup Trucks Car Model Toy</a>
+## <a href="https://www.amazon.com/dp/B0D95BP7F3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quafret 1/32 Scale Pickup Trucks Car Model Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0D95BP7F3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUAFRET 1/32 Scale Pickup Trucks Car Model Toy, Alloy Diecast Pickup Trailer RV Model Kit, with Sound and Light, Off-Road Vehicle Collections for Boy Girl Toddler Birthday（Black）" src="https://m.media-amazon.com/images/I/41CgG-ap3LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D95BP7F3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUAFRET 1/32 Scale Pickup Trucks Car Model Toy, Alloy Diecast Pickup Trailer RV Model Kit, with Sound and Light, Off-Road Vehicle Collections for Boy Girl Toddler Birthday（Black）" src="https://m.media-amazon.com/images/I/41CgG-ap3LL._SL500_.jpg"/></a>
 
 
 The **QUAFRET 1/32 Scale Pickup Trucks Car Model Toy** is perfect for children, collectors, and enthusiasts who appreciate detailed **alloy diecast models**. Ideal for boys, girls, and toddlers, this **off-road vehicle collection** makes a fantastic birthday gift, offering interactive features that keep young minds engaged and collectors satisfied. If you're looking for a durable, visually appealing model with sound and light effects, this is a great choice.
@@ -243,12 +243,12 @@ The **QUAFRET Pickup Trucks Car Model Toy** stands out with its precise craftsma
 
 With compact yet substantial dimensions, this model is easy to handle for young users while providing an impressive presence on any shelf. The **off-road vehicle collection** theme taps into a popular interest area, encouraging outdoor adventure play and enhancing creativity. Overall, the QUAFRET car model balances fun and functionality, making it a top pick for birthdays and special occasions.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D95BP7F3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D95BP7F3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DQX5BY1Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Boy Car Toy</a>
+## <a href="https://www.amazon.com/dp/B0DQX5BY1Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Boy Car Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQX5BY1Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Boy Car Toy for 3 4 5 6 Year Old Boys Diecast Car Toy Set for Boy Kids Gifts, Truck Christmas Birthday Gifts" src="https://m.media-amazon.com/images/I/51SceddDiML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQX5BY1Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Boy Car Toy for 3 4 5 6 Year Old Boys Diecast Car Toy Set for Boy Kids Gifts, Truck Christmas Birthday Gifts" src="https://m.media-amazon.com/images/I/51SceddDiML._SL500_.jpg"/></a>
 
 
 The **Boy Car Toy for 3 4 5 6 Year Old Boys Diecast Car Toy Set** is ideal for young boys who love playing with vehicles and enjoy imaginative play. This toy set is perfect for parents and gift-givers looking for a durable and engaging present that sparks creativity and motor skill development in children aged 3 to 6 years. It is especially suited for birthdays, Christmas, or any special occasion.
@@ -270,12 +270,12 @@ The **hosroka Boy Car Toy Set** stands out with its sturdy **diecast constructio
 
 Beyond entertainment, this toy set offers educational value by introducing young boys to different vehicle types and encouraging social interaction during playtime with peers or family members. Its portability makes it a convenient travel companion, keeping children engaged during trips or outings. Overall, this set combines fun, learning, and durability, making it a thoughtful gift choice for young boys who love cars and trucks.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DQX5BY1Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DQX5BY1Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pack City Diecast Semi Trucks Transport Set</a>
+## <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">3 Pack City Diecast Semi Trucks Transport Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0B728ZB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pack City Diecast Semi Trucks Transport Set - Big Toy Garbage Truck, Oil Tanker, &amp; Transport Vehicle Toy with Pull Back Action - 1/50 Scale Metal Collectible Model Alloy Car Vehicles" src="https://m.media-amazon.com/images/I/51fahenYRYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B728ZB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="3 Pack City Diecast Semi Trucks Transport Set - Big Toy Garbage Truck, Oil Tanker, &amp; Transport Vehicle Toy with Pull Back Action - 1/50 Scale Metal Collectible Model Alloy Car Vehicles" src="https://m.media-amazon.com/images/I/51fahenYRYL._SL500_.jpg"/></a>
 
 
 Ideal for collectors and children who love **detailed toy vehicles**, the **3 Pack City Diecast Semi Trucks Transport Set** is perfect for those seeking high-quality, realistic play or display models. This set appeals to enthusiasts of **miniature metal trucks** and kids who enjoy interactive, durable toys with **pull back action** features.
@@ -297,7 +297,7 @@ The **3 Pack City Diecast Semi Trucks Transport Set** by **Liberty Imports** off
 
 Beyond aesthetics, the pull back action feature provides an interactive element that children love, encouraging imaginative play and motor skill development. Whether used as a collector’s item or a fun toy, this set delivers value through versatility and quality. The balance between realistic craftsmanship and playful functionality makes it an excellent choice for anyone interested in trucks, from young kids to seasoned model collectors.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B728ZB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

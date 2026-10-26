@@ -23,10 +23,10 @@ Some kits feature projects like walkie talkies, renewable energy, or anatomy mod
 
 
 
-## <a href="https://www.amazon.com/dp/B0DYTFBK1W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Toys Diy Walkie Talkie Science Kit</a>
+## <a href="https://www.amazon.com/dp/B0DYTFBK1W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Toys Diy Walkie Talkie Science Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYTFBK1W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Toys for Boys &amp; Girls Age 5-7 8-12 12-14 DIY Walkie Talkie Science Kit Build Your Own Electronic Toy Educational STEM Kit Birthday Gifts for Kids 6-14 Year Old &amp; Teens" src="https://m.media-amazon.com/images/I/41y6QpRkfhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYTFBK1W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Toys for Boys &amp; Girls Age 5-7 8-12 12-14 DIY Walkie Talkie Science Kit Build Your Own Electronic Toy Educational STEM Kit Birthday Gifts for Kids 6-14 Year Old &amp; Teens" src="https://m.media-amazon.com/images/I/41y6QpRkfhL._SL500_.jpg"/></a>
 
 
 The **STEM Toys for Boys & Girls Age 5-7 8-12 12-14 DIY Walkie Talkie Science Kit** is ideal for curious children and teens who enjoy hands-on learning and exploring the basics of electronics. This **educational STEM kit** is perfect for kids aged 6-14 who want to build their own electronic toys while developing critical thinking, problem-solving skills, and creativity. Parents and educators looking for a fun and interactive gift that encourages STEM education will find this kit especially suitable.
@@ -50,10 +50,10 @@ This **DIY Walkie Talkie Science Kit** offers a unique blend of education and en
 
 By assembling the walkie talkie, children develop patience, dexterity, and an understanding of circuit connections, which boosts their confidence in STEM subjects. The kit serves as an excellent birthday gift, fostering curiosity and encouraging children to explore science and technology beyond the classroom. With its carefully curated design from **TOFOAN** and Shenzhen Mizong Technology, this educational STEM kit stands out as a valuable tool for young innovators and future engineers.
 
-## <a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxisteam Stem Toys</a>
+## <a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Foxisteam Stem Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FoxiSteam STEM Toys for Boys Girls Age 6-7 8-13 Science Kits for car Racing Birthday Gifts for 6 7 8 9 10 11 12 13 14+ Years Old Boys Teens Gift Ideas DIY Wood Building Crafts Kit" src="https://m.media-amazon.com/images/I/51Cmd+v414L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9F5NWBJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="FoxiSteam STEM Toys for Boys Girls Age 6-7 8-13 Science Kits for car Racing Birthday Gifts for 6 7 8 9 10 11 12 13 14+ Years Old Boys Teens Gift Ideas DIY Wood Building Crafts Kit" src="https://m.media-amazon.com/images/I/51Cmd+v414L._SL500_.jpg"/></a>
 
 
 The **FoxiSteam STEM Toys for Boys Girls Age 6-7 8-13** is ideal for young learners and budding engineers who are curious about science and enjoy hands-on activities. This **DIY Wood Building Crafts Kit** is perfect for children aged **6 to 14+ years** who want to explore the fundamentals of car racing mechanics through engaging and educational play. Parents and educators looking for an interactive gift that combines fun with learning will find this science kit to be a great choice.
@@ -76,10 +76,10 @@ The **FoxiSteam STEM Toys** kit offers a unique blend of educational content and
 
 Crafted by **Nanhan Industrial (Jinhua) Co., Ltd**, the kit is designed with quality and safety in mind. Its compact size allows for easy handling and storage, making it convenient for home or classroom use. By providing an interactive learning experience, the FoxiSteam kit encourages children to explore their interests in science and engineering, fostering a lifelong passion for innovation and discovery.
 
-## <a href="https://www.amazon.com/dp/B079J1BZZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genius Box Learning Stem Toy</a>
+## <a href="https://www.amazon.com/dp/B079J1BZZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genius Box Learning Stem Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B079J1BZZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Genius Box Learning STEM Toy for 5+ Year Age: Light and Sound DIY,Activity Kit, Learning Kit, Educational Kit" src="https://m.media-amazon.com/images/I/51MZmpNMaML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079J1BZZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Genius Box Learning STEM Toy for 5+ Year Age: Light and Sound DIY,Activity Kit, Learning Kit, Educational Kit" src="https://m.media-amazon.com/images/I/51MZmpNMaML._SL500_.jpg"/></a>
 
 
 The **Genius Box Learning STEM Toy for 5+ Year Age** is an ideal choice for young children who are curious about **science, technology, engineering, and mathematics**. This **educational kit** is perfect for parents and educators looking to engage kids in hands-on activities that promote critical thinking and creativity. If you want your child to explore concepts of **light and sound** through an interactive **DIY activity kit**, this product is designed to provide a fun and educational experience.
@@ -102,10 +102,10 @@ The **Genius Box Learning STEM Toy** features an engaging set of components that
 
 Additionally, the kit's compact size and lightweight nature make it easy to store and carry, encouraging learning on the go or in various environments such as home, school, or camps. Being the **1st edition** by Genius Box, it promises quality and reliability, offering a balanced mix of fun and education. Overall, this STEM toy serves as a valuable resource to nurture a child’s passion for science and technology from an early age.
 
-## <a href="https://www.amazon.com/dp/B0BH777J9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lemon Clock Science Experiment Kit</a>
+## <a href="https://www.amazon.com/dp/B0BH777J9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lemon Clock Science Experiment Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BH777J9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lemon Clock Science Experiment Kit" src="https://m.media-amazon.com/images/I/41DMsEvLWIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BH777J9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lemon Clock Science Experiment Kit" src="https://m.media-amazon.com/images/I/41DMsEvLWIL._SL500_.jpg"/></a>
 
 
 The **Lemon Clock Science Experiment Kit** is ideal for curious young learners and educators looking to introduce basic principles of chemistry and electricity in a fun and interactive way. This kit is perfect for children aged 8 and above who enjoy hands-on science projects and want to explore how everyday items like lemons can generate power. Parents and teachers seeking an educational tool that combines learning with play will find this kit especially valuable.
@@ -127,10 +127,10 @@ The **Lemon Clock Science Experiment Kit** features a compact and user-friendly 
 
 This experiment not only sparks curiosity about science but also fosters important skills such as observation, hypothesis testing, and problem-solving. The kit’s simplicity does not compromise its educational value; instead, it invites young minds to explore the intersection of biology and physics. Through this hands-on approach, users gain a better appreciation for sustainable energy sources and the science behind everyday phenomena.
 
-## <a href="https://www.amazon.com/dp/B0DG2G391W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Volcano Gemstone Dig Kit</a>
+## <a href="https://www.amazon.com/dp/B0DG2G391W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Volcano Gemstone Dig Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DG2G391W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Volcano Gemstone Dig Kit - 6 Rocks Excavation Kit, Gemstones Rock for Kids, Volcano Toys Dig Kits for Rocks Collection, Science STEM Educational Toys Gifts for Kids Age 6-12" src="https://m.media-amazon.com/images/I/51GUwA-NW6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DG2G391W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Volcano Gemstone Dig Kit - 6 Rocks Excavation Kit, Gemstones Rock for Kids, Volcano Toys Dig Kits for Rocks Collection, Science STEM Educational Toys Gifts for Kids Age 6-12" src="https://m.media-amazon.com/images/I/51GUwA-NW6L._SL500_.jpg"/></a>
 
 
 The **Volcano Gemstone Dig Kit** is perfect for children aged 6-12 who have a curiosity for science, geology, and hands-on learning. This kit is ideal for young explorers and budding scientists who enjoy interactive play that combines education with fun. Parents and educators looking for an engaging **STEM educational toy** that encourages discovery and creativity will find this kit an excellent choice.
@@ -153,10 +153,10 @@ The **Volcano Gemstone Dig Kit** by Eggbox offers an exciting way for children t
 
 Beyond just digging, the kit promotes critical thinking and observation skills as children examine and learn about each gemstone. This hands-on approach to learning helps to solidify STEM concepts, making education enjoyable and memorable. With the combination of fun and educational value, this kit makes a thoughtful gift for young learners interested in rocks, volcanoes, and science exploration.
 
-## <a href="https://www.amazon.com/dp/B00068O2F0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Young Scientist Series</a>
+## <a href="https://www.amazon.com/dp/B00068O2F0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Young Scientist Series</a>
 
 
-<a href="https://www.amazon.com/dp/B00068O2F0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Young Scientist Series - Set 6: Flight (Kit 16) - Heart and Lungs (Kit 17) - Digestive System (Kit 18)" src="https://m.media-amazon.com/images/I/41K2vM1qR-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00068O2F0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Young Scientist Series - Set 6: Flight (Kit 16) - Heart and Lungs (Kit 17) - Digestive System (Kit 18)" src="https://m.media-amazon.com/images/I/41K2vM1qR-L._SL500_.jpg"/></a>
 
 
 The **Young Scientist Series - Set 6** is ideal for curious children and young learners interested in exploring the fundamentals of biology and physics. This set is perfect for students who enjoy hands-on experiments and want to deepen their understanding of the **flight** mechanism, the workings of the **heart and lungs**, and the **digestive system**. Parents and educators looking to provide an engaging, educational experience will find this set especially beneficial.
@@ -179,10 +179,10 @@ Each kit in the **Young Scientist Series - Set 6** offers detailed and interacti
 
 The **Digestive System (Kit 18)** completes the set by illustrating how food is broken down and absorbed by the body. Together, these kits provide a well-rounded scientific experience that not only educates but also inspires young minds to explore further. The lightweight and compact design ensures that this set is easy to handle and store, making it perfect for both home learning and classroom environments.
 
-## <a href="https://www.amazon.com/dp/B0DCCK1835?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oddy Basic 40 Creative Play Kit</a>
+## <a href="https://www.amazon.com/dp/B0DCCK1835?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oddy Basic 40 Creative Play Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCCK1835?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oddy Basic 40 Creative Play Kit - Eco-Friendly STEM Toy Building Set for Kids 6+" src="https://m.media-amazon.com/images/I/41k8S5dgjcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCCK1835?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oddy Basic 40 Creative Play Kit - Eco-Friendly STEM Toy Building Set for Kids 6+" src="https://m.media-amazon.com/images/I/41k8S5dgjcL._SL500_.jpg"/></a>
 
 
 The **Oddy Basic 40 Creative Play Kit** is perfect for parents and educators seeking an **eco-friendly STEM toy** that sparks creativity and learning in children aged 6 and above. Ideal for young builders who enjoy hands-on activities, this set encourages imaginative play while fostering problem-solving and engineering skills.
@@ -205,10 +205,10 @@ The **Oddy Basic 40 Creative Play Kit** features thoughtfully designed pieces th
 
 Beyond the immediate fun, this creative building kit nurtures critical thinking and patience as kids experiment with different structures and designs. The compact dimensions make it an excellent option for both home and classroom use, enabling easy storage and portability. With the Oddy Creative Building Kit, children gain a hands-on learning experience that cultivates curiosity and confidence in STEM subjects from an early age.
 
-## <a href="https://www.amazon.com/dp/B0D2ZW6SRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Orivast Stem Science Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B0D2ZW6SRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Orivast Stem Science Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2ZW6SRY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ORIVAST STEM Science Kits for Kids Ages 8-12, Wood Craft Electonic Model Kits for Boys Girls 7-11, DIY STEM Projects Engineering Building Puzzle Toys for 9 10 12 14 Years Old" src="https://m.media-amazon.com/images/I/512A5qCOkJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2ZW6SRY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ORIVAST STEM Science Kits for Kids Ages 8-12, Wood Craft Electonic Model Kits for Boys Girls 7-11, DIY STEM Projects Engineering Building Puzzle Toys for 9 10 12 14 Years Old" src="https://m.media-amazon.com/images/I/512A5qCOkJL._SL500_.jpg"/></a>
 
 
 Ideal for young learners aged 7 to 14 who are passionate about hands-on activities, the **ORIVAST STEM Science Kits** offer a perfect blend of education and fun. This kit is designed for kids interested in **science, technology, engineering, and math (STEM)** subjects, making it an excellent choice for parents and educators looking to encourage creativity and critical thinking through engaging DIY projects.
@@ -230,10 +230,10 @@ The **ORIVAST STEM Science Kits** stand out with their engaging combination of *
 
 By working on these DIY projects, children not only gain technical knowledge but also improve their patience and perseverance as they troubleshoot and complete complex models. The manageable size and lightweight design make it an ideal educational toy for home or classroom use. Overall, this kit is a valuable tool for nurturing a young mind's curiosity and passion for science and engineering.
 
-## <a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mex Ultimate Machines Kit</a>
+## <a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mex Ultimate Machines Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEX Ultimate Machines Kit, 12-in-1 DIY Robotics Science Kit, Learning Model Building Toys for Boys and Girls Aged 5,6,7,8,9,10, Building Construction Set with 80+ Parts, Educational Gift" src="https://m.media-amazon.com/images/I/51hP-p6byWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DJFBKJ1B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MEX Ultimate Machines Kit, 12-in-1 DIY Robotics Science Kit, Learning Model Building Toys for Boys and Girls Aged 5,6,7,8,9,10, Building Construction Set with 80+ Parts, Educational Gift" src="https://m.media-amazon.com/images/I/51hP-p6byWL._SL500_.jpg"/></a>
 
 
 The **MEX Ultimate Machines Kit** is perfect for young children aged 5 to 10 who have a curiosity for robotics, science, and hands-on learning. This **12-in-1 DIY Robotics Science Kit** is ideal for boys and girls who enjoy building and exploring how machines work, making it an excellent educational gift for budding engineers and creative minds.
@@ -256,10 +256,10 @@ The **MEX Ultimate Machines Kit** features a versatile **12-in-1 design** allowi
 
 Designed by **Building Blocks Learning Solutions Pvt. Ltd.**, the kit balances educational value with play, promoting creativity and critical thinking. Its manageable size makes it convenient for home use or travel, while the durable components ensure long-lasting engagement. Overall, this kit offers an enriching experience that combines construction, science, and imaginative exploration.
 
-## <a href="https://www.amazon.com/dp/B0F3LT2BSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits</a>
+## <a href="https://www.amazon.com/dp/B0F3LT2BSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Kits</a>
 
 
-<a href="https://www.amazon.com/dp/B0F3LT2BSP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits - Explore Renewable Energy" src="https://m.media-amazon.com/images/I/41tBclVA91L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F3LT2BSP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Kits - Explore Renewable Energy" src="https://m.media-amazon.com/images/I/41tBclVA91L._SL500_.jpg"/></a>
 
 
 The **STEM Kits - Explore Renewable Energy** is perfect for young learners, educators, and parents who want to introduce children to the fundamentals of **renewable energy** and sustainable technology. Ideal for students interested in science, technology, engineering, and math, this kit offers a hands-on approach to understanding how clean energy sources work and their importance in today’s world.

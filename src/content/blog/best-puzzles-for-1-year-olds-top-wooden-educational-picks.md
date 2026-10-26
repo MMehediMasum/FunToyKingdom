@@ -23,10 +23,10 @@ Pretend play puzzles, such as cutting fruit sets, add creativity and fun. Person
 
 
 
-## <a href="https://www.amazon.com/dp/B0C6L2X2T2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">B. Toys – Peg Puzzles 2 – Pack – Farm Animals &amp; Sea Treasures – Wooden Peg Puzzles</a>
+## <a href="https://www.amazon.com/dp/B0C6L2X2T2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">B. Toys – Peg Puzzles 2 – Pack – Farm Animals &amp; Sea Treasures – Wooden Peg Puzzles</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6L2X2T2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="B. toys – Peg Puzzles 2 – Pack – Farm Animals &amp; Sea Treasures – Wooden Peg Puzzles – 8 Pieces Each – Classic Toys for Toddlers, Kids – 18+ Months" src="https://m.media-amazon.com/images/I/51yCtHQyvfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6L2X2T2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="B. toys – Peg Puzzles 2 – Pack – Farm Animals &amp; Sea Treasures – Wooden Peg Puzzles – 8 Pieces Each – Classic Toys for Toddlers, Kids – 18+ Months" src="https://m.media-amazon.com/images/I/51yCtHQyvfL._SL500_.jpg"/></a>
 
 
 The **B. toys – Peg Puzzles 2 – Pack** is ideal for parents and caregivers looking for engaging and educational toys for toddlers aged **18 months and older**. This set is perfect for little ones who are beginning to develop their fine motor skills, hand-eye coordination, and cognitive abilities through interactive play. If you want a classic, durable, and visually appealing toy that introduces children to **farm animals** and **sea treasures**, this product is a great choice.
@@ -50,10 +50,10 @@ These **wooden peg puzzles** are thoughtfully designed to captivate toddlers wit
 
 Beyond just being fun, these puzzles offer educational benefits by encouraging toddlers to recognize different animals and objects, improving their vocabulary and cognitive recognition. The dual-pack format allows children to switch between themes, keeping their interest alive and providing varied learning experiences. Overall, the **B. toys Peg Puzzles 2-Pack** combines classic design with practical benefits, making it a valuable addition to any toddler’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0CD2PFR9N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyster's Wooden Cutting Fruit Puzzle</a>
+## <a href="https://www.amazon.com/dp/B0CD2PFR9N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyster's Wooden Cutting Fruit Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B0CD2PFR9N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toyster's Wooden Cutting Fruit Puzzle – Pretend Play Food Set with Knife &amp; Tray – Interactive Learning Toy for Kids" src="https://m.media-amazon.com/images/I/41s6kVs7rvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CD2PFR9N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toyster's Wooden Cutting Fruit Puzzle – Pretend Play Food Set with Knife &amp; Tray – Interactive Learning Toy for Kids" src="https://m.media-amazon.com/images/I/41s6kVs7rvL._SL500_.jpg"/></a>
 
 
 The **Toyster's Wooden Cutting Fruit Puzzle** is perfect for parents and caregivers looking to engage young children in **interactive learning** through **pretend play**. Ideal for kids who are developing their **fine motor skills** and hand-eye coordination, this set encourages imaginative play while teaching about different fruits and the concept of cutting safely.
@@ -76,10 +76,10 @@ The **Toyster's Wooden Cutting Fruit Puzzle** stands out with its thoughtfully d
 
 Made by **Toyster's**, this set combines safety with educational value. Its sturdy wooden materials are smooth and child-friendly, ensuring safe handling. The bright colors and realistic fruit shapes promote healthy eating habits by familiarizing children with different fruits. Overall, this toy is an excellent tool for early childhood development, blending play with learning in an engaging and interactive way.
 
-## <a href="https://www.amazon.com/dp/B073BSWKGB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chunky Vegetable Puzzles</a>
+## <a href="https://www.amazon.com/dp/B073BSWKGB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chunky Vegetable Puzzles</a>
 
 
-<a href="https://www.amazon.com/dp/B073BSWKGB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chunky Vegetable Puzzles, Toddler Puzzles, Wooden Puzzles for Toddlers 1-3, Puzzles for Toddlers, Baby Puzzles, Vegetable Puzzle, Chunky Puzzles for 1 Year Old, Melissa and Doug" src="https://m.media-amazon.com/images/I/41ZGeNy-TwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073BSWKGB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chunky Vegetable Puzzles, Toddler Puzzles, Wooden Puzzles for Toddlers 1-3, Puzzles for Toddlers, Baby Puzzles, Vegetable Puzzle, Chunky Puzzles for 1 Year Old, Melissa and Doug" src="https://m.media-amazon.com/images/I/41ZGeNy-TwL._SL500_.jpg"/></a>
 
 
 The **Chunky Vegetable Puzzles** are ideal for parents and caregivers looking to introduce young children, especially toddlers aged 1-3 years, to interactive and educational play. These **wooden puzzles** are perfect for little hands developing motor skills and for those who want a safe, engaging toy that encourages early learning about vegetables and shapes. If you're seeking a durable, colorful, and educational puzzle set for your toddler, this product is an excellent choice.
@@ -102,10 +102,10 @@ The **Chunky Vegetable Puzzles** feature a set of bright, engaging pieces made f
 
 Additionally, the puzzles aid in building vocabulary as parents and caregivers can name each vegetable during playtime. The chunky design ensures safety and ease of handling for toddlers, reducing the risk of choking hazards common in smaller toys. Manufactured by **Discount School Supply** and branded as **Excellerations**, these puzzles combine quality with educational value, making them a smart addition to any toddler’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0DKCRHCB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eduland Montessori Self Care Activities Facial Recognition Peekaboo Knob Puzzle Mirror For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B0DKCRHCB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eduland Montessori Self Care Activities Facial Recognition Peekaboo Knob Puzzle Mirror For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKCRHCB7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EduLand Montessori Self Care Activities Facial Recognition Peekaboo Knob Puzzle Mirror for Toddlers Wooden Frame knob pincer Grasp (Red)" src="https://m.media-amazon.com/images/I/414ZPYPa5EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKCRHCB7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EduLand Montessori Self Care Activities Facial Recognition Peekaboo Knob Puzzle Mirror for Toddlers Wooden Frame knob pincer Grasp (Red)" src="https://m.media-amazon.com/images/I/414ZPYPa5EL._SL500_.jpg"/></a>
 
 
 The **EduLand Montessori Self Care Activities Facial Recognition Peekaboo Knob Puzzle Mirror for Toddlers Wooden Frame knob pincer Grasp (Red)** is ideal for parents and caregivers looking to enhance their toddler's developmental skills through interactive and educational play. This product is designed specifically for young children who are beginning to develop their fine motor skills, hand-eye coordination, and self-recognition abilities. It is perfect for those who value Montessori-inspired learning tools that promote independent exploration and sensory engagement.
@@ -129,10 +129,10 @@ The **EduLand Montessori Self Care Activities Facial Recognition Peekaboo Knob P
 
 In addition to fine motor skills, this toy fosters **self-recognition and cognitive development** by incorporating a mirror that allows toddlers to see their own reflections. This peekaboo element adds an interactive dimension that captivates young minds while helping them understand their own facial features and expressions. The compact size of the puzzle mirror makes it easy for toddlers to handle independently, promoting confidence and self-care skills in a fun, educational way.
 
-## <a href="https://www.amazon.com/dp/B09GGWH1Q6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haba Wooden Puzzle Small Farm</a>
+## <a href="https://www.amazon.com/dp/B09GGWH1Q6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haba Wooden Puzzle Small Farm</a>
 
 
-<a href="https://www.amazon.com/dp/B09GGWH1Q6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HABA Wooden Puzzle Small Farm-Wooden Game-12 Months and above-306289, 306289, Colorful" src="https://m.media-amazon.com/images/I/41z1HIUvq3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09GGWH1Q6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HABA Wooden Puzzle Small Farm-Wooden Game-12 Months and above-306289, 306289, Colorful" src="https://m.media-amazon.com/images/I/41z1HIUvq3L._SL500_.jpg"/></a>
 
 
 The **HABA Wooden Puzzle Small Farm** is ideal for parents and caregivers looking for an engaging and educational toy for toddlers aged **12 months and above**. This colorful wooden puzzle is perfect for young children beginning to develop their fine motor skills and hand-eye coordination, while also introducing them to farm animals and simple problem-solving. If you want a safe, durable, and stimulating toy that encourages early learning, this is an excellent choice.
@@ -154,10 +154,10 @@ The **HABA Wooden Puzzle Small Farm** offers a thoughtfully crafted play experie
 
 Additionally, this wooden game introduces children to common farm animals, enriching their vocabulary and knowledge about the world around them. The natural wooden materials used by **HABA** also ensure that the puzzle is safe and eco-friendly, giving parents peace of mind while their children explore and learn. Overall, this puzzle provides a fun and educational activity that supports early childhood development.
 
-## <a href="https://www.amazon.com/dp/B073BR6G97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Excellerations Fruit Chunky Puzzle</a>
+## <a href="https://www.amazon.com/dp/B073BR6G97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Excellerations Fruit Chunky Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B073BR6G97?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Excellerations Fruit Chunky Puzzle with Chunky Wooden Pieces, 4-Piece Puzzle, Toddler, Preschool, Educational Toys and Gift" src="https://m.media-amazon.com/images/I/51wmsjADAEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073BR6G97?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Excellerations Fruit Chunky Puzzle with Chunky Wooden Pieces, 4-Piece Puzzle, Toddler, Preschool, Educational Toys and Gift" src="https://m.media-amazon.com/images/I/51wmsjADAEL._SL500_.jpg"/></a>
 
 
 The **Excellerations Fruit Chunky Puzzle with Chunky Wooden Pieces** is ideal for **toddlers** and **preschoolers** who are just beginning to explore puzzles and develop fine motor skills. This **educational toy** is perfect for parents, caregivers, and educators looking to introduce young children to basic problem-solving and hand-eye coordination through engaging play. It's also an excellent choice for gifting to young children to support their early learning journey.
@@ -179,10 +179,10 @@ This **chunky puzzle** offers a tactile and visual learning experience that enco
 
 Beyond just being an entertaining toy, this puzzle serves as an educational tool that promotes **early cognitive development**. By fitting the pieces into their respective slots, children practice problem-solving and spatial awareness. The compact size of the puzzle makes it ideal for home, daycare, or travel use. Overall, this **Excellerations Fruit Chunky Puzzle** is a valuable addition to any toddler’s educational toy collection, supporting essential developmental milestones through playful learning.
 
-## <a href="https://www.amazon.com/dp/B0DGFHQ6KN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Personalized Name Puzzle With Animals</a>
+## <a href="https://www.amazon.com/dp/B0DGFHQ6KN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Personalized Name Puzzle With Animals</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGFHQ6KN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Personalized Name Puzzle with Animals, Baby Puzzle Personalized, Baby Gift, Personalized Gift Baby, Wooden Animals Puzzle, 1st Birthday Gift, Boy and Girl Custom Name Puzzle with Animals" src="https://m.media-amazon.com/images/I/41JbUKBia0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGFHQ6KN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Personalized Name Puzzle with Animals, Baby Puzzle Personalized, Baby Gift, Personalized Gift Baby, Wooden Animals Puzzle, 1st Birthday Gift, Boy and Girl Custom Name Puzzle with Animals" src="https://m.media-amazon.com/images/I/41JbUKBia0L._SL500_.jpg"/></a>
 
 
 The **Personalized Name Puzzle with Animals** is perfect for parents, grandparents, and caregivers looking for a unique and educational **baby gift**. Ideal for toddlers celebrating their **1st birthday**, this **baby puzzle personalized** with the child's name encourages early learning and fine motor skills development while adding a special touch to any nursery or playroom. It’s especially suited for those who appreciate handcrafted, **wooden animals puzzles** that combine fun with personalized keepsake value.
@@ -204,10 +204,10 @@ Crafted by the reputable **Nevandora** brand, this **wooden animals puzzle** com
 
 Beyond its decorative charm, the puzzle offers substantial developmental benefits. As toddlers fit each personalized letter into the correct slot, they enhance their cognitive skills and hand dexterity. The animal motifs provide an interactive way to introduce children to different creatures, fostering curiosity and language development. This makes the **personalized name puzzle** an excellent educational tool as well as a cherished keepsake that grows with the child.
 
-## <a href="https://www.amazon.com/dp/B0DLTPZVLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eduland Montessori Science Wooden Magnetic Tangram Puzzle Book</a>
+## <a href="https://www.amazon.com/dp/B0DLTPZVLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eduland Montessori Science Wooden Magnetic Tangram Puzzle Book</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLTPZVLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EduLand Montessori Science Wooden Magnetic Tangram Puzzle Book,Travel Game for Kids in Car Plane or Take Out, Road Trip Toy, Logical Educational Jigsaw STEM Preschool Game for Kid - IQ TeasersToys" src="https://m.media-amazon.com/images/I/51zxo-p09gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLTPZVLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EduLand Montessori Science Wooden Magnetic Tangram Puzzle Book,Travel Game for Kids in Car Plane or Take Out, Road Trip Toy, Logical Educational Jigsaw STEM Preschool Game for Kid - IQ TeasersToys" src="https://m.media-amazon.com/images/I/51zxo-p09gL._SL500_.jpg"/></a>
 
 
 The **EduLand Montessori Science Wooden Magnetic Tangram Puzzle Book** is ideal for parents and educators looking to enhance a child's logical thinking and STEM skills through engaging play. Perfect for children in preschool and early elementary years, this travel-friendly educational toy is designed for use in the car, plane, or on-the-go, making it an excellent choice for road trips and outings. If you want a compact, interactive puzzle that encourages creativity and problem-solving, this is the product to consider.
@@ -229,10 +229,10 @@ This **Montessori Science Wooden Magnetic Tangram Puzzle** features a compact de
 
 By combining hands-on play with educational value, this **STEM preschool game** helps children develop essential skills such as spatial reasoning, pattern recognition, and critical thinking. Its durable construction means it can withstand the rigors of travel and frequent use, offering parents peace of mind. Overall, this tangram puzzle is a smart choice for anyone seeking a fun and educational activity that supports a child’s intellectual growth while keeping them entertained on the go.
 
-## <a href="https://www.amazon.com/dp/B08LW2B461?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toddler Puzzle Floral Design</a>
+## <a href="https://www.amazon.com/dp/B08LW2B461?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toddler Puzzle Floral Design</a>
 
 
-<a href="https://www.amazon.com/dp/B08LW2B461?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toddler Puzzle Name Floral Design, Personalized Toys for Kids with Flowers, Pastel Nursery Decor, Baby Girl Custom Gift, 1st Birthday Present" src="https://m.media-amazon.com/images/I/41CsMaKL0+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LW2B461?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toddler Puzzle Name Floral Design, Personalized Toys for Kids with Flowers, Pastel Nursery Decor, Baby Girl Custom Gift, 1st Birthday Present" src="https://m.media-amazon.com/images/I/41CsMaKL0+L._SL500_.jpg"/></a>
 
 
 The **Toddler Puzzle Name Floral Design** is ideal for parents and caregivers looking for a charming and educational toy that doubles as a beautiful piece of **pastel nursery decor**. Perfect for those who want a personalized gift that celebrates a baby girl’s milestones, especially suitable as a **1st birthday present**. This toy is designed for toddlers who are beginning to develop their cognitive and motor skills, making it a thoughtful and practical choice for early childhood development.
@@ -255,10 +255,10 @@ This **personalized toddler puzzle** combines both functionality and aesthetics,
 
 Beyond its decorative appeal, the puzzle supports early childhood development by promoting hand-eye coordination, problem-solving skills, and letter recognition when personalized with the child’s name. Its soft **beige color** offers versatility, blending well with different nursery styles and making it an excellent gift choice for parents who appreciate both educational and decorative toys. This makes it a memorable and practical present, especially for celebrating a baby girl’s **1st birthday**.
 
-## <a href="https://www.amazon.com/dp/B09BHV9GX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Environments Wooden Puzzle Set For Toddlers</a>
+## <a href="https://www.amazon.com/dp/B09BHV9GX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Environments Wooden Puzzle Set For Toddlers</a>
 
 
-<a href="https://www.amazon.com/dp/B09BHV9GX4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Environments Wooden Puzzle Set for Toddlers, Set of 8 Puzzles, 4-Piece Puzzle, Educational Toy" src="https://m.media-amazon.com/images/I/41N-5XJCvuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BHV9GX4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Environments Wooden Puzzle Set for Toddlers, Set of 8 Puzzles, 4-Piece Puzzle, Educational Toy" src="https://m.media-amazon.com/images/I/41N-5XJCvuL._SL500_.jpg"/></a>
 
 
 The **Environments Wooden Puzzle Set for Toddlers** is an ideal choice for parents and educators seeking a fun and educational toy for young children aged 2 to 4 years. This set is perfect for toddlers who are beginning to develop their cognitive skills, hand-eye coordination, and problem-solving abilities. If you want a durable and engaging puzzle that encourages learning through play, this set is designed just for your little one.

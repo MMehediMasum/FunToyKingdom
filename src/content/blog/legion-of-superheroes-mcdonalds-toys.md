@@ -23,10 +23,10 @@ Each figure is designed with bright colors and simple shapes. This makes them ea
 
 
 
-## <a href="https://www.amazon.com/dp/B0010DUD8A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Legion Of Super-heroes Lightning Lad Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0010DUD8A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Legion Of Super-heroes Lightning Lad Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0010DUD8A?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="legion of super-heroes lightning lad action figure" src="https://m.media-amazon.com/images/I/51uVHKTzXSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0010DUD8A?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="legion of super-heroes lightning lad action figure" src="https://m.media-amazon.com/images/I/51uVHKTzXSL._SL500_.jpg"/></a>
 
 
 The **Legion of Super-Heroes Lightning Lad Action Figure** is perfect for collectors and fans of **DC Comics** who appreciate detailed and authentic memorabilia. Ideal for those who want to own a piece of the **Legion of Super-Heroes** universe, this figure is also great for enthusiasts looking to enhance their superhero display or gift to comic book lovers.

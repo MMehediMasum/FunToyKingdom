@@ -22,10 +22,10 @@ Waterproof swimming dolls add a splash of fun during bath time. Organic cotton d
 
 
 
-## <a href="https://www.amazon.com/dp/B0CMYFPD8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jtlb 10inch Lifelike Reborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0CMYFPD8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jtlb 10inch Lifelike Reborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMYFPD8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JTLB 10inch Lifelike Reborn Baby Doll with Detailed Facial Features, Soft Silicone, Wearable Pajamas, Washable, Toy for Kids (10inch Blue boy with Eyes Closed)" src="https://m.media-amazon.com/images/I/31xHLrE0McL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMYFPD8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JTLB 10inch Lifelike Reborn Baby Doll with Detailed Facial Features, Soft Silicone, Wearable Pajamas, Washable, Toy for Kids (10inch Blue boy with Eyes Closed)" src="https://m.media-amazon.com/images/I/31xHLrE0McL._SL500_.jpg"/></a>
 
 
 The **JTLB 10inch Lifelike Reborn Baby Doll** is perfect for collectors, children, and anyone who appreciates realistic, high-quality dolls. Ideal for kids who enjoy imaginative play and adults who cherish detailed craftsmanship, this doll offers a comforting, lifelike experience with its soft silicone body and wearable pajamas. It is especially suited for those seeking a washable and durable toy that combines realism with playability.
@@ -47,10 +47,10 @@ The **JTLB 10inch Lifelike Reborn Baby Doll** stands out with its meticulous att
 
 Beyond aesthetics, the doll's washable feature is highly beneficial, making it easy for parents and kids to keep it clean and hygienic after playtime. Its compact size is perfect for small hands and convenient for travel, encouraging imaginative play anywhere. Overall, this doll blends realism, functionality, and ease of care, making it a wonderful choice for a wide range of users.
 
-## <a href="https://www.amazon.com/dp/B078HWB29Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Corolle Mon Premier Poupon</a>
+## <a href="https://www.amazon.com/dp/B078HWB29Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Corolle Mon Premier Poupon</a>
 
 
-<a href="https://www.amazon.com/dp/B078HWB29Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" alt="Corolle Mon Premier Poupon 12" baby="" blouse="" doll"="" pants="" src="https://m.media-amazon.com/images/I/41Jf+9hGU9L._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B078HWB29Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" alt="Corolle Mon Premier Poupon 12" baby="" blouse="" doll"="" pants="" src="https://m.media-amazon.com/images/I/41Jf+9hGU9L._SL500_.jpg" toy=""/></a>
 
 
 The **Corolle Mon Premier Poupon 12" Blouse & Pants Toy Baby Doll** is ideal for young children who love nurturing play and parents seeking a high-quality, safe doll for their little ones. Perfect for toddlers and preschoolers, this doll encourages imaginative role-playing and helps develop emotional skills by allowing kids to care for a lifelike companion. It is especially suited for those who appreciate detailed craftsmanship and a doll that feels soft and manageable in small hands.
@@ -71,10 +71,10 @@ The **Corolle Mon Premier Poupon 12"** doll features a thoughtful design that co
 
 This doll’s design supports the development of empathy and caregiving skills by encouraging children to role-play as they care for their new baby. Its compact dimensions make it suitable for travel or quiet time at home. Overall, the **Corolle Mon Premier Poupon 12" Blouse & Pants Toy Baby Doll** is a charming and practical choice for anyone looking to introduce young children to the joys of imaginative play with a high-quality, kid-friendly doll.
 
-## <a href="https://www.amazon.com/dp/B0F68ZJ1ZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Solid Hardwood Baby Doll Bed</a>
+## <a href="https://www.amazon.com/dp/B0F68ZJ1ZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Solid Hardwood Baby Doll Bed</a>
 
 
-<a href="https://www.amazon.com/dp/B0F68ZJ1ZH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Solid Hardwood Baby Doll Bed – Sturdy, Child-Sized Wooden Doll Bed for Pretend Play – 29” x 14” – Durable, Timeless Design for Early Childhood Classrooms, 18 Months+" src="https://m.media-amazon.com/images/I/31+6sPj-gbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F68ZJ1ZH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Solid Hardwood Baby Doll Bed – Sturdy, Child-Sized Wooden Doll Bed for Pretend Play – 29” x 14” – Durable, Timeless Design for Early Childhood Classrooms, 18 Months+" src="https://m.media-amazon.com/images/I/31+6sPj-gbL._SL500_.jpg"/></a>
 
 
 The **Solid Hardwood Baby Doll Bed** is perfect for parents, caregivers, and early childhood educators looking to enhance pretend play experiences for toddlers and young children aged **18 months and up**. This child-sized, sturdy wooden doll bed encourages imaginative play and helps develop nurturing skills in little ones.
@@ -97,10 +97,10 @@ The **Solid Hardwood Baby Doll Bed** boasts a robust build crafted from premium 
 
 This wooden doll bed promotes **fine motor skills and social-emotional development** by encouraging young children to engage in nurturing behaviors and cooperative play. The sturdy design withstands energetic play, ensuring safety and durability for repeated use in busy early childhood settings. Overall, this product is a valuable addition to any playroom or classroom aiming to foster creativity and early learning.
 
-## <a href="https://www.amazon.com/dp/B0DY1P585Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniland African Boy Baby Doll With Down Syndrome</a>
+## <a href="https://www.amazon.com/dp/B0DY1P585Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniland African Boy Baby Doll With Down Syndrome</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY1P585Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miniland 12 5/8'' African Boy Baby Doll with Down Syndrome (Polybag) -Made in Spain, Inclusive Anatomically Correct with Diverse Features, Handmade Realistic Baby Doll, Vanilla Scented" src="https://m.media-amazon.com/images/I/31Il6MDx5JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY1P585Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Miniland 12 5/8'' African Boy Baby Doll with Down Syndrome (Polybag) -Made in Spain, Inclusive Anatomically Correct with Diverse Features, Handmade Realistic Baby Doll, Vanilla Scented" src="https://m.media-amazon.com/images/I/31Il6MDx5JL._SL500_.jpg"/></a>
 
 
 The **Miniland 12 5/8'' African Boy Baby Doll with Down Syndrome** is ideal for parents, educators, and caregivers who seek to promote **inclusivity** and **diversity** through play. This **handmade, anatomically correct** doll is perfect for children learning about differences and empathy, as well as collectors who appreciate realistic, culturally diverse dolls.
@@ -123,10 +123,10 @@ The **Miniland African Boy Baby Doll** stands out for its commitment to **realis
 
 Beyond its physical attributes, this doll encourages important conversations about **diversity** and acceptance. The **anatomically correct design** allows parents and educators to teach children about human anatomy and differences in a respectful and age-appropriate way. Being **handmade** and produced by **Miniland in Spain** assures buyers of its quality and attention to detail, making it not just a toy but a valuable educational tool.
 
-## <a href="https://www.amazon.com/dp/B0DPPJP3DZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Huraoerrrr Swimming Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0DPPJP3DZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Huraoerrrr Swimming Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPPJP3DZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Huraoerrrr Swimming Baby Doll with Movable Joint Battery Powered Breaststroke Swimming Doll with Detachable Suit Cute Realistic Waterproof Baby for Pool Bathtub, No Battery" src="https://m.media-amazon.com/images/I/419Q0H3umqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPPJP3DZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Huraoerrrr Swimming Baby Doll with Movable Joint Battery Powered Breaststroke Swimming Doll with Detachable Suit Cute Realistic Waterproof Baby for Pool Bathtub, No Battery" src="https://m.media-amazon.com/images/I/419Q0H3umqL._SL500_.jpg"/></a>
 
 
 The **Huraoerrrr Swimming Baby Doll with Movable Joint** is an ideal choice for parents and caregivers looking to entertain and engage young children during bath time or pool play. Perfect for kids who love interactive toys, this **battery-powered breaststroke swimming doll** offers a fun and realistic water experience. Its **detachable suit** and waterproof design make it suitable for both indoor bathtubs and outdoor pools, encouraging imaginative play and motor skill development.
@@ -149,10 +149,10 @@ The **Huraoerrrr Swimming Baby Doll** stands out with its highly realistic breas
 
 Additionally, the doll's waterproof design ensures durability and safe use in wet environments, while the detachable suit provides convenience for cleaning or changing outfits. Its compact dimensions and lightweight build make it easy for children to handle and carry around. Overall, this doll offers a delightful blend of entertainment and educational value for young children who enjoy water-based play.
 
-## <a href="https://www.amazon.com/dp/B07GTQ71D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Apple Park Best Friends Doll - Ella</a>
+## <a href="https://www.amazon.com/dp/B07GTQ71D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Apple Park Best Friends Doll - Ella</a>
 
 
-<a href="https://www.amazon.com/dp/B07GTQ71D6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Apple Park Best Friends Doll - Ella - Toy for Babies and Children - Hypoallergenic, 100% Organic Cotton" src="https://m.media-amazon.com/images/I/31s93nBYOTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GTQ71D6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Apple Park Best Friends Doll - Ella - Toy for Babies and Children - Hypoallergenic, 100% Organic Cotton" src="https://m.media-amazon.com/images/I/31s93nBYOTL._SL500_.jpg"/></a>
 
 
 The **Apple Park Best Friends Doll - Ella** is an ideal choice for parents and caregivers seeking a safe, soft, and environmentally friendly toy for their **babies and young children**. Perfect for those who prioritize **hypoallergenic** and **100% organic cotton** materials, this doll provides a comforting companion that is gentle on sensitive skin. If you want a durable, eco-conscious toy that promotes imaginative play, this doll is designed just for you.
@@ -174,10 +174,10 @@ The **Apple Park Best Friends Doll - Ella** features a carefully crafted design 
 
 In addition to being a comforting companion, the doll’s manageable dimensions make it an ideal travel buddy, encouraging imaginative play anywhere. The **durability** of the materials ensures it can withstand the wear and tear from active toddlers, making it a lasting addition to any child's toy collection. Overall, this doll combines safety, sustainability, and playfulness, meeting the needs of conscious families looking for quality toys.
 
-## <a href="https://www.amazon.com/dp/B004YJR3JE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Constructive Playthings Baby Tender Touch Doll</a>
+## <a href="https://www.amazon.com/dp/B004YJR3JE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Constructive Playthings Baby Tender Touch Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B004YJR3JE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img a="" alt="Constructive Playthings 12" baby="" blankie"="" doll-="" latino="" src="https://m.media-amazon.com/images/I/41ucvrHIPIL._SL500_.jpg" tender="" touch="" with=""/></a>
+<a href="https://www.amazon.com/dp/B004YJR3JE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img a="" alt="Constructive Playthings 12" baby="" blankie"="" doll-="" latino="" src="https://m.media-amazon.com/images/I/41ucvrHIPIL._SL500_.jpg" tender="" touch="" with=""/></a>
 
 
 The **Constructive Playthings 12" Baby Tender Touch Doll- Latino with a Blankie** is ideal for parents and caregivers looking to introduce young children to diverse and culturally inclusive toys. This doll is perfect for toddlers and preschoolers who benefit from nurturing play and for families seeking to celebrate Hispanic heritage through their children's toys. It also suits educators and therapists who use dolls for developmental and emotional learning.
@@ -200,10 +200,10 @@ The **Constructive Playthings 12" Baby Tender Touch Doll** is thoughtfully desig
 
 Beyond its physical attributes, this doll offers a meaningful cultural representation by featuring **Hispanic** skin tone and facial characteristics. This helps children from diverse backgrounds see themselves reflected in their toys, fostering self-esteem and cultural pride. Additionally, it introduces all children to the beauty of diversity, promoting empathy and understanding from an early age. Made by **Golden Illumination Toys Ltd**, a reputable manufacturer, this doll meets high standards of craftsmanship and safety, ensuring it is a durable and trustworthy addition to any playroom.
 
-## <a href="https://www.amazon.com/dp/B0F4CW5H13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rakki Dolli 18 Inch Baby Doll Bedding Accessories</a>
+## <a href="https://www.amazon.com/dp/B0F4CW5H13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rakki Dolli 18 Inch Baby Doll Bedding Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4CW5H13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rakki Dolli 18 Inch Baby Doll Bedding Accessories, 3 Pcs Baby Doll Bedding Set with Blanket/Swaddle , Comforter and Pillow, Pink Bunny Print" src="https://m.media-amazon.com/images/I/41XRxZjYxeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4CW5H13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rakki Dolli 18 Inch Baby Doll Bedding Accessories, 3 Pcs Baby Doll Bedding Set with Blanket/Swaddle , Comforter and Pillow, Pink Bunny Print" src="https://m.media-amazon.com/images/I/41XRxZjYxeL._SL500_.jpg"/></a>
 
 
 Ideal for parents and children who enjoy role-playing with dolls, the **Rakki Dolli 18 Inch Baby Doll Bedding Accessories** set is perfect for enhancing imaginative play. This set is designed for those who own 18-inch baby dolls and want to provide a cozy and adorable bedding environment that complements their doll collection.
@@ -226,10 +226,10 @@ The **Rakki Dolli 18 Inch Baby Doll Bedding Accessories** set offers a delightfu
 
 With its vibrant **pink bunny print**, this bedding set adds a playful and cute touch that children will love. The size and design are tailored to fit 18-inch dolls perfectly, making it an ideal choice for anyone looking to upgrade their doll’s accessories without hassle. This set not only beautifies the doll but also encourages nurturing and imaginative scenarios for young doll enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0DDWRP22H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wedhapy Swimming Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0DDWRP22H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wedhapy Swimming Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0DDWRP22H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wedhapy Swimming Baby Doll with Movable Joint Battery Powered Breaststroke Swimming Doll with Detachable Suit Cute Realistic Waterproof Baby Doll,No Battery" src="https://m.media-amazon.com/images/I/414uHN5SW5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DDWRP22H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wedhapy Swimming Baby Doll with Movable Joint Battery Powered Breaststroke Swimming Doll with Detachable Suit Cute Realistic Waterproof Baby Doll,No Battery" src="https://m.media-amazon.com/images/I/414uHN5SW5L._SL500_.jpg"/></a>
 
 
 The **Wedhapy Swimming Baby Doll with Movable Joint** is ideal for parents and gift-givers looking for a **realistic** and **interactive baby doll** that can provide hours of fun for young children. Perfect for kids who enjoy water play and imaginative activities, this doll is designed for those who want a durable, **waterproof**, and **battery-powered** toy that mimics real swimming motions, making it a great choice for bath time or poolside entertainment.
@@ -252,10 +252,10 @@ The **Wedhapy Swimming Baby Doll** features **movable joints** that enhance the 
 
 With its **waterproof construction** and **detachable suit**, the doll is versatile and easy to maintain. The waterproof feature ensures durability and safety in wet environments, while the detachable suit allows kids to practice dressing skills or customize the doll’s appearance. Its lightweight design, weighing just over 1.27 pounds, makes it convenient for children to carry and play with anywhere.
 
-## <a href="https://www.amazon.com/dp/B01I0E3DKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Excellerations 19 Inch Soft Body Doll </a>
+## <a href="https://www.amazon.com/dp/B01I0E3DKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Excellerations 19 Inch Soft Body Doll </a>
 
 
-<a href="https://www.amazon.com/dp/B01I0E3DKG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Excellerations 19 inch Soft Body Doll, Hispanic Girl, Removeable Clothing Cuddle Buddy, Kids Toy, Educational Toys, Baby Doll, First Doll" src="https://m.media-amazon.com/images/I/41mQcn10aJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01I0E3DKG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Excellerations 19 inch Soft Body Doll, Hispanic Girl, Removeable Clothing Cuddle Buddy, Kids Toy, Educational Toys, Baby Doll, First Doll" src="https://m.media-amazon.com/images/I/41mQcn10aJL._SL500_.jpg"/></a>
 
 
 The **Excellerations 19 inch Soft Body Doll, Hispanic Girl** is an ideal choice for parents and caregivers looking to introduce a **first doll** to their children. This **educational toy** is perfect for toddlers and young kids who enjoy **cuddle buddies** and interactive play. Its **removeable clothing** feature encourages fine motor skill development and imaginative role-playing, making it suitable for early childhood learning and nurturing emotional growth.

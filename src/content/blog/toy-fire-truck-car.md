@@ -23,10 +23,10 @@ Many models are made with non-toxic materials, ensuring safe play for toddlers a
 
 
 
-## <a href="https://www.amazon.com/dp/B01N0NZHC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Driven By Battat – 7-inch Fire Truck Toy</a>
+## <a href="https://www.amazon.com/dp/B01N0NZHC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Driven By Battat – 7-inch Fire Truck Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B01N0NZHC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Driven by Battat – 7-Inch Fire Truck Toy with Lights &amp; Sounds, Movable Parts, Construction Vehicle for Boys &amp; Girls, Durable Design, Realistic Details, Perfect Gift 3+ Years Toy for Kids" src="https://m.media-amazon.com/images/I/31LEXaWgmzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N0NZHC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Driven by Battat – 7-Inch Fire Truck Toy with Lights &amp; Sounds, Movable Parts, Construction Vehicle for Boys &amp; Girls, Durable Design, Realistic Details, Perfect Gift 3+ Years Toy for Kids" src="https://m.media-amazon.com/images/I/31LEXaWgmzL._SL500_.jpg"/></a>
 
 
 The **Driven by Battat – 7-Inch Fire Truck Toy with Lights & Sounds** is perfect for young children aged **3 years and up** who love imaginative play and construction vehicles. Ideal for both **boys and girls**, this toy is designed for kids who enjoy interactive toys with realistic features that stimulate creativity and role-playing. Parents looking for a **durable** and **engaging gift** that encourages motor skills and imaginative storytelling will find this fire truck an excellent choice.
@@ -48,12 +48,12 @@ This **7-inch fire truck toy** by Driven by Battat stands out with its bright **
 
 The realistic **white and red color design** makes it visually appealing and easily recognizable, helping kids connect with their favorite emergency vehicle. Measuring just under 8 inches in length, it is lightweight and easy for children to carry around, making it a versatile play companion at home or on the go. Overall, this fire truck toy offers an engaging, interactive experience that combines fun with developmental benefits.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01N0NZHC1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01N0NZHC1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CCD2PWSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Extra Large Fire Truck Toys For Boys Girls</a>
+## <a href="https://www.amazon.com/dp/B0CCD2PWSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Extra Large Fire Truck Toys For Boys Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCD2PWSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Extra Large Fire Truck Toys for Boys Girls with 33-inch Ladder, Lights, Realistic Sirens &amp; Button, Big Firetruck Engine for Toddlers 3+, Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/511pNYcyAML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCD2PWSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Extra Large Fire Truck Toys for Boys Girls with 33-inch Ladder, Lights, Realistic Sirens &amp; Button, Big Firetruck Engine for Toddlers 3+, Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/511pNYcyAML._SL500_.jpg"/></a>
 
 
 The **JOYIN Extra Large Fire Truck Toy** is perfect for toddlers aged 3 and above who have a keen interest in emergency vehicles and imaginative play. Ideal for both boys and girls, this toy is a great gift choice for birthdays or Christmas, especially for parents looking to encourage creativity and role-playing in their young children.
@@ -75,12 +75,12 @@ The **JOYIN Extra Large Fire Truck** stands out with its impressive 33-inch exte
 
 Crafted with toddlers in mind, the large and sturdy design ensures durability during active play. Its vibrant colors and detailed firetruck engine design captivate young minds and foster creativity. This toy not only provides endless fun but also aids in cognitive development by encouraging role-playing scenarios that help children understand teamwork and emergency response concepts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CCD2PWSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CCD2PWSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CPN7F49B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Little People Toddler Toy Fire Truck</a>
+## <a href="https://www.amazon.com/dp/B0CPN7F49B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fisher-price Little People Toddler Toy Fire Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B0CPN7F49B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Little People Toddler Toy Fire Truck Musical Push-Along Vehicle with 2 Figures for Pretend Play Ages 1+ Years" src="https://m.media-amazon.com/images/I/51GqS3AFQZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CPN7F49B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fisher-Price Little People Toddler Toy Fire Truck Musical Push-Along Vehicle with 2 Figures for Pretend Play Ages 1+ Years" src="https://m.media-amazon.com/images/I/51GqS3AFQZL._SL500_.jpg"/></a>
 
 
 The **Fisher-Price Little People Toddler Toy Fire Truck Musical Push-Along Vehicle** is ideal for parents and caregivers looking for an engaging and educational toy for toddlers aged **1+ years**. This toy is perfect for little ones who enjoy imaginative play and are developing their motor skills. If you want a safe, colorful, and interactive toy that encourages creativity and pretend play, this fire truck is an excellent choice.
@@ -103,12 +103,12 @@ The **Fisher-Price Little People Fire Truck** offers a delightful combination of
 
 Constructed by the trusted brand **Fisher-Price**, this toy is built with safety and durability in mind. The bright, multicolor design is visually stimulating, helping to hold a child's interest during playtime. Overall, this fire truck is a great investment for parents seeking a fun, educational, and age-appropriate toy that supports early childhood development.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CPN7F49B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CPN7F49B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07T5Z3XDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Emergency Vehicle Toy Playsets</a>
+## <a href="https://www.amazon.com/dp/B07T5Z3XDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Emergency Vehicle Toy Playsets</a>
 
 
-<a href="https://www.amazon.com/dp/B07T5Z3XDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 4 Packs Emergency Vehicle Toy Playsets, Friction Powered Vehicles with Light and Sound, Including Fire Truck, Ambulance, Play Police Car and Helicopter, Christmas Toddler Kids Boys Gifts" src="https://m.media-amazon.com/images/I/51RzaAoondL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T5Z3XDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 4 Packs Emergency Vehicle Toy Playsets, Friction Powered Vehicles with Light and Sound, Including Fire Truck, Ambulance, Play Police Car and Helicopter, Christmas Toddler Kids Boys Gifts" src="https://m.media-amazon.com/images/I/51RzaAoondL._SL500_.jpg"/></a>
 
 
 The **JOYIN 4 Packs Emergency Vehicle Toy Playsets** are perfect for young children, especially toddlers and boys who love imaginative play and emergency rescue themes. Ideal for parents looking to encourage creativity and motor skills development, these toys offer engaging fun with their friction-powered movement, light, and sound features. They make excellent gifts for birthdays, Christmas, or any special occasion.
@@ -131,12 +131,12 @@ The **JOYIN Emergency Vehicle Toy Playsets** combine multiple vehicles into one 
 
 Thanks to their sturdy build and vibrant colors, these toys are not only visually appealing but also withstand rough play, making them suitable for energetic toddlers. The set's compact size ensures it is easy to store and transport, allowing children to enjoy their favorite emergency vehicles anywhere. Additionally, the inclusion of essential emergency vehicles helps teach kids about community helpers in a fun, interactive manner.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07T5Z3XDV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07T5Z3XDV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08DC16HHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vebo Fire Truck Motorized</a>
+## <a href="https://www.amazon.com/dp/B08DC16HHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vebo Fire Truck Motorized</a>
 
 
-<a href="https://www.amazon.com/dp/B08DC16HHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img ,="" 3+="" aged="" alt="VEBO Fire Truck Motorized with Lights, Siren Sound, Working Water Pump and Rotating Rescue Ladder- Electric, Motorized, Big Fun Size 15" design-="" for="" kids="" old"="" realistic="" src="https://m.media-amazon.com/images/I/51bt9IaQdAL._SL500_.jpg" toddlers,="" years=""/></a>
+<a href="https://www.amazon.com/dp/B08DC16HHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img ,="" 3+="" aged="" alt="VEBO Fire Truck Motorized with Lights, Siren Sound, Working Water Pump and Rotating Rescue Ladder- Electric, Motorized, Big Fun Size 15" design-="" for="" kids="" old"="" realistic="" src="https://m.media-amazon.com/images/I/51bt9IaQdAL._SL500_.jpg" toddlers,="" years=""/></a>
 
 
 The **VEBO Fire Truck Motorized** is perfect for **toddlers and kids aged 3+** who love imaginative play and vehicles. If you’re looking for a **realistic and interactive toy** that combines fun with engaging features like lights, siren sounds, and a working water pump, this **big fun size 15-inch fire truck** is an excellent choice to keep young children entertained and stimulated.
@@ -159,12 +159,12 @@ The **VEBO Fire Truck Motorized** stands out with its **realistic design and mul
 
 Measuring **15 inches in length** with a robust build, this fire truck is designed to withstand enthusiastic play sessions. The **rotating rescue ladder** adds versatility and helps develop hand-eye coordination as children maneuver it during pretend rescues. Overall, the **VEBO Fire Truck** offers a rich, hands-on experience that combines fun, learning, and realistic action, making it an ideal gift for young fire truck enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08DC16HHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08DC16HHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B085DTR6RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mighty Fleet Rescue Force Fire Truck Ladder Toy</a>
+## <a href="https://www.amazon.com/dp/B085DTR6RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mighty Fleet Rescue Force Fire Truck Ladder Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B085DTR6RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3+"="" ages="" alt="Mighty Fleet Rescue Force 12" fire="" free="" ladder="" ladder!="" lights="" play="" realistic="" sounds,="" src="https://m.media-amazon.com/images/I/41jHgiakrYL._SL500_.jpg" toy="" truck="" wheeling="" with="" working=""/></a>
+<a href="https://www.amazon.com/dp/B085DTR6RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3+"="" ages="" alt="Mighty Fleet Rescue Force 12" fire="" free="" ladder="" ladder!="" lights="" play="" realistic="" sounds,="" src="https://m.media-amazon.com/images/I/41jHgiakrYL._SL500_.jpg" toy="" truck="" wheeling="" with="" working=""/></a>
 
 
 The **Mighty Fleet Rescue Force 12" Fire Truck Ladder Toy** is perfect for young children aged **3 and up** who have a fascination with emergency vehicles and imaginative play. Parents and gift-givers looking for a durable, engaging toy that encourages creativity and motor skills development will find this fire truck ladder an ideal choice.
@@ -187,12 +187,12 @@ This **12-inch fire truck ladder toy** by **Mighty Fleet** offers a vivid, immer
 
 Crafted by **Funrise, Inc.**, the toy’s **red color** and detailed design appeal visually while standing up to the rigors of daily play. Its compact yet substantial size makes it easy to carry around yet durable enough to withstand energetic handling. This fire truck ladder toy not only entertains but also supports the development of fine motor skills and hand-eye coordination in young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B085DTR6RH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B085DTR6RH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B084DXPX51?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mighty Fleet Titans 29" Jumbo Toy Fire Truck</a>
+## <a href="https://www.amazon.com/dp/B084DXPX51?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mighty Fleet Titans 29" Jumbo Toy Fire Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B084DXPX51?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3+"="" ages="" alt="Mighty Fleet Titans 29" durable,="" extendable="" fire="" flashing="" for="" interactive="" jumbo="" kids="" ladder="" lights,="" realistic="" rotating="" siren="" sounds="" src="https://m.media-amazon.com/images/I/311-pMOqNmL._SL500_.jpg" toy="" truck="" vehicle="" –=""/></a>
+<a href="https://www.amazon.com/dp/B084DXPX51?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3+"="" ages="" alt="Mighty Fleet Titans 29" durable,="" extendable="" fire="" flashing="" for="" interactive="" jumbo="" kids="" ladder="" lights,="" realistic="" rotating="" siren="" sounds="" src="https://m.media-amazon.com/images/I/311-pMOqNmL._SL500_.jpg" toy="" truck="" vehicle="" –=""/></a>
 
 
 The **Mighty Fleet Titans 29" Jumbo Toy Fire Truck** is perfect for young children aged **3 years and older** who love interactive and realistic vehicle toys. Ideal for kids who enjoy imaginative play, this fire truck offers exciting features that engage little firefighters in training. Parents looking for a durable and entertaining toy that encourages creativity and motor skills development will find this product an excellent choice.
@@ -214,12 +214,12 @@ The **Mighty Fleet Titans 29" Jumbo Toy Fire Truck** stands out with its highly 
 
 Measuring 31 inches in length, this toy fire truck is spacious enough to provide an immersive experience without being too heavy for young users at just 5.21 pounds. The durable materials used by **Mighty Fleet** and manufacturer **Funrise** ensure that the toy can withstand frequent use, making it a valuable addition to any child's collection of interactive toys. Overall, this fire truck combines fun, education, and durability in one impressive package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B084DXPX51?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B084DXPX51?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B003WMC6U0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Fire Truck</a>
+## <a href="https://www.amazon.com/dp/B003WMC6U0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Fire Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B003WMC6U0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Fire Truck - BPA , Phthalates Free Imaginative Play Toy for Improving Fine , Gross Motor Skills. for Kids,Red" src="https://m.media-amazon.com/images/I/41jb5fbX-NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003WMC6U0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Fire Truck - BPA , Phthalates Free Imaginative Play Toy for Improving Fine , Gross Motor Skills. for Kids,Red" src="https://m.media-amazon.com/images/I/41jb5fbX-NL._SL500_.jpg"/></a>
 
 
 The **Green Toys Fire Truck** is perfect for parents and caregivers looking for a safe, eco-friendly toy that encourages **imaginative play** and helps develop **fine and gross motor skills** in young children. Ideal for toddlers and preschoolers, this vibrant **red fire truck** provides a fun and engaging way for kids to explore creativity while playing.
@@ -241,12 +241,12 @@ The **Green Toys Fire Truck** stands out for its commitment to safety and sustai
 
 Beyond its eco-friendly build, this toy supports active learning by encouraging children to role-play as firefighters, which helps enhance social and cognitive skills. Its easy-to-clean feature ensures hassle-free maintenance for parents, making it a practical and thoughtful addition to any child's toy collection. Overall, the **Green Toys Fire Truck** offers a safe, creative, and educational play experience that grows with your child.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B003WMC6U0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B003WMC6U0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CCX46WMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bluey Firetruck Toy</a>
+## <a href="https://www.amazon.com/dp/B0CCX46WMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bluey Firetruck Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCX46WMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bluey Firetruck Toy with Firefighter Bingo, Bob Bilby Figures | Extendable Ladder &amp; Hose | Includes Stickers - Perfect for Kids Ages 3+" src="https://m.media-amazon.com/images/I/417H3tQboqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCX46WMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bluey Firetruck Toy with Firefighter Bingo, Bob Bilby Figures | Extendable Ladder &amp; Hose | Includes Stickers - Perfect for Kids Ages 3+" src="https://m.media-amazon.com/images/I/417H3tQboqL._SL500_.jpg"/></a>
 
 
 The **Bluey Firetruck Toy with Firefighter Bingo, Bob Bilby Figures** is ideal for young children aged 3 and above who love imaginative play and are fans of the popular Bluey series. Parents looking for a safe, engaging, and interactive toy that encourages creativity and role-playing will find this set perfect for their kids. It's especially suited for children who enjoy vehicles, rescue missions, and character-driven stories.
@@ -268,12 +268,12 @@ The **Bluey Firetruck Toy** is crafted by **MOOSE TOYS LLC** and designed to pro
 
 Measuring approximately **5.87 inches in height, 8.19 inches in width, and 4.33 inches in length**, this firetruck fits comfortably in playrooms and is easy to carry around. Its sturdy yet lightweight build ensures durability while being manageable for young kids. The additional stickers included in the package add a creative element, allowing children to customize their firetruck, fostering a sense of ownership and pride in their playtime activities.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CCX46WMZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CCX46WMZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BDRD4M6G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Mighty Fleet Toughest Minis 5" Fire Ladder Truck Toy </a>
+## <a href="https://www.amazon.com/dp/B0BDRD4M6G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Mighty Fleet Toughest Minis 5" Fire Ladder Truck Toy </a>
 
 
-<a href="https://www.amazon.com/dp/B0BDRD4M6G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 3+"="" age="" alt="Mighty Fleet Toughest Minis 5" batteries="" design="" fire="" included="" ladder="" lights="" realistic="" sounds,="" src="https://m.media-amazon.com/images/I/4153fICqMwL._SL500_.jpg" toy="" truck="" w=""/></a>
+<a href="https://www.amazon.com/dp/B0BDRD4M6G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 3+"="" age="" alt="Mighty Fleet Toughest Minis 5" batteries="" design="" fire="" included="" ladder="" lights="" realistic="" sounds,="" src="https://m.media-amazon.com/images/I/4153fICqMwL._SL500_.jpg" toy="" truck="" w=""/></a>
 
 
 The **Mighty Fleet Toughest Minis 5" Fire Ladder Truck Toy** is perfect for young children aged **3 and above** who have a fascination with emergency vehicles and imaginative play. This toy is ideal for parents seeking a durable, engaging, and interactive fire truck toy that encourages creativity while being safe and easy to handle for little hands.
@@ -296,7 +296,7 @@ The **Mighty Fleet Toughest Minis Fire Ladder Truck Toy** boasts a realistic des
 
 Crafted by **Funrise, Inc.**, this toy balances durability with detailed design, ensuring it can handle the energetic play styles of young children while maintaining its vibrant appearance. The bright red color and authentic ladder details stimulate curiosity and creative storytelling, making it a great addition to any child's toy collection. Overall, this fire truck toy supports both fun and developmental benefits for kids in the early stages of learning and play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BDRD4M6G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BDRD4M6G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

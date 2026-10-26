@@ -94,7 +94,7 @@ For 4-year-olds, durable wooden toys help develop skills and creativity. They ca
 
 ### Classic Building Blocks
 
-[Classic wooden building blocks](https://www.amazon.com/s?k=classic+wooden+building+blocks+for+kids&tag=gearcookware-20) are simple and strong. They encourage imagination and hand-eye coordination.
+[Classic wooden building blocks](https://www.amazon.com/s?k=classic+wooden+building+blocks+for+kids&tag=mofb05-20) are simple and strong. They encourage imagination and hand-eye coordination.
 
 Kids can stack, sort, and build many shapes with these blocks. They come in different sizes and colors.
 
@@ -105,7 +105,7 @@ Kids can stack, sort, and build many shapes with these blocks. They come in diff
 
 ### Stacking And Nesting Sets
 
-[Stacking and nesting toys](https://www.amazon.com/s?k=wooden+stacking+and+nesting+toys&tag=gearcookware-20) let kids learn about size and order. They are fun and educational.
+[Stacking and nesting toys](https://www.amazon.com/s?k=wooden+stacking+and+nesting+toys&tag=mofb05-20) let kids learn about size and order. They are fun and educational.
 
 Wooden sets hold up well and have smooth finishes. These toys help build problem-solving skills.
 
@@ -116,7 +116,7 @@ Wooden sets hold up well and have smooth finishes. These toys help build problem
 
 ### Wooden Puzzles
 
-[Wooden puzzles](https://www.amazon.com/s?k=wooden+puzzles+for+4+year+olds&tag=gearcookware-20) are sturdy and easy to handle. They improve memory and focus in young children.
+[Wooden puzzles](https://www.amazon.com/s?k=wooden+puzzles+for+4+year+olds&tag=mofb05-20) are sturdy and easy to handle. They improve memory and focus in young children.
 
 Puzzles come in many themes and difficulty levels. They are perfect for quiet and focused playtime.
 
@@ -137,7 +137,7 @@ Educational wooden toys improve skills like counting, matching, and creativity. 
 
 Alphabet and number wooden toys teach letters and counting. Kids can arrange pieces to form words or count numbers.
 
-* [Wooden alphabet puzzles](https://www.amazon.com/s?k=wooden+alphabet+puzzles&tag=gearcookware-20) with colorful letters
+* [Wooden alphabet puzzles](https://www.amazon.com/s?k=wooden+alphabet+puzzles&tag=mofb05-20) with colorful letters
 * Number blocks for counting and simple math
 * Magnetic wooden letters for spelling practice
 * Stacking number rings to learn sequences
@@ -159,7 +159,7 @@ Wooden art sets encourage creativity and imagination. Kids can paint, draw, or b
 
 Popular creative wooden sets include:
 
-* [Wooden easel with chalkboard and whiteboard](https://www.amazon.com/s?k=wooden+easel+for+kids+with+chalkboard+and+whiteboard&tag=gearcookware-20)
+* [Wooden easel with chalkboard and whiteboard](https://www.amazon.com/s?k=wooden+easel+for+kids+with+chalkboard+and+whiteboard&tag=mofb05-20)
 * Paintable wooden animal figures
 * Wooden bead stringing kits
 * Build-your-own wooden model kits

@@ -23,10 +23,10 @@ Dolls with realistic details, such as veins and facial expressions, can engage k
 
 
 
-## <a href="https://www.amazon.com/dp/B00TVNN2G6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Real Girl Baby Doll 15" | Jc Toys - La Newborn</a>
+## <a href="https://www.amazon.com/dp/B00TVNN2G6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Real Girl Baby Doll 15" | Jc Toys - La Newborn</a>
 
 
-<a href="https://www.amazon.com/dp/B00TVNN2G6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 2+"="" accessories="" ages="" alt="Real Girl Baby Doll 15" anatomically="" correct="" in="" jc="" knit="" la="" made="" newborn="" outfit="" pink="" spain="" src="https://m.media-amazon.com/images/I/41RoN3E5WvL._SL500_.jpg" toys="" |=""/></a>
+<a href="https://www.amazon.com/dp/B00TVNN2G6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" -="" 2+"="" accessories="" ages="" alt="Real Girl Baby Doll 15" anatomically="" correct="" in="" jc="" knit="" la="" made="" newborn="" outfit="" pink="" spain="" src="https://m.media-amazon.com/images/I/41RoN3E5WvL._SL500_.jpg" toys="" |=""/></a>
 
 
 The **Real Girl Baby Doll 15"** by **JC Toys** is perfect for parents and gift-givers looking for a lifelike, anatomically correct doll for children aged **2+**. Ideal for nurturing young kids who enjoy imaginative play and role-playing activities, this doll encourages empathy and social development. It's especially suited for those who want a high-quality, realistic doll that also comes with adorable accessories.
@@ -50,10 +50,10 @@ The **Real Girl Baby Doll 15"** stands out due to its authentic, anatomically co
 
 Crafted by **JC Toys Group Inc.**, a trusted name in the toy industry, this doll reflects quality and durability. Being **made in Spain** further assures buyers of its high production standards. Overall, this doll offers a wonderful blend of realism, quality, and play value, making it an excellent choice for young children who love role-playing as caregivers or parents.
 
-## <a href="https://www.amazon.com/dp/B0CCJCH2LX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaydora Reborn Baby Girl Dolls</a>
+## <a href="https://www.amazon.com/dp/B0CCJCH2LX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaydora Reborn Baby Girl Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CCJCH2LX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaydora Reborn Baby Girl Dolls - 20 inch Lifelike Newborn Baby with Realistic Veins for Kids Age 3 +" src="https://m.media-amazon.com/images/I/61KylrOP0+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CCJCH2LX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaydora Reborn Baby Girl Dolls - 20 inch Lifelike Newborn Baby with Realistic Veins for Kids Age 3 +" src="https://m.media-amazon.com/images/I/61KylrOP0+L._SL500_.jpg"/></a>
 
 
 The **Kaydora Reborn Baby Girl Dolls** are perfect for children aged 3 and above who love realistic and interactive play. Ideal for kids who enjoy nurturing and imaginative role-playing, this lifelike newborn doll offers a unique experience that combines both fun and educational value. Parents looking for a high-quality, safe, and beautifully crafted doll will find this item a great choice to encourage empathy and creativity in their children.
@@ -76,10 +76,10 @@ The **Kaydora Reborn Baby Girl Doll** stands out with its highly detailed and re
 
 Crafted by **Kaydora** and manufactured by **Mikaiqi**, this doll ensures quality and safety, which is crucial for children’s toys. The doll's design promotes imaginative play, helping children develop emotional intelligence and social skills as they mimic real-life caregiving. Overall, this doll is a wonderful companion for young children, blending realism with educational benefits.
 
-## <a href="https://www.amazon.com/dp/B003Y7DQT8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8 Piece Layette Baby Doll Gift Set</a>
+## <a href="https://www.amazon.com/dp/B003Y7DQT8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8 Piece Layette Baby Doll Gift Set</a>
 
 
-<a href="https://www.amazon.com/dp/B003Y7DQT8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2+,="" accessories="" ages="" alt="8 piece Layette Baby Doll Gift Set | JC Toys - La Newborn Nursery | 14" doll="" life-like="" pink="" smiling="" smiling"="" src="https://m.media-amazon.com/images/I/41F0Q8M0ltL._SL500_.jpg" w="" |=""/></a>
+<a href="https://www.amazon.com/dp/B003Y7DQT8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 2+,="" accessories="" ages="" alt="8 piece Layette Baby Doll Gift Set | JC Toys - La Newborn Nursery | 14" doll="" life-like="" pink="" smiling="" smiling"="" src="https://m.media-amazon.com/images/I/41F0Q8M0ltL._SL500_.jpg" w="" |=""/></a>
 
 
 The **8 piece Layette Baby Doll Gift Set** by **JC Toys** is perfect for young children aged 2 and up who love nurturing and imaginative play. Ideal for toddlers and preschoolers, this **14-inch life-like smiling doll** offers a realistic and engaging experience, making it a wonderful gift for little ones who enjoy role-playing as caregivers. Parents and gift-givers seeking a quality, interactive doll with accessories will find this set especially appealing.
@@ -102,10 +102,10 @@ The **8 piece Layette Baby Doll Gift Set** is designed to provide a rich, intera
 
 Additionally, the doll’s lightweight and manageable dimensions make it easy for toddlers to handle, promoting independence during playtime. Crafted by **JC Toys**, the set meets safety standards, giving parents peace of mind. Overall, this gift set is a wonderful tool to spark creativity, empathy, and fun in young children, making it an excellent addition to any toy collection.
 
-## <a href="https://www.amazon.com/dp/B0DFM956NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Lifelike Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DFM956NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Lifelike Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFM956NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Lifelike Reborn Baby Dolls - 20 inch Sleeping Realistic Newborn Baby Dolls Soft Body Real Life Baby Dolls Girl with Accessories Gifts for Kids Age 3 + &amp; Collection" src="https://m.media-amazon.com/images/I/51tvQ6IUfiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFM956NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Lifelike Reborn Baby Dolls - 20 inch Sleeping Realistic Newborn Baby Dolls Soft Body Real Life Baby Dolls Girl with Accessories Gifts for Kids Age 3 + &amp; Collection" src="https://m.media-amazon.com/images/I/51tvQ6IUfiL._SL500_.jpg"/></a>
 
 
 The **BABESIDE Lifelike Reborn Baby Dolls** are perfect for children aged 3 and above who enjoy nurturing and imaginative play. These dolls are also ideal for collectors seeking a realistic and detailed addition to their collection. Anyone looking for a soft, life-like newborn baby doll that comes with accessories will find this product an excellent choice.
@@ -128,10 +128,10 @@ The **BABESIDE Lifelike Reborn Baby Dolls** stand out with their incredibly deta
 
 Additionally, the doll comes with carefully selected accessories that add to the overall enjoyment and realism of playtime. This not only encourages creativity but also provides a sense of responsibility as children engage in caregiving activities. The limited edition status adds value for collectors, making it a cherished item that combines both play and display purposes.
 
-## <a href="https://www.amazon.com/dp/B0CQCTSD7T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lifelike Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0CQCTSD7T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lifelike Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQCTSD7T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lifelike Reborn Baby Dolls-20 inch Sleeping Realistic Newborn Baby Dolls, Soft Cloth Body with Feeding Toy for Kids Age 3 +" src="https://m.media-amazon.com/images/I/41VDtBxU5oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQCTSD7T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lifelike Reborn Baby Dolls-20 inch Sleeping Realistic Newborn Baby Dolls, Soft Cloth Body with Feeding Toy for Kids Age 3 +" src="https://m.media-amazon.com/images/I/41VDtBxU5oL._SL500_.jpg"/></a>
 
 
 The **Lifelike Reborn Baby Dolls-20 inch Sleeping Realistic Newborn Baby Dolls** are perfect for children aged 3 and above who enjoy nurturing and imaginative play. Ideal for parents looking to provide a soft, safe, and realistic doll for their kids, these dolls also appeal to collectors and anyone interested in lifelike baby doll replicas that offer both comfort and engaging interaction.
@@ -153,10 +153,10 @@ The **KSBD Lifelike Reborn Baby Doll** features a carefully crafted **soft cloth
 
 Additionally, the inclusion of a **feeding toy** enhances interactive playtime, allowing children to engage in role-playing activities that develop their creativity and social skills. The doll's lightweight design and durable materials ensure it can withstand regular play, making it a lasting companion for your child. Overall, this realistic newborn doll combines safety, comfort, and educational benefits, making it a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0D3LHVVYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aori Reborn Baby Dolls Girl 20''</a>
+## <a href="https://www.amazon.com/dp/B0D3LHVVYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aori Reborn Baby Dolls Girl 20''</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3LHVVYR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aori Reborn Baby Dolls Girl 20'' Realistic Sleeping Newborn - Lifelike Poseable Vinyl Baby Doll with Feeding &amp; Outfit Set - Weighted Body for Cuddling, Gift for Collectors &amp; Kids 3+" src="https://m.media-amazon.com/images/I/51QGo95pTiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3LHVVYR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aori Reborn Baby Dolls Girl 20'' Realistic Sleeping Newborn - Lifelike Poseable Vinyl Baby Doll with Feeding &amp; Outfit Set - Weighted Body for Cuddling, Gift for Collectors &amp; Kids 3+" src="https://m.media-amazon.com/images/I/51QGo95pTiL._SL500_.jpg"/></a>
 
 
 The **Aori Reborn Baby Dolls Girl 20'' Realistic Sleeping Newborn** is perfect for collectors and children aged 3 and above who appreciate lifelike, high-quality baby dolls. Ideal for those seeking a comforting, cuddly companion or a beautifully detailed addition to their doll collection, this doll offers a realistic experience with its weighted body and poseable vinyl construction. Parents looking for a safe and engaging toy that encourages nurturing play will also find this doll an excellent choice.
@@ -179,10 +179,10 @@ The **Aori Reborn Baby Dolls Girl** stands out with its ultra-realistic sleeping
 
 Additionally, the included feeding and outfit set adds layers of interactivity, allowing children to simulate real baby care activities. The doll’s compact size and lightweight design make it easy to hold and carry around, perfect for both playtime and display. Whether as a gift or a collectible item, this doll combines aesthetic appeal with practical benefits, making it a cherished companion for kids and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B0CW3885KM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooroy Realistic Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0CW3885KM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooroy Realistic Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CW3885KM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOOROY Realistic Reborn Baby Dolls - 20 Inch Lifelike Newborn Baby Doll Girl Real Life Baby Dolls with Weighted Soft Body Gift Toy for Kids Age 3+" src="https://m.media-amazon.com/images/I/41OubucstoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CW3885KM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOOROY Realistic Reborn Baby Dolls - 20 Inch Lifelike Newborn Baby Doll Girl Real Life Baby Dolls with Weighted Soft Body Gift Toy for Kids Age 3+" src="https://m.media-amazon.com/images/I/41OubucstoL._SL500_.jpg"/></a>
 
 
 The **WOOROY Realistic Reborn Baby Dolls** are perfect for parents, collectors, and children aged 3 and above who seek a lifelike and comforting companion. Ideal for those who appreciate detailed craftsmanship and a soft, weighted feel, this doll offers a nurturing experience that mimics holding a real newborn baby.
@@ -204,10 +204,10 @@ The **WOOROY Realistic Reborn Baby Doll Girl** stands out with its meticulous at
 
 Crafted by WOOROY, this doll combines quality materials with safety standards, ensuring it is suitable for children aged 3 and above. Its durable construction means it can withstand regular play, while the realistic design encourages imaginative role-playing and bonding. Whether used as a comforting toy or a collector’s item, this lifelike baby doll offers both aesthetic appeal and practical benefits for its users.
 
-## <a href="https://www.amazon.com/dp/B0D41QZFPQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooroy Realistic Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0D41QZFPQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooroy Realistic Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0D41QZFPQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOOROY Realistic Reborn Baby Dolls - 18 Inch Lifelike Newborn Baby Girl, Real Life Baby Dolls with Soft Weighted Body, Real Baby Reborn Gift Set for Kids Age 3" src="https://m.media-amazon.com/images/I/41Njvhb+Q2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D41QZFPQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOOROY Realistic Reborn Baby Dolls - 18 Inch Lifelike Newborn Baby Girl, Real Life Baby Dolls with Soft Weighted Body, Real Baby Reborn Gift Set for Kids Age 3" src="https://m.media-amazon.com/images/I/41Njvhb+Q2L._SL500_.jpg"/></a>
 
 
 The **WOOROY Realistic Reborn Baby Dolls** are perfect for children aged 3 and above who love nurturing and imaginative play. Ideal for parents seeking a lifelike and comforting companion for their kids, this doll also appeals to collectors and enthusiasts of realistic baby dolls. If you're looking for a soft, weighted, and highly detailed doll that mimics a real newborn, this product is an excellent choice.
@@ -230,10 +230,10 @@ The **WOOROY Realistic Reborn Baby Dolls** feature an 18-inch size that closely 
 
 Beyond its visual appeal, this doll encourages imaginative play and emotional development by allowing children to role-play as caregivers. The compact and manageable dimensions make it easy for young kids to carry around and interact with, fostering independence and responsibility. Manufactured by **WOOROY**, the doll meets safety standards, ensuring a secure and enjoyable playtime experience for children aged 3 and older.
 
-## <a href="https://www.amazon.com/dp/B0DQL8YC4W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksbd Realistic Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DQL8YC4W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ksbd Realistic Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQL8YC4W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSBD Realistic Reborn Baby Dolls - 20 Inch Cute Lifelike Real Life Baby Dolls Newborn Baby Dolls Girl with Soft Full Vinyl Body and Accessories can Swimming for 3+ Years Old Kids Gifts" src="https://m.media-amazon.com/images/I/41yTS+5wnQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQL8YC4W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KSBD Realistic Reborn Baby Dolls - 20 Inch Cute Lifelike Real Life Baby Dolls Newborn Baby Dolls Girl with Soft Full Vinyl Body and Accessories can Swimming for 3+ Years Old Kids Gifts" src="https://m.media-amazon.com/images/I/41yTS+5wnQL._SL500_.jpg"/></a>
 
 
 The **KSBD Realistic Reborn Baby Dolls** are perfect for children aged 3 and above who love nurturing and imaginative play. Ideal for kids who enjoy lifelike toys that mimic real babies, these dolls provide a comforting and engaging experience, making them excellent gifts for young collectors or children developing empathy and caregiving skills.
@@ -256,10 +256,10 @@ The **KSBD Reborn Baby Doll** offers an incredibly realistic experience thanks t
 
 Additionally, the inclusion of **swimming capability** and accessories enhances the versatility of play, encouraging kids to engage in various activities from bath time to nurturing scenarios. This not only boosts creativity but also helps in developing fine motor skills and empathy. Overall, the KSBD doll is a thoughtful gift that combines quality, realism, and fun for young children.
 
-## <a href="https://www.amazon.com/dp/B0CZ34CWD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Charex Realistic Newborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0CZ34CWD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Charex Realistic Newborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ34CWD9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAREX Realistic Newborn Baby Dolls - 20 Inch Sleeping Soft Reborn Doll, Handcrafted Weighted Newborn Doll, Toys for Ages 3 and Up" src="https://m.media-amazon.com/images/I/41i63VDX9eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ34CWD9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CHAREX Realistic Newborn Baby Dolls - 20 Inch Sleeping Soft Reborn Doll, Handcrafted Weighted Newborn Doll, Toys for Ages 3 and Up" src="https://m.media-amazon.com/images/I/41i63VDX9eL._SL500_.jpg"/></a>
 
 
 The **CHAREX Realistic Newborn Baby Dolls** are ideal for children aged 3 and up who love nurturing and imaginative play. These dolls are perfect for parents, caregivers, and collectors seeking a lifelike, handcrafted toy that offers both comfort and realism. If you want a soft, weighted doll that mimics the feel of a real newborn, this item is a great choice.

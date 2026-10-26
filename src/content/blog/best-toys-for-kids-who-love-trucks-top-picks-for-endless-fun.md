@@ -23,10 +23,10 @@ Remote control trucks, such as the Scientoy Monster Truck, add thrill with easy 
 
 
 
-## <a href="https://www.amazon.com/dp/B0B9HV6SVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin 13 In 1 Dinosaur Toys For Kids</a>
+## <a href="https://www.amazon.com/dp/B0B9HV6SVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin 13 In 1 Dinosaur Toys For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0B9HV6SVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 13 in 1 Dinosaur Toys for Kids 3-5, Dinosaur Truck with 12 Pull Back Cars, Small Cars Set, Birthday Gifts Toys for 3 4 5+ Year Old Boy, Transport Carrier Truck for Toddlers 3-4 Years" src="https://m.media-amazon.com/images/I/51zl82vbY-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B9HV6SVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN 13 in 1 Dinosaur Toys for Kids 3-5, Dinosaur Truck with 12 Pull Back Cars, Small Cars Set, Birthday Gifts Toys for 3 4 5+ Year Old Boy, Transport Carrier Truck for Toddlers 3-4 Years" src="https://m.media-amazon.com/images/I/51zl82vbY-L._SL500_.jpg"/></a>
 
 
 The **JOYIN 13 in 1 Dinosaur Toys for Kids 3-5** is an ideal choice for parents and gift buyers looking to entertain and educate toddlers and young children aged 3 to 5 years. This set is perfect for children who love **dinosaurs** and **vehicles**, combining imaginative play with hands-on interaction. If you're searching for a versatile and engaging birthday gift or a fun addition to a toddler’s toy collection, this **dinosaur truck with 12 pull back cars** set is designed to captivate young minds and encourage creative play.
@@ -48,10 +48,10 @@ The **JOYIN 13 in 1 Dinosaur Toys** offers a creative blend of prehistoric excit
 
 Designed with vibrant colors and sturdy materials by **Joyin US Corp**, this toy set ensures durability and safety for active toddlers. Its manageable size and weight make it suitable for both indoor and outdoor play. Overall, this **birthday gift toy** is a thoughtful choice for parents and relatives seeking to inspire curiosity, creativity, and physical activity in children aged 3 to 5 years.
 
-## <a href="https://www.amazon.com/dp/B095XJDJ8V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Large Friction Powered Garbage Truck Toy Set</a>
+## <a href="https://www.amazon.com/dp/B095XJDJ8V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joyin Large Friction Powered Garbage Truck Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B095XJDJ8V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Large Friction Powered Garbage Truck Toy Set, Includes Dumpster, Trash Bins, and Learning Cards for Kids, Boy Toys Birthday Gift for Boys Girls Kids Toddler" src="https://m.media-amazon.com/images/I/514pPTNXGBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B095XJDJ8V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JOYIN Large Friction Powered Garbage Truck Toy Set, Includes Dumpster, Trash Bins, and Learning Cards for Kids, Boy Toys Birthday Gift for Boys Girls Kids Toddler" src="https://m.media-amazon.com/images/I/514pPTNXGBL._SL500_.jpg"/></a>
 
 
 The **JOYIN Large Friction Powered Garbage Truck Toy Set** is ideal for young children, including toddlers, boys, and girls who love interactive and educational toys. This set is perfect for parents looking to encourage imaginative play while teaching kids about recycling and waste management in a fun and engaging way. It also makes a great birthday gift for kids who enjoy hands-on activities and vehicle toys.
@@ -74,10 +74,10 @@ The **JOYIN Large Friction Powered Garbage Truck Toy Set** features a friction-p
 
 Beyond entertainment, this toy supports cognitive development by encouraging imaginative scenarios where children can simulate real-life garbage collection and recycling activities. Its sturdy build and child-safe materials make it a dependable choice for parents who want a toy that withstands rough play. Overall, the JOYIN garbage truck toy set not only entertains but also fosters environmental awareness and practical learning for young minds.
 
-## <a href="https://www.amazon.com/dp/B09NNZSWQZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beestech Construction Toys</a>
+## <a href="https://www.amazon.com/dp/B09NNZSWQZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beestech Construction Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B09NNZSWQZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beestech Construction Toys for 3 Years Old Boys Girls Kids, Friction Powered Construction Truck Toys Vehicles Sand Toys Trucks Excavator, Bulldozer, Road Roller (Colorful 4 Pack)" src="https://m.media-amazon.com/images/I/51hRx7zQmVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NNZSWQZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beestech Construction Toys for 3 Years Old Boys Girls Kids, Friction Powered Construction Truck Toys Vehicles Sand Toys Trucks Excavator, Bulldozer, Road Roller (Colorful 4 Pack)" src="https://m.media-amazon.com/images/I/51hRx7zQmVL._SL500_.jpg"/></a>
 
 
 The **Beestech Construction Toys** are perfect for young children, especially those around the age of 3 years old who have a keen interest in vehicles and construction equipment. These toys are ideal for both boys and girls who enjoy imaginative play and hands-on activities. Parents looking for durable, safe, and engaging toys that encourage motor skills and creativity will find this colorful 4-pack set an excellent choice.
@@ -99,10 +99,10 @@ The **Beestech Construction Toys** set offers a realistic experience with its de
 
 Additionally, this set supports the development of fine motor skills and hand-eye coordination as kids manipulate the various vehicles. The compact dimensions are perfect for small hands, allowing children to easily grasp and maneuver each truck. These toys also inspire imaginative play, helping children create their own construction site scenarios that promote creativity and cognitive growth.
 
-## <a href="https://www.amazon.com/dp/B0D31Q7SPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scientoy Remote Control Car</a>
+## <a href="https://www.amazon.com/dp/B0D31Q7SPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scientoy Remote Control Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0D31Q7SPD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scientoy Remote Control Car, 20KM/H Monster Truck Toys for Ages 5-7, 1:16 Scale All Terrain RC Cars for Boys &amp; Girls Age 4-7, 2.4Ghz Off Road RC Truck, Christmas Birthday Gift for Kids" src="https://m.media-amazon.com/images/I/514X7gwO55L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D31Q7SPD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scientoy Remote Control Car, 20KM/H Monster Truck Toys for Ages 5-7, 1:16 Scale All Terrain RC Cars for Boys &amp; Girls Age 4-7, 2.4Ghz Off Road RC Truck, Christmas Birthday Gift for Kids" src="https://m.media-amazon.com/images/I/514X7gwO55L._SL500_.jpg"/></a>
 
 
 The **Scientoy Remote Control Car** is an ideal choice for young children aged **4 to 7 years** who are eager to explore the excitement of remote-controlled vehicles. Perfect for both boys and girls, this **1:16 scale monster truck** is designed to provide thrilling off-road adventures with ease, making it an excellent gift for birthdays or Christmas. Parents looking for a durable, fun, and easy-to-use remote control car for their kids will find this model particularly suitable.
@@ -125,10 +125,10 @@ The **Scientoy Remote Control Car** boasts a robust **green monster truck design
 
 Beyond its exciting features, this RC car encourages outdoor activity and improves hand-eye coordination for young users. The sturdy build of the truck withstands rough handling, ensuring longevity and continuous fun for kids. Whether it’s a birthday or holiday gift, the **Scientoy Remote Control Car** provides an engaging and interactive toy that stimulates imagination and motor skills development.
 
-## <a href="https://www.amazon.com/dp/B0D7M51TRB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Niplooow Toddler Boys Construction Truck Vehicle Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0D7M51TRB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Niplooow Toddler Boys Construction Truck Vehicle Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D7M51TRB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NIPLOOOW Toddler Boys Construction Truck Vehicle Toy Set with Play Mat, Die-Cast Toy Car Carrier Truck for Kids, Birthday Gifts Toys for 3-8 Year Old Boys" src="https://m.media-amazon.com/images/I/51BuwOuF0gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D7M51TRB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NIPLOOOW Toddler Boys Construction Truck Vehicle Toy Set with Play Mat, Die-Cast Toy Car Carrier Truck for Kids, Birthday Gifts Toys for 3-8 Year Old Boys" src="https://m.media-amazon.com/images/I/51BuwOuF0gL._SL500_.jpg"/></a>
 
 
 The **NIPLOOOW Toddler Boys Construction Truck Vehicle Toy Set** is perfect for young children aged 3 to 8 years who have a fascination with construction vehicles and imaginative play. This toy set is ideal for parents or gift-givers looking for a durable, engaging, and educational present that stimulates creativity and motor skills in toddlers and young boys.
@@ -150,10 +150,10 @@ The **NIPLOOOW Toddler Boys Construction Truck Vehicle Toy Set** features a robu
 
 With its thoughtfully designed size and colorful construction truck theme, this toy set not only captivates young boys but also promotes hand-eye coordination and imaginative play. The high-quality materials ensure that the toy withstands rough handling, making it an excellent birthday gift that offers both fun and educational value for kids aged 3 to 8 years.
 
-## <a href="https://www.amazon.com/dp/B0BCXFP7VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maxx Action 19'’ 2-n-1 Motorized Dig Rig</a>
+## <a href="https://www.amazon.com/dp/B0BCXFP7VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Maxx Action 19'’ 2-n-1 Motorized Dig Rig</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCXFP7VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Maxx Action 19'’ 2-N-1 Motorized Dig Rig – Excavator and Dump Truck Toy with Joystick Control for Toddlers | Gift for Kids 3+ | Lights, Sounds &amp; Interactive Construction Vehicle, Batteries Included" src="https://m.media-amazon.com/images/I/410HCYm1UsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCXFP7VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Maxx Action 19'’ 2-N-1 Motorized Dig Rig – Excavator and Dump Truck Toy with Joystick Control for Toddlers | Gift for Kids 3+ | Lights, Sounds &amp; Interactive Construction Vehicle, Batteries Included" src="https://m.media-amazon.com/images/I/410HCYm1UsL._SL500_.jpg"/></a>
 
 
 The **Maxx Action 19'’ 2-N-1 Motorized Dig Rig** is an excellent choice for parents looking to encourage imaginative play in toddlers aged 3 and above. This toy is perfect for young children who are fascinated by construction vehicles and enjoy interactive, hands-on activities. It's also an ideal gift for kids who love toys with lights, sounds, and easy-to-use joystick controls, making playtime both fun and educational.
@@ -177,10 +177,10 @@ The **Maxx Action 2-N-1 Motorized Dig Rig** stands out with its dual functionali
 
 Its sturdy yet lightweight design ensures that it can withstand the energetic play of young children without being cumbersome. The toy's compact dimensions make it suitable for indoor play areas, while the ready-to-use feature with **batteries included** means no delay in fun. Overall, this motorized dig rig provides an interactive and educational experience that fosters creativity and imaginative play in toddlers, making it a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B07QGG9YXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Dump Truck Toy Construction Vehicle</a>
+## <a href="https://www.amazon.com/dp/B07QGG9YXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Dump Truck Toy Construction Vehicle</a>
 
 
-<a href="https://www.amazon.com/dp/B07QGG9YXT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3+"="" action="" ages="" alt="CAT Construction Toys, CAT Dump Truck Toy Construction Vehicle – 10" articulated="" buckets="" for="" indoor="" outdoor="" plastic="" play.="" src="https://m.media-amazon.com/images/I/41oPttHeWLL._SL500_.jpg" vehicle="" with=""/></a>
+<a href="https://www.amazon.com/dp/B07QGG9YXT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" 3+"="" action="" ages="" alt="CAT Construction Toys, CAT Dump Truck Toy Construction Vehicle – 10" articulated="" buckets="" for="" indoor="" outdoor="" plastic="" play.="" src="https://m.media-amazon.com/images/I/41oPttHeWLL._SL500_.jpg" vehicle="" with=""/></a>
 
 
 The **CAT Dump Truck Toy Construction Vehicle** is ideal for young children aged **3 and up** who have a keen interest in **construction vehicles** and enjoy both **indoor and outdoor play**. Parents looking for a durable, engaging toy that encourages imaginative play and motor skills development will find this **10-inch plastic action vehicle** a perfect choice. It’s especially suited for kids who love hands-on activities and interactive toys that mimic real-life machinery.
@@ -203,10 +203,10 @@ The **CAT Dump Truck Toy** features realistic articulated buckets that move just
 
 Manufactured by **Funrise, Inc.**, this **10-inch** toy vehicle is lightweight yet sturdy enough for everyday play. Whether used indoors on carpets and floors or outdoors in sand and dirt, it offers versatile fun without the worry of damage. The simple design focuses on durability and ease of use, making it an excellent starter toy for toddlers beginning to explore the world of construction vehicles. Overall, it provides hours of creative playtime that supports developmental skills in a fun and engaging way.
 
-## <a href="https://www.amazon.com/dp/B01N5C39CX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light-up Monster Truck Toys (2-pack)</a>
+## <a href="https://www.amazon.com/dp/B01N5C39CX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Light-up Monster Truck Toys (2-pack)</a>
 
 
-<a href="https://www.amazon.com/dp/B01N5C39CX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light-Up Monster Truck Toys (2-Pack) – Push-&amp;-Go Cars with Glowing Wheels – Birthday Gift for Toddlers, Boys &amp; Girls Ages 3+ – Durable Friction-Powered Trucks – Batteries Included" src="https://m.media-amazon.com/images/I/61Iw9VXFEhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N5C39CX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Light-Up Monster Truck Toys (2-Pack) – Push-&amp;-Go Cars with Glowing Wheels – Birthday Gift for Toddlers, Boys &amp; Girls Ages 3+ – Durable Friction-Powered Trucks – Batteries Included" src="https://m.media-amazon.com/images/I/61Iw9VXFEhL._SL500_.jpg"/></a>
 
 
 The **Light-Up Monster Truck Toys (2-Pack)** are perfect for young children aged 3 and above who love exciting, interactive playtime. Ideal for both boys and girls, these **durable friction-powered trucks** with **glowing wheels** make an excellent birthday gift, providing endless fun and stimulating imaginative play. Parents looking for safe, battery-included toys that encourage active engagement will find these trucks a great choice.
@@ -229,10 +229,10 @@ These **monster truck toys** stand out with their unique **light-up wheels**, ca
 
 Constructed by **ArtCreativity**, these trucks are built to withstand energetic play, ensuring durability over time. The included batteries mean parents don’t need to worry about additional purchases before their child can start enjoying the toy. Overall, this 2-pack of **light-up monster trucks** offers a blend of fun, durability, and developmental benefits, making them a thoughtful and practical gift for young children.
 
-## <a href="https://www.amazon.com/dp/B08K3N4RR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tonka Steel Classics 4x4 Pickup Truck</a>
+## <a href="https://www.amazon.com/dp/B08K3N4RR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tonka Steel Classics 4x4 Pickup Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B08K3N4RR9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tonka Steel Classics 4x4 Pickup Truck - Made with Steel &amp; Sturdy Plastic, Yellow Toy Construction Truck, Boys and Girls, Kids, Toddlers, Ages 3+" src="https://m.media-amazon.com/images/I/414YHKFoD-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08K3N4RR9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tonka Steel Classics 4x4 Pickup Truck - Made with Steel &amp; Sturdy Plastic, Yellow Toy Construction Truck, Boys and Girls, Kids, Toddlers, Ages 3+" src="https://m.media-amazon.com/images/I/414YHKFoD-L._SL500_.jpg"/></a>
 
 
 The **Tonka Steel Classics 4x4 Pickup Truck** is ideal for **kids, toddlers, boys and girls aged 3 and above** who enjoy imaginative play with durable and realistic toy vehicles. Parents looking for a robust and safe toy that can withstand rough play will find this **yellow toy construction truck** an excellent choice. It is perfect for children who love outdoor adventures and want a sturdy truck to fuel their creativity.
@@ -256,10 +256,10 @@ The **Tonka Steel Classics 4x4 Pickup Truck** features a solid build combining *
 
 Additionally, the truck’s lightweight yet durable construction means it can be used both indoors and outdoors without worry. The trusted brands behind this product, **Tonka** and **Basic Fun**, ensure quality and safety standards are met, giving parents peace of mind. Overall, this toy is a great investment for fostering imaginative play and physical coordination in young children.
 
-## <a href="https://www.amazon.com/dp/B07F6ZBW52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Monster Trucks 2-pack Demolition Doubles</a>
+## <a href="https://www.amazon.com/dp/B07F6ZBW52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hot Wheels Monster Trucks 2-pack Demolition Doubles</a>
 
 
-<a href="https://www.amazon.com/dp/B07F6ZBW52?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Monster Trucks 2-Pack, Demolition Doubles Set of 2 Toy Vehicles in 1:64 Scale, for Kids &amp; Collectors (Styles May Vary)" src="https://m.media-amazon.com/images/I/61czlRML2UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07F6ZBW52?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hot Wheels Monster Trucks 2-Pack, Demolition Doubles Set of 2 Toy Vehicles in 1:64 Scale, for Kids &amp; Collectors (Styles May Vary)" src="https://m.media-amazon.com/images/I/61czlRML2UL._SL500_.jpg"/></a>
 
 
 The **Hot Wheels Monster Trucks 2-Pack** is perfect for **kids** who love action-packed playtime and **collectors** seeking to expand their miniature vehicle collections. Ideal for children who enjoy imaginative play with durable, detailed toy vehicles, this set also appeals to enthusiasts of the iconic **Hot Wheels** brand and **monster truck** designs.

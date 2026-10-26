@@ -22,10 +22,10 @@ The Shashibo Shape Shifting Box, for instance, transforms into over 70 shapes, w
 
 
 
-## <a href="https://www.amazon.com/dp/B092W7D64G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubik's Cube</a>
+## <a href="https://www.amazon.com/dp/B092W7D64G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubik's Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B092W7D64G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubik's Cube, The Original 3x3 Cube, Problem-Solving Brain Teaser, Color-Matching Puzzle, Fidget Toy, Sensory Puzzle, for Ages 8 &amp; Up" src="https://m.media-amazon.com/images/I/41HXY7lEDwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092W7D64G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubik's Cube, The Original 3x3 Cube, Problem-Solving Brain Teaser, Color-Matching Puzzle, Fidget Toy, Sensory Puzzle, for Ages 8 &amp; Up" src="https://m.media-amazon.com/images/I/41HXY7lEDwL._SL500_.jpg"/></a>
 
 
 The **Rubik's Cube, The Original 3x3 Cube** is ideal for anyone looking to challenge their mind and improve problem-solving skills. Perfect for children aged 8 and up, as well as adults who enjoy puzzles, this cube serves as both a **brain teaser** and a **fidget toy**. Whether you're a beginner wanting to learn the basics or an enthusiast aiming to sharpen your speed and technique, this classic puzzle is designed to engage and entertain.
@@ -48,12 +48,12 @@ The **Rubik's Cube 3x3** features a classic design with vibrant colors that requ
 
 Beyond being a challenging puzzle, this item doubles as a **sensory toy** and **fidget tool**, helping to reduce anxiety and improve focus during work or study sessions. The tactile feedback from turning the cube's sides engages both the mind and hands, providing a balanced sensory experience. Overall, the **Rubik's Cube** remains a timeless and beneficial puzzle that promotes fun learning and mental exercise for all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B092W7D64G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B092W7D64G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07W5QM4DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shashibo Shape Shifting Box</a>
+## <a href="https://www.amazon.com/dp/B07W5QM4DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shashibo Shape Shifting Box</a>
 
 
-<a href="https://www.amazon.com/dp/B07W5QM4DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shashibo Shape Shifting Box - STEM Magnetic Fidget Cube That Transforms Into Over 70 Shapes, Download Fun in Motion Toys Mobile App (Spaced Out)" src="https://m.media-amazon.com/images/I/51v6DxD+pSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07W5QM4DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Shashibo Shape Shifting Box - STEM Magnetic Fidget Cube That Transforms Into Over 70 Shapes, Download Fun in Motion Toys Mobile App (Spaced Out)" src="https://m.media-amazon.com/images/I/51v6DxD+pSL._SL500_.jpg"/></a>
 
 
 The **Shashibo Shape Shifting Box** is perfect for individuals who enjoy creative, hands-on activities and those looking for a unique, engaging way to relieve stress. Ideal for children and adults interested in **STEM toys**, fidget enthusiasts, and anyone who appreciates innovative design and tactile interaction will find this item especially appealing.
@@ -76,12 +76,12 @@ The **Shashibo Shape Shifting Box** is engineered with strong magnets that allow
 
 Additionally, the integration with the **Fun in Motion Toys Mobile App** enhances the overall experience by providing interactive challenges and tutorials. The compact size and lightweight design make it easy to carry around, perfect for on-the-go entertainment or a desk toy to help improve focus and reduce anxiety. Its visually striking **Spaced Out** pattern adds an aesthetic dimension, making it a standout piece in any collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07W5QM4DP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07W5QM4DP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09CPXLCQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Star Cube Magic Cube Set</a>
+## <a href="https://www.amazon.com/dp/B09CPXLCQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Star Cube Magic Cube Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09CPXLCQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Star Cube Magic Cube Set, 2 in 1 Yoshimoto Cube for Kids and Adults, Toy for Boys and Girls Ages 8-12" src="https://m.media-amazon.com/images/I/51Aq36iB5GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09CPXLCQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Star Cube Magic Cube Set, 2 in 1 Yoshimoto Cube for Kids and Adults, Toy for Boys and Girls Ages 8-12" src="https://m.media-amazon.com/images/I/51Aq36iB5GL._SL500_.jpg"/></a>
 
 
 The **Star Cube Magic Cube Set** is perfect for both **kids and adults** who enjoy engaging, hands-on puzzles. Ideal for **boys and girls ages 8-12**, this set offers a fun and educational experience that sharpens problem-solving skills and enhances cognitive abilities. Whether you are a beginner or an experienced puzzler, this **2 in 1 Yoshimoto Cube** set provides an exciting challenge for all skill levels.
@@ -104,12 +104,12 @@ The **Star Cube Magic Cube Set** stands out with its vibrant **multicolor design
 
 Designed by the reputable brand **Euclidean Cube** and manufactured by **SHANTOU KAI YU PLASTIC CO., LTD**, this toy guarantees quality and long-lasting use. The set is not only entertaining but also educational, helping users develop **problem-solving skills** and improve hand-eye coordination. This makes it an excellent gift choice for kids and adults who enjoy brain teasers and interactive toys.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09CPXLCQ4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09CPXLCQ4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07SRVJSB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qy Toys Warrior W Speed Cube 3x3</a>
+## <a href="https://www.amazon.com/dp/B07SRVJSB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qy Toys Warrior W Speed Cube 3x3</a>
 
 
-<a href="https://www.amazon.com/dp/B07SRVJSB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QY Toys Warrior W Speed Cube 3x3- Stickerless Magic Cube 3x3x3 Puzzles Toys (56mm), The Most Educational Toy to Effectively Improve Your Child's Concentration. (Standard Edition)" src="https://m.media-amazon.com/images/I/31XbmNNMbbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07SRVJSB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QY Toys Warrior W Speed Cube 3x3- Stickerless Magic Cube 3x3x3 Puzzles Toys (56mm), The Most Educational Toy to Effectively Improve Your Child's Concentration. (Standard Edition)" src="https://m.media-amazon.com/images/I/31XbmNNMbbL._SL500_.jpg"/></a>
 
 
 The **QY Toys Warrior W Speed Cube 3x3** is an excellent choice for children and puzzle enthusiasts looking to enhance their cognitive skills and concentration. Ideal for kids who enjoy challenging puzzles and parents seeking an educational toy that combines fun with brain development, this **stickerless magic cube** offers a hands-on way to improve problem-solving abilities and hand-eye coordination. Its compact size and durable design make it perfect for both beginners and advanced users aiming to master the classic 3x3 cube.
@@ -131,12 +131,12 @@ The **QY Toys Warrior W Speed Cube 3x3** features a smooth mechanism that allows
 
 Beyond its physical attributes, this puzzle cube serves as an educational tool that sharpens mental focus and patience. Regular practice with the cube can boost a child’s ability to concentrate on tasks, fostering critical thinking and spatial awareness. The **QY Toys Warrior W Speed Cube** balances entertainment and learning, making it a valuable addition to any child’s toy collection or a challenging pastime for puzzle lovers of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07SRVJSB2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07SRVJSB2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Puzzle Cube</a>
+## <a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Puzzle Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Puzzle Cube for Kids and Adults - 6-Sided Wooden Puzzle Game Fidget Toy for Anxiety Relief - Handheld Maze Cube for Travel - 3D Brain Teaser Magic Cube for ADHD Autism Kids &amp; Teenage" src="https://m.media-amazon.com/images/I/41ThI0JMO+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Puzzle Cube for Kids and Adults - 6-Sided Wooden Puzzle Game Fidget Toy for Anxiety Relief - Handheld Maze Cube for Travel - 3D Brain Teaser Magic Cube for ADHD Autism Kids &amp; Teenage" src="https://m.media-amazon.com/images/I/41ThI0JMO+L._SL500_.jpg"/></a>
 
 
 The **Fidget Puzzle Cube for Kids and Adults** is an ideal choice for individuals seeking a fun and engaging way to relieve anxiety and improve focus. Perfect for children with **ADHD** or **autism**, as well as adults looking for a handheld stress-relief tool, this 3D brain teaser offers a compact and portable solution for both travel and daily use. Anyone who enjoys puzzles or needs a discreet way to keep their hands busy will find this wooden maze cube especially beneficial.
@@ -160,12 +160,12 @@ The **Fidget Puzzle Cube** combines entertainment and therapy in a compact desig
 
 Beyond its calming effects, this **brain teaser** is highly portable, making it an ideal companion for travel or daily commutes. Users can discreetly engage with the puzzle to maintain focus during work or study sessions. Additionally, the cube’s design caters specifically to the needs of children and teenagers with **ADHD** and **autism**, providing them with a sensory-friendly outlet that encourages concentration and cognitive development.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DHJR2JWF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09KJK2L6N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubik’s Cube Crystal Cube</a>
+## <a href="https://www.amazon.com/dp/B09KJK2L6N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rubik’s Cube Crystal Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B09KJK2L6N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubik’s Cube, Crystal Cube, Transparent 3x3 Cube Color-Matching Puzzle Game, Twisting Fidget Toy, Challenging Brain Teaser &amp; Sensory Puzzle for Adults, Teens, &amp; Kids, for Ages 8 &amp; Up" src="https://m.media-amazon.com/images/I/5185MKV+F+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KJK2L6N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rubik’s Cube, Crystal Cube, Transparent 3x3 Cube Color-Matching Puzzle Game, Twisting Fidget Toy, Challenging Brain Teaser &amp; Sensory Puzzle for Adults, Teens, &amp; Kids, for Ages 8 &amp; Up" src="https://m.media-amazon.com/images/I/5185MKV+F+L._SL500_.jpg"/></a>
 
 
 The **Rubik’s Cube, Crystal Cube, Transparent 3x3 Cube Color-Matching Puzzle Game** is ideal for anyone who enjoys a challenging and engaging brain teaser. Perfect for **adults, teens, and kids ages 8 and up**, this twisting fidget toy is designed for those looking to improve their problem-solving skills, hand-eye coordination, and concentration. Whether you're a puzzle enthusiast or someone seeking a fun way to relieve stress, this colorful and transparent cube offers endless entertainment.
@@ -187,12 +187,12 @@ The **Rubik’s Crystal Cube** features a classic 3x3 twist mechanism, allowing 
 
 Beyond its visual appeal, this transparent cube serves as an excellent sensory toy, providing a satisfying tactile experience that can help reduce anxiety and improve focus. The compact dimensions—approximately 5.98 inches in width and 3.54 inches in length—make it easy to carry and use anywhere. With its blend of challenging gameplay and eye-catching design, the Rubik’s Crystal Cube is a versatile and rewarding puzzle for users of all skill levels.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09KJK2L6N?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09KJK2L6N?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B091M9N4FC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shashibo Shape Shifting Box</a>
+## <a href="https://www.amazon.com/dp/B091M9N4FC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Shashibo Shape Shifting Box</a>
 
 
-<a href="https://www.amazon.com/dp/B091M9N4FC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHASHIBO Shape Shifting Box - STEM Magnetic Fidget Cube that Transforms Into Over 70 Shapes, Download Fun in Motion Toys Mobile App (Earth)" src="https://m.media-amazon.com/images/I/41IeIW1Md4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091M9N4FC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHASHIBO Shape Shifting Box - STEM Magnetic Fidget Cube that Transforms Into Over 70 Shapes, Download Fun in Motion Toys Mobile App (Earth)" src="https://m.media-amazon.com/images/I/41IeIW1Md4L._SL500_.jpg"/></a>
 
 
 The **SHASHIBO Shape Shifting Box** is ideal for individuals who enjoy creative and tactile experiences, including children, teens, and adults interested in **STEM toys** or those seeking an engaging way to relieve stress and enhance focus. This **magnetic fidget cube** is perfect for anyone who loves puzzles, innovative gadgets, or interactive play that stimulates both the mind and fingers.
@@ -215,12 +215,12 @@ The **SHASHIBO Shape Shifting Box** stands out as an innovative **STEM magnetic 
 
 Additionally, the integration with the **Fun in Motion Toys mobile app** adds an interactive layer to the experience, providing tutorials, challenges, and ideas to expand creative possibilities. The **Earth color** design offers a visually appealing aesthetic that connects users with a natural theme. Overall, this shape-shifting box serves as both a captivating fidget toy and an educational device, catering to those looking for a unique and engaging way to stimulate their mind and hands.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B091M9N4FC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B091M9N4FC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B093LKX6VZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooden Fidget Toy Twist Block Cubes</a>
+## <a href="https://www.amazon.com/dp/B093LKX6VZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooden Fidget Toy Twist Block Cubes</a>
 
 
-<a href="https://www.amazon.com/dp/B093LKX6VZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pcs Wooden Fidget Toy Twist Block Cubes Puzzle Sensory Toys Fidget Cubes for Teens Party Favors for Boys and Girls" src="https://m.media-amazon.com/images/I/516FXdpWHNS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B093LKX6VZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="6 Pcs Wooden Fidget Toy Twist Block Cubes Puzzle Sensory Toys Fidget Cubes for Teens Party Favors for Boys and Girls" src="https://m.media-amazon.com/images/I/516FXdpWHNS._SL500_.jpg"/></a>
 
 
 The **6 Pcs Wooden Fidget Toy Twist Block Cubes Puzzle** is perfect for **teens, boys, and girls** who enjoy tactile play and need a fun way to relieve stress or improve focus. Ideal for those looking for an engaging **sensory toy** that can be used during study breaks, at parties, or as a creative pastime, this set caters to individuals who appreciate hands-on puzzles and fidget gadgets.
@@ -244,12 +244,12 @@ The **Sumind wooden twist block cubes** combine simplicity and functionality, pr
 
 As a versatile fidget tool, these cubes are excellent for individuals who need discreet stress management during work or study. The set of six allows for continuous engagement, enabling users to switch between cubes to maintain interest. Additionally, these wooden fidget cubes serve as a creative and practical gift or party favor, making them a popular choice for parents and event planners seeking meaningful and entertaining giveaways.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B093LKX6VZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B093LKX6VZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D29XWQ9S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brain Teaser Puzzle Cubes</a>
+## <a href="https://www.amazon.com/dp/B0D29XWQ9S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brain Teaser Puzzle Cubes</a>
 
 
-<a href="https://www.amazon.com/dp/B0D29XWQ9S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brain Teaser Puzzle Cubes Party Favors for ADHD Autism Kids Adults 24 Pack Fidget Toy Set Gifts Mini Games Stress Relief Stocking Stuffers Bulk Goodie Bag Filler Treasure Box Classroom Prizes School" src="https://m.media-amazon.com/images/I/51nEPCBnV8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D29XWQ9S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brain Teaser Puzzle Cubes Party Favors for ADHD Autism Kids Adults 24 Pack Fidget Toy Set Gifts Mini Games Stress Relief Stocking Stuffers Bulk Goodie Bag Filler Treasure Box Classroom Prizes School" src="https://m.media-amazon.com/images/I/51nEPCBnV8L._SL500_.jpg"/></a>
 
 
 The **Brain Teaser Puzzle Cubes Party Favors** are perfect for individuals with **ADHD**, **autism**, or anyone who benefits from engaging in tactile and mental stimulation. Ideal for kids and adults alike, these **fidget toys** help improve focus and relieve stress, making them an excellent choice for classrooms, parties, or as thoughtful gifts and stocking stuffers.
@@ -271,12 +271,12 @@ The **Brain Teaser Puzzle Cubes** are designed with a compact and lightweight fo
 
 These puzzle cubes not only serve as fun mini-games but also act as effective **stress relief** and focus aids. Their tactile nature provides sensory input that can be particularly soothing for individuals with **ADHD** and **autism**, helping to improve attention and reduce feelings of anxiety. Manufactured by **TwCare**, these cubes maintain a high standard of quality and durability, ensuring long-lasting use. Whether used as party favors, stocking stuffers, or classroom prizes, they offer an engaging and beneficial activity for users of all ages.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D29XWQ9S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D29XWQ9S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DMPKFX57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tosy Magnet Fidget Spinner Mini</a>
+## <a href="https://www.amazon.com/dp/B0DMPKFX57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tosy Magnet Fidget Spinner Mini</a>
 
 
-<a href="https://www.amazon.com/dp/B0DMPKFX57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOSY Magnet Fidget Spinner Mini - 8 Blocks, 3 in 1 Toy: Transformable Fidget Spinner, Infinity Cube, 2x2 Puzzle Cube, Stress Relief, STEM Sensory Magnet Tiles Birthday Gift for Kids/Boys/Girls/Adults" src="https://m.media-amazon.com/images/I/51PbfVBhLGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DMPKFX57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOSY Magnet Fidget Spinner Mini - 8 Blocks, 3 in 1 Toy: Transformable Fidget Spinner, Infinity Cube, 2x2 Puzzle Cube, Stress Relief, STEM Sensory Magnet Tiles Birthday Gift for Kids/Boys/Girls/Adults" src="https://m.media-amazon.com/images/I/51PbfVBhLGL._SL500_.jpg"/></a>
 
 
 The **TOSY Magnet Fidget Spinner Mini** is perfect for individuals of all ages who enjoy hands-on, interactive toys that combine fun with mental engagement. Whether you're a kid looking for a stimulating birthday gift, a student interested in **STEM** activities, or an adult seeking effective **stress relief** tools, this versatile 3-in-1 toy is designed to keep your fingers busy and your mind sharp.
@@ -299,7 +299,7 @@ The **TOSY Magnet Fidget Spinner Mini** is ingeniously designed to function as t
 
 Beyond entertainment, this toy serves as an excellent tool for **stress relief** by offering repetitive and soothing movements that calm the mind. The product’s focus on **STEM sensory learning** enhances cognitive skills and encourages creative problem-solving, making it a valuable educational aid for children and adults alike. Compact and durable, the TOSY Magnet Fidget Spinner Mini is an ideal companion for school, office, or travel.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DMPKFX57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DMPKFX57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

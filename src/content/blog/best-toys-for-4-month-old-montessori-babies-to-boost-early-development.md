@@ -23,10 +23,10 @@ Soft stacking blocks, sensory rattles, teething rings, and cloth books offer saf
 
 
 
-## <a href="https://www.amazon.com/dp/B0CD42KQ3K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Montessori Sensory Toys</a>
+## <a href="https://www.amazon.com/dp/B0CD42KQ3K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Montessori Sensory Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CD42KQ3K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Montessori Sensory Toys for 0-6 6-12 Months, Baby Teether Teething Toys for Babies 0 3 6 9 12 18 Months, Newborn Infant Learning Developmental Toys Gifts for 1 2 Year Old Boys Girls" src="https://m.media-amazon.com/images/I/41c9zvmFrLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CD42KQ3K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Montessori Sensory Toys for 0-6 6-12 Months, Baby Teether Teething Toys for Babies 0 3 6 9 12 18 Months, Newborn Infant Learning Developmental Toys Gifts for 1 2 Year Old Boys Girls" src="https://m.media-amazon.com/images/I/41c9zvmFrLL._SL500_.jpg"/></a>
 
 
 The **Baby Montessori Sensory Toys** are ideal for parents and caregivers looking to support the early developmental stages of infants aged **0 to 18 months**. These toys are perfect for babies who are beginning to explore their senses and develop motor skills, making them a great choice for newborns, infants, and toddlers up to 2 years old. If you want to encourage learning through play with safe, engaging, and age-appropriate teething and sensory toys, this item is a perfect fit.
@@ -48,10 +48,10 @@ The **Baby Montessori Sensory Toys** feature a thoughtfully designed shape and s
 
 Additionally, these toys double as effective **teething aids**. The materials used are safe and gentle on babies’ gums, providing relief during the often uncomfortable teething phase. The compact dimensions and lightweight design make it easy for babies to hold and manipulate the toys, fostering hand-eye coordination and fine motor skills. Overall, these toys offer a blend of educational and soothing benefits, making them a valuable addition to any infant’s playtime collection.
 
-## <a href="https://www.amazon.com/dp/B0DZX456WR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yhhytoy 6-in-1 Montessori Baby Toys</a>
+## <a href="https://www.amazon.com/dp/B0DZX456WR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yhhytoy 6-in-1 Montessori Baby Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZX456WR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YHHYTOY 6-in-1 Montessori Baby Toys 0-6 6-12 Months, Infant Teething Toys Soft Stacking Blocks Rings Shape Sorter Sensory Fidget Spinners for Toddler 1-3, First Baby Gift Set for 6 Month Old Girl Boy" src="https://m.media-amazon.com/images/I/51c+4iwA4SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZX456WR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YHHYTOY 6-in-1 Montessori Baby Toys 0-6 6-12 Months, Infant Teething Toys Soft Stacking Blocks Rings Shape Sorter Sensory Fidget Spinners for Toddler 1-3, First Baby Gift Set for 6 Month Old Girl Boy" src="https://m.media-amazon.com/images/I/51c+4iwA4SL._SL500_.jpg"/></a>
 
 
 The **YHHYTOY 6-in-1 Montessori Baby Toys** set is ideal for parents and caregivers of infants aged **0-12 months**, as well as toddlers between **1-3 years**. This versatile collection is perfect for those seeking an engaging and educational toy that supports early development through sensory play, teething relief, and fine motor skill enhancement. It is especially suitable for families looking for a comprehensive first baby gift set that combines multiple learning tools in one package.
@@ -73,10 +73,10 @@ The **YHHYTOY 6-in-1 Montessori Baby Toys** set offers a thoughtfully designed c
 
 Additionally, this set promotes early learning through tactile and visual stimulation, supporting the Montessori philosophy of hands-on discovery. Parents will appreciate the versatility of this **infant teething toy**
 
-## <a href="https://www.amazon.com/dp/B0DRFWYZJT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Land Montessori Baby Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0DRFWYZJT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tiny Land Montessori Baby Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRFWYZJT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Land Montessori Baby Toy Set 4-6 Months – Early Learning Motor Skills Development Kit with 4-in-1 Soft Cloth Book, Spinning Rainbow Toy, Silicone Blocks and Baby Tissue Box" src="https://m.media-amazon.com/images/I/41W0AYMmkEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRFWYZJT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tiny Land Montessori Baby Toy Set 4-6 Months – Early Learning Motor Skills Development Kit with 4-in-1 Soft Cloth Book, Spinning Rainbow Toy, Silicone Blocks and Baby Tissue Box" src="https://m.media-amazon.com/images/I/41W0AYMmkEL._SL500_.jpg"/></a>
 
 
 The **Tiny Land Montessori Baby Toy Set 4-6 Months** is ideal for parents and caregivers looking to support their baby's early development through engaging and safe play. This set is perfect for infants aged 4 to 6 months who are beginning to explore their motor skills and sensory abilities. If you want to introduce your baby to a variety of textures, colors, and shapes while fostering cognitive growth, this kit is an excellent choice.
@@ -98,10 +98,10 @@ The **Tiny Land Montessori Baby Toy Set** is thoughtfully designed to encourage 
 
 Additionally, the set includes silicone blocks that are perfect for teething babies, providing both relief and an opportunity to practice grasping and manipulation. The inclusion of a baby tissue box adds a playful yet practical element, helping infants become familiar with everyday objects in a safe way. Overall, this compact and versatile toy set offers a well-rounded approach to early learning and sensory development for babies in their crucial growth phase.
 
-## <a href="https://www.amazon.com/dp/B0BW41LXG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pandaear Baby Sensory Toys</a>
+## <a href="https://www.amazon.com/dp/B0BW41LXG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pandaear Baby Sensory Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0BW41LXG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PandaEar Baby Sensory Toys 3 4 5 6 Months, Silicone Montessori Toys, Baby Teething Toy, Infant Rattle Teether Chew Toy Teething Ball Developmental Toy for Babies 0-6 Months 6 to 12 Months" src="https://m.media-amazon.com/images/I/41UKwEnrJuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BW41LXG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PandaEar Baby Sensory Toys 3 4 5 6 Months, Silicone Montessori Toys, Baby Teething Toy, Infant Rattle Teether Chew Toy Teething Ball Developmental Toy for Babies 0-6 Months 6 to 12 Months" src="https://m.media-amazon.com/images/I/41UKwEnrJuL._SL500_.jpg"/></a>
 
 
 The **PandaEar Baby Sensory Toys** are ideal for parents and caregivers of infants aged 0 to 12 months who are looking for a safe, engaging, and developmental toy. These silicone **Montessori toys** are perfect for babies in their early months, especially those between 3 to 6 months, when sensory exploration and teething become a primary focus. If you want to support your baby's motor skills, sensory development, and soothe teething discomfort, this set is a great choice.
@@ -124,10 +124,10 @@ The **PandaEar Baby Sensory Toys** combine multiple functions to engage your bab
 
 Beyond sensory stimulation, this set aligns with **Montessori** educational philosophies by encouraging self-directed play and exploration. The inclusion of a rattle adds an auditory dimension, helping babies understand cause and effect. Overall, these developmental toys provide a comprehensive tool for early childhood growth, making them an excellent investment for parents seeking both safety and educational value in a teething toy.
 
-## <a href="https://www.amazon.com/dp/B0CDGZ9LKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montessori Toys For Babies</a>
+## <a href="https://www.amazon.com/dp/B0CDGZ9LKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Montessori Toys For Babies</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDGZ9LKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Montessori Toys for Babies 0-3-6-12 Months, 6 in 1 Baby Toys 4 5 6 7 8 9 Month Old, Baby Blocks Stacking Toys, Infant Baby Sensory Development Learning Toys Gifts for 1 2 3 Year Old Boys Girls" src="https://m.media-amazon.com/images/I/51ZaMGLw1zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDGZ9LKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Montessori Toys for Babies 0-3-6-12 Months, 6 in 1 Baby Toys 4 5 6 7 8 9 Month Old, Baby Blocks Stacking Toys, Infant Baby Sensory Development Learning Toys Gifts for 1 2 3 Year Old Boys Girls" src="https://m.media-amazon.com/images/I/51ZaMGLw1zL._SL500_.jpg"/></a>
 
 
 The **Montessori Toys for Babies 0-3-6-12 Months** are ideal for parents and caregivers looking to support their infant's early developmental stages through play. These **6 in 1 baby toys** are perfect for babies aged from newborn to 12 months, as well as toddlers up to 3 years old, providing a continuous learning experience. If you want to enhance your child's sensory and motor skills with safe, engaging, and educational toys, this set is a great choice.
@@ -149,10 +149,10 @@ These **Montessori stacking baby blocks** are thoughtfully crafted to engage inf
 
 The toy’s compact dimensions and lightweight design make it easy for little hands to grasp and manipulate, promoting independence and confidence in early play. Being manufactured by **Smallzi**, the toy meets safety and quality standards, giving parents peace of mind. Overall, this set is an excellent gift for fostering early developmental milestones in boys and girls from infancy through toddlerhood.
 
-## <a href="https://www.amazon.com/dp/B00MYWGTGQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Flip Fish Soft Baby Toy</a>
+## <a href="https://www.amazon.com/dp/B00MYWGTGQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Melissa &amp; Doug Flip Fish Soft Baby Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B00MYWGTGQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Flip Fish Soft Baby Toy Sensory Tummy Time Toys, Soft Fabric Tag Toy for Babies, Infants" src="https://m.media-amazon.com/images/I/41SpVjMnkcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00MYWGTGQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Melissa &amp; Doug Flip Fish Soft Baby Toy Sensory Tummy Time Toys, Soft Fabric Tag Toy for Babies, Infants" src="https://m.media-amazon.com/images/I/41SpVjMnkcL._SL500_.jpg"/></a>
 
 
 The **Melissa & Doug Flip Fish Soft Baby Toy** is perfect for parents and caregivers seeking an engaging and safe sensory toy for their **babies** and **infants**. Ideal for tummy time and early development, this soft fabric tag toy encourages sensory exploration and fine motor skills, making it a great choice for little ones from birth onward.
@@ -176,10 +176,10 @@ The **Melissa & Doug Flip Fish** is thoughtfully designed with a soft fabric bod
 
 Beyond sensory stimulation, this toy supports important physical development during tummy time by encouraging babies to lift their heads and reach out. The soft materials ensure safety while engaging infants, making it a reliable choice for parents who want to provide both comfort and developmental benefits. Overall, the Melissa & Doug Flip Fish Soft Baby Toy combines playful design with practical features that nurture early growth and exploration.
 
-## <a href="https://www.amazon.com/dp/B06Y1192MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Glow &amp; Discover Light Bar</a>
+## <a href="https://www.amazon.com/dp/B06Y1192MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Glow &amp; Discover Light Bar</a>
 
 
-<a href="https://www.amazon.com/dp/B06Y1192MF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Glow &amp; Discover Light Bar Musical Activity Station and Tummy Time Toy, Montessori Cause and Effect Early Learning for 3-36 months" src="https://m.media-amazon.com/images/I/41W3iGfJpJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06Y1192MF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Glow &amp; Discover Light Bar Musical Activity Station and Tummy Time Toy, Montessori Cause and Effect Early Learning for 3-36 months" src="https://m.media-amazon.com/images/I/41W3iGfJpJL._SL500_.jpg"/></a>
 
 
 The **Baby Einstein Glow & Discover Light Bar Musical Activity Station and Tummy Time Toy** is ideal for parents and caregivers of infants aged **3 to 36 months** who are looking to encourage early learning through play. This toy is perfect for those seeking a **Montessori-inspired** activity that promotes sensory development, motor skills, and cause-and-effect understanding in babies.
@@ -202,10 +202,10 @@ The **Glow & Discover Light Bar** by **Baby Einstein** offers a thoughtfully des
 
 Additionally, this activity station supports **Montessori principles** by encouraging independent exploration and sensory development. The tummy time feature is especially beneficial, as it helps strengthen the muscles needed for crawling and other milestones. Overall, this toy provides a well-rounded, engaging learning experience that grows with your child during their crucial early months.
 
-## <a href="https://www.amazon.com/dp/B07DPBB4CT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Sticky Spinner</a>
+## <a href="https://www.amazon.com/dp/B07DPBB4CT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Einstein Sticky Spinner</a>
 
 
-<a href="https://www.amazon.com/dp/B07DPBB4CT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Sticky Spinner BPA-free Suction Cup High Chair Activity Toy and Tray Toy for Early Development, 3mo+" src="https://m.media-amazon.com/images/I/41wEjU9sdaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DPBB4CT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Einstein Sticky Spinner BPA-free Suction Cup High Chair Activity Toy and Tray Toy for Early Development, 3mo+" src="https://m.media-amazon.com/images/I/41wEjU9sdaL._SL500_.jpg"/></a>
 
 
 The **Baby Einstein Sticky Spinner BPA-free Suction Cup High Chair Activity Toy and Tray Toy** is ideal for parents seeking an engaging and safe developmental toy for their infants aged **3 months and older**. This product is perfect for families who want to stimulate their baby’s motor skills and sensory exploration during mealtime or playtime, especially those using high chairs or similar seating.
@@ -228,10 +228,10 @@ The **Baby Einstein Sticky Spinner** features a suction cup base designed to fir
 
 Beyond its safety and convenience, this toy stimulates early developmental skills by encouraging babies to grasp, spin, and explore textures and colors. The vibrant design not only captivates young children but also supports sensory development and hand-eye coordination, making mealtime or playtime more engaging. Overall, the Baby Einstein Sticky Spinner combines practical design with developmental benefits for infants aged 3 months and up.
 
-## <a href="https://www.amazon.com/dp/B0CJRKHYRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rain Stick Montessori Baby Toys</a>
+## <a href="https://www.amazon.com/dp/B0CJRKHYRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rain Stick Montessori Baby Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJRKHYRJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rain Stick, Montessori Baby Toys for 6-12 Months 1 Year Old, Baby Rattle Wooden Sensory Toys, 7.7” Rainmaker Infant Musical Toy - Gifts for 6 7 8 9 12 Month Old Newborn Boys Girls Toddlers" src="https://m.media-amazon.com/images/I/41U2g3CSUDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJRKHYRJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rain Stick, Montessori Baby Toys for 6-12 Months 1 Year Old, Baby Rattle Wooden Sensory Toys, 7.7” Rainmaker Infant Musical Toy - Gifts for 6 7 8 9 12 Month Old Newborn Boys Girls Toddlers" src="https://m.media-amazon.com/images/I/41U2g3CSUDL._SL500_.jpg"/></a>
 
 
 The **Rain Stick** by **GRESEESM** is an ideal choice for parents seeking a safe, engaging, and educational **Montessori baby toy** for infants aged **6 to 12 months**. Perfect for nurturing sensory development and motor skills, this **wooden sensory toy** is designed to captivate newborn boys and girls with its soothing rainmaker sounds and vibrant **multiple colors**. If you're looking for a **musical toy** that encourages exploration and auditory stimulation, this **7.7-inch** **baby rattle** is a perfect gift for toddlers in their crucial developmental stage.
@@ -255,10 +255,10 @@ This **Rain Stick** offers a unique way to introduce babies to the concept of ca
 
 Additionally, the **multiple colors** incorporated into the design promote visual development and curiosity. The lightweight and durable build means it can withstand toddler play while remaining easy for little hands to manage. As a **Montessori baby toy**, it supports independent exploration, fostering creativity and concentration in young children. Overall, this rainmaker serves as both an entertaining and educational tool for infants in their formative months.
 
-## <a href="https://www.amazon.com/dp/B0DD3YZ3YZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soft Baby Sensory Toy With Tummy Time Mirror</a>
+## <a href="https://www.amazon.com/dp/B0DD3YZ3YZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Soft Baby Sensory Toy With Tummy Time Mirror</a>
 
 
-<a href="https://www.amazon.com/dp/B0DD3YZ3YZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soft Baby Sensory Toy with Tummy Time Mirror - Entertaining Fish Toy for Infants 0-6, 3-6, 6-12 Months with Rattle &amp; Crinkle Paper - Perfect Montessori for Baby Showers &amp; as Newborn/Infant Gift" src="https://m.media-amazon.com/images/I/41GcfYVMa4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DD3YZ3YZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Soft Baby Sensory Toy with Tummy Time Mirror - Entertaining Fish Toy for Infants 0-6, 3-6, 6-12 Months with Rattle &amp; Crinkle Paper - Perfect Montessori for Baby Showers &amp; as Newborn/Infant Gift" src="https://m.media-amazon.com/images/I/41GcfYVMa4L._SL500_.jpg"/></a>
 
 
 The **Soft Baby Sensory Toy with Tummy Time Mirror** is ideal for parents and caregivers of infants aged 0-12 months who are looking to provide a safe, engaging, and developmentally enriching toy. This product is perfect for those who want to encourage sensory exploration, motor skills, and cognitive development in their babies, making it an excellent choice for **Montessori-inspired play** and thoughtful **newborn or infant gifts**.

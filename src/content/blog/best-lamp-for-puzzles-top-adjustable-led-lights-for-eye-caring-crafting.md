@@ -23,10 +23,10 @@ Some models come with clamps to save desk space. Eye-care features reduce flicke
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
 
 
 The **LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp** from **Seaside village** is ideal for individuals who need efficient and adjustable lighting for detailed tasks. Whether you are a professional working in an office, a lash extension artist, a craft enthusiast, or someone who values eye care during reading or working, this lamp provides the perfect lighting solution. Its modern design and versatile features make it suitable for both home and office environments.
@@ -49,10 +49,10 @@ The **LED Floor Lamp** by Seaside village features a powerful **15W LED light** 
 
 In addition to its functional benefits, the lamp’s dimmable feature adds to the user experience by enabling customized lighting settings suitable for various times of day and different activities. The modern black color and sleek design make it a stylish addition to any living room or workspace. Its tall stature ensures widespread illumination, reducing the need for additional lighting fixtures, which can help save space and energy costs.
 
-## <a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Voncerus Led Desk Lamp With Clamp</a>
+## <a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Voncerus Led Desk Lamp With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Voncerus LED Desk Lamp with Clamp, Eye-Caring Clip on Lights for Home Office, 3 Modes 10 Brightness, Long Flexible Gooseneck, Metal, Swing Arm Architect Task Table Lamps with USB Adapter, Black" src="https://m.media-amazon.com/images/I/41TFbo2zPQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BB5ZBT42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Voncerus LED Desk Lamp with Clamp, Eye-Caring Clip on Lights for Home Office, 3 Modes 10 Brightness, Long Flexible Gooseneck, Metal, Swing Arm Architect Task Table Lamps with USB Adapter, Black" src="https://m.media-amazon.com/images/I/41TFbo2zPQL._SL500_.jpg"/></a>
 
 
 The **Voncerus LED Desk Lamp with Clamp** is ideal for professionals, students, and anyone who needs focused, adjustable lighting for their workspace. Whether you work from home, study late into the night, or require precise illumination for creative projects, this lamp is designed to provide comfort and efficiency. Its eye-caring technology and flexible design make it perfect for those who prioritize both functionality and eye health.
@@ -76,10 +76,10 @@ The **Voncerus LED Desk Lamp** combines functionality with ergonomic design, mak
 
 With a sturdy metal swing arm and a space-saving clamp, this lamp fits seamlessly into any home office or study area without cluttering your desk. The inclusion of a USB adapter enhances its convenience, enabling easy power access from multiple devices. Overall, this lamp promotes a comfortable and efficient workspace that supports productivity while protecting your eyes.
 
-## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
 
 
 The **Lepro LED Desk Lamp** is ideal for individuals who require a versatile and reliable lighting solution for detailed tasks such as reading, crafting, sewing, or puzzle assembly. Whether you are a student, a professional working from home, or a hobbyist, this lamp provides customizable lighting to suit various activities and environments.
@@ -104,10 +104,10 @@ The **Lepro LED Desk Lamp** offers a perfect balance between functionality and s
 
 With an **800-lumen output** powered by an efficient **9.5W LED**, this lamp provides bright yet energy-saving illumination. Its compact dimensions and lightweight design make it easy to position and adjust without cluttering the desk. Endorsed by **Forbes** as one of the best task lamps, the Lepro LED Desk Lamp ensures reliable performance for home office users, crafters, and anyone who needs consistent and customizable lighting.
 
-## <a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Airlonv Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Airlonv Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Airlonv LED Desk Lamp for Office Home, Eye-Caring Desk Light with Stepless Dimming Adjustable Flexible Gooseneck, 10W USB Adapter Desk Lamp with Clamp for Reading, Study, Workbench (Black)" src="https://m.media-amazon.com/images/I/415a2-2URFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4JTPPYY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Airlonv LED Desk Lamp for Office Home, Eye-Caring Desk Light with Stepless Dimming Adjustable Flexible Gooseneck, 10W USB Adapter Desk Lamp with Clamp for Reading, Study, Workbench (Black)" src="https://m.media-amazon.com/images/I/415a2-2URFL._SL500_.jpg"/></a>
 
 
 The **Airlonv LED Desk Lamp** is perfect for individuals seeking a versatile and eye-friendly lighting solution for their **office**, **home**, or **study** spaces. Ideal for students, professionals, and hobbyists, this lamp offers adjustable brightness and a flexible design to enhance productivity and comfort during long hours of reading, studying, or working.
@@ -132,10 +132,10 @@ The **Airlonv LED Desk Lamp** boasts a **stepless dimming feature** that enables
 
 With a **10W USB adapter** included, powering the lamp is both convenient and efficient, eliminating the need for bulky adapters. The **clamp mounting system** not only saves valuable desk space but also provides secure attachment to different surfaces. Combined with its sleek black color and lightweight build, this lamp seamlessly integrates into any environment, enhancing both functionality and aesthetics.
 
-## <a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
 
 
 The **WioMio LED Floor Lamp** is ideal for individuals seeking a versatile and eye-friendly lighting solution for their **living room** or **bedroom**. It is perfect for those who value convenience and want to easily adjust light intensity and color temperature to create the perfect ambiance without straining their eyes. Whether you are a reader, a student, or someone who enjoys relaxing under customizable lighting, this lamp caters to your specific needs.
@@ -159,10 +159,10 @@ The **WioMio LED Floor Lamp** features a tall and slender design with a sturdy g
 
 Equipped with both remote and touch controls, the lamp offers convenience at your fingertips. You can easily change settings without interrupting your workflow or leisure time. The lamp’s harmless light technology ensures that the emitted light is gentle on your eyes, promoting eye health during long reading or working sessions. Its sleek matte black finish and compact footprint make it a stylish and practical addition to any room.
 
-## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Izell Desk Lamp </a>
+## <a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Izell Desk Lamp </a>
 
 
-<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBMK7RCF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iZELL Desk Lamp, [3 Color Modes &amp; 10 Brightness] LED Reading Light with Clamp, Flexible Gooseneck Book Light for Kids Reading Book in Bed at Night Clip on Table, Headboard, Dorm - 15.8‘’ Black" src="https://m.media-amazon.com/images/I/41kabBTJ2SL._SL500_.jpg"/></a>
 
 
 The **iZELL Desk Lamp** is perfect for students, avid readers, and anyone who needs a versatile and adjustable lighting solution for their workspace or bedside. Ideal for those who study or read at night without disturbing others, this lamp’s flexible gooseneck and clamp design make it suitable for dorm rooms, bedrooms, or any desk setup. If you value customizable lighting and space-saving features, this lamp is designed for you.
@@ -185,10 +185,10 @@ The **iZELL Desk Lamp** boasts **3 color modes** — warm, cool, and natural whi
 
 Designed with convenience in mind, the lamp features a strong **clamp** that easily attaches to a variety of surfaces, from desks to headboards, making it a great addition for dorm rooms or shared spaces. Despite its compact size and lightweight build, the LED light delivers powerful illumination without generating excessive heat, making it safe and comfortable to use for extended periods. This combination of adaptability and efficiency makes the **iZELL Desk Lamp** a practical lighting solution for nighttime readers and students alike.
 
-## <a href="https://www.amazon.com/dp/B09YV633PL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp With Clamp</a>
+## <a href="https://www.amazon.com/dp/B09YV633PL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp With Clamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09YV633PL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp with Clamp, Architect Desk Lamp with Dual Light and Adjustable Swing Arm, Clip-on Eye-Care 4 CCT Modes &amp; 5 Brightness Levels Table Light Modern Computer Lighting for Home Office" src="https://m.media-amazon.com/images/I/41OuJOAs3vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YV633PL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp with Clamp, Architect Desk Lamp with Dual Light and Adjustable Swing Arm, Clip-on Eye-Care 4 CCT Modes &amp; 5 Brightness Levels Table Light Modern Computer Lighting for Home Office" src="https://m.media-amazon.com/images/I/41OuJOAs3vL._SL500_.jpg"/></a>
 
 
 The **LED Desk Lamp with Clamp** is ideal for students, professionals, and creatives who need flexible, eye-friendly lighting for their workspace. If you spend long hours working at a desk, whether reading, writing, drawing, or using a computer, this lamp is designed to provide adjustable and comfortable illumination that reduces eye strain and enhances productivity.
@@ -211,10 +211,10 @@ The **Micomlan LED Desk Lamp** features a long, adjustable swing arm measuring 4
 
 With its innovative **clamp-on design**, the lamp securely attaches to desks without taking up valuable surface area, keeping your workspace clean and organized. The **eye-care technology** minimizes flicker and harsh blue light, making it a healthy choice for prolonged usage. Its sleek black finish and touch controls add a modern aesthetic, making it a great addition to both home offices and professional environments.
 
-## <a href="https://www.amazon.com/dp/B09Q2RNM9Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B09Q2RNM9Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B09Q2RNM9Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp for Home Office, 3 Levels Dimmable Desk Light with USB Charging Port, Small Study Lamp, Reading Light for Table, Black, 5000K" src="https://m.media-amazon.com/images/I/31AJD9wF-GL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09Q2RNM9Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Desk Lamp for Home Office, 3 Levels Dimmable Desk Light with USB Charging Port, Small Study Lamp, Reading Light for Table, Black, 5000K" src="https://m.media-amazon.com/images/I/31AJD9wF-GL._SL500_.jpg"/></a>
 
 
 The **LED Desk Lamp for Home Office** is ideal for individuals seeking a compact and efficient lighting solution for their workspace or study area. Perfect for students, remote workers, and professionals who require adjustable brightness and convenient charging options, this lamp enhances productivity and comfort during long hours of use.
@@ -237,10 +237,10 @@ The **LED Desk Lamp** features three adjustable brightness levels, allowing user
 
 Additionally, the integrated **USB charging port** adds a layer of convenience by enabling users to charge smartphones, tablets, or other devices without cluttering their workspace with extra chargers. The lamp's modern black design blends seamlessly into any room decor, enhancing both functionality and aesthetic appeal. Overall, this desk lamp combines practical features with user-friendly benefits, making it a valuable addition to any home office or study environment.
 
-## <a href="https://www.amazon.com/dp/B0868HY623?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">White Crown Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0868HY623?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">White Crown Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0868HY623?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="White crown LED Desk Lamp Dimmable Table Lamp Reading Lamp with USB Charging Port, 5 Lighting Modes, Sensitive Control, 30/60 Minutes Timer (White, First-Generation)" src="https://m.media-amazon.com/images/I/214wF3dv8FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0868HY623?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="White crown LED Desk Lamp Dimmable Table Lamp Reading Lamp with USB Charging Port, 5 Lighting Modes, Sensitive Control, 30/60 Minutes Timer (White, First-Generation)" src="https://m.media-amazon.com/images/I/214wF3dv8FL._SL500_.jpg"/></a>
 
 
 The **White crown LED Desk Lamp** is ideal for students, professionals, and avid readers who require adjustable lighting for extended periods of work or study. If you need a versatile **table lamp** that combines modern design with functionality, especially with features like USB charging and customizable light settings, this lamp is a perfect fit. Its compact size makes it suitable for desks, bedside tables, and workstations.
@@ -264,10 +264,10 @@ The **White crown LED Desk Lamp** offers a combination of practicality and style
 
 Beyond its lighting capabilities, the inclusion of a **USB charging port** is a major benefit for modern users who often need to charge smartphones or other devices at their desks. The lamp’s compact and lightweight design ensures it can fit comfortably in various environments, from study desks to bedside tables. Overall, this lamp provides a smart solution for anyone seeking a functional and adaptable lighting option that supports productivity and comfort.
 
-## <a href="https://www.amazon.com/dp/B0CQ3ZGKP3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Giryuhd Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CQ3ZGKP3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Giryuhd Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQ3ZGKP3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Giryuhd LED Desk Lamp for Office Home &amp; Battery Operated Lamp Rechargeable Lamp Foldable &amp; Portable Light, LED Desk Light Strip, 3 Brightness Dimmable Small Desk Lamp Wireless Reading Lamp (White)" src="https://m.media-amazon.com/images/I/31D--h2P6BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQ3ZGKP3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Giryuhd LED Desk Lamp for Office Home &amp; Battery Operated Lamp Rechargeable Lamp Foldable &amp; Portable Light, LED Desk Light Strip, 3 Brightness Dimmable Small Desk Lamp Wireless Reading Lamp (White)" src="https://m.media-amazon.com/images/I/31D--h2P6BL._SL500_.jpg"/></a>
 
 
 The **Giryuhd LED Desk Lamp** is an ideal choice for individuals seeking a versatile and portable lighting solution. Perfect for office workers, students, or anyone who needs a reliable and adjustable light source for reading, studying, or working from home, this lamp suits those who value flexibility and convenience in their workspace lighting.

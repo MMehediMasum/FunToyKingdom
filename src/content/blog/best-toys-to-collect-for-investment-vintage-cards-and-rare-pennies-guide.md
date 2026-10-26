@@ -20,10 +20,10 @@ Collecting these toys requires patience but can pay off well. Knowing which toys
 
 
 
-## <a href="https://www.amazon.com/dp/B00HMUBYK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Us Wheat Pennies Shotgun Roll</a>
+## <a href="https://www.amazon.com/dp/B00HMUBYK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Us Wheat Pennies Shotgun Roll</a>
 
 
-<a href="https://www.amazon.com/dp/B00HMUBYK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Unsearched US Wheat Pennies/Cent/Lincoln Penny Shotgun Roll Great Investment!" src="https://m.media-amazon.com/images/I/417dj00SUzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00HMUBYK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Unsearched US Wheat Pennies/Cent/Lincoln Penny Shotgun Roll Great Investment!" src="https://m.media-amazon.com/images/I/417dj00SUzL._SL500_.jpg"/></a>
 
 
 The **Unsearched US Wheat Pennies/Cent/Lincoln Penny Shotgun Roll** is an ideal purchase for coin collectors, history enthusiasts, and investors seeking a tangible asset with potential long-term value. This item is perfect for those who appreciate the historical significance of the **Wheat Penny** and want to add a unique and valuable piece to their collection or investment portfolio. If you enjoy the thrill of uncovering rare finds and investing in classic American currency, this product is tailored for you.
@@ -46,10 +46,10 @@ The **Unsearched US Wheat Pennies** come in a shotgun roll, offering collectors 
 
 Investing in this roll allows buyers to own a piece of American history, with the possibility that some pennies could be worth significantly more than their face value. The **Wheat Penny** series is a popular choice among numismatists due to its limited minting period and the unique story behind each coin. Whether you are a seasoned collector or a newcomer looking to start a collection, this shotgun roll offers both the thrill of discovery and the potential for financial growth over time.
 
-## <a href="https://www.amazon.com/dp/B00ETMSOFI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topps Fleer Donruss Upper Deck Score Vintage Baseball Card Packs</a>
+## <a href="https://www.amazon.com/dp/B00ETMSOFI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topps Fleer Donruss Upper Deck Score Vintage Baseball Card Packs</a>
 
 
-<a href="https://www.amazon.com/dp/B00ETMSOFI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topps Fleer DONRUSS Upper Deck Score Vintage Baseball Card Packs: 600 Cards (1986-1994) - Mint Condition - Unopened, Unsearched, Unsorted - Collectible" src="https://m.media-amazon.com/images/I/51C-gIevLZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00ETMSOFI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topps Fleer DONRUSS Upper Deck Score Vintage Baseball Card Packs: 600 Cards (1986-1994) - Mint Condition - Unopened, Unsearched, Unsorted - Collectible" src="https://m.media-amazon.com/images/I/51C-gIevLZL._SL500_.jpg"/></a>
 
 
 The **Topps Fleer DONRUSS Upper Deck Score Vintage Baseball Card Packs** are perfect for avid **collectors** and **baseball enthusiasts** looking to expand their collection with authentic, **mint condition** cards from the golden era of baseball between **1986 and 1994**. Ideal for those who appreciate the nostalgia and value of **unopened, unsearched, and unsorted** packs, these cards offer a unique opportunity to discover rare gems and complete sets.

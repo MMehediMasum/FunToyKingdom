@@ -23,10 +23,10 @@ Nesting dolls like NEPOG Forest Animal sets encourage fine motor skills and curi
 
 
 
-## <a href="https://www.amazon.com/dp/B0BCYDB8FL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beautiful Handmade Mexican Doll</a>
+## <a href="https://www.amazon.com/dp/B0BCYDB8FL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Beautiful Handmade Mexican Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCYDB8FL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beautiful Handmade Mexican Doll - Lele Doll - Muneca - Unique Gift" src="https://m.media-amazon.com/images/I/51FHK+3tK5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCYDB8FL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Beautiful Handmade Mexican Doll - Lele Doll - Muneca - Unique Gift" src="https://m.media-amazon.com/images/I/51FHK+3tK5L._SL500_.jpg"/></a>
 
 
 The **Beautiful Handmade Mexican Doll**, also known as the **Lele Doll** or **Muneca**, is perfect for individuals seeking a **unique gift** that showcases authentic Mexican craftsmanship. This item is ideal for collectors of traditional folk art, those who appreciate handmade cultural items, or anyone looking to add a vibrant and meaningful decorative piece to their home.
@@ -49,10 +49,10 @@ This **Beautiful Handmade Mexican Doll** is created with intricate designs and v
 
 Beyond aesthetics, the doll serves as a meaningful cultural artifact that supports local artisans and preserves age-old crafting techniques. Its durability ensures that it can be cherished for years to come, whether displayed on a shelf or given as a **thoughtful and authentic gift**. With the **Generic brand** backing this item, buyers can expect quality and authenticity in every doll.
 
-## <a href="https://www.amazon.com/dp/B0C1Q3GQ2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">American Girl Truly Me 18-inch Doll Colorful Cubbies Locker Playset</a>
+## <a href="https://www.amazon.com/dp/B0C1Q3GQ2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">American Girl Truly Me 18-inch Doll Colorful Cubbies Locker Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1Q3GQ2Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="American Girl Truly Me 18-inch Doll Colorful Cubbies Locker Playset with Fold-out Hook and Real Chalkboard, For Ages 6+" src="https://m.media-amazon.com/images/I/31wIamHFYTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1Q3GQ2Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="American Girl Truly Me 18-inch Doll Colorful Cubbies Locker Playset with Fold-out Hook and Real Chalkboard, For Ages 6+" src="https://m.media-amazon.com/images/I/31wIamHFYTL._SL500_.jpg"/></a>
 
 
 The **American Girl Truly Me 18-inch Doll Colorful Cubbies Locker Playset** is perfect for children aged 6 and up who love imaginative play and organizing their doll accessories. This playset is ideal for young girls who enjoy creating personalized spaces for their dolls and engaging in creative storytelling. If your child appreciates interactive toys that combine fun with organization, this colorful pink locker playset is a great addition to their collection.
@@ -75,10 +75,10 @@ The **Colorful Cubbies Locker Playset** offers a unique blend of fun and functio
 
 Beyond its playful features, this playset promotes organizational skills by encouraging children to store and arrange their doll items neatly. Its vibrant **pink color** brightens any playroom, making it visually appealing and engaging. The sturdy construction ensures durability, while the compact size makes it easy to move or store when not in use. Overall, the American Girl Truly Me Colorful Cubbies Locker Playset is a delightful accessory that enhances imaginative play and helps children develop practical skills in a fun environment.
 
-## <a href="https://www.amazon.com/dp/B0F29BKPB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bencailor 6 Pcs Doll Clothes For 11.8 Inch Doll</a>
+## <a href="https://www.amazon.com/dp/B0F29BKPB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bencailor 6 Pcs Doll Clothes For 11.8 Inch Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0F29BKPB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bencailor 6 Pcs Doll Clothes for 11.8 Inch Doll Accessories Summer Tops Swimwear T Shirt Winter Coat Outfit Girl Birthday Gift" src="https://m.media-amazon.com/images/I/413ijPIvXzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F29BKPB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bencailor 6 Pcs Doll Clothes for 11.8 Inch Doll Accessories Summer Tops Swimwear T Shirt Winter Coat Outfit Girl Birthday Gift" src="https://m.media-amazon.com/images/I/413ijPIvXzL._SL500_.jpg"/></a>
 
 
 The **Bencailor 6 Pcs Doll Clothes** set is ideal for parents, gift shoppers, and collectors who own or gift **11.8 Inch dolls**. This set is perfect for those looking to enhance their doll's wardrobe with versatile outfits suitable for different seasons and occasions, including casual summer wear and cozy winter coats. If you want to provide your child or loved one with a variety of stylish and functional doll clothes, this set is an excellent choice.
@@ -100,10 +100,10 @@ The **Bencailor 6 Pcs Doll Clothes** set offers a thoughtful combination of summ
 
 Beyond the functional aspects, these outfits provide aesthetic appeal with their stylish design, making the dolls look trendy and well-dressed. This versatility makes the set a practical gift for birthdays or special occasions, offering both variety and quality. Whether for play or display, the Bencailor doll clothes collection enriches the overall doll experience, combining fashion and function in one convenient package.
 
-## <a href="https://www.amazon.com/dp/B0DZD5LT3G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nepog Forest Animal Nesting Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DZD5LT3G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nepog Forest Animal Nesting Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZD5LT3G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NEPOG Forest Animal Nesting Dolls, 5 PCS Brown Bear Fox Owl Rabbit Mouse Wooden Nesting Doll, Handmade Matryoshka Dolls for Kids Stacking Toy Birthday Christmas Decoration" src="https://m.media-amazon.com/images/I/51jsIWAOjvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZD5LT3G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NEPOG Forest Animal Nesting Dolls, 5 PCS Brown Bear Fox Owl Rabbit Mouse Wooden Nesting Doll, Handmade Matryoshka Dolls for Kids Stacking Toy Birthday Christmas Decoration" src="https://m.media-amazon.com/images/I/51jsIWAOjvL._SL500_.jpg"/></a>
 
 
 Ideal for parents and gift-givers looking for a unique and educational toy, the **NEPOG Forest Animal Nesting Dolls** are perfect for children who enjoy imaginative play and hands-on learning. These **handmade wooden nesting dolls** featuring a **brown bear, fox, owl, rabbit, and mouse** provide a charming way to develop fine motor skills and introduce kids to forest wildlife.
@@ -126,10 +126,10 @@ The **NEPOG Forest Animal Nesting Dolls** stand out with their charming design a
 
 Crafted from sturdy wood and finished with a classic black and white color scheme, these dolls are not only toys but also decorative pieces that can enhance any child's room. Their compact dimensions — approximately **6.1 inches in height and 2.6 inches in width and length** — make them easy to handle and store. Overall, they provide a delightful blend of educational engagement and aesthetic appeal for children and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B0DPYJNB3H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kennedy And Friends Complete Outfits For 18 Inch Fashion Girl Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DPYJNB3H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kennedy And Friends Complete Outfits For 18 Inch Fashion Girl Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPYJNB3H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kennedy and Friends Complete Outfits for 18 Inch Fashion Girl Dolls- 18 Inch Doll Clothes That Fits All 18 Inch Dolls (Khaki Girls Outfit)" src="https://m.media-amazon.com/images/I/31-yoUDXWOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPYJNB3H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kennedy and Friends Complete Outfits for 18 Inch Fashion Girl Dolls- 18 Inch Doll Clothes That Fits All 18 Inch Dolls (Khaki Girls Outfit)" src="https://m.media-amazon.com/images/I/31-yoUDXWOL._SL500_.jpg"/></a>
 
 
 Ideal for parents, gift givers, and collectors looking to enhance their child's playtime, the **Kennedy and Friends Complete Outfits for 18 Inch Fashion Girl Dolls** are perfect for anyone who owns **18 inch dolls** and wants to keep them stylish and ready for any occasion. These **18 inch doll clothes** are designed to fit all standard 18 inch dolls, making them a versatile addition to any doll wardrobe.
@@ -151,10 +151,10 @@ The **Kennedy and Friends Complete Outfits** offer a stylish and functional ward
 
 Beyond style, the outfit's lightweight and compact **dimensions** make it easy for children to handle and store. This encourages independent dressing skills and keeps the doll’s wardrobe organized. The use of durable materials means the outfit can endure frequent dressing and playtime activities, providing long-lasting enjoyment. Overall, this product enriches the doll play experience by combining practicality with fashionable appeal.
 
-## <a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Perfect In Every Way Reborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Perfect In Every Way Reborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Perfect in Every Way Reborn Baby Doll, 20 Inches, Hand-Painted Features, RealTouch Vinyl Skin, Pink Dress" src="https://m.media-amazon.com/images/I/41yFobTJEsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F9ZX2FY9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Perfect in Every Way Reborn Baby Doll, 20 Inches, Hand-Painted Features, RealTouch Vinyl Skin, Pink Dress" src="https://m.media-amazon.com/images/I/41yFobTJEsL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Perfect in Every Way Reborn Baby Doll** is ideal for collectors, doll enthusiasts, and anyone seeking a lifelike and beautifully crafted baby doll. Those who appreciate detailed artistry and realistic features will find this doll particularly appealing, making it a perfect gift or a cherished addition to a collection.
@@ -178,10 +178,10 @@ This **reborn baby doll** stands out with its meticulously hand-painted features
 
 Its size, at **20 inches**, offers a perfect balance between realistic presence and manageable handling. The doll’s lightweight design ensures that it can be easily held and posed without strain, ideal for display or gentle interaction. Additionally, the charming **pink dress** adds a sweet and appealing touch, making it a lovely decorative piece or a thoughtful gift for doll lovers. Overall, this doll combines artistry, quality, and practicality to deliver an exceptional collectible.
 
-## <a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sophia's Mini Dress Form Mannequin For 18-inch Doll Clothes</a>
+## <a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sophia's Mini Dress Form Mannequin For 18-inch Doll Clothes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sophia's Mini Dress Form Mannequin for 18-inch Doll Clothes with Pink Doll Hairbrush &amp; 10 Clothing Hangers, 18” Girl Doll Dressmaker Mannequin Playset, White/Cherry" src="https://m.media-amazon.com/images/I/312wa8yfPNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BZYWD2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sophia's Mini Dress Form Mannequin for 18-inch Doll Clothes with Pink Doll Hairbrush &amp; 10 Clothing Hangers, 18” Girl Doll Dressmaker Mannequin Playset, White/Cherry" src="https://m.media-amazon.com/images/I/312wa8yfPNL._SL500_.jpg"/></a>
 
 
 The **Sophia's Mini Dress Form Mannequin** is perfect for young fashion enthusiasts and doll collectors who enjoy designing and styling **18-inch doll clothes**. Ideal for kids and hobbyists looking to enhance their creative play or showcase their handmade doll outfits, this playset combines functionality with fun, making it a great addition to any doll lover’s collection.
@@ -203,10 +203,10 @@ The **Sophia's Mini Dress Form Mannequin** stands out with its tailored size and
 
 Beyond play, this mannequin encourages creativity and fine motor skills as children experiment with different clothing combinations and hairdos. The compact dimensions make it easy to place on a desk or shelf, turning any space into a mini fashion studio. Overall, this set combines practical design with imaginative fun, making it an excellent choice for anyone looking to nurture a passion for doll fashion and design.
 
-## <a href="https://www.amazon.com/dp/B0DYJSWPDX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xingmifds Doll House For Girls</a>
+## <a href="https://www.amazon.com/dp/B0DYJSWPDX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Xingmifds Doll House For Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DYJSWPDX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XINGMIFDS Doll House for Girls,10 Rooms Dollhouse with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8+Year Old Girls Toys (Purple)" src="https://m.media-amazon.com/images/I/41RtpySTMjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DYJSWPDX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="XINGMIFDS Doll House for Girls,10 Rooms Dollhouse with Dolls Figure, Puppies,Furnitures, Accessories, LED Light, Toddler Playhouse Gift for for 3 4 5 6 7 8+Year Old Girls Toys (Purple)" src="https://m.media-amazon.com/images/I/41RtpySTMjL._SL500_.jpg"/></a>
 
 
 The **XINGMIFDS Doll House for Girls** is perfect for young children aged **3 to 8 years old** who love imaginative play. Ideal for toddlers and early elementary kids, this dollhouse offers a creative and engaging way to develop social and motor skills while having fun with the included dolls, puppies, and accessories. Parents looking for a comprehensive, interactive playhouse that encourages storytelling and role-playing will find this product an excellent choice.
@@ -229,10 +229,10 @@ The **XINGMIFDS Doll House** features a spacious layout with **10 distinct rooms
 
 Beyond entertainment, this dollhouse supports developmental benefits by enhancing **fine motor skills** as kids manipulate small furniture and figures. It also fosters **social skills** when children play together, sharing roles and stories. Its size is ideal for toddlers and young children to comfortably access all parts without frustration, making it a thoughtful gift for birthdays or holidays.
 
-## <a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Tummy Time With Taytum Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Ashton-drake Galleries Tummy Time With Taytum Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Tummy Time with Taytum Baby Doll, 20 inches, Realistic Vinyl Skin, Hand-Rooted Hair, by Artist Ping Lau" src="https://m.media-amazon.com/images/I/41G43EmrByL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBC9NXBX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Ashton-Drake Galleries Tummy Time with Taytum Baby Doll, 20 inches, Realistic Vinyl Skin, Hand-Rooted Hair, by Artist Ping Lau" src="https://m.media-amazon.com/images/I/41G43EmrByL._SL500_.jpg"/></a>
 
 
 The **Ashton-Drake Galleries Tummy Time with Taytum Baby Doll** is perfect for collectors and doll enthusiasts who appreciate lifelike artistry and detailed craftsmanship. Ideal for those seeking a realistic and beautifully crafted baby doll with **vinyl skin** and **hand-rooted hair**, this 20-inch doll offers a charming and authentic experience. It is also suitable for parents and caregivers looking for a comforting and engaging doll for children.
@@ -255,10 +255,10 @@ The **Tummy Time with Taytum Baby Doll** features exquisitely detailed **realist
 
 Designed by **The Ashton-Drake Galleries**, this doll combines artistry with functionality. Its lightweight **4-pound** body allows for easy handling, while the overall craftsmanship ensures durability and lasting appeal. Whether used for nurturing play or as a display collectible, the doll’s authentic features provide emotional comfort and joy to its owners, embodying the essence of a real baby’s presence.
 
-## <a href="https://www.amazon.com/dp/B0DT6XPZ8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">7 Pcs Baby Accessories Reborn Baby Dolls Clothes</a>
+## <a href="https://www.amazon.com/dp/B0DT6XPZ8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">7 Pcs Baby Accessories Reborn Baby Dolls Clothes</a>
 
 
-<a href="https://www.amazon.com/dp/B0DT6XPZ8T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="7 Pcs Baby Accessories,Reborn Baby Dolls Clothes with Bassinet Soother Quilt Pillow Headband Onesie for 17-22 Inch Dolls,Outfit fit Newborn Babies Doll Girl, Babies Pretend Play Set" src="https://m.media-amazon.com/images/I/41IuDiPAKpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DT6XPZ8T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="7 Pcs Baby Accessories,Reborn Baby Dolls Clothes with Bassinet Soother Quilt Pillow Headband Onesie for 17-22 Inch Dolls,Outfit fit Newborn Babies Doll Girl, Babies Pretend Play Set" src="https://m.media-amazon.com/images/I/41IuDiPAKpL._SL500_.jpg"/></a>
 
 
 The **7 Pcs Baby Accessories** set by **BUDARUNS** is perfect for parents and collectors who own **17-22 inch reborn baby dolls**. Ideal for those who want to enhance their **newborn baby doll girl's** wardrobe and create a more realistic and engaging pretend play experience. This set is especially suitable for children who enjoy imaginative play and caregivers looking for quality doll clothes and accessories.

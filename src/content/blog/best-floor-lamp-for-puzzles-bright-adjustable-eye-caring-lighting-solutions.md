@@ -23,10 +23,10 @@ Eye-caring lamps reduce glare and prevent tired eyes during long puzzle sessions
 
 
 
-## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQK6PCZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp for Office with Double Head, Adjustable Gooseneck Dimmable Modern Standing Light for Lash Extension Craft, Eye Caring Floor Lamps for Living Room" src="https://m.media-amazon.com/images/I/41ewnOU980L._SL500_.jpg"/></a>
 
 
 The **LED Floor Lamp, 15W/1800LM Bright Reading Floor Lamp** is ideal for individuals who need focused, adjustable lighting for detailed tasks such as reading, crafting, or lash extensions. Perfect for professionals working in offices or creative studios, as well as anyone looking to enhance their living room with a modern, eye-caring light source.
@@ -50,10 +50,10 @@ This **Seaside village LED Floor Lamp** is designed with a powerful 15W LED outp
 
 The lamp's modern and sleek black design fits seamlessly into offices or living rooms, while its tall 63-inch stature ensures wide light dispersion. The adjustable gooseneck arms enhance usability by offering personalized lighting angles, making it highly practical for lash extension artists, crafters, or avid readers. Overall, this floor lamp combines functionality with eye-friendly technology to create a comfortable and efficient lighting solution.
 
-## <a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wiomio Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08BY9124H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BY9124H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Floor Lamp -WioMio Led Floor Lamp with Remote and Touch Control for Stepless Dimmer &amp; Temperatures, Harmless Light for Eye-caring, Adjustable Gooseneck Standing Lamp for Living Room &amp; Bedroom." src="https://m.media-amazon.com/images/I/31OiulQeT0L._SL500_.jpg"/></a>
 
 
 The **WioMio LED Floor Lamp** is an excellent choice for individuals seeking a versatile and eye-friendly lighting solution for their **living room** or **bedroom**. Ideal customers include those who value adjustable lighting settings, such as students, professionals working from home, or anyone who enjoys relaxing in a well-lit environment without straining their eyes.
@@ -76,10 +76,10 @@ The **WioMio LED Floor Lamp** boasts a **69-inch height** and a slim design that
 
 Equipped with both **remote** and **touch control**, the lamp offers ultimate convenience, enabling users to switch settings without interrupting their tasks. The **adjustable gooseneck** provides precise control over the direction of light, enhancing functionality for tasks like reading or crafting. Overall, the lamp’s design and features deliver both style and practicality, catering to users who prioritize comfort and customizable lighting.
 
-## <a href="https://www.amazon.com/dp/B0C14D5CX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marctronic Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C14D5CX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marctronic Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C14D5CX6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="marctronic Floor Lamp, 18W 1800LM Super Bright LED Floor Lamp with Remote &amp; Works with Smart Plug, Dimmable Timing Eye Caring Reading Lamps Floor Standing for Living Room Bedroom Office" src="https://m.media-amazon.com/images/I/51pZd4xqoDL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C14D5CX6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="marctronic Floor Lamp, 18W 1800LM Super Bright LED Floor Lamp with Remote &amp; Works with Smart Plug, Dimmable Timing Eye Caring Reading Lamps Floor Standing for Living Room Bedroom Office" src="https://m.media-amazon.com/images/I/51pZd4xqoDL._SL500_.jpg"/></a>
 
 
 The **marctronic Floor Lamp** is ideal for individuals seeking a versatile and energy-efficient lighting solution for their **living room, bedroom, or office**. If you value **super bright illumination**, ease of control through a **remote** or smart devices, and want to protect your eyes during long reading or work sessions, this lamp is a perfect choice.
@@ -102,10 +102,10 @@ The **marctronic Floor Lamp** features a powerful **18W LED light** that emits *
 
 Additionally, this floor lamp supports remote control and smart plug compatibility, offering modern convenience. Users can easily switch the lamp on or off, adjust brightness levels, and set timers through a remote or voice commands when connected to smart home systems. The lamp’s sleek **black color** and space-saving dimensions make it a stylish yet practical addition to any living space or office environment.
 
-## <a href="https://www.amazon.com/dp/B0C5M53FGF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C5M53FGF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5M53FGF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 18W Super Bright Floor Lamp for Living Room, Adjustable Stepless Colors &amp; Brightness Gooseneck Standing Lamp, Eye Caring Reading Light with Remote&amp; Touch Control for Bedroom Office" src="https://m.media-amazon.com/images/I/41iuqc-JRIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5M53FGF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LED Floor Lamp, 18W Super Bright Floor Lamp for Living Room, Adjustable Stepless Colors &amp; Brightness Gooseneck Standing Lamp, Eye Caring Reading Light with Remote&amp; Touch Control for Bedroom Office" src="https://m.media-amazon.com/images/I/41iuqc-JRIL._SL500_.jpg"/></a>
 
 
 The **LED Floor Lamp** by **Aisutha** is perfect for individuals seeking a versatile and efficient lighting solution for their **living room**, **bedroom**, or **office**. Ideal for readers, remote workers, or anyone who values customizable lighting, this lamp offers stepless adjustment of both **brightness** and **color temperature** to create the perfect ambiance for any activity.
@@ -128,10 +128,10 @@ The **Aisutha LED Floor Lamp** stands out for its combination of brightness and 
 
 Equipped with **eye caring technology**, this lamp minimizes glare and reduces eye fatigue, which is especially beneficial during prolonged use. The dual control options, including both **remote and touch controls**, provide flexibility and ease of use. Overall, this lamp combines style, functionality, and health-conscious features, making it a valuable addition to any home or office space.
 
-## <a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pacovy Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pacovy Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PACOVY Floor Lamp, Adjustable Height Floor Lamps for Living Room Bedroom, 120 LED Super Bright Standing Lamp Remote &amp; Touch Control Dimmable Gooseneck Tall Stand Reading Lamp for Office Craft, Black" src="https://m.media-amazon.com/images/I/41qdi-5zLNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DP7C3XK9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PACOVY Floor Lamp, Adjustable Height Floor Lamps for Living Room Bedroom, 120 LED Super Bright Standing Lamp Remote &amp; Touch Control Dimmable Gooseneck Tall Stand Reading Lamp for Office Craft, Black" src="https://m.media-amazon.com/images/I/41qdi-5zLNL._SL500_.jpg"/></a>
 
 
 The **PACOVY Floor Lamp** is ideal for individuals seeking a versatile and powerful lighting solution for their **living room**, **bedroom**, or **office**. Whether you are a reader, crafter, or someone who needs bright, adjustable lighting for various tasks, this lamp is designed to offer convenience and style with its modern black finish and customizable features.
@@ -154,10 +154,10 @@ The **PACOVY Floor Lamp** features a tall standing design with an adjustable hei
 
 With both remote and touch controls, the lamp offers user-friendly operation, enabling you to easily turn the light on or off and adjust brightness levels to your preference. The flexible gooseneck arm further enhances usability by letting you direct the light exactly where it’s needed. This combination of features ensures the **PACOVY Floor Lamp** meets the demands of various lighting needs efficiently and elegantly.
 
-## <a href="https://www.amazon.com/dp/B08L7DD8L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimunt Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B08L7DD8L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dimunt Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08L7DD8L9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimunt LED Floor Lamp, Bright 15W Floor Lamps for Living Room with 1H Timer, Stepless Adjustable 3000K-6000K Colors &amp; Brightness Standing Lamp with Remote &amp; Touch Control Reading Floor Lamps" src="https://m.media-amazon.com/images/I/31lPQl-E++L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L7DD8L9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimunt LED Floor Lamp, Bright 15W Floor Lamps for Living Room with 1H Timer, Stepless Adjustable 3000K-6000K Colors &amp; Brightness Standing Lamp with Remote &amp; Touch Control Reading Floor Lamps" src="https://m.media-amazon.com/images/I/31lPQl-E++L._SL500_.jpg"/></a>
 
 
 The **Dimunt LED Floor Lamp** is ideal for individuals seeking a versatile and energy-efficient lighting solution for their **living room** or reading space. Whether you're a book lover wanting optimal lighting or someone who appreciates customizable ambiance, this floor lamp offers adjustable brightness and color temperatures to suit various moods and tasks. Its sleek black design fits seamlessly into modern home decor, making it perfect for homeowners and renters alike.
@@ -180,10 +180,10 @@ The **Dimunt LED Floor Lamp** features a powerful 15W LED light that ensures bri
 
 Additionally, the lamp’s intuitive control system, combining both **remote and touch control**, offers maximum convenience without the need to get up or fumble in the dark. The integrated 1-hour timer enhances energy efficiency by automatically turning off the lamp, which is particularly useful for bedtime reading or short tasks. Compact and lightweight, the lamp fits well in various spaces, making it a practical and stylish addition to any living room or reading nook.
 
-## <a href="https://www.amazon.com/dp/B0C2YZ9MCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daysoft Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0C2YZ9MCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daysoft Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0C2YZ9MCY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DAYSOFT LED Floor Lamp for Reading Floor Lamp for Home Office Lash Light Tattoo Light Standing Lamp for Bedroom Task Craft Sewing Nail Lights" src="https://m.media-amazon.com/images/I/31+-0xCUEfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C2YZ9MCY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DAYSOFT LED Floor Lamp for Reading Floor Lamp for Home Office Lash Light Tattoo Light Standing Lamp for Bedroom Task Craft Sewing Nail Lights" src="https://m.media-amazon.com/images/I/31+-0xCUEfL._SL500_.jpg"/></a>
 
 
 The **DAYSOFT LED Floor Lamp** is perfect for individuals who require focused, adjustable lighting for detailed tasks such as reading, crafting, tattooing, sewing, or nail art. Ideal for professionals and hobbyists working in home offices, studios, or bedrooms, this lamp offers reliable illumination to enhance productivity and reduce eye strain.
@@ -206,10 +206,10 @@ The **DAYSOFT LED Floor Lamp** features a compact yet effective design, with dim
 
 Equipped with efficient LED technology, this lamp provides bright, clear light that reduces eye fatigue during extended use. Whether you are reading late at night or performing detailed craftwork, the **DAYSOFT LED Floor Lamp** helps improve focus and accuracy. Its adaptable lighting makes it a valuable addition to any home office, studio, or bedroom setup, ensuring users enjoy both comfort and functionality.
 
-## <a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brightech Litespan</a>
+## <a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brightech Litespan</a>
 
 
-<a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brightech Litespan - Bright LED Floor Reading Lamp for Over Chair Crafts and Reading, Estheticians' Light for Lash Extensions, Adjustable Standing Lamp for Living Room, Bedroom, Office - Jet Black" src="https://m.media-amazon.com/images/I/31KBhFVFL-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00VJ4SHZG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brightech Litespan - Bright LED Floor Reading Lamp for Over Chair Crafts and Reading, Estheticians' Light for Lash Extensions, Adjustable Standing Lamp for Living Room, Bedroom, Office - Jet Black" src="https://m.media-amazon.com/images/I/31KBhFVFL-L._SL500_.jpg"/></a>
 
 
 The **Brightech Litespan** is ideal for individuals who need a versatile and bright lighting solution for detailed tasks such as reading, crafting, or professional work like lash extensions. Whether you are an avid reader, a craft enthusiast, or a professional esthetician, this **adjustable standing lamp** in **jet black** offers focused illumination that enhances productivity and reduces eye strain.
@@ -231,10 +231,10 @@ The **Brightech Litespan** features a powerful **LED floor lamp** design that en
 
 Constructed with a sleek **jet black finish**, this lamp not only enhances functionality but also adds a touch of modern elegance to living rooms, bedrooms, or offices. Despite its compact and lightweight build, it delivers robust lighting performance, making it a practical addition for users who value both style and efficiency in their lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starmoitic Led Floor Lamp For Office</a>
+## <a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Starmoitic Led Floor Lamp For Office</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarMoitic Led Floor Lamp for Office, 24W 2400LM Tall Reading Lamp, Dual Head Standing Task Lamp with Remote, Large Goose Neck Lash Light, Craft Work Lights, Puzzle Lights for Tattoo, Piano, Sewing" src="https://m.media-amazon.com/images/I/415c2slNB0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQJQHJ4G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="StarMoitic Led Floor Lamp for Office, 24W 2400LM Tall Reading Lamp, Dual Head Standing Task Lamp with Remote, Large Goose Neck Lash Light, Craft Work Lights, Puzzle Lights for Tattoo, Piano, Sewing" src="https://m.media-amazon.com/images/I/415c2slNB0L._SL500_.jpg"/></a>
 
 
 The **StarMoitic Led Floor Lamp for Office** is ideal for professionals and hobbyists who require focused, adjustable lighting for detailed tasks. Whether you're a tattoo artist, pianist, sewer, or engaged in any craftwork, this **dual head standing task lamp** offers the precision and brightness needed to enhance your workspace efficiently. Its versatility and ergonomic design make it perfect for anyone seeking a reliable and powerful lighting solution in their office or creative studio.
@@ -257,10 +257,10 @@ The **StarMoitic Led Floor Lamp** features a robust 24W LED system that delivers
 
 Additionally, the inclusion of a remote control adds convenience, enabling users to adjust lighting settings effortlessly without interrupting their work. The lamp’s tall stature and elegant black finish ensure it integrates seamlessly into various environments, from professional offices to creative studios. Overall, this lamp combines functionality, style, and ease of use to elevate your workspace lighting experience.
 
-## <a href="https://www.amazon.com/dp/B0D3H2L6GY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tigial Led Floor Lamp</a>
+## <a href="https://www.amazon.com/dp/B0D3H2L6GY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tigial Led Floor Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3H2L6GY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tigial LED Floor Lamp with Remote Control Foot Switch for Living Room, Stepless Adjustable Colour Temperature Brightness Standing Lamp with Timer, Eye Caring Tall Lamp Reading for Bedroom,office, Gift" src="https://m.media-amazon.com/images/I/31T6vqHgODL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3H2L6GY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tigial LED Floor Lamp with Remote Control Foot Switch for Living Room, Stepless Adjustable Colour Temperature Brightness Standing Lamp with Timer, Eye Caring Tall Lamp Reading for Bedroom,office, Gift" src="https://m.media-amazon.com/images/I/31T6vqHgODL._SL500_.jpg"/></a>
 
 
 The **Tigial LED Floor Lamp with Remote Control Foot Switch** is an ideal choice for individuals seeking a versatile and user-friendly lighting solution. Whether you are a student needing focused light for late-night study sessions, a professional working from home, or someone who enjoys reading in a cozy corner, this lamp caters perfectly to your needs with its adjustable brightness and color temperature features.

@@ -23,10 +23,10 @@ Other puzzle glues like PHILODOGS or LANBEIDE offer quick-drying and non-toxic f
 
 
 
-## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DC4RXF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver (8-Ounce), CS15068, White" src="https://m.media-amazon.com/images/I/51tT5qEwFAL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver (8-Ounce), CS15068, White** is perfect for puzzle enthusiasts who want to preserve their completed puzzles as keepsakes or artwork. Ideal for crafters and hobbyists looking to protect their puzzles from wear and tear, this product is also great for those who wish to display their finished puzzles without the fear of pieces coming apart. If you want a reliable solution to safeguard your puzzle projects, this item is for you.
@@ -49,10 +49,10 @@ The **Mod Podge Puzzle Saver** features a unique formula that adheres securely t
 
 By using this puzzle saver, users can transform their puzzles into lasting displays or wall art. The protective coating helps maintain the puzzle's integrity over time, resisting dust and moisture. Whether you are a casual puzzler or an avid collector, this product offers a simple yet effective way to preserve your treasured puzzle creations. The white color adds a subtle sheen, enhancing the overall look without overpowering the image beneath.
 
-## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
+## <a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Puzzle Saver</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7LRRN6H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish, 8 fl oz, CS27589, Clear" src="https://m.media-amazon.com/images/I/51nwxYbrvzL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Puzzle Saver, Premium Matte All-in-One Glue, Sealer, and Finish** is ideal for puzzle enthusiasts and crafters who want to preserve their completed puzzles in a durable, clear finish. If you enjoy assembling puzzles and wish to display or keep them intact without the risk of pieces falling apart, this product is perfect for you. It is also suitable for DIY hobbyists looking for a reliable, multi-purpose adhesive and sealer for various creative projects.
@@ -75,10 +75,10 @@ The **Mod Podge Puzzle Saver** features an easy-to-use brush-on formula that dri
 
 Beyond puzzles, this all-in-one glue and sealer can be used for a variety of crafting projects, giving hobbyists great versatility. Its clear formulation ensures that the natural colors and details of your puzzle or craft remain vibrant and intact. Thanks to its compact size and trusted brand, users can confidently protect their cherished creations with ease and professional-looking results.
 
-## <a href="https://www.amazon.com/dp/B00178QQJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer, Glue &amp; Finish</a>
+## <a href="https://www.amazon.com/dp/B00178QQJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer, Glue &amp; Finish</a>
 
 
-<a href="https://www.amazon.com/dp/B00178QQJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41zs6k410RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00178QQJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41zs6k410RL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Gloss Sealer, Glue & Finish** is perfect for crafters and DIY enthusiasts looking for an all-in-one solution to seal, glue, and finish their projects. Ideal for those working with **wood, paper, fabric**, and other materials, this product is especially suited for hobbyists who value quick drying times and easy cleanup without compromising on quality. Whether you are a beginner or an experienced crafter, this **non-toxic** sealer offers a reliable and versatile option to enhance your creations.
@@ -102,10 +102,10 @@ The **Mod Podge Gloss Sealer** stands out for its multifunctional use, serving a
 
 Users will appreciate the ease of cleaning up thanks to its water-based, **non-toxic** composition, which also ensures safety during use. The compact 16 oz. size and ergonomic packaging make it easy to handle and store. Whether you're creating decorative items, school projects, or personalized gifts, this product helps achieve professional-looking results while maintaining user confidence and convenience throughout the crafting process.
 
-## <a href="https://www.amazon.com/dp/B0018N7J8E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer</a>
+## <a href="https://www.amazon.com/dp/B0018N7J8E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Gloss Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B0018N7J8E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 32 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41Itk29gg+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0018N7J8E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Gloss Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 32 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41Itk29gg+L._SL500_.jpg"/></a>
 
 
 The **Mod Podge Gloss Sealer, Glue & Finish** is ideal for crafters, DIY enthusiasts, and artists looking for an all-in-one solution to seal, glue, and finish their projects. Whether you work with **wood, paper, fabric**, or other materials, this product is perfect for those who want a **quick-drying**, **easy-to-clean**, and **non-toxic** craft adhesive and sealer that delivers a beautiful **glossy finish**. It is especially suited for hobbyists who value convenience and reliability in their craft supplies.
@@ -128,10 +128,10 @@ The **Mod Podge Gloss Sealer, Glue & Finish** offers a versatile crafting experi
 
 Additionally, its compatibility with multiple surfaces such as **wood, paper, and fabric** gives users great flexibility to experiment with different materials. The glossy finish not only protects your work but also enhances the colors and textures, giving your creations a professional and polished look. Being **non-toxic**, it ensures a safe crafting environment, especially for younger artists and families. Overall, this product is designed to provide confidence and convenience to every crafter.
 
-## <a href="https://www.amazon.com/dp/B001IKES5O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
+## <a href="https://www.amazon.com/dp/B001IKES5O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
 
 
-<a href="https://www.amazon.com/dp/B001IKES5O?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41-iDD8CrqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B001IKES5O?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 16 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41-iDD8CrqL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Matte Sealer, Glue & Finish** is ideal for crafters, DIY enthusiasts, and artists who seek a versatile, all-in-one solution for sealing, gluing, and finishing their projects. Whether you work with **wood**, **paper**, **fabric**, or more, this product is perfect for those wanting a reliable, **non-toxic** formula that dries quickly and cleans up easily. It’s especially suited for individuals who value convenience and quality in their crafting materials.
@@ -155,10 +155,10 @@ The **Mod Podge Matte Sealer, Glue & Finish** combines three essential crafting 
 
 This product’s **non-toxic** formulation provides peace of mind, especially for families, educators, and hobbyists working in shared or home spaces. The matte finish offers a subtle, professional look to finished projects, enhancing the natural texture and colors of materials like **wood, paper, and fabric**. The compact 16 oz. bottle is convenient to handle and store, and being manufactured in the **USA** assures users of consistent quality and safety standards. Overall, this Mod Podge is an excellent choice for anyone seeking a dependable, multifunctional crafting adhesive and sealer.
 
-## <a href="https://www.amazon.com/dp/B0009ILH8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
+## <a href="https://www.amazon.com/dp/B0009ILH8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mod Podge Matte Sealer, Glue &amp; Finish</a>
 
 
-<a href="https://www.amazon.com/dp/B0009ILH8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 32 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41vB7XN9ooL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0009ILH8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mod Podge Matte Sealer, Glue &amp; Finish: All-in-One Craft Solution- Quick Dry, Easy Clean, for Wood, Paper, Fabric &amp; More. Non-Toxic - Craft with Confidence, Made in USA, 32 oz., Pack of 1" src="https://m.media-amazon.com/images/I/41vB7XN9ooL._SL500_.jpg"/></a>
 
 
 The **Mod Podge Matte Sealer, Glue & Finish** is ideal for crafters and DIY enthusiasts who want an all-in-one solution for sealing, gluing, and finishing their projects. Whether you work with **wood, paper, fabric**, or other materials, this product is perfect for those seeking a quick-drying, easy-to-clean, and non-toxic option to enhance their creations with a professional matte finish.
@@ -183,10 +183,10 @@ The **Mod Podge Matte Sealer, Glue & Finish** stands out with its multifunctiona
 
 Crafted with a **non-toxic formula**, this product ensures safety during use, making it a great option for family crafting sessions or educational projects. Additionally, its **matte finish** delivers a smooth, subtle look that enhances the natural beauty of materials like wood and fabric without the distraction of shine, perfect for those aiming for a more understated aesthetic.
 
-## <a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topwey Diamond Painting Accessories Glue</a>
+## <a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Topwey Diamond Painting Accessories Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topwey Diamond Painting Accessories, Glue for Diamond Art, Puzzle, Accessories for Diamond Painting Kits for Adults (125 ML*2)" src="https://m.media-amazon.com/images/I/41wqFaSu0CL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CC2F7KR6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Topwey Diamond Painting Accessories, Glue for Diamond Art, Puzzle, Accessories for Diamond Painting Kits for Adults (125 ML*2)" src="https://m.media-amazon.com/images/I/41wqFaSu0CL._SL500_.jpg"/></a>
 
 
 The **Topwey Diamond Painting Accessories, Glue for Diamond Art** is perfect for crafters and hobbyists who enjoy creating detailed diamond art, puzzles, and DIY kits. Ideal for adults who want a reliable and easy-to-use adhesive to enhance their diamond painting projects, this product ensures precision and lasting results. If you are looking for a high-quality glue to keep your diamond pieces securely in place, this set is an excellent choice.
@@ -208,10 +208,10 @@ The **Topwey Diamond Painting Glue** is designed with precision in mind, offerin
 
 Additionally, the glue's formulation ensures that diamond pieces adhere firmly to the canvas, preventing loss or displacement over time. The inclusion of two 125 ML bottles provides ample supply for multiple projects, making it a cost-effective solution for frequent diamond painters. Overall, this accessory enhances the crafting experience by combining ease of use with durable results.
 
-## <a href="https://www.amazon.com/dp/B0B45KJDQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lanbeide 2 Pack Diamond Painting Sealer</a>
+## <a href="https://www.amazon.com/dp/B0B45KJDQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lanbeide 2 Pack Diamond Painting Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B0B45KJDQ9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LANBEIDE 2 Pack 240ML Diamond Painting Sealer, 5D Diamond Painting Art Glue Permanent Hold &amp; Shine Effect Sealer for Diamond Painting and Puzzles" src="https://m.media-amazon.com/images/I/41doO89p9JL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B45KJDQ9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LANBEIDE 2 Pack 240ML Diamond Painting Sealer, 5D Diamond Painting Art Glue Permanent Hold &amp; Shine Effect Sealer for Diamond Painting and Puzzles" src="https://m.media-amazon.com/images/I/41doO89p9JL._SL500_.jpg"/></a>
 
 
 The **LANBEIDE 2 Pack 240ML Diamond Painting Sealer** is ideal for craft enthusiasts and hobbyists who want to preserve their **5D diamond paintings** or puzzles with a long-lasting, glossy finish. If you are someone who values the durability and shine of your artwork, this product is designed to provide a **permanent hold** and enhance the overall appearance of your creations. It's perfect for both beginners and experienced crafters looking to protect their masterpieces.
@@ -235,10 +235,10 @@ The **LANBEIDE Diamond Painting Sealer** is specially formulated to provide a **
 
 Designed with user convenience in mind, the sealer comes in a manageable bottle size with a smooth texture that allows for easy and even application. Whether you're sealing a delicate puzzle or a detailed diamond painting, the sealer dries quickly without leaving a sticky residue. This product is a must-have for anyone looking to extend the lifespan of their craft projects while maintaining their visual brilliance and durability.
 
-## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
+## <a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Philodogs Puzzle Glue</a>
 
 
-<a href="https://www.amazon.com/dp/B0894SWHHW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0894SWHHW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PHILODOGS Puzzle Glue - Clear, Quick-Drying, Non-Toxic Glue for Kids &amp; Adults - 120ml for Perfectly Preserved Puzzles" src="https://m.media-amazon.com/images/I/51I2VYa7asL._SL500_.jpg"/></a>
 
 
 The **PHILODOGS Puzzle Glue** is perfect for puzzle enthusiasts of all ages, especially those who want to preserve their completed jigsaw puzzles for display or storage. Ideal for both **kids and adults**, this clear, quick-drying, and **non-toxic glue** ensures a safe and effective solution to keep your puzzles intact without damaging the pieces.
@@ -261,10 +261,10 @@ The **PHILODOGS Puzzle Glue** features a specially formulated adhesive designed 
 
 Additionally, the glue’s **non-toxic formula** provides peace of mind, especially when used around children. The compact size and easy-to-handle bottle make application straightforward, while the glue’s strong hold prevents puzzle pieces from coming apart over time. Whether you’re a casual puzzler or a dedicated hobbyist, this glue supports preserving your puzzles beautifully and safely.
 
-## <a href="https://www.amazon.com/dp/B09YR8VXWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lanbeide Diamond Painting Sealer</a>
+## <a href="https://www.amazon.com/dp/B09YR8VXWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lanbeide Diamond Painting Sealer</a>
 
 
-<a href="https://www.amazon.com/dp/B09YR8VXWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LANBEIDE 200ML Diamond Painting Sealer with Silicone Brush, Updated 5D Diamond Painting Glue Sealer Permanent Hold &amp; Shine Effect Conserver for Diamond Painting and Jigsaw Puzzles (7 OZ)" src="https://m.media-amazon.com/images/I/41IgXTjO5PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09YR8VXWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LANBEIDE 200ML Diamond Painting Sealer with Silicone Brush, Updated 5D Diamond Painting Glue Sealer Permanent Hold &amp; Shine Effect Conserver for Diamond Painting and Jigsaw Puzzles (7 OZ)" src="https://m.media-amazon.com/images/I/41IgXTjO5PL._SL500_.jpg"/></a>
 
 
 Ideal for **diamond painting enthusiasts** and **jigsaw puzzle hobbyists**, the **LANBEIDE 200ML Diamond Painting Sealer** offers a reliable solution to preserve and enhance your completed artwork. If you want to ensure your projects maintain their vibrant shine and stay securely intact over time, this sealer is designed specifically to meet those needs.

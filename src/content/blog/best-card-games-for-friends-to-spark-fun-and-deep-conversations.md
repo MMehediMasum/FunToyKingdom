@@ -23,10 +23,10 @@ Whether you want deep talks or lighthearted fun, the right card game makes it ea
 
 
 
-## <a href="https://www.amazon.com/dp/B09KZ742NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Let's Get Deep: Friends Edition</a>
+## <a href="https://www.amazon.com/dp/B09KZ742NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Let's Get Deep: Friends Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B09KZ742NG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Let's Get Deep: Friends Edition by Relatable, Fun Group Card Game for Game Night, Perfect for Party Games with Friends, Includes 400 Question Cards, Three Increasingly Personal Levels" src="https://m.media-amazon.com/images/I/41MPY5VhCGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09KZ742NG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Let's Get Deep: Friends Edition by Relatable, Fun Group Card Game for Game Night, Perfect for Party Games with Friends, Includes 400 Question Cards, Three Increasingly Personal Levels" src="https://m.media-amazon.com/images/I/41MPY5VhCGL._SL500_.jpg"/></a>
 
 
 The **Let's Get Deep: Friends Edition** by **Relatable** is an ideal choice for those who enjoy engaging and meaningful conversations with friends. This **fun group card game** is perfect for game nights, parties, or any social gathering where players want to connect on a deeper level through thought-provoking questions. If you’re looking for a way to break the ice or strengthen friendships with a playful twist, this game is made for you.
@@ -49,10 +49,10 @@ The **Let's Get Deep: Friends Edition** offers a unique structure with its three
 
 Beyond just entertainment, this game fosters genuine connection and understanding among friends. Its thoughtful design by **What Do You Meme LLC** combines fun with emotional depth, making it a valuable addition to any game night. Whether you want to learn more about your friends or simply enjoy a lively evening, this card game delivers both laughs and meaningful moments.
 
-## <a href="https://www.amazon.com/dp/B092GM9NWH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">We're Not Really Strangers Card Game</a>
+## <a href="https://www.amazon.com/dp/B092GM9NWH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">We're Not Really Strangers Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B092GM9NWH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WE'RE NOT REALLY STRANGERS Card Game - 150 Conversation Cards for Adults, Teens, Couples, and Strangers - Icebreaker Questions for Game Night, Date Night, &amp; Parties, Ages 15+, 2-6 Players" src="https://m.media-amazon.com/images/I/31tk7mdVv6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092GM9NWH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WE'RE NOT REALLY STRANGERS Card Game - 150 Conversation Cards for Adults, Teens, Couples, and Strangers - Icebreaker Questions for Game Night, Date Night, &amp; Parties, Ages 15+, 2-6 Players" src="https://m.media-amazon.com/images/I/31tk7mdVv6L._SL500_.jpg"/></a>
 
 
 The **WE'RE NOT REALLY STRANGERS Card Game** is ideal for anyone looking to deepen connections through meaningful conversations. Whether you are an adult, teen, couple, or even strangers meeting for the first time, this game is perfect for those who want to break the ice and foster authentic communication. It suits social gatherings like game nights, date nights, and parties with 2-6 players, making it a versatile addition to your entertainment collection.
@@ -75,10 +75,10 @@ The **WE'RE NOT REALLY STRANGERS Card Game** features a set of 150 carefully cur
 
 Beyond just being a fun activity, this card game encourages players to develop stronger emotional connections and improve communication skills. Its versatility allows it to be used in various contexts—from couples wanting to deepen their bond to friends or strangers seeking meaningful dialogue. The thoughtfully designed questions help break down barriers, making it easier for players to express themselves and listen actively, which can lead to more fulfilling relationships.
 
-## <a href="https://www.amazon.com/dp/B0BNK3FJTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tell Me More</a>
+## <a href="https://www.amazon.com/dp/B0BNK3FJTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tell Me More</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNK3FJTX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tell Me More: A Conversation Starter Game of Questions to Deepen Connection" src="https://m.media-amazon.com/images/I/31Rk9cjSD8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNK3FJTX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tell Me More: A Conversation Starter Game of Questions to Deepen Connection" src="https://m.media-amazon.com/images/I/31Rk9cjSD8L._SL500_.jpg"/></a>
 
 
 **Tell Me More: A Conversation Starter Game of Questions to Deepen Connection** is ideal for anyone looking to foster meaningful conversations and strengthen relationships. Whether you're hosting a casual gathering, going on a date, or wanting to connect more deeply with friends and family, this game offers a fun and engaging way to explore thoughts and feelings through thought-provoking questions.
@@ -100,10 +100,10 @@ The **Tell Me More** game features a collection of carefully crafted questions d
 
 Beyond just a game, it serves as a valuable tool for building trust and understanding between individuals. By asking meaningful questions, users can discover new perspectives and insights about each other, which can strengthen relationships in both personal and professional settings. The quality manufacturing by **Compendium** ensures durability, allowing the game to be enjoyed repeatedly over time.
 
-## <a href="https://www.amazon.com/dp/B07QSCQMXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Incohearent</a>
+## <a href="https://www.amazon.com/dp/B07QSCQMXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Incohearent</a>
 
 
-<a href="https://www.amazon.com/dp/B07QSCQMXV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Incohearent, The Guess The Gibberish Party Game by Relatable, A Funny Card Game for Adults, Great for Game Night Games, Includes 400 Cards, Instructions, and 1 Sand Timer" src="https://m.media-amazon.com/images/I/41rGFJdfOIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07QSCQMXV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Incohearent, The Guess The Gibberish Party Game by Relatable, A Funny Card Game for Adults, Great for Game Night Games, Includes 400 Cards, Instructions, and 1 Sand Timer" src="https://m.media-amazon.com/images/I/41rGFJdfOIL._SL500_.jpg"/></a>
 
 
 The **WHAT DO YOU MEME? Incohearent** party game is perfect for adults who love humor, social gatherings, and interactive games. Ideal for game night enthusiasts, friends, or family looking to add laughter and fun to their get-togethers, this game challenges players to guess the gibberish phrases, making it a great choice for those who enjoy word games with a twist.
@@ -126,10 +126,10 @@ This **funny card game** stands out by combining humor with a unique guessing me
 
 The game's compact size makes it easy to bring along to various gatherings, whether it's a casual hangout or a larger party. Players benefit from the challenge of deciphering gibberish phrases, which promotes quick thinking and creativity. Overall, the **WHAT DO YOU MEME? Incohearent** game offers a dynamic and entertaining experience that enhances any adult game night with laughter and friendly competition.
 
-## <a href="https://www.amazon.com/dp/B0DLBRKW5V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Put A Finger Down</a>
+## <a href="https://www.amazon.com/dp/B0DLBRKW5V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Put A Finger Down</a>
 
 
-<a href="https://www.amazon.com/dp/B0DLBRKW5V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PUT A FINGER DOWN - The Viral Party Game That Will Have Everyone Talking - Funny Adult Card Game &amp; Icebreaker Ideas, Game Nights, &amp; Big or Small Groups, 400 Cards for 2+ Players" src="https://m.media-amazon.com/images/I/41LoN+97+-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DLBRKW5V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PUT A FINGER DOWN - The Viral Party Game That Will Have Everyone Talking - Funny Adult Card Game &amp; Icebreaker Ideas, Game Nights, &amp; Big or Small Groups, 400 Cards for 2+ Players" src="https://m.media-amazon.com/images/I/41LoN+97+-L._SL500_.jpg"/></a>
 
 
 The **PUT A FINGER DOWN** game is ideal for anyone looking to spice up their **game nights**, break the ice at social gatherings, or entertain both **small and large groups**. Whether you're hosting a party, planning an adult get-together, or simply want a fun way to connect with friends, this **viral party game** is perfect for players aged 18 and above who enjoy humorous and interactive challenges.
@@ -151,10 +151,10 @@ The **PUT A FINGER DOWN** card game offers a unique and entertaining way to get 
 
 Additionally, the game's format supports groups of all sizes, whether it's an intimate evening with friends or a large party. Its clever prompts serve as excellent icebreakers, helping even shy participants to open up and engage with others. Overall, this game provides a perfect blend of humor, social interaction, and excitement that enhances any occasion.
 
-## <a href="https://www.amazon.com/dp/B07CT8L2HN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The And Friends Edition</a>
+## <a href="https://www.amazon.com/dp/B07CT8L2HN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The And Friends Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B07CT8L2HN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="{THE AND} Friends Edition - Conversation Starters to Make Friends Your Best Friends - Fun Getting to Know You Card Game with Questions - Deep Talks at Game Night or Dinner Party by The Skin Deep" src="https://m.media-amazon.com/images/I/41xR3St-hiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CT8L2HN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="{THE AND} Friends Edition - Conversation Starters to Make Friends Your Best Friends - Fun Getting to Know You Card Game with Questions - Deep Talks at Game Night or Dinner Party by The Skin Deep" src="https://m.media-amazon.com/images/I/41xR3St-hiL._SL500_.jpg"/></a>
 
 
 Ideal for those looking to deepen existing friendships or spark meaningful connections at social gatherings, the **{THE AND} Friends Edition** card game is perfect for anyone who enjoys engaging conversations. Whether you’re hosting a game night, dinner party, or simply want to break the ice with new acquaintances, this fun and thought-provoking set of conversation starters is designed to help you make friends your best friends.
@@ -177,10 +177,10 @@ The **{THE AND} Friends Edition** features a thoughtfully curated collection of 
 
 Beyond the engaging questions, the game’s design and portability ensure that it can easily be brought along to any social event. The lightweight, orange-colored packaging reflects the brand’s focus on creating an inviting and accessible experience. By encouraging open communication, this card game transforms ordinary gatherings into memorable moments filled with genuine connection.
 
-## <a href="https://www.amazon.com/dp/B01FSV380Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">5 Second Rule Uncensored</a>
+## <a href="https://www.amazon.com/dp/B01FSV380Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">5 Second Rule Uncensored</a>
 
 
-<a href="https://www.amazon.com/dp/B01FSV380Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="5 Second Rule Uncensored - Fun Card Game for Game Night with Friends - for Ages 17 and Up" src="https://m.media-amazon.com/images/I/4141mrgxY+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01FSV380Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="5 Second Rule Uncensored - Fun Card Game for Game Night with Friends - for Ages 17 and Up" src="https://m.media-amazon.com/images/I/4141mrgxY+L._SL500_.jpg"/></a>
 
 
 The **5 Second Rule Uncensored** card game is perfect for those who enjoy lively and spontaneous game nights with friends. Ideal for players aged **17 and up**, this game is best suited for groups looking to add a humorous and fast-paced twist to their gatherings. If you thrive on quick thinking, enjoy hilarious challenges, and want to break the ice in social settings, this game is a great choice.
@@ -202,10 +202,10 @@ The **5 Second Rule Uncensored** game features a set of cards that challenge pla
 
 Beyond its fun factor, this game promotes social bonding and quick thinking, as players must quickly process and respond to prompts under time pressure. The uncensored nature adds an extra layer of excitement and unpredictability, making it a perfect choice for adult groups seeking a lively and memorable game night. Whether you're looking to break the ice or simply enjoy a laugh with friends, this game delivers both entertainment and challenge in a sleek, easy-to-use package.
 
-## <a href="https://www.amazon.com/dp/B0DH8L42WY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Substance Card Game</a>
+## <a href="https://www.amazon.com/dp/B0DH8L42WY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Substance Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DH8L42WY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Substance Card Game - 90 Conversation Cards for Adults, Couples, Friends, Co-Workers, Strangers - Meaningful, Deep Conversation Started Card Game for Game Night or Date Night - 2-6 Players" src="https://m.media-amazon.com/images/I/41uf9tLDETL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DH8L42WY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Substance Card Game - 90 Conversation Cards for Adults, Couples, Friends, Co-Workers, Strangers - Meaningful, Deep Conversation Started Card Game for Game Night or Date Night - 2-6 Players" src="https://m.media-amazon.com/images/I/41uf9tLDETL._SL500_.jpg"/></a>
 
 
 Ideal for **adults, couples, friends, co-workers, and even strangers**, the **Substance Card Game** is perfect for anyone looking to spark **meaningful and deep conversations** during **game night or date night**. If you want to break the ice or strengthen your connections through engaging dialogue, this game is designed for you.
@@ -227,10 +227,10 @@ The **Substance Card Game** features 90 unique cards that prompt players to enga
 
 By fostering open communication, the game helps break down barriers and build trust among players. Whether you're looking to improve your relationship with a partner or get to know your co-workers better, the **Substance Card Game** offers a fun and interactive way to facilitate those conversations. Its simple setup and engaging content make it an excellent addition to any social occasion.
 
-## <a href="https://www.amazon.com/dp/B0DS6JK296?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Asking For A Friend</a>
+## <a href="https://www.amazon.com/dp/B0DS6JK296?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">What Do You Meme? Asking For A Friend</a>
 
 
-<a href="https://www.amazon.com/dp/B0DS6JK296?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Asking for A Friend by Relatable, Great Card Games for Game Night, Bachelorette Party Favors for Social Gatherings, and Friendly Icebreakers, Includes 300 Cards and 1 Die" src="https://m.media-amazon.com/images/I/41+BgaUbItL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DS6JK296?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WHAT DO YOU MEME? Asking for A Friend by Relatable, Great Card Games for Game Night, Bachelorette Party Favors for Social Gatherings, and Friendly Icebreakers, Includes 300 Cards and 1 Die" src="https://m.media-amazon.com/images/I/41+BgaUbItL._SL500_.jpg"/></a>
 
 
 The **WHAT DO YOU MEME? Asking for A Friend** game is perfect for individuals who love engaging in lively social interactions and crave a fun, interactive experience. Ideal for **game night enthusiasts**, **bachelorette party planners**, and anyone looking to break the ice at social gatherings, this game offers an entertaining way to connect with friends and family. If you enjoy humorous, relatable content and want a game that sparks laughter and conversation, this is the perfect choice.
@@ -253,10 +253,10 @@ The **WHAT DO YOU MEME? Asking for A Friend** game offers a dynamic and entertai
 
 Designed by the trusted brand **What Do You Meme?**, this game emphasizes fun and relatability. It serves as an excellent icebreaker, encouraging players to share laughs and stories that strengthen social bonds. Whether you’re hosting a **bachelorette party** or just looking for a way to spice up **game night**, this card game combines humor and interaction to create memorable moments.
 
-## <a href="https://www.amazon.com/dp/B015HQYDJU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disturbed Friends Party Game</a>
+## <a href="https://www.amazon.com/dp/B015HQYDJU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disturbed Friends Party Game</a>
 
 
-<a href="https://www.amazon.com/dp/B015HQYDJU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disturbed Friends Party Game - Find Out Who Your Friends are! Hilarious Card Game for Adults, Friends, Family, College Students, Fun Parties and Board Games Night with Your Group" src="https://m.media-amazon.com/images/I/41QqH-2iQ4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015HQYDJU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disturbed Friends Party Game - Find Out Who Your Friends are! Hilarious Card Game for Adults, Friends, Family, College Students, Fun Parties and Board Games Night with Your Group" src="https://m.media-amazon.com/images/I/41QqH-2iQ4L._SL500_.jpg"/></a>
 
 
 The **Disturbed Friends Party Game** is perfect for adults, friends, family members, and college students who enjoy engaging in lively and humorous social gatherings. If you're looking for a fun way to break the ice, spark conversations, and discover surprising truths about your group, this game is an ideal choice for your next party or board game night.

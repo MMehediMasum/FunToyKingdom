@@ -71,7 +71,7 @@ Choose toys made from strong, safe materials like cotton, silicone, or wood. Dur
 
 * Soft fabric toys should be tightly sewn with no loose threads
 * Wood toys should have smooth edges and be free from splinters
-* [Silicone parts](https://www.amazon.com/s?k=silicone+car+seat+toys&tag=gearcookware-20) must be firm but flexible, without cracks
+* [Silicone parts](https://www.amazon.com/s?k=silicone+car+seat+toys&tag=mofb05-20) must be firm but flexible, without cracks
 * Avoid toys with paint that can chip or peel
 
 ### Avoiding Small Parts And Choking Hazards
@@ -111,7 +111,7 @@ Soft plush toys are gentle and cuddly. Babies love to touch their soft textures.
 
 * Made from safe, soft fabrics
 * Lightweight for easy hanging
-* Often include [crinkly sounds](https://www.amazon.com/s?k=crinkle+toys+for+car+seat&tag=gearcookware-20) inside
+* Often include [crinkly sounds](https://www.amazon.com/s?k=crinkle+toys+for+car+seat&tag=mofb05-20) inside
 * Easy to clean and machine washable
 
 ### Interactive Rattles And Mirrors
@@ -122,11 +122,11 @@ These toys make sounds or reflect images. They invite babies to explore and inte
 | --- | --- | --- |
 | Type | Feature | Benefit |
 | Rattle | Shakes to make noise | Stimulates hearing and movement |
-| [Mirror](https://www.amazon.com/s?k=baby+car+mirror+toy&tag=gearcookware-20) | Reflective surface | Encourages visual tracking and self-recognition |
+| [Mirror](https://www.amazon.com/s?k=baby+car+mirror+toy&tag=mofb05-20) | Reflective surface | Encourages visual tracking and self-recognition |
 
 ### Teething-friendly Options
 
-[These toys](https://www.amazon.com/s?k=hanging+teething+toys+for+car+seat&tag=gearcookware-20) help soothe sore gums. They use safe materials that babies can chew. Many have textured surfaces to massage gums gently.
+[These toys](https://www.amazon.com/s?k=hanging+teething+toys+for+car+seat&tag=mofb05-20) help soothe sore gums. They use safe materials that babies can chew. Many have textured surfaces to massage gums gently.
 
 Look for teething toys that:
 
@@ -145,7 +145,7 @@ Follow simple tips to attach toys correctly and keep them within baby's reach.
 
 ### Proper Attachment Techniques
 
-Attach toys securely to the car seat handle or bar. Use [clips or straps](https://www.amazon.com/s?k=toy+safety+straps+for+car+seat&tag=gearcookware-20) designed for baby toys.
+Attach toys securely to the car seat handle or bar. Use [clips or straps](https://www.amazon.com/s?k=toy+safety+straps+for+car+seat&tag=mofb05-20) designed for baby toys.
 
 Check that attachments do not damage the car seat or interfere with its function.
 

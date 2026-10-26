@@ -23,10 +23,10 @@ Marvel and DC Comics provide a variety of options, each with unique designs and 
 
 
 
-## <a href="https://www.amazon.com/dp/B00ECV5436?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Marvel Avengers Series Marvel Assemble Titan Hero Iron Man Action Figure</a>
+## <a href="https://www.amazon.com/dp/B00ECV5436?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Marvel Avengers Series Marvel Assemble Titan Hero Iron Man Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B00ECV5436?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Marvel Avengers Series Marvel Assemble Titan Hero Iron Man 12' Action Figure" src="https://m.media-amazon.com/images/I/411uQeT-zVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00ECV5436?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Marvel Avengers Series Marvel Assemble Titan Hero Iron Man 12' Action Figure" src="https://m.media-amazon.com/images/I/411uQeT-zVL._SL500_.jpg"/></a>
 
 
 The **Hasbro Marvel Avengers Series Marvel Assemble Titan Hero Iron Man 12' Action Figure** is perfect for fans of the Marvel Universe, especially those who admire the iconic character Iron Man. This action figure is ideal for children aged 4 and above, collectors, and anyone looking to add a dynamic and durable piece to their Marvel memorabilia. Its larger size and detailed design make it suitable for imaginative play as well as display purposes.
@@ -48,10 +48,10 @@ The **Hasbro Marvel Avengers Series Titan Hero Iron Man 12' Action Figure** stan
 
 Manufactured by **Hasbro** under the official **Marvel** license, this figure guarantees quality and authenticity. Its durable build withstands rough play, making it a reliable companion for young fans. While the articulation may be limited, the overall design emphasizes boldness and recognizability, making it an excellent choice for both play and display.
 
-## <a href="https://www.amazon.com/dp/B07T9CCRK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Spider-man Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07T9CCRK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Spider-man Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07T9CCRK6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Spider-Man 12-Inch Action Figure with Fx Port" src="https://m.media-amazon.com/images/I/41CqYz7VTyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07T9CCRK6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Spider-Man 12-Inch Action Figure with Fx Port" src="https://m.media-amazon.com/images/I/41CqYz7VTyL._SL500_.jpg"/></a>
 
 
 The **Marvel Titan Hero Series Spider-Man 12-Inch Action Figure with Fx Port** is perfect for fans of **Spider-Man** and collectors of **Marvel** memorabilia. Ideal for children aged 4 and up as well as adult collectors, this action figure offers an engaging play experience with its iconic red and blue design and interactive features. Those who appreciate detailed superhero figures and want a durable, display-worthy item will find this product especially appealing.
@@ -74,10 +74,10 @@ This **Marvel Titan Hero Series Spider-Man** action figure stands out with its i
 
 A key feature of this action figure is the integrated **Fx Port**, which allows users to attach various interactive accessories and effects, enhancing the play experience. This customization option enables fans to recreate their favorite **Spider-Man** scenes or invent new adventures. Manufactured by **Hasbro**, this figure promises durability and quality, making it a reliable choice for both active play and display purposes.
 
-## <a href="https://www.amazon.com/dp/B08TQB3CDZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Action Figure Multipack</a>
+## <a href="https://www.amazon.com/dp/B08TQB3CDZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Action Figure Multipack</a>
 
 
-<a href="https://www.amazon.com/dp/B08TQB3CDZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Action Figure Multipack, 6 Action Figures, 12-Inch Toys, Inspired By Marvel Comics, For Kids Ages 4 And Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51spuvUYV2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08TQB3CDZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Action Figure Multipack, 6 Action Figures, 12-Inch Toys, Inspired By Marvel Comics, For Kids Ages 4 And Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51spuvUYV2L._SL500_.jpg"/></a>
 
 
 The **Marvel Titan Hero Series Action Figure Multipack** is perfect for young fans of **Marvel Comics** aged 4 and up who love to engage in imaginative play. Ideal for children who enjoy collecting and acting out superhero adventures, this set offers a diverse group of characters to inspire creativity and storytelling. Parents looking for a durable, engaging toy that supports fine motor skills and social play will find this multipack an excellent choice.
@@ -100,10 +100,10 @@ This multipack features six iconic **12-inch Marvel action figures** designed by
 
 The set’s exclusivity on **Amazon** makes it a special find for collectors and enthusiasts alike. Its focus on classic black coloring provides a sleek, uniform look that can easily fit into existing Marvel collections. Overall, this multipack offers a balanced blend of quality, size, and character variety, making it a valuable addition for any young Marvel fan eager to bring their superhero stories to life.
 
-## <a href="https://www.amazon.com/dp/B08PHZJJ62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Endgame Titan Hero Series 12" Action Figures</a>
+## <a href="https://www.amazon.com/dp/B08PHZJJ62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Endgame Titan Hero Series 12" Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B08PHZJJ62?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (4="" action="" alt="Avengers Marvel Endgame Titan Hero Series 12" america,="" and="" black="" captain="" figures="" figures)"="" iron="" man="" panther,="" spider,="" src="https://m.media-amazon.com/images/I/51OUqFChNxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08PHZJJ62?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (4="" action="" alt="Avengers Marvel Endgame Titan Hero Series 12" america,="" and="" black="" captain="" figures="" figures)"="" iron="" man="" panther,="" spider,="" src="https://m.media-amazon.com/images/I/51OUqFChNxL._SL500_.jpg"/></a>
 
 
 The **Avengers Marvel Endgame Titan Hero Series 12" Action Figures** are perfect for fans of the Marvel Universe, collectors of superhero memorabilia, and children who enjoy imaginative play. If you love iconic characters like **Captain America**, **Iron Spider**, **Black Panther**, and **Iron Man**, this set offers a great way to bring your favorite heroes to life. Ideal for both display and active play, these figures cater to those seeking high-quality, detailed action figures that celebrate the epic saga of Avengers Endgame.
@@ -126,10 +126,10 @@ The **Avengers Marvel Endgame Titan Hero Series** action figures showcase impres
 
 Made by **The Avengers** brand, these figures are designed with a sturdy build to withstand hours of play, making them suitable for younger fans while still appealing to adult collectors. The color scheme and design pay homage to each character's unique style and powers, enhancing the visual appeal. Overall, this set is a great investment for anyone looking to expand their Marvel collection with reliable and visually striking figures.
 
-## <a href="https://www.amazon.com/dp/B076JPRXKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Deadpool 12-inch Action Figure</a>
+## <a href="https://www.amazon.com/dp/B076JPRXKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Deadpool 12-inch Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B076JPRXKV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Deadpool 12-Inch Action Figure with Accessory, Super Hero Toys for Fans Ages 14 and Up" src="https://m.media-amazon.com/images/I/41h4SiZ2dtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076JPRXKV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Deadpool 12-Inch Action Figure with Accessory, Super Hero Toys for Fans Ages 14 and Up" src="https://m.media-amazon.com/images/I/41h4SiZ2dtL._SL500_.jpg"/></a>
 
 
 The **Marvel Deadpool 12-Inch Action Figure with Accessory** is perfect for avid **Marvel fans** and collectors aged **14 and up** who appreciate highly detailed **superhero toys**. Whether you’re a long-time fan of Deadpool or just starting your collection, this figure offers an ideal blend of quality and authenticity that appeals to both casual enthusiasts and serious collectors.
@@ -152,10 +152,10 @@ This **Marvel Deadpool action figure** stands out with its impressive 12-inch he
 
 The figure's compact dimensions make it an excellent choice for displaying on shelves or desks without taking up too much space. Its standard edition status ensures accessibility to a wide range of fans, offering a collectible piece that balances quality with affordability. This action figure is an excellent blend of fun and nostalgia, appealing to anyone who appreciates the quirky charm and irreverent humor of Deadpool.
 
-## <a href="https://www.amazon.com/dp/B09JH8P792?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Green Goblin Toy</a>
+## <a href="https://www.amazon.com/dp/B09JH8P792?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series Green Goblin Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B09JH8P792?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Green Goblin Toy 12-Inch-Scale Collectible Action Figure, Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/41Z82c8A6lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09JH8P792?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series Green Goblin Toy 12-Inch-Scale Collectible Action Figure, Kids Ages 4 and Up" src="https://m.media-amazon.com/images/I/41Z82c8A6lL._SL500_.jpg"/></a>
 
 
 The **Marvel Titan Hero Series Green Goblin Toy** is ideal for **kids ages 4 and up** who are fans of Marvel superheroes and villains. This **12-inch-scale collectible action figure** is perfect for children who enjoy imaginative play and collectors looking to add a detailed piece to their Marvel collection. Parents seeking a durable and visually appealing toy that captures the essence of the iconic Green Goblin character will also find this item suitable.
@@ -178,10 +178,10 @@ This **Green Goblin action figure** stands out with its impressive size and deta
 
 Crafted by **Hasbro**, a reputable manufacturer, this collectible balances quality and value. Its compatibility with other figures in the **Titan Hero Series** lets users build a larger Marvel universe, enriching the play experience. Although articulation is basic, the figure’s durability and iconic design make it a great gift for young fans and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
+## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Ultimate Protectors Pack** is perfect for young fans and collectors of the iconic Marvel superheroes. Designed for children ages **4 and up**, this set is ideal for boys and girls who love imaginative play and action-packed adventures with their favorite characters. Whether you're looking to expand your collection or gift a superhero enthusiast, this pack offers a fantastic combination of detailed figures and engaging accessories.
@@ -204,10 +204,10 @@ The **Marvel Avengers Ultimate Protectors Pack** features a collection of 8 acti
 
 Manufactured by **Hasbro**, a leading name in the toy industry, this set guarantees quality and durability, making it a lasting addition to any toy collection. The pack’s versatility appeals to a wide audience, from young children developing fine motor skills to collectors appreciating detailed craftsmanship. Overall, the Marvel Avengers Ultimate Protectors Pack offers a fun, interactive experience that brings the excitement of the Marvel universe directly into your home.
 
-## <a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series X-men Wolverine 12-inch-scale Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Titan Hero Series X-men Wolverine 12-inch-scale Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series X-Men Wolverine 12-Inch-Scale Action Figure, X-Men Toys, Super Hero Toys for Kids, Ages 4 and Up" src="https://m.media-amazon.com/images/I/41j3k7sy0ZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BDHTT5KJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Titan Hero Series X-Men Wolverine 12-Inch-Scale Action Figure, X-Men Toys, Super Hero Toys for Kids, Ages 4 and Up" src="https://m.media-amazon.com/images/I/41j3k7sy0ZL._SL500_.jpg"/></a>
 
 
 The **Marvel Titan Hero Series X-Men Wolverine 12-Inch-Scale Action Figure** is ideal for young fans of the **X-Men** universe and collectors alike. Designed for **kids aged 4 and up**, this action figure appeals to children who enjoy imaginative play with their favorite **superhero toys** as well as adult enthusiasts looking to add a detailed piece to their collection. It's perfect for those who appreciate **high-quality, durable toys** that capture the essence of iconic characters.
@@ -230,10 +230,10 @@ This **12-inch Wolverine action figure** stands out with its impressive size and
 
 Manufactured by **Hasbro**, a leading name in the toy industry, this figure assures quality and safety for children aged 4 and up. Its scale and design encourage imaginative storytelling, allowing kids to recreate classic **X-Men** adventures or invent new ones. Whether used as a standalone figure or part of a larger collection, the Marvel Titan Hero Series Wolverine offers hours of entertainment and inspiration for superhero fans.
 
-## <a href="https://www.amazon.com/dp/B09NLCJ3FN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics 12-inch Batman Action Figure</a>
+## <a href="https://www.amazon.com/dp/B09NLCJ3FN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dc Comics 12-inch Batman Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B09NLCJ3FN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, 12-inch Batman Action Figure, Kids Toys for Boys and Girls Ages 3 and Up" src="https://m.media-amazon.com/images/I/31CxLJCKL-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NLCJ3FN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, 12-inch Batman Action Figure, Kids Toys for Boys and Girls Ages 3 and Up" src="https://m.media-amazon.com/images/I/31CxLJCKL-L._SL500_.jpg"/></a>
 
 
 The **DC Comics, 12-inch Batman Action Figure** is perfect for young superhero enthusiasts, especially **kids aged 3 and up**. This toy is ideal for boys and girls who love to engage in imaginative play, reenacting their favorite Batman adventures. Parents looking for a durable, collectible, and visually appealing figure will also find this product a great choice.
@@ -255,10 +255,10 @@ This **Batman action figure** is designed with both playability and authenticity
 
 Additionally, the figure's detailed black costume reflects the iconic look of the Dark Knight, making it a desirable collectible for fans of all ages. Whether used as a toy or a display piece, this action figure offers lasting entertainment and value, combining the legacy of **DC Comics** with the craftsmanship of **Spin Master**.
 
-## <a href="https://www.amazon.com/dp/B07WGHZMH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Superman Action Figure</a>
+## <a href="https://www.amazon.com/dp/B07WGHZMH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Superman Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B07WGHZMH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, 12-Inch Superman Action Figure, Collectible Kids Toys for Boys and Girls" src="https://m.media-amazon.com/images/I/41lxnRR-7RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WGHZMH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DC Comics, 12-Inch Superman Action Figure, Collectible Kids Toys for Boys and Girls" src="https://m.media-amazon.com/images/I/41lxnRR-7RL._SL500_.jpg"/></a>
 
 
 The **DC Comics 12-Inch Superman Action Figure** is perfect for **young fans** of superheroes, collectors of **DC memorabilia**, and anyone looking for a high-quality, durable **kids toy**. This figure is ideal for **boys and girls** who enjoy imaginative play or want to add a classic **Superman collectible** to their display.

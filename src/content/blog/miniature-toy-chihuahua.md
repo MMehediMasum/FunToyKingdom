@@ -20,10 +20,10 @@ They make great cake toppers, gifts, or decorations for birthdays and holidays. 
 
 
 
-## <a href="https://www.amazon.com/dp/B087P7Z5PT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany Mini Dog Figurines Toy Set</a>
+## <a href="https://www.amazon.com/dp/B087P7Z5PT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toymany Mini Dog Figurines Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B087P7Z5PT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 12PCS Mini Dog Figurines Toy Set, Realistic Detailed Plastic Puppy Figures Playset, Hand Painted Dogs Animals Toy, Cake Toppers Easter Eggs Christmas Birthday Gift for Kids Toddlers" src="https://m.media-amazon.com/images/I/41VUwfAoMSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087P7Z5PT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toymany 12PCS Mini Dog Figurines Toy Set, Realistic Detailed Plastic Puppy Figures Playset, Hand Painted Dogs Animals Toy, Cake Toppers Easter Eggs Christmas Birthday Gift for Kids Toddlers" src="https://m.media-amazon.com/images/I/41VUwfAoMSL._SL500_.jpg"/></a>
 
 
 The **Toymany 12PCS Mini Dog Figurines Toy Set** is ideal for **children**, **toddlers**, and **dog lovers** who enjoy imaginative play or collecting miniature animal figures. It is perfect for parents looking to provide their kids with safe, engaging toys that stimulate creativity, as well as for hobbyists who appreciate **realistic, hand-painted dog figurines**. These figures also serve well as charming **cake toppers** or decorative accents for special occasions like **birthdays**, **Easter**, and **Christmas**.
@@ -46,10 +46,10 @@ The **Toymany 12PCS Mini Dog Figurines Toy Set** features a collection of colorf
 
 Beyond their use as toys, these miniature dogs can double as delightful **cake toppers** or decorative pieces for festive occasions such as **birthdays**, **Christmas**, and **Easter**. This versatility adds value, making the set a practical purchase for families who appreciate multi-functional items. The vibrant, colorful paintwork enhances visual appeal, encouraging imaginative storytelling and learning about different dog breeds in a fun and interactive way.
 
-## <a href="https://www.amazon.com/dp/B0F1BGM3NP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aenimely Chihuahua Dog Figurine</a>
+## <a href="https://www.amazon.com/dp/B0F1BGM3NP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Aenimely Chihuahua Dog Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1BGM3NP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AENIMELY Chihuahua Dog Figurine Hand Painted Realistic Plastic Puppy Figure Tiny White Dogs Animals Toy Dog Cake Topper Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/31NgJxjEXML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1BGM3NP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AENIMELY Chihuahua Dog Figurine Hand Painted Realistic Plastic Puppy Figure Tiny White Dogs Animals Toy Dog Cake Topper Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/31NgJxjEXML._SL500_.jpg"/></a>
 
 
 The **AENIMELY Chihuahua Dog Figurine** is perfect for dog lovers, collectors of miniature animal models, and anyone looking for a charming and realistic decorative piece. Ideal for those who appreciate detailed craftsmanship and want to add a touch of cuteness to their home, office, or special occasion such as birthdays and Christmas. This tiny, hand-painted plastic puppy figure is especially suited for fans of small dog breeds or as a unique gift item.
@@ -71,10 +71,10 @@ The **AENIMELY Chihuahua Dog Figurine** features meticulously hand-painted detai
 
 Made from durable plastic, this figure is designed to last while maintaining its vibrant multicolored finish. Its lightweight nature ensures easy handling and placement, while the lifelike craftsmanship offers an authentic representation of one of the smallest dog breeds. Whether used to complement a dog-themed collection or to brighten up celebrations, the **AENIMELY Chihuahua Dog Figurine** offers both aesthetic pleasure and sentimental value to its owners.
 
-## <a href="https://www.amazon.com/dp/B0CSS6RKTK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Recur Cats And Dogs Animal Figurines Desk Pets Miniature Figure Cake Topper</a>
+## <a href="https://www.amazon.com/dp/B0CSS6RKTK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Recur Cats And Dogs Animal Figurines Desk Pets Miniature Figure Cake Topper</a>
 
 
-<a href="https://www.amazon.com/dp/B0CSS6RKTK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RECUR Cats and Dogs Animal Figurines Desk Pets Miniature Figure Cake Topper, 100% Hand-Painted, Mini Pets Figure for Kids - 12 PCS" src="https://m.media-amazon.com/images/I/41J1ATflX2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CSS6RKTK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RECUR Cats and Dogs Animal Figurines Desk Pets Miniature Figure Cake Topper, 100% Hand-Painted, Mini Pets Figure for Kids - 12 PCS" src="https://m.media-amazon.com/images/I/41J1ATflX2L._SL500_.jpg"/></a>
 
 
 The **RECUR Cats and Dogs Animal Figurines Desk Pets Miniature Figure Cake Topper** is ideal for children, collectors, and anyone who enjoys detailed, hand-crafted miniatures. If you're looking for charming, small-scale animal figures to decorate your desk, craft projects, or cakes, this set of 12 hand-painted mini pets is perfect for you. It’s also a great educational tool for kids who love animals and enjoy imaginative play.
@@ -97,10 +97,10 @@ Each figurine in the **RECUR Cats and Dogs Animal Figurines** set stands at just
 
 The variety of cats and dogs included in the 12-piece set caters to a wide audience, from young children who enjoy imaginative play to adults who appreciate finely detailed collectibles. The durable materials and precise craftsmanship ensure these miniatures will withstand regular handling and display. Overall, the set offers both aesthetic appeal and practical versatility, making it a delightful purchase for animal lovers and hobbyists alike.
 
-## <a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muchfun Dog Toy Figures</a>
+## <a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Muchfun Dog Toy Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muchfun 20Pcs Dog Toy Figures for Kids, Toy Animals Figurine for Cake Toppers" src="https://m.media-amazon.com/images/I/51xnS0RIz+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHK5NPVD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Muchfun 20Pcs Dog Toy Figures for Kids, Toy Animals Figurine for Cake Toppers" src="https://m.media-amazon.com/images/I/51xnS0RIz+L._SL500_.jpg"/></a>
 
 
 The **Muchfun 20Pcs Dog Toy Figures for Kids** are perfect for parents and gift-givers looking to inspire imaginative play in children. These **toy animal figurines** are ideal for kids who love animals and enjoy hands-on activities such as decorating cakes or creating miniature play scenes. If you want to encourage creativity and sensory play, this set is a great choice.
@@ -123,10 +123,10 @@ The **Muchfun 20Pcs Dog Toy Figures** boast a vibrant mix of colors and durable 
 
 Beyond entertainment, these figurines serve as excellent tools for storytelling and role-playing, helping kids expand their creativity and social skills. The diverse range of dog breeds represented in the set allows children to learn about different types of dogs while engaging in meaningful play. Overall, the **Muchfun 20Pcs Dog Toy Figures** combine educational value with enjoyable design, making them a smart addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Totsmile 36pcs Realistic Dog Figurines Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Totsmile 36pcs Realistic Dog Figurines Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Totsmile 36PCS Realistic Dog Figurines Toy Set, Hand Painted Emulational Mini Plastic Dogs Animal Puppy Figures Toys for Kids Ages 3-5 5-7, Cake Topper Easter Eggs Birthday Gift for Boys Girls" src="https://m.media-amazon.com/images/I/51ttc52gkML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSWQTQKK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Totsmile 36PCS Realistic Dog Figurines Toy Set, Hand Painted Emulational Mini Plastic Dogs Animal Puppy Figures Toys for Kids Ages 3-5 5-7, Cake Topper Easter Eggs Birthday Gift for Boys Girls" src="https://m.media-amazon.com/images/I/51ttc52gkML._SL500_.jpg"/></a>
 
 
 The **Totsmile 36PCS Realistic Dog Figurines Toy Set** is ideal for young children aged **3-7 years** who have a fascination with animals, especially dogs. Parents and gift-givers looking for an engaging, educational, and creative toy that encourages imaginative play and fine motor skills development will find this set perfect. It’s also suitable for collectors or anyone who appreciates detailed, **hand-painted miniature animal figures**.
@@ -149,10 +149,10 @@ The **Totsmile 36PCS Realistic Dog Figurines Toy Set** stands out because of its
 
 Beyond play, these figurines serve multiple purposes such as decorating cakes, filling Easter eggs, or as thoughtful birthday gifts for boys and girls who adore animals. Their realistic appearance encourages storytelling and role-playing, which can boost creativity, social skills, and language development. Overall, this toy set is a versatile and engaging choice for parents and gift buyers seeking a fun, educational, and visually appealing product for children.
 
-## <a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onest Mini Dog Figurines Playset</a>
+## <a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Onest Mini Dog Figurines Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONEST 20 Pieces Mini Dog Figurines Playset Hand Painted Tiny Dogs Realistic Detailed Plastic Puppy Figures Toys Small Dog Figurines for Kids Adults" src="https://m.media-amazon.com/images/I/512Wayh+chL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJLR8RCC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ONEST 20 Pieces Mini Dog Figurines Playset Hand Painted Tiny Dogs Realistic Detailed Plastic Puppy Figures Toys Small Dog Figurines for Kids Adults" src="https://m.media-amazon.com/images/I/512Wayh+chL._SL500_.jpg"/></a>
 
 
 The **ONEST 20 Pieces Mini Dog Figurines Playset** is perfect for both **kids and adults** who have a passion for collecting or playing with **realistic, hand-painted dog figures**. Ideal for **dog lovers, collectors, educators, and hobbyists**, this set offers a charming and detailed representation of various dog breeds in a compact form.
@@ -175,10 +175,10 @@ The **ONEST Mini Dog Figurines Playset** stands out due to its meticulous **hand
 
 Beyond aesthetics, these **durable plastic puppy figures** offer educational benefits by helping children learn about different dog breeds while encouraging imaginative role-playing. The variety of 20 different figures gives users the chance to explore diversity in dog types, enhancing their knowledge and appreciation of animals. Overall, this playset combines fun, education, and collectibility in a compact, high-quality package.
 
-## <a href="https://www.amazon.com/dp/B0C5CWKYGV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">12pcs Mini Dog Figurines</a>
+## <a href="https://www.amazon.com/dp/B0C5CWKYGV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">12pcs Mini Dog Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5CWKYGV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12PCS Mini Dog Figurines, Plastic Animals Mini Dog Figures Realistic Hand Painted Tiny Dog Toys Playset for Kids Toddlers, Miniature Puppy Toys Cake Topper Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/51oiWK9AgSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5CWKYGV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="12PCS Mini Dog Figurines, Plastic Animals Mini Dog Figures Realistic Hand Painted Tiny Dog Toys Playset for Kids Toddlers, Miniature Puppy Toys Cake Topper Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/51oiWK9AgSL._SL500_.jpg"/></a>
 
 
 The **12PCS Mini Dog Figurines** are perfect for **children**, **toddlers**, and collectors who enjoy realistic miniature toys. Ideal for those looking to enhance imaginative play, decorate cakes, or add to a miniature animal collection, these hand-painted figures offer a charming and interactive experience for all ages.
@@ -200,10 +200,10 @@ These **miniature puppy toys** are crafted with meticulous attention to detail, 
 
 Additionally, the versatility of this 12-piece set extends beyond playtime. Their charming appearance makes them excellent **cake toppers** for birthday parties or festive decorations during the holidays. The durable plastic construction ensures longevity, allowing parents and kids to enjoy these mini dog figures through countless play sessions and celebrations.
 
-## <a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Eyscota Dog Figurines </a>
+## <a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Eyscota Dog Figurines </a>
 
 
-<a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Dog Figurines, Realistic Plastic Puppy Figurines, Hand Painted Emulational Tiny Dogs Animals Toy, Dog Cake Topper Easter Egg Birthday Gift for Kids and Toddlers" src="https://m.media-amazon.com/images/I/51ejvg3itML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Dog Figurines, Realistic Plastic Puppy Figurines, Hand Painted Emulational Tiny Dogs Animals Toy, Dog Cake Topper Easter Egg Birthday Gift for Kids and Toddlers" src="https://m.media-amazon.com/images/I/51ejvg3itML._SL500_.jpg"/></a>
 
 
 Ideal for **children**, **toddlers**, and **dog enthusiasts**, the **EYSCOTA 12PCS Dog Figurines** offer a delightful way to engage with realistic, hand-painted miniatures. These colorful, tiny puppy toys are perfect for imaginative play, educational activities, or as charming decorative pieces, making them an excellent choice for parents seeking safe and creative gifts or for collectors who appreciate detailed animal models.
@@ -227,10 +227,10 @@ The **EYSCOTA 12PCS Dog Figurines** feature meticulous craftsmanship with hand-p
 
 Additionally, the durable plastic construction guarantees these figurines can withstand regular handling, making them ideal for both playtime and decorative purposes such as cake toppers or festive gifts. Their colorful appearance not only attracts children's attention but also adds a cheerful touch to celebrations like birthdays and Easter, providing multi-functional enjoyment for families and collectors alike.
 
-## <a href="https://www.amazon.com/dp/B0BWF1STHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Iftnotea 8pcs Small Dog Figurines For Kids Puppy Toy Figures </a>
+## <a href="https://www.amazon.com/dp/B0BWF1STHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Iftnotea 8pcs Small Dog Figurines For Kids Puppy Toy Figures </a>
 
 
-<a href="https://www.amazon.com/dp/B0BWF1STHH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iftnotea 8PCS Small Dog Figurines for Kids Puppy Toy Figures with Shiba Inu Golden Retriever - Cake Toppers Christmas Birthday Gift for Toddlers" src="https://m.media-amazon.com/images/I/51NWFY1YSLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWF1STHH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="iftnotea 8PCS Small Dog Figurines for Kids Puppy Toy Figures with Shiba Inu Golden Retriever - Cake Toppers Christmas Birthday Gift for Toddlers" src="https://m.media-amazon.com/images/I/51NWFY1YSLL._SL500_.jpg"/></a>
 
 
 The **iftnotea 8PCS Small Dog Figurines** are perfect for **children** who love **puppies** and enjoy imaginative play. Ideal for parents looking for **safe**, **durable toys** that stimulate creativity, these figurines also make excellent **cake toppers** or **gifts for birthdays and Christmas**. Toddlers and young kids fascinated by animals will especially benefit from this charming set.
@@ -253,10 +253,10 @@ The **iftnotea 8PCS Small Dog Figurines** offer a delightful mix of breeds, incl
 
 Crafted with attention to **detail and safety**, these figurines provide endless entertainment while also serving as a thoughtful gift option for birthdays and Christmas. The set’s versatility allows children to engage in creative storytelling or use the figurines as charming additions to party decor. Overall, the iftnotea small dog figurines blend fun, education, and aesthetic appeal perfectly for young dog lovers.
 
-## <a href="https://www.amazon.com/dp/B0FDGFGQQY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pinenjoy 8pcs Mini Dog Figurines Set</a>
+## <a href="https://www.amazon.com/dp/B0FDGFGQQY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pinenjoy 8pcs Mini Dog Figurines Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0FDGFGQQY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pinenjoy 8Pcs Mini Dog Figurines Set Miniature Puppy Figures Little Animals Cake Toppers for DIY Fairy Garden Dollhouse Moss Landscape Birthday Party Gift Home Decors" src="https://m.media-amazon.com/images/I/41RZBke3FtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FDGFGQQY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pinenjoy 8Pcs Mini Dog Figurines Set Miniature Puppy Figures Little Animals Cake Toppers for DIY Fairy Garden Dollhouse Moss Landscape Birthday Party Gift Home Decors" src="https://m.media-amazon.com/images/I/41RZBke3FtL._SL500_.jpg"/></a>
 
 
 The **Pinenjoy 8Pcs Mini Dog Figurines Set** is perfect for craft enthusiasts, collectors of miniature items, and pet lovers who want to add a charming touch to their DIY projects or home decor. Ideal for those who enjoy creating **fairy gardens, dollhouses, and moss landscapes**, this set also makes a delightful gift for birthdays and special occasions. If you are looking for small, detailed, and colorful dog figurines to enhance your creative space, this set is a great choice.

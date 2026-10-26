@@ -22,10 +22,10 @@ Some models feature working buttons and adjustable heights to make play more int
 
 
 
-## <a href="https://www.amazon.com/dp/B0F4LPDFFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toddmomy Miniature Mechanical Elevator Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0F4LPDFFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toddmomy Miniature Mechanical Elevator Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4LPDFFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toddmomy Miniature Mechanical Elevator Model Kit: Beige Puzzle Building Set for Elevator Enthusiasts(Without Battery)" src="https://m.media-amazon.com/images/I/51xS+tkEU2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4LPDFFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toddmomy Miniature Mechanical Elevator Model Kit: Beige Puzzle Building Set for Elevator Enthusiasts(Without Battery)" src="https://m.media-amazon.com/images/I/51xS+tkEU2L._SL500_.jpg"/></a>
 
 
 The **Toddmomy Miniature Mechanical Elevator Model Kit** is perfect for **elevator enthusiasts**, hobbyists, and puzzle lovers who enjoy hands-on building experiences. This kit is ideal for individuals looking to explore the mechanics of elevators through a detailed and engaging **puzzle building set** that does not require batteries, making it both educational and environmentally friendly.
@@ -48,10 +48,10 @@ The **Toddmomy Miniature Mechanical Elevator Model Kit** showcases a carefully c
 
 With no need for batteries, this model is environmentally friendly and ensures that users can focus solely on the mechanics and craftsmanship involved in the build. The lightweight construction enhances portability, allowing enthusiasts to easily share their completed models or take them on the go. Overall, this kit provides a unique blend of education, entertainment, and aesthetic appeal for those passionate about mechanical puzzles and elevator systems.
 
-## <a href="https://www.amazon.com/dp/B0DZWPM4L2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Boxob 2pcs 3d Flying Miniatures Combat Riser</a>
+## <a href="https://www.amazon.com/dp/B0DZWPM4L2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Boxob 2pcs 3d Flying Miniatures Combat Riser</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZWPM4L2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOXOB 2pcs 3D Flying Miniatures Combat Riser, Adjustable Flight Model Elevator Height Multi-Layered Elevated Platform Stands for Tabletop RPG Board Games Accessories Supplies" src="https://m.media-amazon.com/images/I/318RZSSqJ1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZWPM4L2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BOXOB 2pcs 3D Flying Miniatures Combat Riser, Adjustable Flight Model Elevator Height Multi-Layered Elevated Platform Stands for Tabletop RPG Board Games Accessories Supplies" src="https://m.media-amazon.com/images/I/318RZSSqJ1L._SL500_.jpg"/></a>
 
 
 The **BOXOB 2pcs 3D Flying Miniatures Combat Riser** is ideal for tabletop RPG enthusiasts and board game players who want to enhance their gaming experience with dynamic, multi-layered battlefields. If you are someone who values immersive gameplay and detailed miniature displays, this adjustable flight model elevator stand is perfect for elevating your miniatures to new heights and adding a realistic 3D effect to your gaming sessions.
@@ -74,10 +74,10 @@ The **BOXOB 2pcs 3D Flying Miniatures Combat Riser** offers a practical solution
 
 Crafted by **BOXOB**, these risers provide sturdy support for various miniature sizes, making them a versatile accessory for many gaming systems. Their compact and lightweight nature means they won’t take up much space when not in use, and their multi-layered elevated platform design encourages creative setups that can inspire new tactical approaches during gameplay. Overall, these risers help transform flat game boards into dynamic battlefields, enriching the overall gaming experience for passionate tabletop enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0F54DN6BL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Elevator Stem Project Science Experiment Develop Toy Diy 3d Elevator Puzzle</a>
+## <a href="https://www.amazon.com/dp/B0F54DN6BL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Elevator Stem Project Science Experiment Develop Toy Diy 3d Elevator Puzzle</a>
 
 
-<a href="https://www.amazon.com/dp/B0F54DN6BL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Elevator Stem Project Science Experiment Develop Toy DIY 3D Elevator Puzzle for Age 5+" src="https://m.media-amazon.com/images/I/41Im6H5th0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F54DN6BL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Elevator Stem Project Science Experiment Develop Toy DIY 3D Elevator Puzzle for Age 5+" src="https://m.media-amazon.com/images/I/41Im6H5th0L._SL500_.jpg"/></a>
 
 
 The **Kids Elevator Stem Project Science Experiment Develop Toy DIY 3D Elevator Puzzle** is ideal for young children aged 5 and above who are curious about how things work and enjoy hands-on learning. This educational toy is perfect for parents and educators looking to introduce basic **STEM concepts** through a fun and interactive activity that encourages problem-solving and creativity.
@@ -100,10 +100,10 @@ This **DIY 3D Elevator Puzzle** combines the excitement of building with the edu
 
 Crafted by **Toyvian**, this toy is built with quality materials that ensure durability and safety during play. Its design encourages children to think critically and develop problem-solving skills while having fun. Moreover, the elevator model promotes imaginative play and can serve as an excellent conversation starter about technology and innovation. Overall, this STEM project is a valuable educational tool that nurtures curiosity and learning in young minds.
 
-## <a href="https://www.amazon.com/dp/B0FCYM44T7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unomor Diy Mini Elevator</a>
+## <a href="https://www.amazon.com/dp/B0FCYM44T7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unomor Diy Mini Elevator</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCYM44T7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Unomor DIY Mini Elevator Science Equipment Electric Toy Model Decorative Science Display Creative Model Equipment Educational" src="https://m.media-amazon.com/images/I/41eupu3HM-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCYM44T7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Unomor DIY Mini Elevator Science Equipment Electric Toy Model Decorative Science Display Creative Model Equipment Educational" src="https://m.media-amazon.com/images/I/41eupu3HM-L._SL500_.jpg"/></a>
 
 
 The **Unomor DIY Mini Elevator Science Equipment Electric Toy Model** is ideal for students, educators, and science enthusiasts who are interested in exploring the principles of mechanics and engineering. This item is perfect for those who enjoy hands-on learning and want to create a functional, decorative science display that combines education with creativity. Whether you are a teacher looking to engage your students or a hobbyist seeking a compact yet insightful model, this mini elevator kit offers an excellent opportunity to build and understand elevator mechanics.
@@ -124,10 +124,10 @@ The **Unomor DIY Mini Elevator** model features a compact and durable design by 
 
 Additionally, the model’s decorative aspect makes it a perfect addition to science classrooms or personal collections. The assembly process not only enhances fine motor skills but also fosters creativity as users personalize the setup. Overall, this mini elevator offers a fun, engaging, and educational experience that bridges the gap between learning and play.
 
-## <a href="https://www.amazon.com/dp/B09WDTXCF8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Silver Plastic Elevator</a>
+## <a href="https://www.amazon.com/dp/B09WDTXCF8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Silver Plastic Elevator</a>
 
 
-<a href="https://www.amazon.com/dp/B09WDTXCF8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1/64 Silver Plastic Elevator ST213" src="https://m.media-amazon.com/images/I/41tyavUfwPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09WDTXCF8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1/64 Silver Plastic Elevator ST213" src="https://m.media-amazon.com/images/I/41tyavUfwPL._SL500_.jpg"/></a>
 
 
 The **1/64 Silver Plastic Elevator ST213** by **Standi Toys Inc.** is ideal for collectors and hobbyists who appreciate detailed miniature models. This item is perfect for those looking to enhance their dioramas, model train setups, or architectural displays with a realistic, compact elevator piece. Its precise dimensions and lightweight design make it suitable for both display and interactive model environments.
@@ -149,10 +149,10 @@ The **1/64 Silver Plastic Elevator ST213** boasts precise craftsmanship from **S
 
 Beyond aesthetics, the lightweight design enhances ease of use, enabling collectors and modelers to reposition or integrate the piece without hassle. While it lacks mechanical movement, its sturdy plastic build ensures longevity and minimal maintenance. Overall, this model elevator is an excellent choice for those seeking a high-quality, scale-appropriate accessory to elevate their miniature projects.
 
-## <a href="https://www.amazon.com/dp/B0B8C21846?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooden Elevator Kids Stem Projects</a>
+## <a href="https://www.amazon.com/dp/B0B8C21846?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wooden Elevator Kids Stem Projects</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8C21846?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wooden Elevator Kids Stem Projects for Kids Ages 8-12 Science Kits, DIY Model Building Kits for Kids Age 12-14, Elevator Toy for Age 5-8" src="https://m.media-amazon.com/images/I/31YhJJzJNbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8C21846?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wooden Elevator Kids Stem Projects for Kids Ages 8-12 Science Kits, DIY Model Building Kits for Kids Age 12-14, Elevator Toy for Age 5-8" src="https://m.media-amazon.com/images/I/31YhJJzJNbL._SL500_.jpg"/></a>
 
 
 The **Wooden Elevator Kids STEM Projects** kit is ideal for children aged **5 to 14** who have a keen interest in science, technology, engineering, and mathematics. It is perfect for young learners who enjoy hands-on activities and want to develop critical thinking and problem-solving skills through engaging DIY model building. Parents and educators looking for an educational toy that combines fun with learning will find this kit especially beneficial.
@@ -175,10 +175,10 @@ This **Wooden Elevator Kids STEM Project** kit offers an enriching educational e
 
 Additionally, the compact size and lightweight nature of the model make it easy to transport and display. The kit’s durable wooden components ensure longevity, allowing children to repeatedly assemble and experiment with their elevator. Overall, this product combines play with learning in a meaningful way, fostering curiosity and a passion for STEM subjects among young learners.
 
-## <a href="https://www.amazon.com/dp/B0FHWXG1XS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wofashpuret Miniature Mechanical Elevator Model Kit</a>
+## <a href="https://www.amazon.com/dp/B0FHWXG1XS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wofashpuret Miniature Mechanical Elevator Model Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0FHWXG1XS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOFASHPURET Miniature Mechanical Elevator Model Kit Electric Escalator Wood Puzzle Building Set Stem Science Experiments for Kids" src="https://m.media-amazon.com/images/I/41kjVAmsofL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FHWXG1XS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WOFASHPURET Miniature Mechanical Elevator Model Kit Electric Escalator Wood Puzzle Building Set Stem Science Experiments for Kids" src="https://m.media-amazon.com/images/I/41kjVAmsofL._SL500_.jpg"/></a>
 
 
 The **WOFASHPURET Miniature Mechanical Elevator Model Kit** is ideal for young learners and hobbyists interested in **STEM science experiments** and hands-on building projects. This electric escalator wood puzzle is perfect for kids who enjoy mechanical puzzles and educational toys that promote problem-solving skills and creativity. Parents and educators looking for engaging, interactive science kits that combine learning with fun will find this item especially beneficial.
@@ -201,10 +201,10 @@ The **WOFASHPURET Miniature Mechanical Elevator Model Kit** features a well-desi
 
 Beyond the fun of building, this kit offers significant educational value by encouraging kids to explore the fundamentals of engineering and physics. The hands-on nature of the project helps develop fine motor skills and patience, while the completed model serves as a tangible example of mechanical concepts in action. Its manageable size means it can be displayed proudly, reinforcing a child's sense of accomplishment and encouraging further interest in STEM fields.
 
-## <a href="https://www.amazon.com/dp/B0BKXMYMKH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milageto Diy Elevator Toy</a>
+## <a href="https://www.amazon.com/dp/B0BKXMYMKH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Milageto Diy Elevator Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKXMYMKH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milageto DIY Elevator Toy Develop Toy Science Experiment for Kids Teens" src="https://m.media-amazon.com/images/I/41Zjv3DYrXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKXMYMKH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Milageto DIY Elevator Toy Develop Toy Science Experiment for Kids Teens" src="https://m.media-amazon.com/images/I/41Zjv3DYrXL._SL500_.jpg"/></a>
 
 
 The **Milageto DIY Elevator Toy** is an excellent choice for **kids and teens** who are curious about **science experiments** and love hands-on projects. Ideal for young learners interested in **STEM education**, this toy encourages creativity, problem-solving, and a deeper understanding of mechanical principles. Parents and educators looking to inspire a passion for engineering and technology in children will find this product particularly valuable.
@@ -227,10 +227,10 @@ The **Milageto DIY Elevator Toy** stands out with its focus on practical learnin
 
 Additionally, the toy's robust construction and user-friendly assembly process make it accessible for a wide range of ages, especially for kids and teens eager to dive into scientific experiments. The project not only entertains but also boosts confidence as children see their elevator come to life, making the learning process both fun and rewarding.
 
-## <a href="https://www.amazon.com/dp/B0DY2P936S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Elevator Simulator Toy</a>
+## <a href="https://www.amazon.com/dp/B0DY2P936S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Elevator Simulator Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY2P936S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Elevator Simulator Toy with Interactive Buttons" src="https://m.media-amazon.com/images/I/41lMsl5B+ML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY2P936S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Elevator Simulator Toy with Interactive Buttons" src="https://m.media-amazon.com/images/I/41lMsl5B+ML._SL500_.jpg"/></a>
 
 
 The **Kids Elevator Simulator Toy with Interactive Buttons** is perfect for young children who are curious about how elevators work and enjoy engaging, hands-on play. Ideal for kids aged 3 and up, this toy encourages imaginative role-playing and helps develop fine motor skills and cognitive abilities. Parents looking for an educational yet entertaining toy that sparks creativity will find this elevator simulator an excellent choice.
@@ -253,10 +253,10 @@ The **Kids Elevator Simulator Toy** boasts a thoughtfully designed interface wit
 
 Constructed by **Elevatoy** under the **Generic brand**, this elevator simulator is built to last, encouraging repeated use and exploration. Beyond just entertainment, it helps children understand concepts of sequencing, spatial awareness, and cause-and-effect relationships. This makes it an excellent tool for both developmental growth and imaginative play, providing long-term value for parents and caregivers.
 
-## <a href="https://www.amazon.com/dp/B0F5JGXCBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyandona Electric Elevator Toy Model</a>
+## <a href="https://www.amazon.com/dp/B0F5JGXCBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyandona Electric Elevator Toy Model</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5JGXCBY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOYANDONA 1set Electric Elevator Toy Model for Boys and Experiment Kit for Hands Learning and Creativity Development Safe Materials Interactive Fun Skill Enhancement" src="https://m.media-amazon.com/images/I/41WPH8Bg8BL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5JGXCBY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TOYANDONA 1set Electric Elevator Toy Model for Boys and Experiment Kit for Hands Learning and Creativity Development Safe Materials Interactive Fun Skill Enhancement" src="https://m.media-amazon.com/images/I/41WPH8Bg8BL._SL500_.jpg"/></a>
 
 
 The **TOYANDONA 1set Electric Elevator Toy Model** is an excellent choice for **boys** and young learners who are curious about mechanics and engineering. Ideal for children interested in hands-on activities, this **experiment kit** promotes **creativity development** and **skill enhancement** through interactive play. Parents and educators seeking a **safe** and educational toy for STEM learning will find this model particularly suitable.

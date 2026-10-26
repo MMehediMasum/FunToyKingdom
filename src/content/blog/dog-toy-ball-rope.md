@@ -23,10 +23,10 @@ Many designs suit small to large breeds, making it easy to find the right size. 
 
 
 
-## <a href="https://www.amazon.com/dp/B08JLLW921?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Awgusu Dog Rope Ball 2pack</a>
+## <a href="https://www.amazon.com/dp/B08JLLW921?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Awgusu Dog Rope Ball 2pack</a>
 
 
-<a href="https://www.amazon.com/dp/B08JLLW921?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Awgusu Dog Rope Ball 2Pack - Medium Breeds Knot Ball Rope Toys for Puppies to Medium Dogs, Teething Chewing, Tug and Boredom Relief" src="https://m.media-amazon.com/images/I/51x3EjuoPmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08JLLW921?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Awgusu Dog Rope Ball 2Pack - Medium Breeds Knot Ball Rope Toys for Puppies to Medium Dogs, Teething Chewing, Tug and Boredom Relief" src="https://m.media-amazon.com/images/I/51x3EjuoPmL._SL500_.jpg"/></a>
 
 
 The **Awgusu Dog Rope Ball 2Pack** is ideal for owners of **puppies to medium-sized dogs** who are looking for durable and engaging toys. This product is perfect for dogs that enjoy **teething, chewing, tugging**, or need a fun way to relieve **boredom**. If your dog requires a safe and interactive toy to keep them mentally and physically stimulated, this set is a great choice.
@@ -48,10 +48,10 @@ The **Awgusu Dog Rope Ball** is crafted with tightly knotted ropes that withstan
 
 Beyond entertainment, these rope balls provide practical benefits such as aiding in **teething discomfort** for puppies and promoting healthier teeth by reducing plaque buildup during chewing. The set of two balls ensures that your dog always has a backup toy, reducing the likelihood of boredom and destructive behavior. Overall, the Awgusu Dog Rope Ball 2Pack is a versatile and valuable addition to any dog owner’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B004VBC0Z2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kong Ball With Rope</a>
+## <a href="https://www.amazon.com/dp/B004VBC0Z2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kong Ball With Rope</a>
 
 
-<a href="https://www.amazon.com/dp/B004VBC0Z2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KONG Ball with Rope - Durable Fetch Toy with Rope for Easy Throwing - For Tug, Playtime &amp; More - Natural Rubber - Red - For Small Dogs" src="https://m.media-amazon.com/images/I/41G4dMtNPLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B004VBC0Z2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KONG Ball with Rope - Durable Fetch Toy with Rope for Easy Throwing - For Tug, Playtime &amp; More - Natural Rubber - Red - For Small Dogs" src="https://m.media-amazon.com/images/I/41G4dMtNPLL._SL500_.jpg"/></a>
 
 
 The **KONG Ball with Rope** is an ideal choice for **small dog owners** looking for a **durable** and **versatile fetch toy**. If you want to engage your pet in active play sessions involving **fetch, tugging, and interactive fun**, this toy is designed to withstand energetic play while being gentle on your dog's teeth. Its size and material make it perfect for **small breeds** that need a sturdy yet manageable toy.
@@ -73,10 +73,10 @@ The **KONG Ball with Rope** stands out for its **natural rubber construction**, 
 
 Its compact dimensions make it ideal for **small dogs** who need toys that fit comfortably in their mouths without being cumbersome. The bright **red color** improves visibility outdoors, reducing the chance of losing the toy during play. Lightweight and easy to handle, this toy promotes more frequent and varied play sessions, contributing to your dog's overall health and happiness.
 
-## <a href="https://www.amazon.com/dp/B007E2X982?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jolly Pets Romp-n-roll Rope And Ball Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B007E2X982?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jolly Pets Romp-n-roll Rope And Ball Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B007E2X982?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jolly Pets Romp-n-Roll Rope and Ball Dog Toy, 6 Inches/Medium, Blueberry, Model Number: 606 BB, All Breed Sizes" src="https://m.media-amazon.com/images/I/31R+N2ZW99L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007E2X982?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jolly Pets Romp-n-Roll Rope and Ball Dog Toy, 6 Inches/Medium, Blueberry, Model Number: 606 BB, All Breed Sizes" src="https://m.media-amazon.com/images/I/31R+N2ZW99L._SL500_.jpg"/></a>
 
 
 The **Jolly Pets Romp-n-Roll Rope and Ball Dog Toy** is ideal for dog owners looking for a durable and engaging toy suitable for **all breed sizes**. Whether you have an energetic medium-sized dog or a playful puppy, this toy is designed to provide hours of interactive fun and exercise, making it perfect for dogs that love to chew, tug, and fetch.
@@ -98,10 +98,10 @@ The **Jolly Pets Romp-n-Roll Rope and Ball Dog Toy** combines a sturdy rope with
 
 Additionally, the toy’s compact **6-inch** size and lightweight build make it easy for dogs to carry and for owners to throw, enhancing outdoor play sessions. Its vibrant **Blueberry** color ensures it’s easy to spot in grass or snow, making it a practical choice for active pet owners. Overall, this toy offers a balanced combination of durability, fun, and exercise for dogs of various sizes.
 
-## <a href="https://www.amazon.com/dp/B08526TKSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunglow Dog Toy Interactive Chewing Rope Ball Toys</a>
+## <a href="https://www.amazon.com/dp/B08526TKSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sunglow Dog Toy Interactive Chewing Rope Ball Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B08526TKSZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sunglow Dog Toy Interactive Chewing Rope Ball Toys Natural Cotton Washable Durable Tug of War for Small Medium Dogs Puppies Training Playing Teeth Cleaning (Drop Ball)" src="https://m.media-amazon.com/images/I/41P2d-xt22L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08526TKSZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sunglow Dog Toy Interactive Chewing Rope Ball Toys Natural Cotton Washable Durable Tug of War for Small Medium Dogs Puppies Training Playing Teeth Cleaning (Drop Ball)" src="https://m.media-amazon.com/images/I/41P2d-xt22L._SL500_.jpg"/></a>
 
 
 The **Sunglow Dog Toy Interactive Chewing Rope Ball** is an ideal choice for pet owners looking to engage their **small to medium dogs** or **puppies** in fun, interactive play while promoting dental health. If you want a durable, washable toy that supports training and helps clean your dog's teeth, this product is designed specifically for you.
@@ -123,10 +123,10 @@ The **Sunglow Dog Toy** features a thoughtfully designed rope ball made from **n
 
 Thanks to its **washable** design, pet owners can easily keep the toy clean and hygienic, ensuring a fresh playtime experience for their furry friends. Additionally, the **tug of war** functionality strengthens the bond between owner and pet while promoting healthy exercise. Overall, this toy is a practical and engaging solution for dog owners prioritizing both fun and health in their pet's daily routine.
 
-## <a href="https://www.amazon.com/dp/B092ZPCP5Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sharlovy Dog Toys</a>
+## <a href="https://www.amazon.com/dp/B092ZPCP5Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sharlovy Dog Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B092ZPCP5Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHARLOVY Dog Toys for Aggressive Chewers, Dog Balls for Large Breeds, Heavy Duty Cotton Rope Chew Toys with Tough Twisted for Medium Breeds, 6 Pack Indestructible Chew Toys" src="https://m.media-amazon.com/images/I/61IuyrkYkTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B092ZPCP5Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SHARLOVY Dog Toys for Aggressive Chewers, Dog Balls for Large Breeds, Heavy Duty Cotton Rope Chew Toys with Tough Twisted for Medium Breeds, 6 Pack Indestructible Chew Toys" src="https://m.media-amazon.com/images/I/61IuyrkYkTL._SL500_.jpg"/></a>
 
 
 The **SHARLOVY Dog Toys for Aggressive Chewers** are ideal for pet owners with large or medium breed dogs who tend to chew vigorously. If you are looking for durable and safe chew toys that can withstand heavy chewing while providing entertainment and dental benefits, this 6-pack of **heavy-duty cotton rope chew toys** is an excellent choice. These toys are designed specifically to cater to aggressive chewers, ensuring long-lasting fun for your furry friend.
@@ -148,10 +148,10 @@ The **SHARLOVY Dog Toys** come in a convenient 6-pack, each measuring 3 inches i
 
 Additionally, the bright colors and sturdy construction ensure these chew toys can hold your dog’s attention and endure rigorous play sessions. By providing your dog with these tough, indestructible chew toys, you can minimize destructive chewing on household items while keeping your pet mentally stimulated and physically active. Overall, the **SHARLOVY Dog Balls** are a practical and reliable choice for owners seeking quality chew toys for their aggressive chewers.
 
-## <a href="https://www.amazon.com/dp/B008APMKO6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Ultra Tug Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B008APMKO6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Ultra Tug Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B008APMKO6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Ultra Tug Dog Toy, Medium Fetch and Dog Ball Tug Toy for Dogs 20-60 Pounds" src="https://m.media-amazon.com/images/I/41KT0YRQv3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008APMKO6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Ultra Tug Dog Toy, Medium Fetch and Dog Ball Tug Toy for Dogs 20-60 Pounds" src="https://m.media-amazon.com/images/I/41KT0YRQv3L._SL500_.jpg"/></a>
 
 
 The **Chuckit! Ultra Tug Dog Toy, Medium Fetch and Dog Ball Tug Toy** is ideal for dog owners with medium-sized breeds weighing between **20-60 pounds**. If you are looking for a durable, engaging, and interactive toy that combines fetch and tug-of-war play, this toy is perfect for keeping your active dog entertained and physically stimulated. It’s especially suited for dogs who enjoy energetic play sessions and require a toy that can withstand strong chewing and tugging.
@@ -175,10 +175,10 @@ The **Chuckit! Ultra Tug Dog Toy** offers a unique combination of fetch and tug 
 
 Crafted by **Canine Hardware**, this toy is built to last with materials that can withstand moderate chewing and tugging, promoting healthy exercise and mental stimulation for your dog. Its medium size makes it an excellent fit for dogs within the recommended weight range, ensuring comfortable play without strain. Overall, the Chuckit! Ultra Tug Dog Toy is an excellent investment for dog owners seeking an engaging, durable, and multi-functional toy to keep their pets happy and active.
 
-## <a href="https://www.amazon.com/dp/B07FYG8YCS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Rope Fetch Dog Toy</a>
+## <a href="https://www.amazon.com/dp/B07FYG8YCS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Chuckit! Rope Fetch Dog Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07FYG8YCS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Rope Fetch Dog Toy - Ball on Rope Fetch and Tug-of-War Toy for Dogs - Durable EVA Rubber Construction - 5.5-inch Diameter - 18-inch Rope - Orange and Blue" src="https://m.media-amazon.com/images/I/31W5qWw9i3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07FYG8YCS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Chuckit! Rope Fetch Dog Toy - Ball on Rope Fetch and Tug-of-War Toy for Dogs - Durable EVA Rubber Construction - 5.5-inch Diameter - 18-inch Rope - Orange and Blue" src="https://m.media-amazon.com/images/I/31W5qWw9i3L._SL500_.jpg"/></a>
 
 
 The **Chuckit! Rope Fetch Dog Toy** is perfect for active dog owners who want to engage their pets in interactive play. Ideal for dogs that love to fetch, tug, and chew, this toy is designed to withstand energetic play sessions. If you’re looking for a durable, easy-to-throw toy that enhances bonding time with your dog, this is an excellent choice.
@@ -201,10 +201,10 @@ The **Chuckit! Rope Fetch Dog Toy** combines a sturdy **EVA rubber ball** with a
 
 Additionally, the toy's bright **orange and blue colors** enhance visibility, making it easier to spot during outdoor adventures. Its size and weight are optimized for medium to large dogs, ensuring they can comfortably carry and interact with the toy. Overall, this toy promotes physical exercise, mental stimulation, and strengthens the bond between you and your furry friend.
 
-## <a href="https://www.amazon.com/dp/B0018CK0HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mammoth Flossy Chews Color 3 Knot Tug W/mini Tennis Ball</a>
+## <a href="https://www.amazon.com/dp/B0018CK0HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mammoth Flossy Chews Color 3 Knot Tug W/mini Tennis Ball</a>
 
 
-<a href="https://www.amazon.com/dp/B0018CK0HC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mammoth Flossy Chews Color 3 Knot Tug w/Mini Tennis Ball – Premium Cotton-Poly Tug Toy for Dogs – Interactive – Rope Dog Toy for Small Dogs - Mini 11”" src="https://m.media-amazon.com/images/I/31rv3jqmt9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0018CK0HC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mammoth Flossy Chews Color 3 Knot Tug w/Mini Tennis Ball – Premium Cotton-Poly Tug Toy for Dogs – Interactive – Rope Dog Toy for Small Dogs - Mini 11”" src="https://m.media-amazon.com/images/I/31rv3jqmt9L._SL500_.jpg"/></a>
 
 
 The **Mammoth Flossy Chews Color 3 Knot Tug w/Mini Tennis Ball** is ideal for dog owners seeking a durable and engaging **interactive rope toy** for their small dogs. If you want a **premium cotton-poly tug toy** that combines fun and dental benefits, this 11-inch toy is a perfect choice for active pups who love to chew and play tug-of-war.
@@ -226,10 +226,10 @@ The **Mammoth Flossy Chews Color 3 Knot Tug** offers a thoughtfully designed com
 
 Additionally, the toy's **multi-colored design** and compact dimensions make it easy to handle and visually stimulating for your dog. Whether used for a game of tug-of-war or solo chewing, it keeps your small dog entertained and mentally stimulated. The lightweight design also makes it easy to carry on walks or trips, ensuring your pet always has a favorite toy at hand.
 
-## <a href="https://www.amazon.com/dp/B0DRJHN3VR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Erhalithegro Dog Rope Toy</a>
+## <a href="https://www.amazon.com/dp/B0DRJHN3VR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Erhalithegro Dog Rope Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRJHN3VR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Erhalithegro Dog Rope Toy for Medium and Small Dogs Interactive Puppy Toys Tug of War Rope Tether Tug Outdoor Dog Toy 1 Knot Puppy Teething Chew Cotton with Tennis Ball" src="https://m.media-amazon.com/images/I/41pShKvOafL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRJHN3VR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Erhalithegro Dog Rope Toy for Medium and Small Dogs Interactive Puppy Toys Tug of War Rope Tether Tug Outdoor Dog Toy 1 Knot Puppy Teething Chew Cotton with Tennis Ball" src="https://m.media-amazon.com/images/I/41pShKvOafL._SL500_.jpg"/></a>
 
 
 The **Erhalithegro Dog Rope Toy** is ideal for owners of **medium and small dogs** who are looking for an **interactive and durable chew toy**. If your pet enjoys games like **tug of war** or needs a safe outlet for **teething** and chewing, this toy provides an excellent option to keep them engaged and entertained. It is especially suitable for puppies and active dogs that require mental stimulation and physical exercise.
@@ -253,10 +253,10 @@ The **Erhalithegro Dog Rope Toy** features a sturdy **cotton rope** designed to 
 
 This toy encourages **interactive games like tug of war**, which not only helps expend your dog’s energy but also enhances the bond between you and your pet. The durable materials and thoughtful design help promote dental health by cleaning teeth and massaging gums during chewing. Overall, it is a practical and entertaining choice for dog owners seeking a quality chew and tug toy.
 
-## <a href="https://www.amazon.com/dp/B0CZ95V5HT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gasapet Extra Large Rope Balls For Aggressive Chewers</a>
+## <a href="https://www.amazon.com/dp/B0CZ95V5HT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gasapet Extra Large Rope Balls For Aggressive Chewers</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZ95V5HT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GASAPET Extra Large Rope Balls for Aggressive Chewers - 5 Pack Chew Toys for Medium Large Breeds, Dental Dog Balls, Puppy Teething Toys, Interactive Games" src="https://m.media-amazon.com/images/I/51b-e2oxiVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZ95V5HT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="GASAPET Extra Large Rope Balls for Aggressive Chewers - 5 Pack Chew Toys for Medium Large Breeds, Dental Dog Balls, Puppy Teething Toys, Interactive Games" src="https://m.media-amazon.com/images/I/51b-e2oxiVL._SL500_.jpg"/></a>
 
 
 The **GASAPET Extra Large Rope Balls** are perfect for owners of **medium to large breed dogs** who are aggressive chewers. If you're looking for durable, interactive chew toys that can withstand intense chewing sessions while promoting dental health, this 5-pack of **chew toys** is an excellent choice. Ideal for puppies going through the teething phase as well as adult dogs needing engaging playtime, these rope balls provide both entertainment and practical benefits.

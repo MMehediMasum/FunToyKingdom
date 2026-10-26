@@ -23,10 +23,10 @@ Many fidget toys come in quiet designs suitable for classrooms. They also make g
 
 
 
-## <a href="https://www.amazon.com/dp/B07TT6664Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scientoy Fidget Toy Set</a>
+## <a href="https://www.amazon.com/dp/B07TT6664Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scientoy Fidget Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07TT6664Z?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scientoy Fidget Toy Set, 35 Pcs Sensory Toy for ADD, OCD, Autistic Children, Adults, Anxiety Autism to Stress Relief and Anti Anxiety with Motion Timer, Perfect for Classroom Reward with Gift Box" src="https://m.media-amazon.com/images/I/61KIG5309eL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TT6664Z?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scientoy Fidget Toy Set, 35 Pcs Sensory Toy for ADD, OCD, Autistic Children, Adults, Anxiety Autism to Stress Relief and Anti Anxiety with Motion Timer, Perfect for Classroom Reward with Gift Box" src="https://m.media-amazon.com/images/I/61KIG5309eL._SL500_.jpg"/></a>
 
 
 The **Scientoy Fidget Toy Set** is ideal for individuals dealing with **ADD, OCD, autism, anxiety**, or those who simply need effective **stress relief**. It is perfect for both **children and adults** who benefit from sensory stimulation and calming activities, making it an excellent choice for classrooms, therapy sessions, or at-home use.
@@ -48,10 +48,10 @@ The **Scientoy Fidget Toy Set** offers a comprehensive collection of sensory toy
 
 Additionally, the set’s thoughtful design as a **classroom reward** or gift supports positive reinforcement and encourages consistent use. Its portability and robust construction mean it can be easily taken anywhere, providing continuous support for stress relief and sensory engagement throughout the day. Overall, this set is a versatile and practical tool for managing attention difficulties and sensory needs.
 
-## <a href="https://www.amazon.com/dp/B0DHS6KQ13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Rings For Kids</a>
+## <a href="https://www.amazon.com/dp/B0DHS6KQ13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Rings For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHS6KQ13?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Rings for Kids: 12 Pack Finger Spinner Rings - Texture Stress Toys for Kids Autism Calming - Fun Fidgets for Student Classroom Prize Stocking Stuffers" src="https://m.media-amazon.com/images/I/51w-CMX53rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHS6KQ13?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Rings for Kids: 12 Pack Finger Spinner Rings - Texture Stress Toys for Kids Autism Calming - Fun Fidgets for Student Classroom Prize Stocking Stuffers" src="https://m.media-amazon.com/images/I/51w-CMX53rL._SL500_.jpg"/></a>
 
 
 The **Fidget Toys Sensory Rings for Kids** are perfect for children who benefit from sensory stimulation and calming activities, especially those with **autism** or attention difficulties. Ideal for parents, teachers, and caregivers looking for engaging and soothing tools, these **12 Pack Finger Spinner Rings** serve as excellent stress-relief toys that help improve focus and reduce anxiety in classroom or home settings.
@@ -73,10 +73,10 @@ These **sensory rings** are thoughtfully designed to offer both tactile and visu
 
 By incorporating these **fidget toys** into daily routines, children experience a natural reduction in stress and anxiety, which can enhance concentration and overall well-being. The rings' simple yet effective design supports sensory exploration and self-soothing behaviors, making them a valuable addition for anyone seeking fun and functional stress relief tools.
 
-## <a href="https://www.amazon.com/dp/B0DC69M33Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Adults Sensory Stone</a>
+## <a href="https://www.amazon.com/dp/B0DC69M33Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Adults Sensory Stone</a>
 
 
-<a href="https://www.amazon.com/dp/B0DC69M33Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Adults Sensory Stone: 6 Pack Textured Worry Stone for Autism Kids Calming Down - Fidget Stress Toys for Anxiety Relief - Small Students Prizes Fidget Toys" src="https://m.media-amazon.com/images/I/51LIWqw13oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DC69M33Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Adults Sensory Stone: 6 Pack Textured Worry Stone for Autism Kids Calming Down - Fidget Stress Toys for Anxiety Relief - Small Students Prizes Fidget Toys" src="https://m.media-amazon.com/images/I/51LIWqw13oL._SL500_.jpg"/></a>
 
 
 Ideal for both **adults** and **children** who experience **anxiety**, **stress**, or require **sensory stimulation**, the **Fidget Toys Adults Sensory Stone** set is perfect for those needing a calming tool. This product is especially beneficial for **individuals with autism**, **students**, or anyone looking to improve focus and relaxation during daily activities.
@@ -99,10 +99,10 @@ The **Fidget Toys Adults Sensory Stone** offers thoughtfully designed **textured
 
 Each **worry stone** in the set is crafted to be durable and comfortable to hold, making it suitable for frequent use throughout the day. The **multiple color options** not only add a fun element but also allow users to choose stones that appeal most to their personal taste, encouraging consistent use. Whether used during work, study, or moments of stress, this pack of fidget toys serves as an effective tool to promote relaxation and concentration naturally.
 
-## <a href="https://www.amazon.com/dp/B0C855J5NL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mozaci Fidget Toys</a>
+## <a href="https://www.amazon.com/dp/B0C855J5NL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mozaci Fidget Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0C855J5NL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOZACI Fidget Toys, 120 Pack Fidgets Set Stocking Stuffers for Kids Party Favors Autism Sensory Toy Bulk Adults Kids Boys Girls Teens Stress Autistic ADHD Anxiety Carnival Treasure Classroom Prizes" src="https://m.media-amazon.com/images/I/61wAgBG0RYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C855J5NL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MOZACI Fidget Toys, 120 Pack Fidgets Set Stocking Stuffers for Kids Party Favors Autism Sensory Toy Bulk Adults Kids Boys Girls Teens Stress Autistic ADHD Anxiety Carnival Treasure Classroom Prizes" src="https://m.media-amazon.com/images/I/61wAgBG0RYL._SL500_.jpg"/></a>
 
 
 The **MOZACI Fidget Toys 120 Pack** is an ideal choice for parents, teachers, and caregivers looking for effective sensory toys to support children and adults with **Autism, ADHD, anxiety**, or those who simply benefit from stress relief tools. This bulk set is perfect for **kids, teens, and adults** who need to improve focus, calm nerves, or engage in tactile play, making it a great addition for classrooms, parties, or therapy sessions.
@@ -124,10 +124,10 @@ The **MOZACI Fidget Toys set** offers an extensive collection of tactile tools d
 
 Additionally, the convenience of having 120 pieces in one package makes it an excellent resource for group settings such as classrooms, therapy groups, or parties. It encourages social interaction while providing calming sensory input. The compact and sturdy design ensures that these toys can be easily stored and transported, making them practical for daily use by both kids and adults alike.
 
-## <a href="https://www.amazon.com/dp/B08LVFSWSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8pcs Fidgets Wacky Tracks Fidget Toys</a>
+## <a href="https://www.amazon.com/dp/B08LVFSWSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">8pcs Fidgets Wacky Tracks Fidget Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B08LVFSWSN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8Pcs Fidgets Wacky Tracks Fidget Toys for Kids Classroom Students Gifts School Prizes Stocking Stuffers Sensory Autism Snap Fidget Click Snake Toys for Adults Travel Stress Relief ADHD" src="https://m.media-amazon.com/images/I/516tEqKxzAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LVFSWSN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8Pcs Fidgets Wacky Tracks Fidget Toys for Kids Classroom Students Gifts School Prizes Stocking Stuffers Sensory Autism Snap Fidget Click Snake Toys for Adults Travel Stress Relief ADHD" src="https://m.media-amazon.com/images/I/516tEqKxzAL._SL500_.jpg"/></a>
 
 
 The **8Pcs Fidgets Wacky Tracks Fidget Toys** are ideal for **kids, students, and adults** who need a fun and effective way to manage stress, improve focus, or simply keep their hands busy. These toys are especially beneficial for individuals with **ADHD, autism, or sensory processing needs**, making them perfect for classroom use, travel, or as thoughtful gifts and stocking stuffers.
@@ -149,10 +149,10 @@ The **8Pcs Fidgets Wacky Tracks** feature a flexible, snap-together design that 
 
 Crafted by the reputable **Abodhu brand**, these fidget toys are made with durable materials that withstand frequent use. Their tactile clicking and snapping sounds offer satisfying sensory feedback, which can be particularly beneficial for individuals with sensory processing challenges or those seeking calming stimuli. Overall, these fidget toys combine practicality, fun, and therapeutic benefits, making them an excellent choice for anyone looking to enhance focus, reduce anxiety, or simply enjoy a playful distraction.
 
-## <a href="https://www.amazon.com/dp/B091JXRHQN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wtycd Original Fidget Toy Game</a>
+## <a href="https://www.amazon.com/dp/B091JXRHQN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wtycd Original Fidget Toy Game</a>
 
 
-<a href="https://www.amazon.com/dp/B091JXRHQN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WTYCD Original Fidget Toy Game, Rubberized Classical Controller Fidget Concentration Toy with 8-Fidget Functions and Lanyard - Excellent for Relieving Stress and Anxiety" src="https://m.media-amazon.com/images/I/31CQhY8ECTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091JXRHQN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WTYCD Original Fidget Toy Game, Rubberized Classical Controller Fidget Concentration Toy with 8-Fidget Functions and Lanyard - Excellent for Relieving Stress and Anxiety" src="https://m.media-amazon.com/images/I/31CQhY8ECTL._SL500_.jpg"/></a>
 
 
 The **WTYCD Original Fidget Toy Game** is ideal for individuals who seek a compact and effective way to manage **stress** and **anxiety**. Whether you are a student, professional, or someone who enjoys tactile engagement, this **rubberized classical controller fidget toy** provides a convenient tool to enhance **focus** and **concentration** during work or leisure.
@@ -174,10 +174,10 @@ The **WTYCD Original Fidget Toy Game** stands out with its **8 distinct fidget f
 
 Users benefit from the toy’s ability to promote **stress relief** and improve **concentration** in various settings, from classrooms to office environments. The tactile engagement provided by the multiple fidget functions helps to channel nervous energy positively, aiding in maintaining focus and reducing anxiety. Overall, the **WTYCD Fidget Toy** is a practical and effective tool for anyone looking to enhance their mental well-being through simple, hands-on interaction.
 
-## <a href="https://www.amazon.com/dp/B0D1QWP8B7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Stone For Kids</a>
+## <a href="https://www.amazon.com/dp/B0D1QWP8B7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Stone For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0D1QWP8B7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Stone for Kids: 6 Pack Textured Soft Worry Stone for Autism Kids Calming - Fidget Stress Toys for Students Anxiety Relief - Small Prizes Fidget Toys" src="https://m.media-amazon.com/images/I/51yqlKXa+dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D1QWP8B7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Stone for Kids: 6 Pack Textured Soft Worry Stone for Autism Kids Calming - Fidget Stress Toys for Students Anxiety Relief - Small Prizes Fidget Toys" src="https://m.media-amazon.com/images/I/51yqlKXa+dL._SL500_.jpg"/></a>
 
 
 The **Fidget Toys Sensory Stone for Kids** is ideal for children who benefit from sensory stimulation and calming activities, particularly those with **autism**, **anxiety**, or attention difficulties. These textured, soft worry stones are perfect for students and kids who need a discreet and effective tool to manage stress and maintain focus throughout the day.
@@ -200,10 +200,10 @@ The **KLT Fidget Toys Sensory Stone** set offers a simple yet effective solution
 
 Each pack includes six stones, giving children the opportunity to explore different textures and find the one that works best for them. This variety enhances the overall sensory experience and encourages consistent use. Made by **KLT**, a brand known for quality, these fidget toys are durable and safe for regular use, making them excellent small prizes or gifts for kids who need calming support throughout their day.
 
-## <a href="https://www.amazon.com/dp/B0DZ6QKXWH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys 126 Pack Party Favors</a>
+## <a href="https://www.amazon.com/dp/B0DZ6QKXWH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys 126 Pack Party Favors</a>
 
 
-<a href="https://www.amazon.com/dp/B0DZ6QKXWH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys, 126 Pack Party Favors for Kids 8-12 4-8, Sensory Toys Bulk Autism Autistic, Treasure Box Toys for Classroom, Stocking Stuffers, Goodie Bag Stuffers, Christmas Birthday Gifts Prizes" src="https://m.media-amazon.com/images/I/61XiiZCkF9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DZ6QKXWH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys, 126 Pack Party Favors for Kids 8-12 4-8, Sensory Toys Bulk Autism Autistic, Treasure Box Toys for Classroom, Stocking Stuffers, Goodie Bag Stuffers, Christmas Birthday Gifts Prizes" src="https://m.media-amazon.com/images/I/61XiiZCkF9L._SL500_.jpg"/></a>
 
 
 The **Fidget Toys 126 Pack** is perfect for parents, teachers, and event organizers looking for engaging and affordable **party favors** or **sensory toys** for children aged **4-12 years**. These toys are especially suitable for kids with **autism** or sensory processing needs, providing a fun and calming experience. Ideal for classrooms, birthday parties, Christmas stocking stuffers, or goodie bags, this bulk pack offers a variety of colorful and tactile toys that keep children entertained and focused.
@@ -226,10 +226,10 @@ The **Fidget Toys 126 Pack** by **VNAMO** offers an extensive collection of smal
 
 These sensory toys are particularly beneficial for children with **autism** or those who require sensory input to help manage anxiety and improve focus. Teachers and parents can easily distribute them as **classroom rewards**, **party favors**, or **holiday gifts**, ensuring every child receives a fun and calming item. The bulk packaging also makes it cost-effective for large events or educational settings, combining practicality with therapeutic benefits.
 
-## <a href="https://www.amazon.com/dp/B0CVYK21SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pilpoc Thefube Fidget Cube</a>
+## <a href="https://www.amazon.com/dp/B0CVYK21SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pilpoc Thefube Fidget Cube</a>
 
 
-<a href="https://www.amazon.com/dp/B0CVYK21SN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PILPOC theFube Fidget Cube, 6-Sided Stress Relief Infinity Cube for Adults &amp; Kids, Boosts Concentration, Mindfulness Aid, Silent &amp; Audible Modes, Includes Carry Case for Portability (Midnight)" src="https://m.media-amazon.com/images/I/41-PO-xd7jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CVYK21SN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PILPOC theFube Fidget Cube, 6-Sided Stress Relief Infinity Cube for Adults &amp; Kids, Boosts Concentration, Mindfulness Aid, Silent &amp; Audible Modes, Includes Carry Case for Portability (Midnight)" src="https://m.media-amazon.com/images/I/41-PO-xd7jL._SL500_.jpg"/></a>
 
 
 The **PILPOC theFube Fidget Cube** is ideal for both **adults and kids** who seek a practical tool to manage **stress** and improve **concentration**. Whether you are a student, professional, or someone who enjoys mindful activities, this **6-sided stress relief infinity cube** is designed to provide sensory engagement and help maintain focus throughout the day. Its compact size and portability make it perfect for on-the-go use.
@@ -251,10 +251,10 @@ The **PILPOC theFube Fidget Cube** features a unique **6-sided infinity design**
 
 Crafted with high-quality materials by **Gravitiq Acquisition Co 3/Pilpoc**, this cube is both sturdy and visually appealing with its elegant **Midnight** finish. The included **carry case** protects the cube from wear and tear and enhances its portability. Overall, the **theFube Fidget Cube** serves as an effective tool for anyone looking to increase focus, reduce stress, and practice mindfulness throughout their daily routine.
 
-## <a href="https://www.amazon.com/dp/B08D3VSRFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Pen Spiky Sensory Rings</a>
+## <a href="https://www.amazon.com/dp/B08D3VSRFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Pen Spiky Sensory Rings</a>
 
 
-<a href="https://www.amazon.com/dp/B08D3VSRFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Pen- Spiky Sensory Rings, 10 Pack, Stress Relief Fidget Sensory Toys, Fidget Rings, Fidget Ring for Anxiety, Stress Relief Rings, Massager for Fidget ADHD Autism, Back to School Supplies" src="https://m.media-amazon.com/images/I/51xXLjzeSvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08D3VSRFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Pen- Spiky Sensory Rings, 10 Pack, Stress Relief Fidget Sensory Toys, Fidget Rings, Fidget Ring for Anxiety, Stress Relief Rings, Massager for Fidget ADHD Autism, Back to School Supplies" src="https://m.media-amazon.com/images/I/51xXLjzeSvL._SL500_.jpg"/></a>
 
 
 The **Mr. Pen Spiky Sensory Rings, 10 Pack** are ideal for individuals who seek effective **stress relief** and sensory stimulation, particularly those with **anxiety, ADHD, or autism**. These **fidget rings** serve as excellent **back to school supplies** for students needing a discreet way to stay focused and calm throughout the day. Anyone looking for a portable and tactile tool to help manage restlessness or improve concentration will benefit from these sensory toys.

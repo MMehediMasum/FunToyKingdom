@@ -19,7 +19,7 @@ Keep reading, and you’ll discover how easy and exciting it is to start sewing 
 
 ## Why Choose A Diy Toy Sewing Machine Kit
 
-A DIY toy sewing machine kit is a fun way for **[kids to learn sewing](https://www.amazon.com/s?k=sewing+kits+for+kids&tag=gearcookware-20)**. It offers hands-on experience with simple tools designed for children.
+A DIY toy sewing machine kit is a fun way for **[kids to learn sewing](https://www.amazon.com/s?k=sewing+kits+for+kids&tag=mofb05-20)**. It offers hands-on experience with simple tools designed for children.
 
 Kids enjoy building and using their own sewing machine. It helps them understand how machines work and makes learning creative.
 
@@ -59,7 +59,7 @@ The kit comes with various parts to create a functional sewing machine. Each pie
 
 * Plastic gears and wheels for movement
 * A needle suitable for light fabric
-* **[A hand crank](https://www.amazon.com/s?k=hand+crank+toy+sewing+machine&tag=gearcookware-20)** to power the machine
+* **[A hand crank](https://www.amazon.com/s?k=hand+crank+toy+sewing+machine&tag=mofb05-20)** to power the machine
 * Thread spool and thread guide
 * Base plate and frame components
 * Instruction manual with clear diagrams
@@ -125,7 +125,7 @@ Use patterns that require few stitches. This helps kids finish projects faster a
 * Heart-shaped pillows
 * Star-shaped keychains
 * Small pouches
-* **[Soft animal toys](https://www.amazon.com/s?k=kids+plush+sewing+kits&tag=gearcookware-20)**
+* **[Soft animal toys](https://www.amazon.com/s?k=kids+plush+sewing+kits&tag=mofb05-20)**
 * Square coasters
 
 ### Customizing Creations
@@ -271,4 +271,4 @@ The toy sewing machine operates using a manual or battery-powered mechanism. It 
 
 A DIY toy sewing machine kit brings fun and learning together. Kids enjoy creating their own small projects easily. It helps build hand skills and sparks creativity. Parents appreciate a safe and simple activity for children. This kit offers hours of playful, hands-on experience.
 
-Everyone can try sewing without needing big machines. It makes a **[great gift for young crafters](https://www.amazon.com/s?k=gifts+for+young+crafters&tag=gearcookware-20)**. Simple steps lead to proud, finished toys. A perfect way to inspire imagination and skill. Give it a try and watch creativity grow!
+Everyone can try sewing without needing big machines. It makes a **[great gift for young crafters](https://www.amazon.com/s?k=gifts+for+young+crafters&tag=mofb05-20)**. Simple steps lead to proud, finished toys. A perfect way to inspire imagination and skill. Give it a try and watch creativity grow!

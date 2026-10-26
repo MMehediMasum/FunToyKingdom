@@ -23,10 +23,10 @@ Games like Tic Tac Toe and Guess Who? Are quick to learn and bring joy to family
 
 
 
-## <a href="https://www.amazon.com/dp/B00D8STBHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Connect 4 Classic Grid</a>
+## <a href="https://www.amazon.com/dp/B00D8STBHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Connect 4 Classic Grid</a>
 
 
-<a href="https://www.amazon.com/dp/B00D8STBHY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Connect 4 Classic Grid,4 in a Row Game,Strategy Board Games for Kids,2 Player .for Family and Kids,Ages 6 and Up" src="https://m.media-amazon.com/images/I/513au7sIz0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D8STBHY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Connect 4 Classic Grid,4 in a Row Game,Strategy Board Games for Kids,2 Player .for Family and Kids,Ages 6 and Up" src="https://m.media-amazon.com/images/I/513au7sIz0L._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Connect 4 Classic Grid** is perfect for families and children aged 6 and up who enjoy engaging and strategic board games. Ideal for those looking to enhance critical thinking and problem-solving skills in a fun, competitive setting, this two-player game is a great choice for both casual play and family game nights. If you want a timeless, easy-to-learn game that fosters interaction and friendly rivalry, this is an excellent pick.
@@ -49,10 +49,10 @@ The **Hasbro Gaming Connect 4 Classic Grid** features a sturdy and colorful grid
 
 Beyond its entertainment value, this game helps develop critical thinking and tactical planning as players attempt to connect four discs in a row while blocking their opponent. The two-player setup fosters direct competition and social bonding, making it an excellent tool for family interaction. Overall, the combination of classic gameplay, portability, and educational benefits make this a valuable addition to any household.
 
-## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
+## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
 
 
-<a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
 
 
 The **SCRABBLE CLASSIC REFRESH** is ideal for word game enthusiasts, families looking for interactive entertainment, and anyone aiming to boost their vocabulary and spelling skills. Whether you're a casual player or a competitive wordsmith, this game offers a perfect blend of fun and challenge.
@@ -75,10 +75,10 @@ The **SCRABBLE CLASSIC REFRESH** features a well-crafted design with dimensions 
 
 As a **Standard Edition** board game from **Hasbro**, it retains the classic rules that have made Scrabble a favorite worldwide. Players benefit from hours of educational fun, improving their language skills while enjoying competitive play. The game's balance between strategy and luck makes it accessible for all ages, encouraging family bonding and friendly competition.
 
-## <a href="https://www.amazon.com/dp/B00CWY1ZS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joy For All Senior Word Games</a>
+## <a href="https://www.amazon.com/dp/B00CWY1ZS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Joy For All Senior Word Games</a>
 
 
-<a href="https://www.amazon.com/dp/B00CWY1ZS8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joy for All Senior Word Games - Classic Scrabble &amp; Bingo - Easy to Read &amp; Grip - Board Games for Elderly Adults, Orange" src="https://m.media-amazon.com/images/I/51umpXM28nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00CWY1ZS8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Joy for All Senior Word Games - Classic Scrabble &amp; Bingo - Easy to Read &amp; Grip - Board Games for Elderly Adults, Orange" src="https://m.media-amazon.com/images/I/51umpXM28nL._SL500_.jpg"/></a>
 
 
 The **Joy for All Senior Word Games** are designed specifically for **elderly adults** who enjoy engaging in classic board games like **Scrabble** and **Bingo**. Ideal for seniors looking to stimulate their minds, improve cognitive functions, or simply have fun in a social setting, these games offer easy-to-read and easy-to-grip features that cater to those with limited dexterity or vision challenges. This makes them perfect for seniors seeking an enjoyable and accessible way to stay mentally active.
@@ -101,10 +101,10 @@ The **Joy for All Senior Word Games** feature thoughtfully designed elements to 
 
 Additionally, the lightweight design and bright orange color make the games easy to handle and locate, even for those with some degree of visual impairment. The classic editions of **Scrabble** and **Bingo** provide familiar and enjoyable gameplay that can help enhance memory, vocabulary, and cognitive sharpness. Overall, this product is an excellent choice for seniors seeking both entertainment and cognitive exercise in an accessible and user-friendly format.
 
-## <a href="https://www.amazon.com/dp/B08DLN7D85?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Classic 6 Game Collection</a>
+## <a href="https://www.amazon.com/dp/B08DLN7D85?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Classic 6 Game Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B08DLN7D85?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Classic 6 Game Collection" src="https://m.media-amazon.com/images/I/51DvVFVo49L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DLN7D85?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Classic 6 Game Collection" src="https://m.media-amazon.com/images/I/51DvVFVo49L._SL500_.jpg"/></a>
 
 
 The **Classic 6 Game Collection** is perfect for families, game enthusiasts, and anyone looking to enjoy a variety of timeless board games in one compact set. Ideal for both kids and adults, this collection offers a convenient way to bring multiple games to family gatherings, parties, or travel, making it a versatile choice for those who love classic gaming experiences.
@@ -127,10 +127,10 @@ The **Classic 6 Game Collection** features a thoughtfully curated selection of p
 
 Manufactured by **Pressman**, a brand renowned for quality game products, this collection guarantees durability and reliable gameplay. The easy-to-carry dimensions and vibrant design attract players of all ages, while the straightforward game rules make it accessible for beginners and seasoned players alike. Overall, the Classic 6 Game Collection offers great value as a versatile, entertaining, and portable gaming solution.
 
-## <a href="https://www.amazon.com/dp/B0B2JZHQ2P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeyce Tic Tac Toe Board Game</a>
+## <a href="https://www.amazon.com/dp/B0B2JZHQ2P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zeyce Tic Tac Toe Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2JZHQ2P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="zeyce Tic Tac Toe Board Game,Tic Tac Toe Family Game, Classic Board Game, Classical Family Board Game,Children's Tic Tac Toe Game, Plastic tic tac Toe Game, Board Size 15 X 15 cm" src="https://m.media-amazon.com/images/I/41od0MAKleL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2JZHQ2P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="zeyce Tic Tac Toe Board Game,Tic Tac Toe Family Game, Classic Board Game, Classical Family Board Game,Children's Tic Tac Toe Game, Plastic tic tac Toe Game, Board Size 15 X 15 cm" src="https://m.media-amazon.com/images/I/41od0MAKleL._SL500_.jpg"/></a>
 
 
 The **zeyce Tic Tac Toe Board Game** is perfect for families, children, and board game enthusiasts who enjoy classic, easy-to-learn games that promote strategic thinking and social interaction. Ideal for parents looking to engage their kids in a fun, educational activity or for anyone seeking a compact and portable game for casual play.
@@ -152,10 +152,10 @@ The **zeyce Tic Tac Toe Board Game** features a compact and lightweight design w
 
 This board game is especially beneficial for children as it fosters cognitive development through pattern recognition and problem-solving while offering a fun and interactive way to spend quality time with family. The simple design means players of all ages can quickly grasp the rules, making it an inclusive game for gatherings or quiet moments. The lightweight and compact size further enhance its usability, allowing it to easily fit into backpacks or small storage spaces.
 
-## <a href="https://www.amazon.com/dp/B0CZQWTH4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Seenelling Jumbo Wooden Tic Tac Toe Game</a>
+## <a href="https://www.amazon.com/dp/B0CZQWTH4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Seenelling Jumbo Wooden Tic Tac Toe Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZQWTH4V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Seenelling Jumbo Wooden Tic Tac Toe Game Dementia Activities for Alzheimers Seniors with Matching and Puzzle Templates XO Chess Board Game for Elderly Engaging Table Decor(Blue, Red)" src="https://m.media-amazon.com/images/I/41jC3n38iZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZQWTH4V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Seenelling Jumbo Wooden Tic Tac Toe Game Dementia Activities for Alzheimers Seniors with Matching and Puzzle Templates XO Chess Board Game for Elderly Engaging Table Decor(Blue, Red)" src="https://m.media-amazon.com/images/I/41jC3n38iZL._SL500_.jpg"/></a>
 
 
 The **Seenelling Jumbo Wooden Tic Tac Toe Game** is ideal for caregivers, families, and professionals seeking engaging and therapeutic activities for **seniors with dementia or Alzheimer's**. This game is designed to stimulate cognitive function and provide a fun, interactive experience suitable for elderly individuals who benefit from gentle mental challenges and social interaction.
@@ -178,10 +178,10 @@ This **Seenelling Jumbo Wooden Tic Tac Toe Game** stands out for its thoughtfull
 
 Beyond being a simple board game, this product integrates **matching and puzzle templates** that add layers of cognitive challenge, promoting memory retention and mental stimulation. Its compact dimensions allow it to double as an engaging table decor, encouraging frequent use during social or therapeutic sessions. Overall, the game provides an effective and enjoyable way to support cognitive health and social interaction among seniors with dementia or Alzheimer's.
 
-## <a href="https://www.amazon.com/dp/B00S732WJE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guess Who? Board Game</a>
+## <a href="https://www.amazon.com/dp/B00S732WJE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Guess Who? Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00S732WJE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Guess Who? Board Game with Classic Characters by Winning Moves Games USA, Classic Children's Mystery Board Game of Deduction for 2 Players, Ages 6+ (1191)" src="https://m.media-amazon.com/images/I/51xhpZf-+4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00S732WJE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Guess Who? Board Game with Classic Characters by Winning Moves Games USA, Classic Children's Mystery Board Game of Deduction for 2 Players, Ages 6+ (1191)" src="https://m.media-amazon.com/images/I/51xhpZf-+4L._SL500_.jpg"/></a>
 
 
 The **Guess Who? Board Game with Classic Characters** by **Winning Moves Games USA** is ideal for families and children aged 6 and above who enjoy engaging, interactive, and educational gameplay. This game is perfect for those who want to develop their deduction and critical thinking skills while having fun in a classic two-player setting. It’s also great for fans of nostalgic, timeless board games looking to revisit or introduce the **1980s Edition** to a new generation.
@@ -204,10 +204,10 @@ The **Guess Who? Board Game** boasts a colorful array of classic characters that
 
 Additionally, this edition by **Winning Moves** captures the nostalgic charm of the 1980s, appealing to both new players and those familiar with the original game. The straightforward gameplay mechanics ensure that children as young as six can quickly grasp the rules, while the competitive nature of the game helps build social skills such as turn-taking and communication. Overall, this board game is a classic choice for anyone looking to combine fun with educational value.
 
-## <a href="https://www.amazon.com/dp/B00TLEMRKM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yahtzee Game</a>
+## <a href="https://www.amazon.com/dp/B00TLEMRKM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yahtzee Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00TLEMRKM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yahtzee Game, Fast-Playing Dice Games for Kids, Teens, and Adults, Strategy Games, Family Games for Kids, 2 or More Players, Ages 8 and Up" src="https://m.media-amazon.com/images/I/51z-dYxge5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00TLEMRKM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Yahtzee Game, Fast-Playing Dice Games for Kids, Teens, and Adults, Strategy Games, Family Games for Kids, 2 or More Players, Ages 8 and Up" src="https://m.media-amazon.com/images/I/51z-dYxge5L._SL500_.jpg"/></a>
 
 
 The **Yahtzee Game** is perfect for families, kids aged 8 and up, teens, and adults who enjoy fast-paced, strategic dice games. Whether you're looking for a fun way to engage children in critical thinking or a lively game night with friends, this game offers something for everyone. It’s ideal for those who appreciate classic games that combine luck and strategy.
@@ -231,10 +231,10 @@ The **Yahtzee Game** combines simple rules with engaging gameplay, making it acc
 
 Beyond entertainment, this game fosters important skills such as probability assessment, risk management, and social interaction. It’s a great tool for family bonding and enhancing cognitive abilities in children. With its durable build and trusted **Hasbro** quality, the Yahtzee Game promises countless hours of fun for players aged 8 and up.
 
-## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
+## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
 
 
-<a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
 
 
 The **I should have known that! - A Trivia Game About Things You Oughta Know** is perfect for individuals who love testing their general knowledge and enjoy fun, engaging group activities. This game is ideal for trivia enthusiasts, family gatherings, partygoers, and anyone looking to challenge themselves or others with interesting facts that everyone ought to know. Its compact size and vibrant green color make it a stylish and convenient addition to any game collection.
@@ -257,10 +257,10 @@ The **I should have known that!** trivia game boasts a compact and lightweight d
 
 Beyond its physical attributes, the game offers an engaging experience that encourages learning and social bonding. Players are challenged with trivia questions that cover essential facts everyone ought to know, which enhances both entertainment and educational value. The bright green color adds a playful vibe, making the game inviting and visually appealing. Overall, this trivia game balances fun, convenience, and knowledge, making it a valuable addition to any game night.
 
-## <a href="https://www.amazon.com/dp/B00GPK8ISK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pressman Checkers</a>
+## <a href="https://www.amazon.com/dp/B00GPK8ISK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pressman Checkers</a>
 
 
-<a href="https://www.amazon.com/dp/B00GPK8ISK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pressman Checkers -- Classic Game With Folding Board and Interlocking Checkers, 2 Players" src="https://m.media-amazon.com/images/I/41szn1zT6mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00GPK8ISK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pressman Checkers -- Classic Game With Folding Board and Interlocking Checkers, 2 Players" src="https://m.media-amazon.com/images/I/41szn1zT6mL._SL500_.jpg"/></a>
 
 
 The **Pressman Checkers -- Classic Game With Folding Board and Interlocking Checkers** is ideal for anyone who enjoys traditional board games, especially families, children, and casual gamers looking for a fun, engaging two-player activity. If you appreciate classic games that combine strategy and friendly competition, this game is a perfect addition to your collection.

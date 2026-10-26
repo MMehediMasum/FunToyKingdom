@@ -23,10 +23,10 @@ Kids aged 3 and up enjoy playing with them, while collectors value their detail 
 
 
 
-## <a href="https://www.amazon.com/dp/B08VWSCHPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl Iron John Deere Tractor Toys</a>
+## <a href="https://www.amazon.com/dp/B08VWSCHPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl Iron John Deere Tractor Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B08VWSCHPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL Iron John Deere Tractor Toys - 1:64 Scale - Includes 9620R, 4020, and 4960 Tractor Toys - Die-Cast John Deere Toys - Collectible Farm Toys Ages 3 Years and Up, Green" src="https://m.media-amazon.com/images/I/31aw868QsbS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08VWSCHPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL Iron John Deere Tractor Toys - 1:64 Scale - Includes 9620R, 4020, and 4960 Tractor Toys - Die-Cast John Deere Toys - Collectible Farm Toys Ages 3 Years and Up, Green" src="https://m.media-amazon.com/images/I/31aw868QsbS._SL500_.jpg"/></a>
 
 
 The **ERTL Iron John Deere Tractor Toys** are perfect for children aged 3 years and up who have a passion for farming, tractors, or collectible toys. Ideal for both playtime and display, these die-cast models cater to young enthusiasts and collectors who appreciate detailed replicas of classic John Deere tractors.
@@ -49,12 +49,12 @@ The **ERTL Iron John Deere Tractor Toys** feature a meticulous die-cast metal de
 
 Designed with both play and display in mind, these tractors are sized at a convenient **1:64 scale**, making them easy to carry and store. Their sturdy build ensures they withstand rough play, while the vibrant **John Deere green** finish adds visual appeal. Whether used for imaginative farm adventures or as part of a collection, these tractor toys provide educational value and enjoyment, fostering a love for agriculture and machinery from an early age.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08VWSCHPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08VWSCHPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00D75PUWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere 7215r Tractor With 1590 Grain Drill Replica</a>
+## <a href="https://www.amazon.com/dp/B00D75PUWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere 7215r Tractor With 1590 Grain Drill Replica</a>
 
 
-<a href="https://www.amazon.com/dp/B00D75PUWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere 7215R Tractor with 1590 Grain Drill Replica - 1:64 Scale - Authentic Die-Cast and Plastic Replica- John Deere Tractor Toys" src="https://m.media-amazon.com/images/I/41kNc5ON2FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00D75PUWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere 7215R Tractor with 1590 Grain Drill Replica - 1:64 Scale - Authentic Die-Cast and Plastic Replica- John Deere Tractor Toys" src="https://m.media-amazon.com/images/I/41kNc5ON2FL._SL500_.jpg"/></a>
 
 
 The **ERTL John Deere 7215R Tractor with 1590 Grain Drill Replica** is ideal for collectors, farming enthusiasts, and children who love detailed agricultural toys. This 1:64 scale model perfectly suits those who appreciate authentic replicas or seek a durable and realistic toy for imaginative play. If you value precision craftsmanship and iconic **John Deere** branding, this replica is made for you.
@@ -77,12 +77,12 @@ This **John Deere 7215R Tractor replica** stands out for its meticulous attentio
 
 Beyond aesthetics, the inclusion of the **1590 Grain Drill** adds to its functional realism, allowing users to simulate actual farming activities. The replica’s robust construction promises durability during play or handling, which is especially beneficial for children who enjoy active, imaginative scenarios. Overall, this model offers a blend of authenticity, quality, and practical size, ensuring it meets the expectations of both hobbyists and young John Deere enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00D75PUWS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00D75PUWS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B8M8P4CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale 4020 Tractor</a>
+## <a href="https://www.amazon.com/dp/B0B8M8P4CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale 4020 Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8M8P4CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale Happy Birthday 4020 Tractor" src="https://m.media-amazon.com/images/I/41xmu2PjQyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8M8P4CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale Happy Birthday 4020 Tractor" src="https://m.media-amazon.com/images/I/41xmu2PjQyL._SL500_.jpg"/></a>
 
 
 The **John Deere 1/16 Scale Happy Birthday 4020 Tractor** is ideal for collectors, John Deere enthusiasts, and those looking to gift a unique and detailed model tractor. If you appreciate precision craftsmanship and iconic agricultural machinery, this scale model is perfect for you. It also suits hobbyists who enjoy displaying or building collections of farm equipment replicas.
@@ -104,12 +104,12 @@ The **John Deere 1/16 Scale Happy Birthday 4020 Tractor** captures the iconic lo
 
 Measuring 6.0 inches in height and width, and 10.0 inches in length, the model is perfectly sized for display on shelves, desks, or in display cabinets without occupying excessive space. The "Happy Birthday" edition adds a festive charm, making it an excellent gift choice for birthdays or special occasions for John Deere fans. Overall, this scale tractor blends tradition, quality, and collectible appeal seamlessly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B8M8P4CS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B8M8P4CS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Die-cast Farm Toys Playset</a>
+## <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ertl John Deere Die-cast Farm Toys Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B00G4BDHO0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Die-Cast Farm Toys Playset - 1:64 Scale - Includes Farm Animals, Machine Shed, Toy Tractors, Toy Trucks, and Farm Tools - 70 Count - 8 Years and Up" src="https://m.media-amazon.com/images/I/31a29MEeXPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00G4BDHO0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ERTL John Deere Die-Cast Farm Toys Playset - 1:64 Scale - Includes Farm Animals, Machine Shed, Toy Tractors, Toy Trucks, and Farm Tools - 70 Count - 8 Years and Up" src="https://m.media-amazon.com/images/I/31a29MEeXPL._SL500_.jpg"/></a>
 
 
 The **ERTL John Deere Die-Cast Farm Toys Playset** is perfect for children aged **8 years and up** who have a keen interest in farming, machinery, and imaginative play. This comprehensive **1:64 scale** set is ideal for young enthusiasts who enjoy detailed, realistic toys and want to recreate farm life scenes at home. Parents and collectors who appreciate authentic **John Deere** replicas will also find this playset appealing.
@@ -132,12 +132,12 @@ The **ERTL John Deere Die-Cast Farm Toys Playset** offers an immersive farming e
 
 Additionally, the playset's realistic scale and variety of components provide educational value by helping kids learn about farming equipment and animal care in an interactive way. The vibrant colors and thoughtfully crafted details make the toys visually appealing, which helps maintain a child’s interest and enhances imaginative playtime. Overall, this set is a valuable addition for any young farmer enthusiast or collector looking for quality and authenticity.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00G4BDHO0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BWGJKVZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale 4430 Tractor</a>
+## <a href="https://www.amazon.com/dp/B0BWGJKVZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale 4430 Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWGJKVZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale 4430 Tractor Prestige Collection LP81018 ERTL 45832" src="https://m.media-amazon.com/images/I/41GvEB+Wu0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWGJKVZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale 4430 Tractor Prestige Collection LP81018 ERTL 45832" src="https://m.media-amazon.com/images/I/41GvEB+Wu0L._SL500_.jpg"/></a>
 
 
 The **John Deere 1/16 Scale 4430 Tractor Prestige Collection LP81018 ERTL 45832** is ideal for collectors and enthusiasts of agricultural models, as well as those who appreciate detailed replicas of iconic farm equipment. This item is perfect for individuals who want a high-quality, realistic miniature tractor to add to their collection or display, especially fans of the **John Deere** brand and precision scale models.
@@ -159,12 +159,12 @@ This **John Deere 4430 Tractor** model features precise detailing that captures 
 
 In addition to its aesthetic appeal, the model's size and weight make it a standout piece in any collection, offering both visual impact and durability. The dimensions are well thought out to fit comfortably on shelves or display cabinets without occupying excessive space. Whether you are a longtime fan of **John Deere** tractors or simply appreciate finely made replicas, this model provides a tangible connection to agricultural heritage and engineering excellence.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BWGJKVZX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BWGJKVZX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BWG8RJ7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Early Styled A Tractor Prestige Collection</a>
+## <a href="https://www.amazon.com/dp/B0BWG8RJ7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Early Styled A Tractor Prestige Collection</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWG8RJ7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale Early Styled A Tractor Prestige Collection LP82797 45850" src="https://m.media-amazon.com/images/I/41XfBizAnWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWG8RJ7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale Early Styled A Tractor Prestige Collection LP82797 45850" src="https://m.media-amazon.com/images/I/41XfBizAnWL._SL500_.jpg"/></a>
 
 
 The **John Deere 1/16 Scale Early Styled A Tractor Prestige Collection LP82797 45850** is ideal for collectors and enthusiasts of vintage farm machinery models. Those who appreciate detailed replicas and are fans of the iconic **John Deere** brand will find this model a valuable addition to their collection. It’s also perfect for gift buyers looking for a unique and high-quality agricultural collectible.
@@ -187,12 +187,12 @@ This **John Deere Early Styled A Tractor model** stands out due to its meticulou
 
 The benefits of owning this replica go beyond its aesthetic appeal. Collectors gain a tangible connection to farming history and the legacy of **John Deere**. This model serves not only as a decorative item but also as an educational tool, illustrating classic tractor design and engineering. Its weight and craftsmanship make it a durable keepsake, ensuring long-term preservation within any collection. Overall, it is a premium collectible designed to satisfy enthusiasts seeking both style and substance.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BWG8RJ7C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BWG8RJ7C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BCR5MNWN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 870p-tier Excavator</a>
+## <a href="https://www.amazon.com/dp/B0BCR5MNWN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 870p-tier Excavator</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCR5MNWN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/50 Scale 870P-Tier Excavator Prestige Collection" src="https://m.media-amazon.com/images/I/519KMvpk0aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCR5MNWN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/50 Scale 870P-Tier Excavator Prestige Collection" src="https://m.media-amazon.com/images/I/519KMvpk0aL._SL500_.jpg"/></a>
 
 
 Ideal for collectors and construction enthusiasts, the **John Deere 1/50 Scale 870P-Tier Excavator Prestige Collection** is a detailed replica designed for those who appreciate precision and craftsmanship in scale models. Whether you are a fan of heavy machinery or looking to add a high-quality piece to your collection, this model offers both aesthetic appeal and authenticity.
@@ -214,12 +214,12 @@ The **John Deere 1/50 Scale 870P-Tier Excavator** stands out for its exceptional
 
 Beyond its visual appeal, this model serves as a great educational tool for those interested in construction machinery. The accurate dimensions and faithful **yellow paint** replicate the original equipment, giving users a tangible connection to the engineering marvels behind heavy machinery. This makes it an excellent gift for hobbyists, students, and professionals alike who value both form and function in their collections.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BCR5MNWN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BCR5MNWN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0B8L62VHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale Model Bw Styled Ffa Tractor</a>
+## <a href="https://www.amazon.com/dp/B0B8L62VHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere 1/16 Scale Model Bw Styled Ffa Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8L62VHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale Model BW Styled FFA Tractor" src="https://m.media-amazon.com/images/I/41EQx9Q4wQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8L62VHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/16 Scale Model BW Styled FFA Tractor" src="https://m.media-amazon.com/images/I/41EQx9Q4wQL._SL500_.jpg"/></a>
 
 
 The **John Deere 1/16 Scale Model BW Styled FFA Tractor** is an ideal collectible for agricultural enthusiasts, model collectors, and fans of the iconic **John Deere** brand. This detailed replica is perfect for those who appreciate finely crafted farm equipment models or wish to showcase a piece of farming heritage in their collection.
@@ -242,12 +242,12 @@ The **John Deere 1/16 Scale Model BW Styled FFA Tractor** showcases meticulous c
 
 Beyond aesthetics, this model serves as a meaningful tribute to agricultural history and the Future Farmers of America (FFA) legacy. Whether used as an educational tool or a cherished keepsake, it offers both nostalgic value and a connection to farming traditions. Its compact size ensures it fits comfortably in various display settings without overwhelming space.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B8L62VHM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B8L62VHM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B01BYSO37C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Lawn Tractor</a>
+## <a href="https://www.amazon.com/dp/B01BYSO37C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Lawn Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B01BYSO37C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere Lawn Tractor 1/32 Scale, Green, Yellow" src="https://m.media-amazon.com/images/I/41m49A8c0PL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01BYSO37C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere Lawn Tractor 1/32 Scale, Green, Yellow" src="https://m.media-amazon.com/images/I/41m49A8c0PL._SL500_.jpg"/></a>
 
 
 Ideal for collectors, farming enthusiasts, and children who love miniature models, the **John Deere Lawn Tractor 1/32 Scale** is a detailed replica that brings the charm of the iconic green and yellow tractor into your hands. This model is perfect for those who appreciate craftsmanship and want to add a piece of authentic agricultural history to their collection or playset.
@@ -268,12 +268,12 @@ The **John Deere Lawn Tractor 1/32 Scale** stands out due to its precise attenti
 
 Manufactured by **ERTL**, a well-known name in quality model production, this replica ensures durability and longevity. Although it is a static model, its realistic design makes it an excellent educational tool for children and a nostalgic collectible for adults. Whether used for imaginative play or as part of a collection, this John Deere tractor model delivers both aesthetic appeal and a connection to agricultural heritage.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B01BYSO37C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B01BYSO37C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CZF4356B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Pickup With Trailer &amp; Bales Toy</a>
+## <a href="https://www.amazon.com/dp/B0CZF4356B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">John Deere Pickup With Trailer &amp; Bales Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZF4356B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/64 Pickup with Trailer &amp; Bales Toy - LP84529" src="https://m.media-amazon.com/images/I/41nGCUZrPwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZF4356B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="John Deere 1/64 Pickup with Trailer &amp; Bales Toy - LP84529" src="https://m.media-amazon.com/images/I/41nGCUZrPwL._SL500_.jpg"/></a>
 
 
 The **John Deere 1/64 Pickup with Trailer & Bales Toy - LP84529** is ideal for young children and collectors who have a passion for farming equipment and miniature models. This toy is perfect for kids who enjoy imaginative play involving farm settings, as well as for enthusiasts who appreciate detailed, branded replicas. Its small size makes it an excellent addition to any collection without taking up much space.
@@ -296,7 +296,7 @@ This **John Deere 1/64 Pickup with Trailer & Bales Toy** boasts a detailed desig
 
 The vibrant **green color** and precise craftsmanship reflect John Deere’s commitment to quality. Although small, the toy’s durable construction ensures it can withstand regular handling. This makes it not only a fun plaything but also a collectible item for John Deere enthusiasts who value authenticity and detail in miniature models.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CZF4356B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CZF4356B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

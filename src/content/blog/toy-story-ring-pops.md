@@ -20,10 +20,10 @@ Flavors include strawberry, raspberry, watermelon, and more. The fun ring design
 
 
 
-## <a href="https://www.amazon.com/dp/B0BB7WY1NL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Imaginings 3 Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies</a>
+## <a href="https://www.amazon.com/dp/B0BB7WY1NL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Imaginings 3 Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies</a>
 
 
-<a href="https://www.amazon.com/dp/B0BB7WY1NL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Imaginings 3 Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies, Buzz Lightyear, Rex, and Hamm, Character Shaped Suckers, Pack of 18" src="https://m.media-amazon.com/images/I/517nKiM0lUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BB7WY1NL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Imaginings 3 Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies, Buzz Lightyear, Rex, and Hamm, Character Shaped Suckers, Pack of 18" src="https://m.media-amazon.com/images/I/517nKiM0lUL._SL500_.jpg"/></a>
 
 
 Ideal for parents, party planners, and fans of the Toy Story franchise looking to add a fun and colorful treat to children's birthday parties, the **Imaginings 3 Toy Story Individually Wrapped Lollipop Rings** are perfect for young kids who enjoy themed party favors. These character-shaped suckers featuring **Buzz Lightyear**, **Rex**, and **Hamm** combine the excitement of Toy Story with a sweet treat, making them an excellent choice for party supplies that delight guests.
@@ -46,12 +46,12 @@ The **Imaginings 3 Toy Story Lollipop Rings** stand out due to their unique char
 
 Beyond their visual appeal, these lollipops offer practical benefits. The lightweight and compact design allow for easy distribution as party favors or game prizes. With a pack of 18, hosts can comfortably provide treats for a moderate-sized gathering without worrying about running out. The colorful assortment and familiar characters also encourage social interaction and excitement among young guests, enhancing the overall party atmosphere.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BB7WY1NL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BB7WY1NL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07WTRQR2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies</a>
+## <a href="https://www.amazon.com/dp/B07WTRQR2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies</a>
 
 
-<a href="https://www.amazon.com/dp/B07WTRQR2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies, Buzz Lightyear, Rex, and Hamm, Character Shaped Suckers, Pack of 18" src="https://m.media-amazon.com/images/I/517nKiM0lUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07WTRQR2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Story Individually Wrapped Lollipop Rings Birthday Party Supplies, Buzz Lightyear, Rex, and Hamm, Character Shaped Suckers, Pack of 18" src="https://m.media-amazon.com/images/I/517nKiM0lUL._SL500_.jpg"/></a>
 
 
 Ideal for parents and event planners organizing a **Toy Story-themed birthday party**, the **Toy Story Individually Wrapped Lollipop Rings** are perfect for kids who adore characters like **Buzz Lightyear, Rex, and Hamm**. These **character-shaped suckers** not only add a fun and colorful element to party favors but also cater to children who enjoy sweet treats with a playful twist.
@@ -74,12 +74,12 @@ The **Toy Story Individually Wrapped Lollipop Rings** bring an engaging and them
 
 Additionally, the convenience of individual wrapping ensures that the lollipops remain fresh and safe to consume throughout the event. This makes them an excellent choice for parents seeking both quality and safety. Overall, these lollipops are a delightful way to add sweetness and excitement to a **Toy Story 4** birthday party.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07WTRQR2R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07WTRQR2R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09XGR2QSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pop Ups! Toy Story Lollipop Holder</a>
+## <a href="https://www.amazon.com/dp/B09XGR2QSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pop Ups! Toy Story Lollipop Holder</a>
 
 
-<a href="https://www.amazon.com/dp/B09XGR2QSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pop Ups! Toy Story Lollipop Holder | Collectable Toy Story Lollipop Case | Toy Story Party Favors for Halloween, Goodie Bags, Piñata Candy, Game Prizes | Woody and Buzz - Bulk Set of 12 | Lollipops" src="https://m.media-amazon.com/images/I/51FqdX2YtqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XGR2QSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pop Ups! Toy Story Lollipop Holder | Collectable Toy Story Lollipop Case | Toy Story Party Favors for Halloween, Goodie Bags, Piñata Candy, Game Prizes | Woody and Buzz - Bulk Set of 12 | Lollipops" src="https://m.media-amazon.com/images/I/51FqdX2YtqL._SL500_.jpg"/></a>
 
 
 The **Pop Ups! Toy Story Lollipop Holder** is perfect for fans of the iconic **Toy Story** franchise, especially parents and party planners looking to add a fun and collectible element to children's celebrations. Ideal for those organizing **Halloween parties, birthday goodie bags, piñata candy fillers, or game prizes**, this bulk set of 12 featuring beloved characters **Woody and Buzz** combines practicality with playful design. Anyone seeking a unique and memorable party favor that doubles as a keepsake should consider this item.
@@ -101,12 +101,12 @@ The **Pop Ups! Toy Story Lollipop Holder** stands out with its charming design, 
 
 Designed with convenience in mind, this set of 12 holders provides an easy way to distribute treats at any event. Whether used as **party favors, piñata fillers, or game rewards**, these lollipop holders add a thematic touch that enhances the overall festive atmosphere. Their lightweight build makes them easy for kids to carry around, ensuring a fun and memorable experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09XGR2QSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09XGR2QSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DK7PK9CH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Story Lollipops Swirl 20pk</a>
+## <a href="https://www.amazon.com/dp/B0DK7PK9CH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Story Lollipops Swirl 20pk</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK7PK9CH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Story Lollipops Swirl 20pk- Toy Story Candy - Toy Story Party Favors &amp; Toy Story Birthday Decorations - Toy Story Candy Boxes - Toy Story Party Supplies &amp; Toy Story Cupcake Toppers" src="https://m.media-amazon.com/images/I/510st0oHp6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK7PK9CH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Story Lollipops Swirl 20pk- Toy Story Candy - Toy Story Party Favors &amp; Toy Story Birthday Decorations - Toy Story Candy Boxes - Toy Story Party Supplies &amp; Toy Story Cupcake Toppers" src="https://m.media-amazon.com/images/I/510st0oHp6L._SL500_.jpg"/></a>
 
 
 The **Toy Story Lollipops Swirl 20pk** are perfect for parents, party planners, and fans of the beloved **Toy Story** franchise looking to add a fun and colorful touch to birthday celebrations or themed events. These lollipops are ideal for those who want to delight children with sweet treats that also serve as decorative party favors and cupcake toppers.
@@ -127,12 +127,12 @@ The **Toy Story Lollipops Swirl 20pk** feature eye-catching swirl designs in vib
 
 Additionally, these lollipops are incredibly versatile. They can be used as standalone party favors, incorporated into candy boxes, or placed as toppers on cupcakes, tying together the entire party theme effortlessly. Their colorful and recognizable design makes them a hit with children, providing both enjoyment and a memorable keepsake from the event. Overall, the **Toy Story Lollipops Swirl 20pk** combine fun, flavor, and functionality to elevate your party planning experience.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DK7PK9CH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DK7PK9CH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B009S28ON6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Lollipops</a>
+## <a href="https://www.amazon.com/dp/B009S28ON6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Lollipops</a>
 
 
-<a href="https://www.amazon.com/dp/B009S28ON6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Lollipops - Bulk Candy Individually Wrapped Suckers Variety Party Pack- 24 Count w/ Assorted Flavors - Hard Candy for Party Favors, Kids &amp; Goodie Bags" src="https://m.media-amazon.com/images/I/51EfG2BGlVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B009S28ON6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Lollipops - Bulk Candy Individually Wrapped Suckers Variety Party Pack- 24 Count w/ Assorted Flavors - Hard Candy for Party Favors, Kids &amp; Goodie Bags" src="https://m.media-amazon.com/images/I/51EfG2BGlVL._SL500_.jpg"/></a>
 
 
 The **Ring Pop Lollipops - Bulk Candy** pack is perfect for parents, party planners, and anyone looking to add a fun, nostalgic treat to kids' events or goodie bags. Ideal for birthdays, school parties, or casual gatherings, this variety pack offers an assortment of flavors that kids will love. If you're searching for individually wrapped, easy-to-share candy that doubles as a playful accessory, this product is an excellent choice.
@@ -155,12 +155,12 @@ The **Ring Pop Lollipops** feature a unique ring-shaped design that allows child
 
 Measuring approximately **3.8 inches in height** and weighing just under a pound, this bulk pack is easy to handle and store. The vibrant colors and playful design add visual appeal, making them ideal for party favors or goodie bags. With a publication date dating back to 2012, these classic treats have stood the test of time, maintaining their popularity among children and adults alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B009S28ON6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B009S28ON6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F1VBK91D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Individually Wrapped Bulk Lollipop Variety Pack</a>
+## <a href="https://www.amazon.com/dp/B0F1VBK91D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Individually Wrapped Bulk Lollipop Variety Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1VBK91D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Individually Wrapped Bulk Lollipop Variety Pack – 10 Count Lollipop Suckers w/Assorted Flavors - Fun Candy for Birthdays and Celebrations" src="https://m.media-amazon.com/images/I/51ud1QFEEiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1VBK91D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Individually Wrapped Bulk Lollipop Variety Pack – 10 Count Lollipop Suckers w/Assorted Flavors - Fun Candy for Birthdays and Celebrations" src="https://m.media-amazon.com/images/I/51ud1QFEEiL._SL500_.jpg"/></a>
 
 
 The **Ring Pop Individually Wrapped Bulk Lollipop Variety Pack** is ideal for parents, party planners, and candy lovers looking to add a fun and colorful treat to birthdays, celebrations, or everyday snacking. Perfect for children and adults alike, this pack offers a convenient assortment of **assorted flavors** that appeal to a wide range of taste preferences, making it a versatile choice for events or personal enjoyment.
@@ -182,12 +182,12 @@ Each **Ring Pop** lollipop is individually wrapped, ensuring freshness and makin
 
 The compact and lightweight packaging makes these lollipops highly portable, perfect for birthday goodie bags, classroom rewards, or festive giveaways. Being a product from **THE BAZOOKA COMPANIES LLC**, customers can trust the quality and consistency of each lollipop. Whether you want to add a splash of color and fun to your celebration or simply enjoy a sweet treat, the **Ring Pop Individually Wrapped Bulk Lollipop Variety Pack** offers convenience, flavor variety, and a touch of whimsy that candy enthusiasts will appreciate.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F1VBK91D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F1VBK91D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08DHDS93Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Individually Wrapped Blue Candy 30 Count Bulk Lollipop Pack</a>
+## <a href="https://www.amazon.com/dp/B08DHDS93Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Individually Wrapped Blue Candy 30 Count Bulk Lollipop Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B08DHDS93Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Individually Wrapped Blue Candy 30 Count Bulk Lollipop Pack – Raspberry Flavored Lollipop Suckers for Kids, Fun Candy Bulk for Gender Reveal &amp; Bachelorettes, Kids Party Favors" src="https://m.media-amazon.com/images/I/51sncB5Vp0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DHDS93Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Individually Wrapped Blue Candy 30 Count Bulk Lollipop Pack – Raspberry Flavored Lollipop Suckers for Kids, Fun Candy Bulk for Gender Reveal &amp; Bachelorettes, Kids Party Favors" src="https://m.media-amazon.com/images/I/51sncB5Vp0L._SL500_.jpg"/></a>
 
 
 The **Ring Pop Individually Wrapped Blue Candy 30 Count Bulk Lollipop Pack** is perfect for parents, event planners, and party hosts looking to add a fun and colorful treat to their celebrations. Ideal for **kids' birthday parties**, **gender reveal events**, and **bachelorette parties**, this raspberry-flavored lollipop offers a delightful and nostalgic candy experience that children and adults alike will enjoy. If you want a convenient, bulk candy option that brings joy and excitement, this pack is a great choice.
@@ -210,12 +210,12 @@ The **Ring Pop Blue Candy Lollipop Pack** offers a fun and interactive way to en
 
 Beyond its visual appeal, the pack's bulk quantity provides great value for money, making it an excellent choice for parents and hosts looking to cater to many guests without frequent restocking. The trusted **Ring Pop brand** guarantees a quality treat that delivers on both taste and fun, ensuring that this candy will be a memorable addition to any celebration.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08DHDS93Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08DHDS93Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B002STLJDI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Toy Story Pez Candy Dispensers</a>
+## <a href="https://www.amazon.com/dp/B002STLJDI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Toy Story Pez Candy Dispensers</a>
 
 
-<a href="https://www.amazon.com/dp/B002STLJDI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Toy Story PEZ Candy Dispensers: Pack of 12" src="https://m.media-amazon.com/images/I/41mju71zmnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002STLJDI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Toy Story PEZ Candy Dispensers: Pack of 12" src="https://m.media-amazon.com/images/I/41mju71zmnL._SL500_.jpg"/></a>
 
 
 The **Disney Toy Story PEZ Candy Dispensers: Pack of 12** is ideal for collectors, fans of the **Toy Story** franchise, and anyone looking for a fun, nostalgic candy experience. This set is perfect for parents seeking unique party favors, candy lovers who enjoy novelty dispensers, and PEZ enthusiasts wanting to expand their collection with officially licensed characters.
@@ -238,12 +238,12 @@ Each dispenser in this pack showcases beloved **Toy Story characters** in vibran
 
 Beyond just candy, these dispensers serve as a fun way to engage children and adults alike with the iconic Toy Story universe. The random assortment adds excitement and encourages trading among friends or family to complete a full set. Whether used as party favors, stocking stuffers, or collectibles, this pack offers both entertainment and a sweet treat in one delightful package.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B002STLJDI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B002STLJDI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CQMVGGFW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidsmania Flash Pop Ring Gift</a>
+## <a href="https://www.amazon.com/dp/B0CQMVGGFW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidsmania Flash Pop Ring Gift</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQMVGGFW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kidsmania Flash Pop Ring Gift, Novelty Lightup Ring Lollipops - Strawberry, Blue Raspberry &amp; Watermelon (Flavors May Vary) - Pack of 6 By Lyza's Sweets &amp; Treats" src="https://m.media-amazon.com/images/I/51nE6qXSrbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQMVGGFW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kidsmania Flash Pop Ring Gift, Novelty Lightup Ring Lollipops - Strawberry, Blue Raspberry &amp; Watermelon (Flavors May Vary) - Pack of 6 By Lyza's Sweets &amp; Treats" src="https://m.media-amazon.com/images/I/51nE6qXSrbL._SL500_.jpg"/></a>
 
 
 The **Kidsmania Flash Pop Ring Gift** by **Lyza's Sweets & Treats** is perfect for parents or gift-givers looking to delight children with a fun and interactive treat. Ideal for kids who enjoy colorful, novelty candies that light up, this pack of 6 ring-shaped lollipops combines playful design with tasty flavors, making it an excellent choice for birthday parties, holiday gifts, or special occasions.
@@ -266,12 +266,12 @@ These **light-up ring lollipops** combine the joy of candy with the novelty of f
 
 Designed with convenience in mind, the rings are lightweight and easy to wear, allowing children to enjoy them hands-free while showing off their glowing candy rings to friends and family. Whether used as party favors, stocking stuffers, or just a playful surprise, the **Kidsmania Flash Pop Ring Gift** pack offers a unique combination of taste, fun, and visual appeal that makes it a memorable treat for any child.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CQMVGGFW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CQMVGGFW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CD9DFXLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Colorfest</a>
+## <a href="https://www.amazon.com/dp/B0CD9DFXLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ring Pop Colorfest</a>
 
 
-<a href="https://www.amazon.com/dp/B0CD9DFXLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Colorfest, GREEN (Watermelon) - 10 Count by Lyza's Sweets &amp; Treats" src="https://m.media-amazon.com/images/I/51rFZNlks7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CD9DFXLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ring Pop Colorfest, GREEN (Watermelon) - 10 Count by Lyza's Sweets &amp; Treats" src="https://m.media-amazon.com/images/I/51rFZNlks7L._SL500_.jpg"/></a>
 
 
 The **Ring Pop Colorfest, GREEN (Watermelon) - 10 Count** by **Lyza's Sweets & Treats** is perfect for candy lovers of all ages who enjoy a fun, flavorful treat. Ideal for parents looking to delight their children with a playful, edible accessory, as well as for party planners who want to add a vibrant and nostalgic candy option to their events. This product is also great for anyone who appreciates the classic watermelon flavor combined with the novelty of a wearable candy ring.
@@ -293,7 +293,7 @@ The **Ring Pop Colorfest GREEN (Watermelon)** offers a delightful combination of
 
 With a pack of 10, this product is perfect for group events, birthday parties, or simply as a treat to keep on hand. The reliable quality from **LYZA'S SWEETS & TREATS** guarantees a consistent and tasty experience with every ring pop. While the flavor selection is focused on watermelon in this set, it ensures a strong, recognizable taste that fans of fruity candies will appreciate.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CD9DFXLD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CD9DFXLD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

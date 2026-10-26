@@ -23,10 +23,10 @@ Compact chargers suit small workspaces, while higher power units charge faster. 
 
 
 
-## <a href="https://www.amazon.com/dp/B099K8XFG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Supulse Lipo Battery Charger</a>
+## <a href="https://www.amazon.com/dp/B099K8XFG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Supulse Lipo Battery Charger</a>
 
 
-<a href="https://www.amazon.com/dp/B099K8XFG6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUPULSE LiPo Battery Charger 2S-3S RC Balance Charger AC 7.4-11.1V 10W Upgrade Version Compact Lipo Charger RC Car Charger for XHR Plug Battery(B3V2)" src="https://m.media-amazon.com/images/I/41sD26xnVHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099K8XFG6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="SUPULSE LiPo Battery Charger 2S-3S RC Balance Charger AC 7.4-11.1V 10W Upgrade Version Compact Lipo Charger RC Car Charger for XHR Plug Battery(B3V2)" src="https://m.media-amazon.com/images/I/41sD26xnVHL._SL500_.jpg"/></a>
 
 
 The **SUPULSE LiPo Battery Charger 2S-3S RC Balance Charger** is ideal for hobbyists and RC enthusiasts who need a reliable and compact solution for charging their **7.4-11.1V LiPo batteries**. If you own RC cars, drones, or other remote-controlled devices that use **2S or 3S LiPo batteries**, this charger is designed to provide efficient and safe charging performance. Its lightweight and upgraded design make it perfect for users who value portability without compromising on quality.
@@ -49,10 +49,10 @@ The **SUPULSE LiPo Battery Charger** offers a practical balance between function
 
 Equipped with compatibility for the widely-used **XHR plug batteries**, the charger fits seamlessly into many RC setups. Its 10W power output is sufficient for typical 2S-3S LiPo batteries, making it an efficient tool for everyday charging needs. While it may lack advanced customization options, its simplicity and reliability make it an attractive option for beginners and experienced RC users alike who want a straightforward, no-fuss charging solution.
 
-## <a href="https://www.amazon.com/dp/B0F5QD91WR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lipo Battery Charger</a>
+## <a href="https://www.amazon.com/dp/B0F5QD91WR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lipo Battery Charger</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5QD91WR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LiPo Battery Charger Fast Balance Battery Chargers Discharger for 1S-6S LiPo Li-ion Life LiHV 1S-15S NiCd NiMH PB Smart Batteries RC Car RC Drone (Blue)" src="https://m.media-amazon.com/images/I/51Vo6NMOqiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5QD91WR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LiPo Battery Charger Fast Balance Battery Chargers Discharger for 1S-6S LiPo Li-ion Life LiHV 1S-15S NiCd NiMH PB Smart Batteries RC Car RC Drone (Blue)" src="https://m.media-amazon.com/images/I/51Vo6NMOqiL._SL500_.jpg"/></a>
 
 
 The **LiPo Battery Charger Fast Balance Battery Charger** by **Aorika** is ideal for hobbyists and professionals who regularly use **RC cars, drones**, and other remote-controlled devices. If you need a reliable charger that supports a wide range of battery types including **LiPo, Li-ion, Life, LiHV, NiCd, NiMH,** and **PB Smart Batteries**, this charger is designed to meet your demanding charging and discharging needs efficiently.
@@ -74,10 +74,10 @@ This **fast balance battery charger** is equipped with advanced features that en
 
 Designed with portability in mind, the compact dimensions and lightweight build allow users to carry this charger conveniently to the field or workshop. Additionally, the smart charging technology integrated into this device offers peace of mind by preventing common issues such as overcharging and overheating, which can damage batteries. Overall, the **Aorika LiPo Battery Charger** is a dependable choice for both beginners and experienced users looking for a robust and efficient charging solution.
 
-## <a href="https://www.amazon.com/dp/B00466PKE0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tenergy Tb-6ab Balance Charger Discharger</a>
+## <a href="https://www.amazon.com/dp/B00466PKE0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Tenergy Tb-6ab Balance Charger Discharger</a>
 
 
-<a href="https://www.amazon.com/dp/B00466PKE0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tenergy TB-6AB Balance Charger Discharger 1S-6S Digital Battery Pack Charger for NiMH/NiCD/Li-PO/Li-Fe Packs w/ LCD Display Hobby Battery Charger w/ Tamiya/JST/EC3/HiTec/Deans Connectors + Power Supply" src="https://m.media-amazon.com/images/I/41N7uLsC7-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00466PKE0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Tenergy TB-6AB Balance Charger Discharger 1S-6S Digital Battery Pack Charger for NiMH/NiCD/Li-PO/Li-Fe Packs w/ LCD Display Hobby Battery Charger w/ Tamiya/JST/EC3/HiTec/Deans Connectors + Power Supply" src="https://m.media-amazon.com/images/I/41N7uLsC7-L._SL500_.jpg"/></a>
 
 
 The **Tenergy TB-6AB Balance Charger Discharger** is ideal for hobbyists and professionals who require a reliable and versatile charging solution for their rechargeable batteries. Whether you are working with **NiMH**, **NiCD**, **Li-PO**, or **Li-Fe** battery packs ranging from **1S to 6S**, this charger is designed to meet your needs with precision and safety. If you use remote-controlled vehicles, drones, or other battery-powered gadgets, this device offers the perfect balance of functionality and convenience.
@@ -100,10 +100,10 @@ The **Tenergy TB-6AB Balance Charger Discharger** is engineered to provide preci
 
 Additionally, the charger’s versatility is amplified by its compatibility with various connector types like **Tamiya** and **Deans**, making it suitable for a wide range of devices. The compact size and lightweight build make it highly portable, ideal for on-the-go hobbyists. Overall, the **Tenergy TB-6AB** offers a powerful, user-friendly charging solution that caters to the specific needs of battery enthusiasts and professionals alike.
 
-## <a href="https://www.amazon.com/dp/B09XC91BWJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hobby Fans B6 Mini Professional Balance Charger/discharger</a>
+## <a href="https://www.amazon.com/dp/B09XC91BWJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Hobby Fans B6 Mini Professional Balance Charger/discharger</a>
 
 
-<a href="https://www.amazon.com/dp/B09XC91BWJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hobby Fans B6 Mini Professional Balance Charger/Discharger with Power Supply for 1S-6S LiPo Lilon Life NiCd NiMh Pb RC Battery" src="https://m.media-amazon.com/images/I/51O7ti9xq4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XC91BWJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Hobby Fans B6 Mini Professional Balance Charger/Discharger with Power Supply for 1S-6S LiPo Lilon Life NiCd NiMh Pb RC Battery" src="https://m.media-amazon.com/images/I/51O7ti9xq4L._SL500_.jpg"/></a>
 
 
 The **Hobby Fans B6 Mini Professional Balance Charger/Discharger** is ideal for RC enthusiasts, drone hobbyists, and anyone who works with various rechargeable batteries such as **LiPo**, **LiIon**, **Life**, **NiCd**, **NiMh**, and **Pb**. This compact and versatile charger is perfect for users seeking a reliable and efficient way to maintain and charge their batteries safely and effectively.
@@ -126,10 +126,10 @@ The **Hobby Fans B6 Mini** charger offers professional-grade features in a compa
 
 Additionally, the balance charging and discharging functions help extend battery life by ensuring each cell is properly maintained and preventing overcharging or deep discharging. Its lightweight design and durable blue casing make it a practical tool for hobbyists who value both performance and portability. While beginners might need some time to get accustomed to the interface, the overall benefits and professional features make the Hobby Fans B6 Mini a worthwhile investment for serious RC battery care.
 
-## <a href="https://www.amazon.com/dp/B08C592PNV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lipo Charger H B6 Rc Charger Lipo Battery Balance Rc Car Charger Discharger</a>
+## <a href="https://www.amazon.com/dp/B08C592PNV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lipo Charger H B6 Rc Charger Lipo Battery Balance Rc Car Charger Discharger</a>
 
 
-<a href="https://www.amazon.com/dp/B08C592PNV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lipo Charger H B6 RC Charger LiPo Battery Balance RC Car Charger Discharger for LiPo/Li-ion/Life Battery(1-6s) NiMH/NiCd (1-15s) RC Hobby Battery Balance Charger 80W 6A XT-60/JST/Deans Connectors" src="https://m.media-amazon.com/images/I/51UWT-PkvmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08C592PNV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Lipo Charger H B6 RC Charger LiPo Battery Balance RC Car Charger Discharger for LiPo/Li-ion/Life Battery(1-6s) NiMH/NiCd (1-15s) RC Hobby Battery Balance Charger 80W 6A XT-60/JST/Deans Connectors" src="https://m.media-amazon.com/images/I/51UWT-PkvmL._SL500_.jpg"/></a>
 
 
 The **Lipo Charger H B6 RC Charger** is ideal for RC hobbyists and enthusiasts who require a reliable and versatile charger for their battery collection. Whether you own **LiPo, Li-ion, LiFe, NiMH,** or **NiCd batteries** ranging from 1 to 15 cells, this charger is designed to meet your charging and balancing needs efficiently. It is perfect for those who value safety, precision, and convenience when maintaining their RC car or drone batteries.
@@ -152,10 +152,10 @@ The **H B6 RC Charger** offers a comprehensive solution for charging and balanci
 
 Beyond its technical specifications, this charger emphasizes user safety and battery health by incorporating balance charging technology. This feature helps prevent overcharging and uneven cell voltage, which can damage batteries or reduce their lifespan. Additionally, its compact and lightweight design allows for easy portability, making it an excellent choice for hobbyists who attend RC events or travel frequently with their equipment.
 
-## <a href="https://www.amazon.com/dp/B01IDNJ5PG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Venom Power Pro Duo Lipo Battery Charger</a>
+## <a href="https://www.amazon.com/dp/B01IDNJ5PG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Venom Power Pro Duo Lipo Battery Charger</a>
 
 
-<a href="https://www.amazon.com/dp/B01IDNJ5PG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Venom Power Pro Duo LiPo Battery Charger - LCD Screen, Charging Leads - Balance Charger &amp; Discharger for LiPo, LiHV, Li-Ion, Life, NiMH, NiCD, Pb Batteries - Power Supply for 1S- 6S, Drone &amp; RC Cars" src="https://m.media-amazon.com/images/I/41eOZKV2+AL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01IDNJ5PG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Venom Power Pro Duo LiPo Battery Charger - LCD Screen, Charging Leads - Balance Charger &amp; Discharger for LiPo, LiHV, Li-Ion, Life, NiMH, NiCD, Pb Batteries - Power Supply for 1S- 6S, Drone &amp; RC Cars" src="https://m.media-amazon.com/images/I/41eOZKV2+AL._SL500_.jpg"/></a>
 
 
 The **Venom Power Pro Duo LiPo Battery Charger** is an excellent choice for hobbyists and professionals who require a reliable and versatile charger for various battery types. Ideal for users of **drones**, **RC cars**, and other remote-controlled devices, this charger caters to those who need efficient and safe charging for **LiPo**, **LiHV**, **Li-Ion**, **Life**, **NiMH**, **NiCD**, and **Pb batteries**. If you value precision charging with balance and discharge capabilities, this product will suit your needs perfectly.
@@ -178,10 +178,10 @@ The **Venom Power Pro Duo** features an intuitive **LCD screen** that displays c
 
 Additionally, this charger doubles as a discharger, which is crucial for maintaining battery health by preventing overcharging and overheating. The inclusion of charging leads makes it a convenient all-in-one solution right out of the box. Its sturdy black casing and compact dimensions (7.5 inches height, 3.7 inches width, 5.3 inches length) make it portable enough for on-the-go enthusiasts while remaining durable for frequent use.
 
-## <a href="https://www.amazon.com/dp/B0CR339PFP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ovonic D15 Dual Lipo Battery Charger</a>
+## <a href="https://www.amazon.com/dp/B0CR339PFP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Ovonic D15 Dual Lipo Battery Charger</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR339PFP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OVONIC D15 Dual LiPo Battery Charger AC 15W 1.2A for 1S 2S 3S Lipo Batteries, RC Battery Charger" src="https://m.media-amazon.com/images/I/31AY-gh-eNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR339PFP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="OVONIC D15 Dual LiPo Battery Charger AC 15W 1.2A for 1S 2S 3S Lipo Batteries, RC Battery Charger" src="https://m.media-amazon.com/images/I/31AY-gh-eNL._SL500_.jpg"/></a>
 
 
 The **OVONIC D15 Dual LiPo Battery Charger** is ideal for hobbyists and RC enthusiasts who need a reliable and efficient charger for their **1S, 2S, and 3S LiPo batteries**. Whether you are into remote control cars, drones, or airplanes, this charger provides a safe and convenient solution to keep your batteries ready for action.
@@ -204,10 +204,10 @@ The **OVONIC D15 Dual LiPo Battery Charger** offers a user-friendly design that 
 
 Equipped with a 15W output at 1.2A, this charger delivers steady and safe charging power, helping to preserve the lifespan of your **LiPo batteries**. The straightforward operation makes it suitable for both beginners and experienced users who want a hassle-free charging experience without unnecessary complications. Overall, the **OVONIC D15** is a dependable choice for anyone looking to efficiently manage their RC battery charging needs.
 
-## <a href="https://www.amazon.com/dp/B0DCF8LNHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rcenjoy B6 Balance Charger/discharger</a>
+## <a href="https://www.amazon.com/dp/B0DCF8LNHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Rcenjoy B6 Balance Charger/discharger</a>
 
 
-<a href="https://www.amazon.com/dp/B0DCF8LNHR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RCENJOY B6 Balance Charger/Discharger with Power Supply Lipo Battery Charger RC Car Battery Charger for 1S-6S LiPo Lilon Life 1S-15S NiCd NiMh Pb RC Battery" src="https://m.media-amazon.com/images/I/51XzwpoapiL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DCF8LNHR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="RCENJOY B6 Balance Charger/Discharger with Power Supply Lipo Battery Charger RC Car Battery Charger for 1S-6S LiPo Lilon Life 1S-15S NiCd NiMh Pb RC Battery" src="https://m.media-amazon.com/images/I/51XzwpoapiL._SL500_.jpg"/></a>
 
 
 The **RCENJOY B6 Balance Charger/Discharger** is ideal for hobbyists and enthusiasts who require a reliable and versatile charging solution for their **RC cars**, drones, or other remote-controlled devices. Whether you're a beginner or an experienced user, this charger supports a wide range of battery types and sizes, making it perfect for those who want a safe and efficient way to maintain their **LiPo, LiIon, Life, NiCd, NiMh, and Pb batteries**.
@@ -230,10 +230,10 @@ The **RCENJOY B6 Balance Charger/Discharger** boasts a versatile design that sup
 
 Thanks to its compact size and lightweight construction, this charger is highly portable and can easily fit into your RC gear bag. Its robust build quality and straightforward controls allow users to quickly set up and monitor the charging process safely. Overall, the RCENJOY B6 offers a balanced combination of functionality, reliability, and user-friendliness, making it an excellent choice for anyone looking to efficiently manage their RC battery collection.
 
-## <a href="https://www.amazon.com/dp/B0F5QBQZ7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lipo Battery Charger 2s-3s Rc Balance Charger</a>
+## <a href="https://www.amazon.com/dp/B0F5QBQZ7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Lipo Battery Charger 2s-3s Rc Balance Charger</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5QBQZ7L?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LiPo Battery Charger 2S-3S RC Balance Charger AC 7.4-11.1V Upgrade Version Compact RC Car Charger for XHR Plug Battery" src="https://m.media-amazon.com/images/I/41PP1CbNcVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5QBQZ7L?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="LiPo Battery Charger 2S-3S RC Balance Charger AC 7.4-11.1V Upgrade Version Compact RC Car Charger for XHR Plug Battery" src="https://m.media-amazon.com/images/I/41PP1CbNcVL._SL500_.jpg"/></a>
 
 
 The **LiPo Battery Charger 2S-3S RC Balance Charger AC 7.4-11.1V Upgrade Version** is ideal for RC enthusiasts and hobbyists who need a reliable and compact solution for charging their **LiPo batteries**. If you own an RC car or drone that uses 2S to 3S batteries with an XHR plug, this charger is designed to provide safe and efficient charging, making it perfect for users seeking portability without sacrificing performance.
@@ -256,10 +256,10 @@ The **Dght LiPo Battery Charger** features a compact footprint measuring just 2.
 
 Additionally, the upgraded version of this charger offers enhanced performance through faster and more stable charging, which reduces downtime between runs. Its simple plug-and-play design with the popular XHR connector makes it user-friendly even for beginners, while the sturdy black casing ensures durability under frequent use. Overall, this charger balances functionality, safety, and portability, making it a valuable accessory for any RC hobbyist.
 
-## <a href="https://www.amazon.com/dp/B0F2H3XR6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">B6 Battery Charger</a>
+## <a href="https://www.amazon.com/dp/B0F2H3XR6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">B6 Battery Charger</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2H3XR6S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="B6 Battery Charger 80W Mini Lipo Balance Charger/Discharger with Power Supply for LiPo/Li-ion/Life Battery(1-6s) NiMH/NiCd (1-15s) RC Car Charger XT60/JST/T Connectors" src="https://m.media-amazon.com/images/I/51utSeY5YAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2H3XR6S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="B6 Battery Charger 80W Mini Lipo Balance Charger/Discharger with Power Supply for LiPo/Li-ion/Life Battery(1-6s) NiMH/NiCd (1-15s) RC Car Charger XT60/JST/T Connectors" src="https://m.media-amazon.com/images/I/51utSeY5YAL._SL500_.jpg"/></a>
 
 
 The **B6 Battery Charger 80W Mini Lipo Balance Charger/Discharger** is ideal for hobbyists and professionals who work with various rechargeable batteries, especially those using **LiPo, Li-ion, Life, NiMH, and NiCd batteries**. If you own RC cars, drones, or other remote-controlled devices and need a reliable, compact charger with multiple connector options, this device is perfect for you. Its versatility supports a wide range of battery cell counts, making it a great choice for users seeking convenience and efficiency in one compact unit.

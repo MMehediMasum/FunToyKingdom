@@ -23,10 +23,10 @@ They suit boys and girls aged three and up. Whether a simple wooden set or a mul
 
 
 
-## <a href="https://www.amazon.com/dp/B0CHRZHB93?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bliss Hues Wooden Coffee Machine Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0CHRZHB93?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bliss Hues Wooden Coffee Machine Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHRZHB93?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLiSS HUES Wooden Coffee Machine Toy Set with Acessories- Pretend Play Toys for Kids- Kitchen Toys for Girls &amp; Boys" src="https://m.media-amazon.com/images/I/418dFs1ji5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHRZHB93?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLiSS HUES Wooden Coffee Machine Toy Set with Acessories- Pretend Play Toys for Kids- Kitchen Toys for Girls &amp; Boys" src="https://m.media-amazon.com/images/I/418dFs1ji5L._SL500_.jpg"/></a>
 
 
 The **BLiSS HUES Wooden Coffee Machine Toy Set with Accessories** is ideal for young children who love imaginative play and pretend kitchen activities. Perfect for both **girls and boys**, this toy set encourages creativity, social skills, and fine motor development, making it a great choice for parents and caregivers looking to foster interactive playtime.
@@ -48,10 +48,10 @@ The **BLiSS HUES Wooden Coffee Machine Toy Set** features a charming and realist
 
 Its compact dimensions and lightweight build make it easy for children to carry and store after playtime. The set’s vibrant **green color** adds visual appeal and helps engage kids in kitchen-themed activities. Overall, this toy set provides a wonderful blend of fun and learning, ideal for nurturing imaginative minds while promoting fine motor skills and social interaction.
 
-## <a href="https://www.amazon.com/dp/B0FBWSRB67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coffee Kitchen Set Roll Play Toys</a>
+## <a href="https://www.amazon.com/dp/B0FBWSRB67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Coffee Kitchen Set Roll Play Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBWSRB67?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coffee Kitchen Set Roll Play Toys for Girls Toys for Girl's 4 Cups 4 Tea Plait 3 Spoon 1 Tea Ketli Complete Tea Sat Toys Girl's &amp; Boys" src="https://m.media-amazon.com/images/I/51t7mXSOGcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBWSRB67?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Coffee Kitchen Set Roll Play Toys for Girls Toys for Girl's 4 Cups 4 Tea Plait 3 Spoon 1 Tea Ketli Complete Tea Sat Toys Girl's &amp; Boys" src="https://m.media-amazon.com/images/I/51t7mXSOGcL._SL500_.jpg"/></a>
 
 
 The **Coffee Kitchen Set Roll Play Toys for Girls** is ideal for young children, especially those aged 3 and above, who enjoy imaginative play and role-playing activities. This set is perfect for both girls and boys who love to mimic adult behaviors and engage in social play, enhancing creativity and social skills. Parents looking for a safe, engaging, and educational toy that encourages pretend tea parties and kitchen fun will find this set a great choice.
@@ -73,10 +73,10 @@ This **Coffee Kitchen Set Roll Play Toy** offers a wonderful way for children to
 
 Additionally, the set’s neutral **white color** gives it a classic and clean look, making it suitable for both girls and boys. The lightweight design ensures portability, so kids can enjoy their tea parties anywhere. This toy also encourages creativity and helps develop cognitive abilities by allowing children to simulate real-life scenarios in a safe and fun way.
 
-## <a href="https://www.amazon.com/dp/B0DVC6C6J3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyshine Wooden Coffee Maker Role-playing Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0DVC6C6J3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyshine Wooden Coffee Maker Role-playing Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0DVC6C6J3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toyshine Wooden Coffee Maker Role-Playing Pretend Play Kitchen Toy Set with Coffee Maker | Cookware &amp; Accessories , Imaginative Play Interactive Role-Play Toy for Kids 3+" src="https://m.media-amazon.com/images/I/41QNT+gqXOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DVC6C6J3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toyshine Wooden Coffee Maker Role-Playing Pretend Play Kitchen Toy Set with Coffee Maker | Cookware &amp; Accessories , Imaginative Play Interactive Role-Play Toy for Kids 3+" src="https://m.media-amazon.com/images/I/41QNT+gqXOL._SL500_.jpg"/></a>
 
 
 The **Toyshine Wooden Coffee Maker Role-Playing Pretend Play Kitchen Toy Set** is perfect for children aged 3 and above who love to engage in imaginative and interactive play. Ideal for young kids developing social and motor skills, this set encourages creativity and role-playing in a safe and colorful environment. Parents looking for educational toys that combine fun with learning will find this product a great choice.
@@ -99,10 +99,10 @@ This **Toyshine wooden coffee maker set** features realistic design elements tha
 
 The set’s compact size and lightweight design make it easy for children to carry and store, promoting independent play anywhere. Additionally, the interactive nature of the toy encourages social interaction, as kids can play together, sharing roles and developing communication skills. Overall, this kitchen toy set offers a balanced combination of fun, education, and imaginative engagement for young children.
 
-## <a href="https://www.amazon.com/dp/B0FBMCBMCQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Atishay Retail Wooden Coffee Shop Play Set</a>
+## <a href="https://www.amazon.com/dp/B0FBMCBMCQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Atishay Retail Wooden Coffee Shop Play Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0FBMCBMCQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Atishay Retail Wooden Coffee Shop Play Set | Kids Pretend Cafe Toys with Coffee Cups, Stirrers, Cookies, Milk, Sugar and Sturdy Serving Tray | Wooden Toy for Kids | Age 3 &amp; 3+" src="https://m.media-amazon.com/images/I/41zX7B6GLvL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FBMCBMCQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Atishay Retail Wooden Coffee Shop Play Set | Kids Pretend Cafe Toys with Coffee Cups, Stirrers, Cookies, Milk, Sugar and Sturdy Serving Tray | Wooden Toy for Kids | Age 3 &amp; 3+" src="https://m.media-amazon.com/images/I/41zX7B6GLvL._SL500_.jpg"/></a>
 
 
 The **Atishay Retail Wooden Coffee Shop Play Set** is ideal for young children aged **3 years and above** who enjoy **imaginative play** and role-playing activities. Parents looking for a **durable** and **educational toy** that encourages creativity and social skills development will find this **wooden toy cafe set** perfect for their little ones. It is also suitable for caregivers and educators aiming to provide engaging and interactive playtime experiences.
@@ -125,10 +125,10 @@ The **Atishay Retail Wooden Coffee Shop Play Set** offers a wonderful blend of f
 
 Its **sturdy wooden construction** ensures that it can withstand rough play, making it a reliable toy for daily use. The compact and lightweight design allows children to easily handle the set and carry it around during playtime. Additionally, the multicolor finish adds to the visual appeal, capturing children's attention and making play sessions more enjoyable. Overall, this toy set is a great choice for nurturing young minds through playful learning.
 
-## <a href="https://www.amazon.com/dp/B0F93XRDLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harry &amp; James® 19 Pcs Portable Cooking Play Set Kitchen</a>
+## <a href="https://www.amazon.com/dp/B0F93XRDLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Harry &amp; James® 19 Pcs Portable Cooking Play Set Kitchen</a>
 
 
-<a href="https://www.amazon.com/dp/B0F93XRDLT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HARRY &amp; JAMES® 19 Pcs Portable Cooking Play Set Kitchen with Cookware Pots and Pans Cooking Utensils Cutting Vegetables &amp; Fruits Pretend Role Play Toys Kitchen Set for Kids,Boys,Girls,Childrens" src="https://m.media-amazon.com/images/I/51kFwwFIXcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F93XRDLT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HARRY &amp; JAMES® 19 Pcs Portable Cooking Play Set Kitchen with Cookware Pots and Pans Cooking Utensils Cutting Vegetables &amp; Fruits Pretend Role Play Toys Kitchen Set for Kids,Boys,Girls,Childrens" src="https://m.media-amazon.com/images/I/51kFwwFIXcL._SL500_.jpg"/></a>
 
 
 The **HARRY & JAMES® 19 Pcs Portable Cooking Play Set Kitchen** is perfect for young children who love to engage in **pretend role play** and explore their creativity in the kitchen. Ideal for **kids, boys, girls, and children** who enjoy interactive and imaginative play, this set encourages learning through fun by mimicking real cooking activities with safe, child-friendly utensils and cookware.
@@ -150,10 +150,10 @@ The **HARRY & JAMES® Cooking Play Set** offers a variety of **cookware pots, pa
 
 Its **portable size and lightweight build** make this kitchen set easy to carry and store, perfect for playdates, travel, or small living spaces. By providing hands-on experiences, this set not only entertains but also promotes **creativity, problem-solving skills, and social interaction** among children. Overall, it is a wonderful educational toy that blends fun with developmental benefits.
 
-## <a href="https://www.amazon.com/dp/B0DHD14JQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vgrassp Coffee Machine Toy For Kids</a>
+## <a href="https://www.amazon.com/dp/B0DHD14JQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vgrassp Coffee Machine Toy For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0DHD14JQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VGRASSP Coffee Machine Toy for Kids with Sounds, Light &amp; Steam Effect - The Interactive Pretend Play Coffee Maker Set - Perfect Kitchen Toy with Water Dispensing Feature" src="https://m.media-amazon.com/images/I/412wfjmcQ9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DHD14JQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VGRASSP Coffee Machine Toy for Kids with Sounds, Light &amp; Steam Effect - The Interactive Pretend Play Coffee Maker Set - Perfect Kitchen Toy with Water Dispensing Feature" src="https://m.media-amazon.com/images/I/412wfjmcQ9L._SL500_.jpg"/></a>
 
 
 The **VGRASSP Coffee Machine Toy for Kids** is ideal for young children who love engaging in imaginative play, especially those fascinated by kitchen activities. This interactive pretend play coffee maker set is perfect for kids who enjoy role-playing as adults and exploring everyday household appliances in a safe and fun way. It’s especially suitable for children aged 3 and up who are developing their motor skills and creativity.
@@ -176,10 +176,10 @@ The **VGRASSP Coffee Machine Toy** offers an immersive play experience with its 
 
 Designed with a compact, colorful build, this toy fits well in any play kitchen setup without taking up too much space. Its lightweight design makes it easy for kids to handle and move around. The interactive features not only entertain but also encourage fine motor skill development as children learn to press buttons, pour water, and operate the toy. Overall, the VGRASSP Coffee Machine Toy is a well-rounded educational and entertaining kitchen toy for kids.
 
-## <a href="https://www.amazon.com/dp/B0F1CVYLKB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jack Royal Children's Kitchen Play Set</a>
+## <a href="https://www.amazon.com/dp/B0F1CVYLKB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jack Royal Children's Kitchen Play Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1CVYLKB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jack Royal Children's Kitchen Play Set 50 Children's Accessories with Sounds Lights &amp; Water Pump, Multifunctional Toy Kitchen with Cutlery Food Oven, Kitchen Games for Children from 2-6 Years (Brown)" src="https://m.media-amazon.com/images/I/51AI1JXxN7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1CVYLKB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jack Royal Children's Kitchen Play Set 50 Children's Accessories with Sounds Lights &amp; Water Pump, Multifunctional Toy Kitchen with Cutlery Food Oven, Kitchen Games for Children from 2-6 Years (Brown)" src="https://m.media-amazon.com/images/I/51AI1JXxN7L._SL500_.jpg"/></a>
 
 
 The **Jack Royal Children's Kitchen Play Set** is ideal for young children aged **2 to 6 years** who love to engage in imaginative play and explore the world of cooking. This multifunctional toy kitchen is perfect for parents seeking an interactive and educational toy that encourages creativity, role-playing, and motor skill development in their little ones.
@@ -202,10 +202,10 @@ The **Jack Royal Children's Kitchen Play Set** offers a realistic and engaging c
 
 Designed with safety and functionality in mind, the play set is lightweight and compact, making it easy to move and store. The variety of accessories ensures children remain engaged for extended periods, fostering creativity and cooperative play when shared with friends or siblings. Overall, this multifunctional toy kitchen is a valuable addition to any child's playroom, promoting both fun and learning through hands-on activities.
 
-## <a href="https://www.amazon.com/dp/B0F1YJBJ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">46-piece Pretend Play Cash Register Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0F1YJBJ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">46-piece Pretend Play Cash Register Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1YJBJ9F?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="46-Piece Pretend Play Cash Register Toy Set with Water Outlet Function - Calculator, Shopping Bag, Scanners, Credit Cards, Coffee Machine, Play Food - Gift for Boys and Girls Ages 3+, Multi" src="https://m.media-amazon.com/images/I/41Gpf1R5DuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1YJBJ9F?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="46-Piece Pretend Play Cash Register Toy Set with Water Outlet Function - Calculator, Shopping Bag, Scanners, Credit Cards, Coffee Machine, Play Food - Gift for Boys and Girls Ages 3+, Multi" src="https://m.media-amazon.com/images/I/41Gpf1R5DuL._SL500_.jpg"/></a>
 
 
 The **46-Piece Pretend Play Cash Register Toy Set** is perfect for young children aged 3 and above who love imaginative play and role-playing activities. Ideal for both boys and girls, this set encourages creativity, social interaction, and basic math skills, making it a great gift for toddlers who are developing cognitive and motor skills. Parents looking for an engaging and educational toy to enhance their child’s learning experience will find this item particularly beneficial.
@@ -228,10 +228,10 @@ This **Pretend Play Cash Register Toy Set** offers an exciting and educational w
 
 Additionally, the playful elements like the coffee machine and scanners stimulate creativity and encourage children to invent stories and scenarios, boosting their social and communication skills. The water outlet function adds an extra layer of fun, making the playtime more dynamic and engaging. Overall, this set is a wonderful tool to nurture a child’s imagination while supporting their developmental milestones.
 
-## <a href="https://www.amazon.com/dp/B0C5S3ZRRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nickspool Kitchen Battery Operated Mini Household Appliances Set</a>
+## <a href="https://www.amazon.com/dp/B0C5S3ZRRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Nickspool Kitchen Battery Operated Mini Household Appliances Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0C5S3ZRRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nickspool® 6 Pcs Kitchen Battery Operated Mini Household appliances Set Microwave,Water Dispenser,Coffee Maker,Toaster,Juicer Machine,Kettle for Kids [Multi-Color] {Latest 2023}" src="https://m.media-amazon.com/images/I/51EMbSZjVpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C5S3ZRRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Nickspool® 6 Pcs Kitchen Battery Operated Mini Household appliances Set Microwave,Water Dispenser,Coffee Maker,Toaster,Juicer Machine,Kettle for Kids [Multi-Color] {Latest 2023}" src="https://m.media-amazon.com/images/I/51EMbSZjVpL._SL500_.jpg"/></a>
 
 
 The **Nickspool® 6 Pcs Kitchen Battery Operated Mini Household Appliances Set** is ideal for young children who love to engage in imaginative play and mimic real-life kitchen activities. This colorful and compact set is perfect for parents looking to introduce their kids to household appliances in a safe and entertaining way. It is especially suitable for kids who enjoy role-playing and developing their motor skills through interactive toys.
@@ -255,10 +255,10 @@ The **Nickspool® Kitchen Mini Appliance Set** features a variety of household a
 
 Beyond its entertaining appeal, this **Kids Edition** appliance set fosters creativity and role-playing, helping children develop important social and cognitive skills. By mimicking real kitchen tasks, kids gain a sense of responsibility and learn basic concepts related to food preparation and household chores in a safe environment. Overall, the Nickspool® mini kitchen appliances provide both fun and educational value for young users.
 
-## <a href="https://www.amazon.com/dp/B098R3MXZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ananya Coffee Kitchen Set Roll Play Toys</a>
+## <a href="https://www.amazon.com/dp/B098R3MXZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ananya Coffee Kitchen Set Roll Play Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B098R3MXZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ANANYA Coffee Kitchen Set Roll Play Toys for Girls Toys for Girl's 4 Chairs 4 Cups 4 Tea Plait 3 Spoon 1 Mug 1 Tea Ketli 1 Table Complete Tea Sat Toys Girl's &amp; Boys" src="https://m.media-amazon.com/images/I/51UNIiyAWpS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B098R3MXZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ANANYA Coffee Kitchen Set Roll Play Toys for Girls Toys for Girl's 4 Chairs 4 Cups 4 Tea Plait 3 Spoon 1 Mug 1 Tea Ketli 1 Table Complete Tea Sat Toys Girl's &amp; Boys" src="https://m.media-amazon.com/images/I/51UNIiyAWpS._SL500_.jpg"/></a>
 
 
 The **ANANYA Coffee Kitchen Set Roll Play Toys** is perfect for young children, especially girls and boys who enjoy imaginative role-playing and pretend tea parties. Ideal for kids who love social play and creativity, this set encourages interactive play while developing fine motor skills and social interaction. It’s a great choice for parents looking to provide a fun, engaging, and educational toy that sparks imagination.

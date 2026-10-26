@@ -22,10 +22,10 @@ Kids aged three and up can enjoy these realistic models, which spark creativity 
 
 
 
-## <a href="https://www.amazon.com/dp/B00OK95ESU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Construction Toys 3 Pack Vehicles</a>
+## <a href="https://www.amazon.com/dp/B00OK95ESU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Cat Construction Toys 3 Pack Vehicles</a>
 
 
-<a href="https://www.amazon.com/dp/B00OK95ESU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAT Construction Toys CAT Construction Die Cast Metal 3 Pack Vehicles - Steam Roller/Excavator/Wheel Loader for Ages 3+" src="https://m.media-amazon.com/images/I/41R25PSJoeL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00OK95ESU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="CAT Construction Toys CAT Construction Die Cast Metal 3 Pack Vehicles - Steam Roller/Excavator/Wheel Loader for Ages 3+" src="https://m.media-amazon.com/images/I/41R25PSJoeL._SL500_.jpg"/></a>
 
 
 The **CAT Construction Die Cast Metal 3 Pack Vehicles** is ideal for young children aged 3 and above who have a fascination with construction machinery. Perfect for little builders and imaginative play enthusiasts, this set offers a hands-on experience with miniature versions of heavy-duty vehicles like the **Steam Roller**, **Excavator**, and **Wheel Loader**. Parents and gift-givers looking to encourage creative play and motor skills development will find this toy set highly suitable.
@@ -47,12 +47,12 @@ Each vehicle in the **CAT Construction Die Cast Metal 3 Pack** is crafted by **F
 
 The set’s compact dimensions make it ideal for both indoor and outdoor play, fitting easily into toy boxes or backpacks for on-the-go fun. Parents will appreciate the combination of educational value and entertainment, as children learn about construction vehicles and their roles while engaging in pretend construction projects. Overall, this toy set encourages creativity, problem-solving, and active play, making it a great addition to any young child's collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00OK95ESU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00OK95ESU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08L1DL6NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar D6r Track-type Tractor Dozer</a>
+## <a href="https://www.amazon.com/dp/B08L1DL6NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar D6r Track-type Tractor Dozer</a>
 
 
-<a href="https://www.amazon.com/dp/B08L1DL6NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar D6R Track-Type Tractor Dozer 85691" src="https://m.media-amazon.com/images/I/41nbrkLHuWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L1DL6NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar D6R Track-Type Tractor Dozer 85691" src="https://m.media-amazon.com/images/I/41nbrkLHuWL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/64 Caterpillar D6R Track-Type Tractor Dozer 85691** is ideal for collectors, construction enthusiasts, and fans of detailed scale models. Those who appreciate precision craftsmanship and realistic replicas of heavy machinery will find this item particularly appealing. It is also perfect for educators and hobbyists looking to enhance their miniature construction sets or display collections with authentic, high-quality pieces.
@@ -75,12 +75,12 @@ The **Diecast Masters Caterpillar D6R Track-Type Tractor Dozer** stands out due 
 
 Beyond its aesthetic appeal, this model offers durability and quality, making it a long-lasting addition to any collection. While its limited moving parts may reduce interactive play for children, it excels as a display model and educational tool, providing insights into construction equipment design and function. Overall, this diecast model balances authenticity, craftsmanship, and portability for enthusiasts and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08L1DL6NS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08L1DL6NS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08L1DHD7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 950m Wheel Loader</a>
+## <a href="https://www.amazon.com/dp/B08L1DHD7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 950m Wheel Loader</a>
 
 
-<a href="https://www.amazon.com/dp/B08L1DHD7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar 950M Wheel Loader 85692" src="https://m.media-amazon.com/images/I/41D4kG9W2vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L1DHD7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar 950M Wheel Loader 85692" src="https://m.media-amazon.com/images/I/41D4kG9W2vL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/64 Caterpillar 950M Wheel Loader 85692** is an ideal collectible for construction enthusiasts, scale model hobbyists, and professionals seeking a detailed replica of heavy machinery. If you appreciate precision craftsmanship and want a compact model that fits perfectly in your display or diorama, this item is designed for you.
@@ -103,12 +103,12 @@ The **Diecast Masters Caterpillar 950M Wheel Loader** offers an impressive blend
 
 Additionally, this model is crafted with quality diecast metal, ensuring it withstands handling and time without losing its form. The detailed construction provides users with an engaging experience whether used for educational purposes, professional demonstrations, or as a centerpiece in a collection. Overall, this item balances form and function, delivering a miniature yet faithful representation of heavy machinery.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08L1DHD7H?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08L1DHD7H?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09FG67S2J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Geyiie Alloy Small Construction Cars Vehicles</a>
+## <a href="https://www.amazon.com/dp/B09FG67S2J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Geyiie Alloy Small Construction Cars Vehicles</a>
 
 
-<a href="https://www.amazon.com/dp/B09FG67S2J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Geyiie Alloy Small Construction Cars Vehicles, Die Cast Mini Construction Truck Toys, Heavy Duty Bulldozers Excavator Cement Dump Toys Outdoor Easter Gifts for Kids Toddler" src="https://m.media-amazon.com/images/I/518WrT9LpGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09FG67S2J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Geyiie Alloy Small Construction Cars Vehicles, Die Cast Mini Construction Truck Toys, Heavy Duty Bulldozers Excavator Cement Dump Toys Outdoor Easter Gifts for Kids Toddler" src="https://m.media-amazon.com/images/I/518WrT9LpGL._SL500_.jpg"/></a>
 
 
 The **Geyiie Alloy Small Construction Cars Vehicles** are perfect for young children and toddlers who have a fascination with construction equipment and enjoy imaginative play. These **die cast mini construction truck toys** are ideal for parents and gift-givers seeking durable, realistic, and engaging outdoor toys that can withstand active play. If you're looking for a compact yet detailed set of **heavy duty bulldozers, excavators, and cement dump trucks** that make excellent Easter gifts or birthday presents, this limited edition collection is a great choice.
@@ -131,12 +131,12 @@ The **Geyiie Alloy Small Construction Cars** boast a sturdy die cast alloy build
 
 Additionally, being a **limited edition** set, these mini construction trucks provide a unique collectible value, appealing not only to kids but also to enthusiasts. The vehicles’ heavy-duty design ensures they can withstand active play, making them a worthwhile investment for parents looking for quality outdoor toys that will engage their toddlers for hours.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09FG67S2J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09FG67S2J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08W265TWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 385c L Hydraulic Tracked Excavator</a>
+## <a href="https://www.amazon.com/dp/B08W265TWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 385c L Hydraulic Tracked Excavator</a>
 
 
-<a href="https://www.amazon.com/dp/B08W265TWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters Caterpillar 385C L Hydraulic Tracked Excavator Play &amp; Collect! Series 1/64 Diecast Model 85614" src="https://m.media-amazon.com/images/I/41yVfVjFUoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08W265TWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters Caterpillar 385C L Hydraulic Tracked Excavator Play &amp; Collect! Series 1/64 Diecast Model 85614" src="https://m.media-amazon.com/images/I/41yVfVjFUoL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters Caterpillar 385C L Hydraulic Tracked Excavator Play & Collect! Series 1/64 Diecast Model 85614** is ideal for collectors, construction enthusiasts, and children who enjoy realistic miniature models. This detailed scale model is perfect for those who appreciate high-quality craftsmanship and want to add an authentic piece of construction equipment to their collection or playset. Its compact size and accuracy make it suitable for display as well as interactive play.
@@ -159,12 +159,12 @@ This **Diecast Masters model** stands out with its precise dimensions—approxim
 
 Beyond aesthetics, the model offers practical benefits for users. Collectors gain a finely crafted piece that complements other construction equipment models, while children can enjoy imaginative play with a realistic and sturdy toy. Its manageable size allows for easy storage and display, making it a versatile choice for enthusiasts of all ages. Overall, this diecast excavator combines quality, detail, and functionality, making it a worthwhile investment for anyone passionate about construction machinery or miniature collectibles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08W265TWL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08W265TWL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CTD48LSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 420 Xe Backhoe Loader Model 85765</a>
+## <a href="https://www.amazon.com/dp/B0CTD48LSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 420 Xe Backhoe Loader Model 85765</a>
 
 
-<a href="https://www.amazon.com/dp/B0CTD48LSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1:64 Scale Caterpillar 420 XE Backhoe Loader Model 85765 | Play &amp; Collect Series Cat Construction Equipment" src="https://m.media-amazon.com/images/I/41yPZk9IjmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CTD48LSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1:64 Scale Caterpillar 420 XE Backhoe Loader Model 85765 | Play &amp; Collect Series Cat Construction Equipment" src="https://m.media-amazon.com/images/I/41yPZk9IjmL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1:64 Scale Caterpillar 420 XE Backhoe Loader Model 85765** is ideal for collectors, construction enthusiasts, and children who enjoy realistic play. This detailed model is perfect for those who appreciate authentic **Cat construction equipment** replicas or want a durable and visually appealing addition to their **play & collect series**. Its compact size and precision make it suitable for both display and imaginative play.
@@ -187,12 +187,12 @@ This **Caterpillar 420 XE Backhoe Loader model** by Diecast Masters showcases in
 
 Beyond its appearance, the model offers a tactile experience for users who enjoy hands-on interaction with construction toys. Although limited in moving parts, the backhoe loader’s design encourages imaginative play scenarios, bringing the excitement of construction sites to life. Whether displayed as part of a collection or used for play, this model combines aesthetic appeal with functional durability, making it a valuable addition to any fan of construction equipment.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CTD48LSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CTD48LSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08L1D52ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 320f L Hydraulic Excavator</a>
+## <a href="https://www.amazon.com/dp/B08L1D52ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar 320f L Hydraulic Excavator</a>
 
 
-<a href="https://www.amazon.com/dp/B08L1D52ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar 320F L Hydraulic Excavator 85690" src="https://m.media-amazon.com/images/I/414-O5pgOEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08L1D52ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar 320F L Hydraulic Excavator 85690" src="https://m.media-amazon.com/images/I/414-O5pgOEL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/64 Caterpillar 320F L Hydraulic Excavator 85690** is ideal for collectors, construction enthusiasts, and scale model hobbyists looking for a highly detailed and durable replica of a popular construction machine. If you appreciate authentic miniature models or want to add a realistic piece to your display or diorama, this item is perfect for you.
@@ -215,12 +215,12 @@ The **Diecast Masters Caterpillar 320F L Hydraulic Excavator** stands out for it
 
 Beyond aesthetics, the solid build quality from **Diecast Masters** and **Yu-Lee** ensures that this miniature excavator withstands handling and long-term display. The vibrant **yellow finish** adds visual authenticity and makes the model instantly recognizable. Whether used as a collector's piece or a display item, this excavator combines form and function perfectly.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08L1D52ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08L1D52ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08VNRDM8J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters 1/64 Caterpillar Cat 745 Articulated Truck</a>
+## <a href="https://www.amazon.com/dp/B08VNRDM8J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters 1/64 Caterpillar Cat 745 Articulated Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B08VNRDM8J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar CAT 745 Articulated Truck 85639" src="https://m.media-amazon.com/images/I/41xY+XtLNdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08VNRDM8J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar CAT 745 Articulated Truck 85639" src="https://m.media-amazon.com/images/I/41xY+XtLNdL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/64 Caterpillar CAT 745 Articulated Truck 85639** is ideal for collectors, construction enthusiasts, and model hobbyists who appreciate detailed and durable miniature replicas. If you want a high-quality scale model that accurately represents the iconic CAT 745 articulated truck, this item is perfect for display or educational purposes.
@@ -243,12 +243,12 @@ The **Diecast Masters 1/64 Caterpillar CAT 745 Articulated Truck** stands out wi
 
 This collectible offers both aesthetic and educational value, helping users understand the design and function of the CAT 745 truck. While its size is ideal for display, it is lightweight and easy to handle, catering well to collectors who appreciate realistic scale models. Overall, this model combines functionality, durability, and style, making it a worthy purchase for enthusiasts of construction vehicles.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08VNRDM8J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08VNRDM8J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B07MMYJMDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters 1:50 Scale Caterpillar Cs11 Gc Soil Compactor</a>
+## <a href="https://www.amazon.com/dp/B07MMYJMDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters 1:50 Scale Caterpillar Cs11 Gc Soil Compactor</a>
 
 
-<a href="https://www.amazon.com/dp/B07MMYJMDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1:50 Scale Caterpillar CS11 GC Soil Compactor | High Line Series Cat Trucks &amp; Construction Equipment | Diecast Masters Model 85589" src="https://m.media-amazon.com/images/I/414BN42u7tL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MMYJMDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1:50 Scale Caterpillar CS11 GC Soil Compactor | High Line Series Cat Trucks &amp; Construction Equipment | Diecast Masters Model 85589" src="https://m.media-amazon.com/images/I/414BN42u7tL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1:50 Scale Caterpillar CS11 GC Soil Compactor** is ideal for collectors, construction enthusiasts, and model hobbyists who appreciate highly detailed and accurate replicas of heavy machinery. If you want to add a meticulously crafted piece to your collection or use it for educational and display purposes, this model is perfect for you.
@@ -270,12 +270,12 @@ The **Diecast Masters 1:50 Scale Caterpillar CS11 GC Soil Compactor** stands out
 
 Besides its impressive aesthetics, the model offers practical benefits for collectors and educators alike. Its manageable size makes it easy to showcase in any setting, whether on a shelf or within a detailed construction diorama. Furthermore, the bright yellow finish not only stays true to the iconic Caterpillar branding but also ensures the model remains eye-catching and vibrant over time. Overall, this diecast model combines authenticity, durability, and visual appeal, making it a top choice for anyone passionate about construction equipment replicas.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B07MMYJMDH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B07MMYJMDH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08VW9K1YC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar Cat D11 Dozer</a>
+## <a href="https://www.amazon.com/dp/B08VW9K1YC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Caterpillar Cat D11 Dozer</a>
 
 
-<a href="https://www.amazon.com/dp/B08VW9K1YC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar CAT D11 Dozer W/ 2 Blades and 2 Rear Rippers 85637" src="https://m.media-amazon.com/images/I/41C2du7zUpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08VW9K1YC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/64 Caterpillar CAT D11 Dozer W/ 2 Blades and 2 Rear Rippers 85637" src="https://m.media-amazon.com/images/I/41C2du7zUpL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/64 Caterpillar CAT D11 Dozer** with 2 Blades and 2 Rear Rippers is ideal for collectors, construction enthusiasts, and model hobbyists who appreciate detailed, high-quality replicas of heavy machinery. This item is perfect for those looking to add a realistic and durable piece to their collection or for educational purposes to showcase the engineering marvels of construction equipment.
@@ -298,7 +298,7 @@ The **Diecast Masters 1/64 Caterpillar CAT D11 Dozer** features precise craftsma
 
 Beyond aesthetics, this model offers durability and realistic representation, thanks to the collaboration between **Diecast Masters** and manufacturer **Yu-Lee**. The vivid **yellow finish** stays true to Caterpillar's iconic color scheme, making it instantly recognizable. Whether used as a display piece or an educational tool, this dozer model provides a tangible connection to the world of heavy equipment and construction machinery.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08VW9K1YC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08VW9K1YC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

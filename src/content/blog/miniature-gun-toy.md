@@ -23,10 +23,10 @@ Collectors also value them for dollhouse decoration or model displays. Many sets
 
 
 
-## <a href="https://www.amazon.com/dp/B0C249LLC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Himirich 38 Pcs Ww2 Military Weapons Pack</a>
+## <a href="https://www.amazon.com/dp/B0C249LLC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Himirich 38 Pcs Ww2 Military Weapons Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0C249LLC6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HIMIRICH 38 Pcs WW2 Military Weapons Pack Soldier Style Weapon Accessories, Army Gun Sets Toys Compatible with Classic Building Blocks for Children Age 6 to 15 Years" src="https://m.media-amazon.com/images/I/51NTZ0ZO9gL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C249LLC6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HIMIRICH 38 Pcs WW2 Military Weapons Pack Soldier Style Weapon Accessories, Army Gun Sets Toys Compatible with Classic Building Blocks for Children Age 6 to 15 Years" src="https://m.media-amazon.com/images/I/51NTZ0ZO9gL._SL500_.jpg"/></a>
 
 
 The **HIMIRICH 38 Pcs WW2 Military Weapons Pack** is ideal for children aged **6 to 15 years** who have a keen interest in **military-themed toys** and enjoy building sets compatible with classic building blocks. This set is perfect for young enthusiasts who love to create detailed **soldier-style weapon accessories** and enhance their imaginative play with realistic army gun sets.
@@ -49,10 +49,10 @@ The **HIMIRICH 38 Pcs WW2 Military Weapons Pack** offers a rich variety of authe
 
 Beyond just aesthetics, the set supports the development of fine motor skills and encourages imaginative role-playing by allowing children to reenact historical scenarios or create their own military adventures. Manufactured by **HIMIRICH**, this pack ensures quality and durability, making it a reliable addition to any child's toy arsenal.
 
-## <a href="https://www.amazon.com/dp/B0D8SK84KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ingwetech Assembly Submachine Gun Toy Model Action Figure Set</a>
+## <a href="https://www.amazon.com/dp/B0D8SK84KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ingwetech Assembly Submachine Gun Toy Model Action Figure Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8SK84KF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INGWETECH 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set HK53, MK18, MPSSDS, Uzi, KRISVECTOP, MPS, MP40, MP7 for DIY Military Toy Collectioin" src="https://m.media-amazon.com/images/I/41iiWBbM-oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8SK84KF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="INGWETECH 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set HK53, MK18, MPSSDS, Uzi, KRISVECTOP, MPS, MP40, MP7 for DIY Military Toy Collectioin" src="https://m.media-amazon.com/images/I/41iiWBbM-oL._SL500_.jpg"/></a>
 
 
 The **INGWETECH 8 Pcs Assembly Submachine Gun Toy Model Action Figure Set** is ideal for enthusiasts of **military toys**, collectors looking to expand their **DIY military toy collection**, and hobbyists who enjoy detailed, realistic **action figure sets**. This set appeals to both adults and older children who appreciate the craftsmanship and variety of iconic submachine guns such as the **HK53, MK18, MPSSDS, Uzi, KRISVECTOP, MPS, MP40,** and **MP7**.
@@ -75,10 +75,10 @@ The **INGWETECH 8 Pcs Assembly Submachine Gun Toy Model Set** offers a detailed 
 
 Beyond aesthetics, this set encourages creativity and hands-on interaction through assembly, which can be particularly rewarding for DIY enthusiasts. The durable black finish ensures that the models maintain their sleek look even after repeated handling. Overall, this collection is a great addition for anyone passionate about military toys or looking to enhance their **military action figure collection** with quality, detailed replicas.
 
-## <a href="https://www.amazon.com/dp/B0CGDQ69H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Himirich Military Weapons Pack 24 Pcs U.s. Accessories Kits Toys</a>
+## <a href="https://www.amazon.com/dp/B0CGDQ69H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Himirich Military Weapons Pack 24 Pcs U.s. Accessories Kits Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGDQ69H3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HIMIRICH Military Weapons Pack 24 Pcs U.S. Accessories Kits Toys, Army Equipment Gear WW2 Guns for Boys 6+, Compatible with Mini Figure of Major Brand" src="https://m.media-amazon.com/images/I/41hb5PlJl2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGDQ69H3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HIMIRICH Military Weapons Pack 24 Pcs U.S. Accessories Kits Toys, Army Equipment Gear WW2 Guns for Boys 6+, Compatible with Mini Figure of Major Brand" src="https://m.media-amazon.com/images/I/41hb5PlJl2L._SL500_.jpg"/></a>
 
 
 The **HIMIRICH Military Weapons Pack 24 Pcs U.S. Accessories Kits Toys** is ideal for young enthusiasts aged 6 and above who enjoy role-playing with **army equipment gear** and collectors of **WW2 guns** miniatures. This set is perfect for kids who love to enhance their **mini figure** collections from major brands with authentic and detailed military accessories.
@@ -99,10 +99,10 @@ The **HIMIRICH Military Weapons Pack** offers a comprehensive set of 24 pieces d
 
 With its compatibility across popular mini figure lines, this pack serves as an excellent addition for collectors and young players alike. The durability of the materials ensures that the set can withstand regular use, making it a reliable choice for parents seeking quality toys. Overall, this accessory kit not only adds excitement to miniature army setups but also promotes imaginative play and learning.
 
-## <a href="https://www.amazon.com/dp/B0DL1PJ9MT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Morezmore Miniature Gun Pistol Revolver Weapon Prop</a>
+## <a href="https://www.amazon.com/dp/B0DL1PJ9MT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Morezmore Miniature Gun Pistol Revolver Weapon Prop</a>
 
 
-<a href="https://www.amazon.com/dp/B0DL1PJ9MT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="M01397-BRONZE MOREZMORE Miniature Gun Pistol Revolver Weapon Prop 50x22mm for Puppet Dollhouse Diorama" src="https://m.media-amazon.com/images/I/41Rs52snlqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DL1PJ9MT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="M01397-BRONZE MOREZMORE Miniature Gun Pistol Revolver Weapon Prop 50x22mm for Puppet Dollhouse Diorama" src="https://m.media-amazon.com/images/I/41Rs52snlqL._SL500_.jpg"/></a>
 
 
 The **M01397-BRONZE MOREZMORE Miniature Gun Pistol Revolver Weapon Prop** is perfect for hobbyists and collectors who are passionate about creating detailed and realistic **puppet dollhouse dioramas**. Ideal customers include miniature enthusiasts, model builders, and artists seeking authentic small-scale accessories to enhance their displays or projects. This item offers an excellent way to add a touch of authenticity and detail to miniature scenes.
@@ -123,10 +123,10 @@ The **MOREZMORE Miniature Gun Pistol Revolver** is designed with precision to re
 
 Beyond aesthetics, this miniature prop offers users the benefit of adding a layer of storytelling and visual interest to their miniature setups. Whether used in historical, western, or fantasy-themed dioramas, it brings a sense of depth and character to the scene. The lightweight design also makes it easy to position and reposition, giving users flexibility in their creative projects.
 
-## <a href="https://www.amazon.com/dp/B09TKYG3SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Rifle Retro Mini Hunting Gun Model</a>
+## <a href="https://www.amazon.com/dp/B09TKYG3SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Miniature Rifle Retro Mini Hunting Gun Model</a>
 
 
-<a href="https://www.amazon.com/dp/B09TKYG3SQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8 Pcs Miniature Rifle Retro Mini Hunting Gun Model Mini House Garden Accessories" src="https://m.media-amazon.com/images/I/41kuYbLvs8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TKYG3SQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="8 Pcs Miniature Rifle Retro Mini Hunting Gun Model Mini House Garden Accessories" src="https://m.media-amazon.com/images/I/41kuYbLvs8L._SL500_.jpg"/></a>
 
 
 The **8 Pcs Miniature Rifle Retro Mini Hunting Gun Model** is ideal for collectors, hobbyists, and enthusiasts of miniature replicas or unique garden accessories. If you appreciate detailed craftsmanship and want to add a touch of vintage charm to your miniature displays or garden setups, this product is perfect for you. It also suits those who enjoy creative diorama building or decorating dollhouses with authentic-looking accessories.
@@ -149,10 +149,10 @@ The **8 Pcs Miniature Rifle Retro Mini Hunting Gun Model** stands out for its me
 
 Beyond their aesthetic appeal, these miniature rifles offer practical benefits for hobbyists looking to enhance their creative projects. Their lightweight construction facilitates easy placement and repositioning, while the set of eight ensures you have multiple options to diversify your collection or decorative layout. Manufactured by **Hiawbon**, these models promise consistent quality and a durable finish that withstands time and handling.
 
-## <a href="https://www.amazon.com/dp/B0FGT63W74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2pcs Miniature Rifle For Crafts</a>
+## <a href="https://www.amazon.com/dp/B0FGT63W74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2pcs Miniature Rifle For Crafts</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGT63W74?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2pcs Miniature Rifle for Crafts, Tiny Gun, 1/12 Scale Fake Sniper Accessory for Dollhouse Decoration, Mini Hunting Guns Figurine Miniatures Parts Accessories Items for Retro Garden Small Model Crafts" src="https://m.media-amazon.com/images/I/41omkeEBY-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGT63W74?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2pcs Miniature Rifle for Crafts, Tiny Gun, 1/12 Scale Fake Sniper Accessory for Dollhouse Decoration, Mini Hunting Guns Figurine Miniatures Parts Accessories Items for Retro Garden Small Model Crafts" src="https://m.media-amazon.com/images/I/41omkeEBY-L._SL500_.jpg"/></a>
 
 
 The **2pcs Miniature Rifle for Crafts** is ideal for hobbyists and collectors who enjoy detailed **1/12 scale** accessories, especially those creating realistic **dollhouse decorations** or engaging in **miniature model crafting**. This item is perfect for anyone looking to add authentic-looking **mini hunting guns** to their retro garden or small model setups, enhancing the overall aesthetic with finely crafted tiny guns.
@@ -175,10 +175,10 @@ These miniature rifles showcase impressive craftsmanship with their precise **di
 
 Manufactured by **Marsrut**, these miniature rifles not only provide aesthetic value but also boast durability suitable for long-term display. Their tiny size allows for creative placement in various craft projects, enabling enthusiasts to customize their miniature worlds with unique and vintage-inspired weaponry. Whether used as part of a hunting diorama or a historical miniature setup, these miniatures offer both charm and realism that elevate the overall craftsmanship experience.
 
-## <a href="https://www.amazon.com/dp/B0C6TMYYZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vicvik Weapons Pack Military Weapons Accessories</a>
+## <a href="https://www.amazon.com/dp/B0C6TMYYZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vicvik Weapons Pack Military Weapons Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6TMYYZW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VICVIK Weapons Pack Military Weapons Accessories WWII Soldier Model Toys Military Equipment Battle Blocks Bricks Children's Toys, Compatible with Mini Figure Brick Toy for Boys Age 3＋" src="https://m.media-amazon.com/images/I/51wp+KlZrzL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6TMYYZW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VICVIK Weapons Pack Military Weapons Accessories WWII Soldier Model Toys Military Equipment Battle Blocks Bricks Children's Toys, Compatible with Mini Figure Brick Toy for Boys Age 3＋" src="https://m.media-amazon.com/images/I/51wp+KlZrzL._SL500_.jpg"/></a>
 
 
 The **VICVIK Weapons Pack Military Weapons Accessories** is ideal for young enthusiasts aged 3 and above who enjoy building and playing with military-themed toys. Perfect for boys who love **WWII soldier model toys** and **battle blocks bricks**, this pack enhances imaginative play by providing detailed and compatible **military equipment** accessories that fit seamlessly with mini figure brick toys. Parents looking for durable and educational toys to encourage creativity and fine motor skills will find this item especially suitable.
@@ -200,10 +200,10 @@ The **VICVIK Weapons Pack** offers a comprehensive set of military accessories d
 
 Made by the reputable **VICVIK** manufacturer, this pack promises quality and compatibility, making it a valuable addition to any young builder’s collection. Its focus on **military equipment** not only sparks interest in history but also encourages the development of storytelling skills and creativity. Overall, this pack is an excellent choice for parents and gift-givers aiming to provide educational and entertaining toys for children who enjoy military-themed brick playsets.
 
-## <a href="https://www.amazon.com/dp/B0DFC53H8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Military Weapons Pack Gun Accessories</a>
+## <a href="https://www.amazon.com/dp/B0DFC53H8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Military Weapons Pack Gun Accessories</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFC53H8K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Military Weapons Pack Gun Accessories, WW2 US Basic Edition Soldier Model Military Toys for Children 3 Years Older, Compatible with Classic Building Block Toys" src="https://m.media-amazon.com/images/I/51xJyYe6gNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFC53H8K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Military Weapons Pack Gun Accessories, WW2 US Basic Edition Soldier Model Military Toys for Children 3 Years Older, Compatible with Classic Building Block Toys" src="https://m.media-amazon.com/images/I/51xJyYe6gNL._SL500_.jpg"/></a>
 
 
 The **Military Weapons Pack Gun Accessories** is ideal for parents and collectors looking to enhance their children's or hobbyist's experience with **classic building block toys**. Designed for children aged **3 years and older**, this pack is perfect for those interested in **WW2 US soldier models** and military-themed playsets. It offers a safe and compatible way to expand imaginative play and historical learning.
@@ -226,10 +226,10 @@ The **Military Weapons Pack Gun Accessories** enhances the play experience by pr
 
 With its compatibility and focus on the WW2 US soldier model, this pack offers educational value by introducing young users to historical concepts in a fun and engaging way. While the black color scheme limits visual variety, it adds a realistic touch to the accessories, making them ideal for collectors or enthusiasts of military toys. Overall, this accessory pack is a great addition for those looking to enrich their building block collections with military-themed elements.
 
-## <a href="https://www.amazon.com/dp/B083ZQ8ML8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Odoria Miniature Rifle Gun</a>
+## <a href="https://www.amazon.com/dp/B083ZQ8ML8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Odoria Miniature Rifle Gun</a>
 
 
-<a href="https://www.amazon.com/dp/B083ZQ8ML8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Odoria 1/12 Miniature Rifle Gun for Crafts Dollhouse Decoration Accessories" src="https://m.media-amazon.com/images/I/41izCVqXziL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B083ZQ8ML8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Odoria 1/12 Miniature Rifle Gun for Crafts Dollhouse Decoration Accessories" src="https://m.media-amazon.com/images/I/41izCVqXziL._SL500_.jpg"/></a>
 
 
 The **Odoria 1/12 Miniature Rifle Gun** is perfect for hobbyists and collectors who enjoy detailed **crafts** and **dollhouse decoration accessories**. Ideal for those looking to add an authentic and old-fashioned touch to their miniature scenes, this item suits miniature enthusiasts, model builders, and dollhouse decorators seeking high-quality, realistic accessories.
@@ -250,10 +250,10 @@ The **Odoria 1/12 Miniature Rifle Gun** measures approximately **4.05 inches in 
 
 Beyond its aesthetic value, this miniature rifle is crafted with attention to detail, allowing hobbyists to create highly accurate dioramas or displays. The lightweight nature of the piece means it can be easily positioned without damaging delicate setups. Whether for display or collection, this miniature accessory by **Odoria** combines quality, style, and scale, making it an excellent addition for anyone passionate about miniature crafts and dollhouse decorations.
 
-## <a href="https://www.amazon.com/dp/B0F27GLFZK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Pcs Dollhouse Accessories Miniature Mini Gun Photo Prop Model Scene Decor</a>
+## <a href="https://www.amazon.com/dp/B0F27GLFZK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">2 Pcs Dollhouse Accessories Miniature Mini Gun Photo Prop Model Scene Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B0F27GLFZK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Pcs Dollhouse Accessories Miniature Mini Gun Photo Prop Model Scene Decor" src="https://m.media-amazon.com/images/I/51rLl4uxJML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F27GLFZK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="2 Pcs Dollhouse Accessories Miniature Mini Gun Photo Prop Model Scene Decor" src="https://m.media-amazon.com/images/I/51rLl4uxJML._SL500_.jpg"/></a>
 
 
 The **2 Pcs Dollhouse Accessories Miniature Mini Gun Photo Prop Model Scene Decor** is ideal for hobbyists, dollhouse collectors, and miniature enthusiasts looking to add a realistic and detailed touch to their miniature scenes or photo props. If you enjoy crafting or decorating small-scale models with authentic accessories, this item is perfect for enhancing the visual appeal of your projects.

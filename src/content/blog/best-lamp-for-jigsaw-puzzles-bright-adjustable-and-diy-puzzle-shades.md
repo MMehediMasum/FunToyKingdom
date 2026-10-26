@@ -23,10 +23,10 @@ The Lepro LED Desk Lamp provides five color modes and brightness levels, perfect
 
 
 
-## <a href="https://www.amazon.com/dp/B09NZWWPWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Diy Iq Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit</a>
+## <a href="https://www.amazon.com/dp/B09NZWWPWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Diy Iq Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B09NZWWPWG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightingsky DIY IQ Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit with 15 Feet Hanging Light Cord (White, XL-16 inch)" src="https://m.media-amazon.com/images/I/41UDQLphLCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09NZWWPWG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightingsky DIY IQ Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit with 15 Feet Hanging Light Cord (White, XL-16 inch)" src="https://m.media-amazon.com/images/I/41UDQLphLCL._SL500_.jpg"/></a>
 
 
 The **Lightingsky DIY IQ Jigsaw Puzzle Lampshade Ceiling Pendant Lamp Shade Kit** is ideal for creative individuals and DIY enthusiasts who want to customize their home lighting. This product is perfect for those looking to add a unique, modern touch to their living space or office while enjoying the hands-on experience of assembling their own decor. If you appreciate personalized design and functional lighting solutions, this kit is an excellent choice.
@@ -49,10 +49,10 @@ The **Lightingsky DIY IQ Jigsaw Puzzle Lampshade** features a unique puzzle-piec
 
 Thanks to its lightweight and compact build, installation is straightforward and manageable without professional help. The sleek **white finish** ensures the lampshade blends seamlessly with different decor themes, from modern to minimalist. Overall, this kit not only illuminates your space but also adds a personal touch to your interior design, making it an excellent addition for anyone looking to combine style and creativity in their lighting solutions.
 
-## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
+## <a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lepro Led Desk Lamp</a>
 
 
-<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08LMPCX3D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lepro LED Desk Lamp, Metal Desk Light 9.5W 800lm, Forbes Vetted Best Task Lamp, 5 Color Modes 5 Brightness Level, Dimmable Home Office Desktop Lamp for Reading, Crafting, Sewing, Puzzle, Nail, White" src="https://m.media-amazon.com/images/I/21bs7Ix5ngL._SL500_.jpg"/></a>
 
 
 The **Lepro LED Desk Lamp** is ideal for individuals who require focused, adjustable lighting for detailed tasks such as reading, crafting, sewing, or working on puzzles and nails. Whether you are a student, professional, or hobbyist, this lamp caters to those seeking a versatile and reliable lighting solution for their home office or creative workspace.
@@ -74,10 +74,10 @@ The **Lepro LED Desk Lamp** offers a powerful 9.5W LED light that delivers 800 l
 
 Additionally, the lamp’s dimmable feature lets users fine-tune brightness levels to their preference. The sturdy metal build not only adds to its durability but also complements modern office setups. The lamp’s compact size and sleek design make it a practical addition to any desk without cluttering the workspace, while the Forbes endorsement assures buyers of its high quality and efficiency.
 
-## <a href="https://www.amazon.com/dp/B01N810Y42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Diy Puzzle Lamp Shade</a>
+## <a href="https://www.amazon.com/dp/B01N810Y42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Diy Puzzle Lamp Shade</a>
 
 
-<a href="https://www.amazon.com/dp/B01N810Y42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="kwmobile DIY Puzzle Lamp Shade - Modern IQ Jigsaw Light in 30 Pieces min. 15 Different Designs - Diameter Approx. 15.7 in / 40 cm - White in Size XL" src="https://m.media-amazon.com/images/I/41e-VHq3DpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01N810Y42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="kwmobile DIY Puzzle Lamp Shade - Modern IQ Jigsaw Light in 30 Pieces min. 15 Different Designs - Diameter Approx. 15.7 in / 40 cm - White in Size XL" src="https://m.media-amazon.com/images/I/41e-VHq3DpL._SL500_.jpg"/></a>
 
 
 The **kwmobile DIY Puzzle Lamp Shade** is perfect for individuals who enjoy creative home decor and hands-on projects. Ideal customers include DIY enthusiasts, modern design lovers, and anyone looking to add a unique, customizable lighting solution to their living space. If you appreciate combining functionality with style, this lamp shade offers a fun and innovative way to personalize your lighting.
@@ -100,10 +100,10 @@ The **kwmobile DIY Puzzle Lamp Shade** stands out for its innovative design that
 
 Beyond its visual appeal, the lamp shade is designed to diffuse light softly and evenly, creating a cozy and inviting ambiance. The lightweight material and user-friendly assembly process make it accessible even to beginners, while the variety of design options keeps the project engaging. Overall, this lamp shade not only brightens a room but also adds a personal touch that enhances the atmosphere.
 
-## <a href="https://www.amazon.com/dp/B0C8DR3FJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzle Lampshade</a>
+## <a href="https://www.amazon.com/dp/B0C8DR3FJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Puzzle Lampshade</a>
 
 
-<a href="https://www.amazon.com/dp/B0C8DR3FJ2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzle Lampshade, Stimulate Imagination Modern Puzzle Lampshade for Office for Living Areas (2)" src="https://m.media-amazon.com/images/I/41yVfJnr1TL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C8DR3FJ2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Puzzle Lampshade, Stimulate Imagination Modern Puzzle Lampshade for Office for Living Areas (2)" src="https://m.media-amazon.com/images/I/41yVfJnr1TL._SL500_.jpg"/></a>
 
 
 The **Puzzle Lampshade** by **Tnfeeon** is ideal for creative individuals and professionals looking to enhance their **office** or **living areas** with a unique, modern lighting solution. Perfect for those who appreciate innovative design and want to stimulate imagination in their workspace or home environment.
@@ -126,10 +126,10 @@ The **Puzzle Lampshade** features a modern and artistic look, measuring approxim
 
 Crafted by **Tnfeeon**, the lampshade uses vibrant **Purple2** color to enhance the mood and atmosphere of any room. Its compact size allows for easy integration into different settings without overpowering the existing decor. Whether used in an office to boost productivity or in a living area to create a cozy ambiance, this lampshade combines form and function, delivering both aesthetic charm and practical lighting benefits.
 
-## <a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Iq Lamp Shade Toy</a>
+## <a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Iq Lamp Shade Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (white,="" alt="Lightingsky 20" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41nDw-jd0-L._SL500_.jpg" toy="" xxl-20=""/></a>
+<a href="https://www.amazon.com/dp/B0CBBXVGTY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (white,="" alt="Lightingsky 20" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41nDw-jd0-L._SL500_.jpg" toy="" xxl-20=""/></a>
 
 
 The **Lightingsky 20" IQ Lamp Shade Toy** is ideal for creative individuals and DIY enthusiasts who enjoy hands-on projects that enhance their living spaces. If you’re looking to add a unique, customizable lighting feature to your room décor, this self-assembled puzzle lamp is perfect for you. It’s also great for those who appreciate modern, minimalist design with a touch of personal flair.
@@ -152,10 +152,10 @@ The **Lightingsky 20" IQ Lamp Shade Toy** combines the fun of a DIY puzzle with 
 
 Crafted by **Lightingsky**, this lamp shade offers both aesthetic appeal and functional benefits. The puzzle-like construction not only stimulates creativity but also makes it easy to disassemble and store when needed. Its neutral white finish ensures compatibility with diverse interior styles, from modern minimalism to cozy contemporary setups. Overall, this lamp shade is a versatile and stylish lighting solution for those who value design and DIY engagement.
 
-## <a href="https://www.amazon.com/dp/B0108JM9AG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky 20" Ceiling Pendant Diy Iq Jigsaw Puzzle Lotus Flower Lamp Shade Kit</a>
+## <a href="https://www.amazon.com/dp/B0108JM9AG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky 20" Ceiling Pendant Diy Iq Jigsaw Puzzle Lotus Flower Lamp Shade Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0108JM9AG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (50cm)="" (white)"="" 15="" alt="Lightingsky 20" ceiling="" cord="" diy="" feet="" flower="" hanging="" iq="" jigsaw="" kit="" lamp="" lotus="" pendant="" puzzle="" shade="" src="https://m.media-amazon.com/images/I/413AP0CGBML._SL500_.jpg" with=""/></a>
+<a href="https://www.amazon.com/dp/B0108JM9AG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (50cm)="" (white)"="" 15="" alt="Lightingsky 20" ceiling="" cord="" diy="" feet="" flower="" hanging="" iq="" jigsaw="" kit="" lamp="" lotus="" pendant="" puzzle="" shade="" src="https://m.media-amazon.com/images/I/413AP0CGBML._SL500_.jpg" with=""/></a>
 
 
 The **Lightingsky 20" (50cm) Ceiling Pendant DIY IQ Jigsaw Puzzle Lotus Flower Lamp Shade Kit** is ideal for creative individuals who enjoy hands-on projects and want to add a unique, decorative lighting element to their home or workspace. Perfect for DIY enthusiasts, art lovers, and anyone looking to customize their lighting fixture with a modern and elegant design.
@@ -178,10 +178,10 @@ The **Lightingsky Ceiling Pendant Lamp Shade Kit** stands out with its innovativ
 
 Additionally, the neutral white color ensures that the lampshade complements any decor, while the compact dimensions make it suitable for smaller rooms or as an accent light. While assembly requires some effort, the end result is a stunning, personalized lighting piece that reflects the user’s creativity and style.
 
-## <a href="https://www.amazon.com/dp/B01BTZ61GG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Iq Lamp Shade Toy</a>
+## <a href="https://www.amazon.com/dp/B01BTZ61GG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Iq Lamp Shade Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B01BTZ61GG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (red,="" alt="Lightingsky 10" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" m-10="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41xLQ1iVceL._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B01BTZ61GG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (red,="" alt="Lightingsky 10" assembled="" decoration="" diy="" for="" inch)"="" iq="" lamp="" lights="" m-10="" puzzle="" room="" self="" shade="" src="https://m.media-amazon.com/images/I/41xLQ1iVceL._SL500_.jpg" toy=""/></a>
 
 
 The **Lightingsky 10" IQ Lamp Shade Toy** is ideal for creative individuals and DIY enthusiasts looking to enhance their room decor with a unique and interactive lighting solution. If you enjoy assembling puzzles and want a functional piece that doubles as a decorative lamp, this product is perfect for you. It’s also great for those who appreciate personalized lighting options and want to add a splash of **red color** to their space.
@@ -204,10 +204,10 @@ The **Lightingsky 10" IQ Lamp Shade Toy** combines the joy of a puzzle with the 
 
 Featuring a striking **red color**, this lamp shade adds a vibrant pop to any environment, enhancing the ambiance and making the room feel cozier. The product’s dimensions—height 0.5 inches, width 4.3 inches, and length 5.5 inches—make it versatile for various lighting fixtures, while its sturdy build from **Lightingsky** ensures longevity. Overall, this puzzle lamp shade is perfect for those who want a blend of creativity, functionality, and style in their home or office lighting.
 
-## <a href="https://www.amazon.com/dp/B01J83PMJI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Diy Iq Jigsaw Puzzle Toy Lotus Flower Lamp Shade Ceiling Pendant</a>
+## <a href="https://www.amazon.com/dp/B01J83PMJI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lightingsky Diy Iq Jigsaw Puzzle Toy Lotus Flower Lamp Shade Ceiling Pendant</a>
 
 
-<a href="https://www.amazon.com/dp/B01J83PMJI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightingsky DIY IQ Jigsaw Puzzle Toy Lotus Flower Lamp Shade Ceiling Pendant for Room Decoration (Yellow)" src="https://m.media-amazon.com/images/I/41LipqTWJKL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01J83PMJI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lightingsky DIY IQ Jigsaw Puzzle Toy Lotus Flower Lamp Shade Ceiling Pendant for Room Decoration (Yellow)" src="https://m.media-amazon.com/images/I/41LipqTWJKL._SL500_.jpg"/></a>
 
 
 The **Lightingsky DIY IQ Jigsaw Puzzle Toy Lotus Flower Lamp Shade Ceiling Pendant** in **yellow** is perfect for creative individuals who enjoy hands-on projects and want to add a unique decorative element to their rooms. Ideal for puzzle enthusiasts, DIY lovers, and anyone looking to enhance their living space with a stylish and customizable lighting fixture.
@@ -230,10 +230,10 @@ This **DIY IQ Jigsaw Puzzle Toy** combines creativity with functionality, allowi
 
 Constructed by **Lightingsky**, this ceiling pendant is designed with precision to fit standard fixtures and offers a lightweight yet durable structure. Its compact dimensions make it suitable for bedrooms, living rooms, or study areas where a touch of artistic flair is desired. Overall, this item blends entertainment, style, and utility, making it an excellent choice for those who appreciate unique lighting and engaging DIY projects.
 
-## <a href="https://www.amazon.com/dp/B07MRL3FK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Puzzle Pendant Lamp Shade</a>
+## <a href="https://www.amazon.com/dp/B07MRL3FK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Puzzle Pendant Lamp Shade</a>
 
 
-<a href="https://www.amazon.com/dp/B07MRL3FK2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (40cm)="" -="" alt="kwmobile Puzzle Pendant Lamp Shade - Cherry Blossom DIY Jigsaw Lampshade - For Hanging Ceiling Light or Floor Lamp - Diameter 15.7" src="https://m.media-amazon.com/images/I/31EFhFQXNoL._SL500_.jpg" white"=""/></a>
+<a href="https://www.amazon.com/dp/B07MRL3FK2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (40cm)="" -="" alt="kwmobile Puzzle Pendant Lamp Shade - Cherry Blossom DIY Jigsaw Lampshade - For Hanging Ceiling Light or Floor Lamp - Diameter 15.7" src="https://m.media-amazon.com/images/I/31EFhFQXNoL._SL500_.jpg" white"=""/></a>
 
 
 The **kwmobile Puzzle Pendant Lamp Shade** is perfect for individuals who enjoy creative home decor and want to add a personalized touch to their lighting. Ideal for DIY enthusiasts and those looking for a unique, interactive lampshade, this item suits people who appreciate both style and functionality in their living or working spaces. Whether you want to brighten up your ceiling light or floor lamp with an artistic flair, this puzzle pendant lamp shade offers a fun and innovative solution.
@@ -257,10 +257,10 @@ The **kwmobile Puzzle Pendant Lamp Shade** stands out with its innovative jigsaw
 
 Constructed by **KW-Commerce**, this pendant lamp shade boasts quality materials and precise dimensions—measuring approximately 15.7 inches in diameter and weighing just under 1.2 pounds. Its versatile design supports both **hanging ceiling lights** and **floor lamps**, making it adaptable to different lighting needs and room layouts. Overall, this product combines creativity, style, and practicality, making it an excellent choice for anyone looking to elevate their lighting fixtures with a unique and interactive element.
 
-## <a href="https://www.amazon.com/dp/B08BTW1BCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Hanging Puzzle Lamp Kit</a>
+## <a href="https://www.amazon.com/dp/B08BTW1BCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kwmobile Hanging Puzzle Lamp Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B08BTW1BCJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (40cm)="" -="" 15ft="" 30-piece="" alt="kwmobile Hanging Puzzle Lamp Kit - 15.7" and="" assemble="" ceiling="" cord="" light="" modern="" pendant="" plug-in="" power="" shade="" size="" src="https://m.media-amazon.com/images/I/31+M205EsJL._SL500_.jpg" to="" with="" xl"=""/></a>
+<a href="https://www.amazon.com/dp/B08BTW1BCJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img (40cm)="" -="" 15ft="" 30-piece="" alt="kwmobile Hanging Puzzle Lamp Kit - 15.7" and="" assemble="" ceiling="" cord="" light="" modern="" pendant="" plug-in="" power="" shade="" size="" src="https://m.media-amazon.com/images/I/31+M205EsJL._SL500_.jpg" to="" with="" xl"=""/></a>
 
 
 The **kwmobile Hanging Puzzle Lamp Kit** is ideal for creative homeowners and DIY enthusiasts looking to add a modern and personalized touch to their living spaces. If you enjoy hands-on projects and want a unique ceiling pendant light that doubles as a decorative element, this kit is perfect for you. Its size XL and contemporary design make it suitable for dining rooms, bedrooms, or offices seeking a stylish yet functional lighting solution.

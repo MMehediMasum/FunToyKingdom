@@ -49,7 +49,7 @@ There are many ride-on toy styles. Each type offers different ways for children 
 | Type | Description | Best For |
 | Push Ride-Ons | Powered by child pushing with feet | Young toddlers |
 | Pedal Ride-Ons | Use pedals to move forward | Older toddlers and preschoolers |
-| [Electric Ride-Ons](https://www.amazon.com/s?k=electric+ride-on+car+with+parental+remote&tag=gearcookware-20) | Battery-powered with parental remote | Children 3 and older |
+| [Electric Ride-Ons](https://www.amazon.com/s?k=electric+ride-on+car+with+parental+remote&tag=mofb05-20) | Battery-powered with parental remote | Children 3 and older |
 | Balance Bikes | No pedals, helps balance | Toddlers learning to ride |
 
 ### Material And Build Quality
@@ -173,7 +173,7 @@ Pairing the remote control with the ride-on toy helps parents control the toy sa
 | Battery Level | Ensure enough power for playtime | Charge fully before first use |
 | Tight Screws | Prevent parts from falling off | Tighten all screws firmly |
 | Remote Function | Confirm full control | Test buttons and range |
-| Safety Gear | Protect the child during play | Use [helmet and pads](https://www.amazon.com/s?k=toddler+helmet+and+pads+set&tag=gearcookware-20) |
+| Safety Gear | Protect the child during play | Use [helmet and pads](https://www.amazon.com/s?k=toddler+helmet+and+pads+set&tag=mofb05-20) |
 
 ## Supervising Playtime Effectively
 
@@ -213,7 +213,7 @@ Prepare for sudden stops or changes in play. Stay calm and ready to use the remo
 **Quick Tips for Safety:**
 
 * Keep the remote control close at hand.
-* Have a [first aid kit](https://www.amazon.com/s?k=mini+first+aid+kit+for+kids&tag=gearcookware-20) nearby.
+* Have a [first aid kit](https://www.amazon.com/s?k=mini+first+aid+kit+for+kids&tag=mofb05-20) nearby.
 * Teach your child to stop the toy if they feel unsafe.
 * Check battery levels before play.
 
@@ -273,7 +273,7 @@ Affordable ride-on toys are great for families on a budget. These toys offer saf
 
 ### Premium Models
 
-[Premium ride-on toys](https://www.amazon.com/s?k=premium+kids+ride+on+car+with+remote+control&tag=gearcookware-20) offer more features and a sleek design. They provide a luxury experience for kids.
+[Premium ride-on toys](https://www.amazon.com/s?k=premium+kids+ride+on+car+with+remote+control&tag=mofb05-20) offer more features and a sleek design. They provide a luxury experience for kids.
 
 * Model X: Leather seats, LED lights.
 * Model Y: High-speed mode, smooth ride.
@@ -295,7 +295,7 @@ Some ride-on toys have unique features that stand out. They make playtime even m
 
 
 
-A [ride on toy with parental remote](https://www.amazon.com/s?k=ride+on+car+with+parental+remote+control&tag=gearcookware-20) is a child’s vehicle controlled by parents. It enhances safety by allowing remote control over speed and direction.
+A [ride on toy with parental remote](https://www.amazon.com/s?k=ride+on+car+with+parental+remote+control&tag=mofb05-20) is a child’s vehicle controlled by parents. It enhances safety by allowing remote control over speed and direction.
 
 
 

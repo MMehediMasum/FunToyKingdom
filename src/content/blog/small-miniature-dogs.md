@@ -20,10 +20,10 @@ Accessories such as soft harnesses and tiny shoes offer comfort and safety durin
 
 
 
-## <a href="https://www.amazon.com/dp/B0DGHRMZ5W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lana Paws Rainbow Dog Winter Sweater</a>
+## <a href="https://www.amazon.com/dp/B0DGHRMZ5W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lana Paws Rainbow Dog Winter Sweater</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGHRMZ5W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lana Paws Rainbow Dog Winter Sweater for Puppies, Kittens, Small Cats, Miniature Dog Breeds &amp; Similar, Size 10" src="https://m.media-amazon.com/images/I/41RAMnYW6OL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGHRMZ5W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lana Paws Rainbow Dog Winter Sweater for Puppies, Kittens, Small Cats, Miniature Dog Breeds &amp; Similar, Size 10" src="https://m.media-amazon.com/images/I/41RAMnYW6OL._SL500_.jpg"/></a>
 
 
 The **Lana Paws Rainbow Dog Winter Sweater** is ideal for pet owners looking to keep their **puppies, kittens, small cats, and miniature dog breeds** warm and stylish during colder months. If you want a cozy, colorful garment that fits smaller pets comfortably, this sweater in **size 10** is a perfect choice.
@@ -45,10 +45,10 @@ The **Lana Paws Rainbow Dog Winter Sweater** combines both function and style, o
 
 Designed specifically for smaller animals, the sweater's dimensions provide an excellent fit for puppies, kittens, and miniature dog breeds. The easy-to-wear design allows for hassle-free dressing, which is particularly important for pets that may be sensitive or restless. Overall, this sweater is a practical and adorable addition to your pet’s winter wardrobe.
 
-## <a href="https://www.amazon.com/dp/B0CFTWTCJX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kutkut Polycotton Small Dog Birthday Dress</a>
+## <a href="https://www.amazon.com/dp/B0CFTWTCJX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kutkut Polycotton Small Dog Birthday Dress</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFTWTCJX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTKUT Polycotton Small Dog Birthday Dress,Mermaid Print Spring Clothes for Small Dogs Girl Puppy Princess Tulle Dresses Pet Party Costumes (Size:S,Chest:35Cm) Only for Miniature Breed - Blue,1 Count" src="https://m.media-amazon.com/images/I/31xxOubiSUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFTWTCJX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTKUT Polycotton Small Dog Birthday Dress,Mermaid Print Spring Clothes for Small Dogs Girl Puppy Princess Tulle Dresses Pet Party Costumes (Size:S,Chest:35Cm) Only for Miniature Breed - Blue,1 Count" src="https://m.media-amazon.com/images/I/31xxOubiSUL._SL500_.jpg"/></a>
 
 
 The **KUTKUT Polycotton Small Dog Birthday Dress** is perfect for pet owners who want to celebrate special occasions in style. Designed specifically for **miniature breeds**, this **mermaid print spring dress** is ideal for small dogs and puppies, especially those who love to stand out at parties or photoshoots. If you're looking for a cute, comfortable, and festive outfit to make your furry friend feel like a princess, this dress is a great choice.
@@ -71,10 +71,10 @@ The **KUTKUT Small Dog Birthday Dress** features a charming mermaid design print
 
 This dress not only looks adorable but also provides practical benefits. The lightweight fabric keeps your pet cool in warmer weather, while the easy-to-wear design simplifies dressing your dog without fuss. Whether it's for a birthday celebration, a themed party, or just a fun day out, this dress helps your small dog stand out, making every occasion memorable and picture-perfect.
 
-## <a href="https://www.amazon.com/dp/B0CGJCZVVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kutkut Small Dog Romper</a>
+## <a href="https://www.amazon.com/dp/B0CGJCZVVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kutkut Small Dog Romper</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGJCZVVG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTKUT Small Dog Romper,Dog Pjs Spring Doggie Onesies Summer Pet Jammies Dog Clothes For Kitten Puppies Small Dogs Girl,Cat Apparel Outfit (Size:S,Chest:35Cm,Length:25Cm) Only For Miniature Breed,Pink" src="https://m.media-amazon.com/images/I/512l9LxBRBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGJCZVVG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTKUT Small Dog Romper,Dog Pjs Spring Doggie Onesies Summer Pet Jammies Dog Clothes For Kitten Puppies Small Dogs Girl,Cat Apparel Outfit (Size:S,Chest:35Cm,Length:25Cm) Only For Miniature Breed,Pink" src="https://m.media-amazon.com/images/I/512l9LxBRBL._SL500_.jpg"/></a>
 
 
 The **KUTKUT Small Dog Romper** is perfect for pet owners who have miniature breeds such as puppies, kittens, or small dogs looking for comfortable and stylish clothing. This romper is ideal for those wanting to keep their pets cozy during spring and summer while adding a cute flair to their wardrobe. If you prioritize easy-to-wear, breathable pet apparel that fits snugly, this product is an excellent choice.
@@ -97,10 +97,10 @@ The **KUTKUT Small Dog Romper** is crafted from soft, breathable materials desig
 
 Additionally, the romper doubles as both casual wear and sleepwear, making it a versatile addition to your pet’s wardrobe. The easy-to-use design means less hassle when dressing your pet, and the lightweight fabric prevents overheating. Overall, this romper combines fashion, function, and comfort, making it a smart choice for owners of miniature breed dogs and cats who want practical yet stylish pet clothing.
 
-## <a href="https://www.amazon.com/dp/B0CDQ4WRPH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kutkut Small Dog Shoes For Hardwood Floors</a>
+## <a href="https://www.amazon.com/dp/B0CDQ4WRPH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kutkut Small Dog Shoes For Hardwood Floors</a>
 
 
-<a href="https://www.amazon.com/dp/B0CDQ4WRPH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTKUT Small Dog Shoes for Hardwood Floors with Reflective &amp; Adjustable Strap Zipper Closure for Miniature Small Dogs and Cats (Size#1, L*W 3.5 * 2.8cm, Black)" src="https://m.media-amazon.com/images/I/514DhcdKtWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CDQ4WRPH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KUTKUT Small Dog Shoes for Hardwood Floors with Reflective &amp; Adjustable Strap Zipper Closure for Miniature Small Dogs and Cats (Size#1, L*W 3.5 * 2.8cm, Black)" src="https://m.media-amazon.com/images/I/514DhcdKtWL._SL500_.jpg"/></a>
 
 
 The **KUTKUT Small Dog Shoes for Hardwood Floors** are perfect for pet owners who want to protect their miniature dogs or cats from slipping and injury on smooth surfaces. Ideal for those with small breeds requiring comfortable, secure footwear that stays in place during indoor activities, these shoes combine safety and style for your furry companions.
@@ -122,10 +122,10 @@ These **KUTKUT Small Dog Shoes** are thoughtfully crafted with a reflective and 
 
 Beyond safety, the shoes also provide added comfort and confidence for pets who may be nervous on slippery surfaces. The durable black color and compact dimensions make them a practical and stylish choice for everyday use. Whether you want to prevent scratches on your floor or protect your pet’s paws from harsh surfaces, these shoes offer a reliable solution tailored for small dogs and cats.
 
-## <a href="https://www.amazon.com/dp/B0C9JFGQ7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tame Love™ Choke Free And Pulling Free Padded Easy Control Adjustable Chest Belt Harness For Small Sized Dogs</a>
+## <a href="https://www.amazon.com/dp/B0C9JFGQ7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tame Love™ Choke Free And Pulling Free Padded Easy Control Adjustable Chest Belt Harness For Small Sized Dogs</a>
 
 
-<a href="https://www.amazon.com/dp/B0C9JFGQ7R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tame Love™ Choke Free and Pulling Free Padded Easy Control Adjustable Chest Belt Harness for Small Sized Dogs of All Breeds and All Life Stages (Blue, 1 inch)" src="https://m.media-amazon.com/images/I/41lp0S-kfuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C9JFGQ7R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tame Love™ Choke Free and Pulling Free Padded Easy Control Adjustable Chest Belt Harness for Small Sized Dogs of All Breeds and All Life Stages (Blue, 1 inch)" src="https://m.media-amazon.com/images/I/41lp0S-kfuL._SL500_.jpg"/></a>
 
 
 The **Tame Love™ Choke Free and Pulling Free Padded Easy Control Adjustable Chest Belt Harness** is ideal for pet owners who have **small-sized dogs** of all breeds and life stages. If you are looking for a comfortable, secure, and easy-to-use harness that helps prevent choking and pulling during walks, this product is a perfect choice. It is especially suitable for those who want to ensure their dog’s safety and comfort while maintaining control.
@@ -149,10 +149,10 @@ The **Tame Love™ Chest Belt Harness** features an **adjustable design** that e
 
 Made by the trusted brand **Tame Love**, this harness combines functionality with comfort. Its lightweight construction means your dog won’t feel burdened, allowing for longer and more enjoyable walks. The choke-free design promotes safer control, minimizing the risk of neck injuries commonly caused by traditional collars. Overall, this harness is a smart investment for any small dog owner who values both safety and comfort during outdoor activities.
 
-## <a href="https://www.amazon.com/dp/B0C93WNSZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tame Love™ Combo Pack Easy Control Adjustable Nylon Chest Harness Belt With Leash Dog Rope</a>
+## <a href="https://www.amazon.com/dp/B0C93WNSZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tame Love™ Combo Pack Easy Control Adjustable Nylon Chest Harness Belt With Leash Dog Rope</a>
 
 
-<a href="https://www.amazon.com/dp/B0C93WNSZT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tame Love™ Combo Pack of Easy Control Adjustable Nylon Chest Harness Belt with Leash Dog Rope for Small Sized Dogs of All Breed (Blue Color - 0.75 Inch)" src="https://m.media-amazon.com/images/I/41kEAbaBuIL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C93WNSZT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tame Love™ Combo Pack of Easy Control Adjustable Nylon Chest Harness Belt with Leash Dog Rope for Small Sized Dogs of All Breed (Blue Color - 0.75 Inch)" src="https://m.media-amazon.com/images/I/41kEAbaBuIL._SL500_.jpg"/></a>
 
 
 The **Tame Love™ Combo Pack** of **Easy Control Adjustable Nylon Chest Harness Belt with Leash** is ideal for owners of **small sized dogs** of all breeds who want a reliable, comfortable, and stylish walking solution. If you are looking for a lightweight yet durable harness and leash set that offers easy adjustability and control, this product is designed to meet your needs while ensuring your pet's safety and comfort.
@@ -175,10 +175,10 @@ The **Tame Love™ Adjustable Nylon Chest Harness Belt** offers a perfect blend 
 
 With dimensions tailored for smaller breeds, this combo pack provides excellent value by combining a harness and leash that work harmoniously. The easy control design helps dog owners maintain better command during walks, reducing the risk of pulling or sudden escapes. The bright **blue color** not only enhances visibility but also adds an appealing look, making it an excellent choice for pet lovers seeking functionality and aesthetics in one product.
 
-## <a href="https://www.amazon.com/dp/B0FG2LJ5GF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zuffie Pet Dumbbell Toy For Dogs</a>
+## <a href="https://www.amazon.com/dp/B0FG2LJ5GF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zuffie Pet Dumbbell Toy For Dogs</a>
 
 
-<a href="https://www.amazon.com/dp/B0FG2LJ5GF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZUFFIE Pet Dumbbell Toy for Dogs, Durable &amp; Safe Toy for Small, Medium &amp; Large Breeds, Interactive for Playtime &amp; Fetch, Squeaky Dumbbell - Yellow" src="https://m.media-amazon.com/images/I/41ZjzWE0NlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FG2LJ5GF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZUFFIE Pet Dumbbell Toy for Dogs, Durable &amp; Safe Toy for Small, Medium &amp; Large Breeds, Interactive for Playtime &amp; Fetch, Squeaky Dumbbell - Yellow" src="https://m.media-amazon.com/images/I/41ZjzWE0NlL._SL500_.jpg"/></a>
 
 
 The **ZUFFIE Pet Dumbbell Toy for Dogs** is ideal for pet owners looking for a **durable** and **safe toy** that caters to **small, medium, and large dog breeds**. If you want to enhance your dog's **playtime** and **fetch experience** with an interactive and engaging toy, this squeaky dumbbell is a perfect choice. It is especially suited for active dogs that enjoy chewing and retrieving games.
@@ -200,10 +200,10 @@ The **ZUFFIE Pet Dumbbell Toy** combines functionality and fun with its **intera
 
 Additionally, its bright **yellow color** makes it easy to locate outdoors or indoors, which is especially useful during fetch sessions. The toy’s lightweight and compact dimensions allow dogs to comfortably carry and chew it. Overall, it offers a balance of **entertainment**, **durability**, and **safety**, making it a valuable addition to any dog owner’s collection of pet toys.
 
-## <a href="https://www.amazon.com/dp/B08P9C1DVX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tame Love™ Choke Free And Pulling Free Padded Easy Control Adjustable Chest Belt Harness</a>
+## <a href="https://www.amazon.com/dp/B08P9C1DVX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tame Love™ Choke Free And Pulling Free Padded Easy Control Adjustable Chest Belt Harness</a>
 
 
-<a href="https://www.amazon.com/dp/B08P9C1DVX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tame Love™ Choke Free and Pulling Free Padded Easy Control Adjustable Chest Belt Harness for Small Sized Dogs of All Breeds and All Life Stages (Blue, 1 inch)" src="https://m.media-amazon.com/images/I/41t5D+YWRHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08P9C1DVX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tame Love™ Choke Free and Pulling Free Padded Easy Control Adjustable Chest Belt Harness for Small Sized Dogs of All Breeds and All Life Stages (Blue, 1 inch)" src="https://m.media-amazon.com/images/I/41t5D+YWRHL._SL500_.jpg"/></a>
 
 
 The **Tame Love™ Choke Free and Pulling Free Padded Easy Control Adjustable Chest Belt Harness** is ideal for pet owners who have **small sized dogs** of **all breeds** and **life stages**. If you're looking for a comfortable, secure, and easy-to-use harness that minimizes pulling and choking, this product is perfect for ensuring your furry friend enjoys walks safely and comfortably.

@@ -23,10 +23,10 @@ Some toys use safe, recycled materials, making them eco-friendly and suitable fo
 
 
 
-## <a href="https://www.amazon.com/dp/B000RPZUPI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. In The Water Toob Figurines</a>
+## <a href="https://www.amazon.com/dp/B000RPZUPI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. In The Water Toob Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B000RPZUPI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Safari Ltd. In the Water TOOB - Figurines of Jet Ski, Raft, Submarine, Motorboat, Windsurfer, Battleship, Cruise, Steam, Sail, Tug, Cargo Boat - Educational Toy Figures For Boys, Girls &amp; Kids Ages 3+" src="https://m.media-amazon.com/images/I/41ve03j5K3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000RPZUPI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Safari Ltd. In the Water TOOB - Figurines of Jet Ski, Raft, Submarine, Motorboat, Windsurfer, Battleship, Cruise, Steam, Sail, Tug, Cargo Boat - Educational Toy Figures For Boys, Girls &amp; Kids Ages 3+" src="https://m.media-amazon.com/images/I/41ve03j5K3L._SL500_.jpg"/></a>
 
 
 The **Safari Ltd. In the Water TOOB** is an ideal choice for parents, educators, and caregivers looking to introduce children aged 3 and up to a variety of watercraft through engaging and educational play. Perfect for boys, girls, and kids who are fascinated by boats, ships, and water adventures, this set encourages imaginative storytelling and hands-on learning about different types of water vehicles.
@@ -49,10 +49,10 @@ This **educational toy set** features meticulously crafted figurines that repres
 
 Beyond entertainment, the set serves as a valuable learning tool that supports early childhood development. Kids can develop their vocabulary and cognitive skills by identifying and naming each watercraft, while also enhancing their creativity through imaginative scenarios and storytelling. The inclusion of various boat types encourages children to understand diverse functions and environments, from leisure activities like windsurfing to more industrial roles such as cargo shipping. Overall, the **Safari Ltd. In the Water TOOB** blends fun with education, making it a worthwhile addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0C1N831RS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyvian Mini Deep Sea Diver Figurines</a>
+## <a href="https://www.amazon.com/dp/B0C1N831RS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toyvian Mini Deep Sea Diver Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0C1N831RS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toyvian 3pcs Mini Deep Sea Diver Figurines - Tiny Submarine Figures for Fish Tank - Realistic Diver with Hose Toy - Dollhouse Submarine Figures" src="https://m.media-amazon.com/images/I/41kvugUpyUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C1N831RS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toyvian 3pcs Mini Deep Sea Diver Figurines - Tiny Submarine Figures for Fish Tank - Realistic Diver with Hose Toy - Dollhouse Submarine Figures" src="https://m.media-amazon.com/images/I/41kvugUpyUL._SL500_.jpg"/></a>
 
 
 The **Toyvian 3pcs Mini Deep Sea Diver Figurines** are perfect for aquarium enthusiasts and dollhouse collectors who want to add a touch of realism and charm to their setups. Ideal for those who appreciate detailed miniature accessories, these tiny submarine figures bring an engaging underwater theme to fish tanks or display cases. If you’re looking to enhance the visual appeal of your aquatic environment or miniature scenes, these figurines are an excellent choice.
@@ -75,10 +75,10 @@ The **Toyvian Mini Deep Sea Diver Figurines** feature precise craftsmanship that
 
 Beyond their aesthetic appeal, these figurines offer practical benefits by being lightweight and easy to move around within your tank or display. Their durable build ensures they hold up well in water environments without deteriorating, providing a long-lasting decorative solution. Whether you are a hobbyist aiming to create an immersive aquarium experience or a collector seeking unique dollhouse accessories, these Toyvian diver figures offer an attractive and functional addition to your collection.
 
-## <a href="https://www.amazon.com/dp/B0BF5MJXZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deao Aircraft Carrier Toy</a>
+## <a href="https://www.amazon.com/dp/B0BF5MJXZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deao Aircraft Carrier Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0BF5MJXZD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="deAO Aircraft Carrier Toy Military Submarine Naval Ship Play Set with Planes Army Toy Battleship for Kids Boys Girls" src="https://m.media-amazon.com/images/I/412SkvKIY8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BF5MJXZD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="deAO Aircraft Carrier Toy Military Submarine Naval Ship Play Set with Planes Army Toy Battleship for Kids Boys Girls" src="https://m.media-amazon.com/images/I/412SkvKIY8L._SL500_.jpg"/></a>
 
 
 The **deAO Aircraft Carrier Toy Military Submarine Naval Ship Play Set** is perfect for children who have a keen interest in military vehicles, naval ships, and imaginative play. Ideal for both **boys and girls**, this toy set encourages creativity and provides hours of entertainment for kids who enjoy action-packed scenarios and role-playing adventures. It is especially suitable for parents and gift-givers looking to inspire an interest in history, engineering, or military strategy in young minds.
@@ -101,10 +101,10 @@ This **deAO Aircraft Carrier Toy** stands out with its detailed design that mimi
 
 Beyond entertainment, this toy promotes fine motor skills as children handle and position the different components. It also nurtures an interest in naval history and military equipment through hands-on interaction. The neutral gray color and realistic design ensure it appeals to a wide range of children, making it a versatile addition to any toy collection.
 
-## <a href="https://www.amazon.com/dp/B085WG6WMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">16.5 Inch Toy Navy Black Submarine</a>
+## <a href="https://www.amazon.com/dp/B085WG6WMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">16.5 Inch Toy Navy Black Submarine</a>
 
 
-<a href="https://www.amazon.com/dp/B085WG6WMC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="16.5 Inch Toy Navy Black Submarine with Sound Effects and Torpedo (2 Pack)" src="https://m.media-amazon.com/images/I/41NgU8Dq7oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085WG6WMC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="16.5 Inch Toy Navy Black Submarine with Sound Effects and Torpedo (2 Pack)" src="https://m.media-amazon.com/images/I/41NgU8Dq7oL._SL500_.jpg"/></a>
 
 
 The **16.5 Inch Toy Navy Black Submarine with Sound Effects and Torpedo (2 Pack)** is ideal for children who love imaginative play, especially those fascinated by naval adventures and underwater exploration. This set is perfect for young enthusiasts who enjoy interactive toys that combine realistic features with engaging sound effects. It’s also a great choice for parents looking to encourage creative playtime with durable and visually appealing toys.
@@ -127,10 +127,10 @@ The **16.5 Inch Toy Navy Black Submarine** stands out with its impressive size a
 
 Crafted by **Toy Essentials**, this submarine set emphasizes quality and durability, ensuring it can withstand active play. The sleek black finish gives it a classic and commanding look, appealing to kids who enjoy more realistic toys. Overall, this toy not only entertains but also fosters imaginative development, making it a valuable addition to any child's collection of adventure toys.
 
-## <a href="https://www.amazon.com/dp/B0CX7JVWGS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brick Loot Reef Ranger Deep Sea Discovery Submarine Set</a>
+## <a href="https://www.amazon.com/dp/B0CX7JVWGS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Brick Loot Reef Ranger Deep Sea Discovery Submarine Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CX7JVWGS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brick Loot Reef Ranger Deep Sea Discovery Submarine Set – 199-Piece Construction Kit with Mini Figures &amp; Marine Animals – Underwater Exploration Toy, Compatible Bricks, Gift for Kids Ages 6+" src="https://m.media-amazon.com/images/I/41G0R1E7cpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CX7JVWGS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Brick Loot Reef Ranger Deep Sea Discovery Submarine Set – 199-Piece Construction Kit with Mini Figures &amp; Marine Animals – Underwater Exploration Toy, Compatible Bricks, Gift for Kids Ages 6+" src="https://m.media-amazon.com/images/I/41G0R1E7cpL._SL500_.jpg"/></a>
 
 
 The **Brick Loot Reef Ranger Deep Sea Discovery Submarine Set** is perfect for young explorers and creative builders aged 6 and up who have a fascination with underwater adventures. This **199-piece construction kit** is ideal for kids who enjoy hands-on activities, love marine life, and want to engage in imaginative play while developing their fine motor skills and problem-solving abilities.
@@ -153,10 +153,10 @@ The **Brick Loot Reef Ranger Deep Sea Discovery Submarine Set** offers a detaile
 
 Designed with attention to size and weight, this submarine set is easy for young hands to assemble and manipulate. Its compact dimensions make it a convenient addition to any playroom or collection without taking up excessive space. Beyond just being a toy, it serves as an educational tool that introduces children to the wonders of deep-sea exploration, sparking curiosity about marine life and underwater ecosystems while nurturing essential building skills.
 
-## <a href="https://www.amazon.com/dp/B008LQXR8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Submarine</a>
+## <a href="https://www.amazon.com/dp/B008LQXR8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Submarine</a>
 
 
-<a href="https://www.amazon.com/dp/B008LQXR8W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Submarine - BPA, Phthalate Free Blue Watercraft with Spinning Rear Propeller Made from Recycled Materials. Safe Toys for Toddlers" src="https://m.media-amazon.com/images/I/41jRIKuNHcL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008LQXR8W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Submarine - BPA, Phthalate Free Blue Watercraft with Spinning Rear Propeller Made from Recycled Materials. Safe Toys for Toddlers" src="https://m.media-amazon.com/images/I/41jRIKuNHcL._SL500_.jpg"/></a>
 
 
 The **Green Toys Submarine** is an ideal choice for parents and caregivers looking for a **safe** and **eco-friendly toy** for toddlers. Perfect for little hands, this **BPA and phthalate free** watercraft encourages imaginative play while ensuring the child's safety. If you want a durable, non-toxic toy made from **recycled materials**, this submarine is a great pick for your young explorer.
@@ -178,10 +178,10 @@ The **Green Toys Submarine** measures 4 inches in height, 5.5 inches in width, a
 
 Crafted by the reputable **Green Toys** brand, this submarine prioritizes safety without compromising on fun. The use of bright **blue and yellow colors** not only makes the toy visually appealing but also encourages creative storytelling and role-playing. Parents can feel confident that their child is playing with a high-quality, environmentally conscious product that supports early learning and motor skill development.
 
-## <a href="https://www.amazon.com/dp/B085NLWTMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">16.5 Inch Toy Black Submarine</a>
+## <a href="https://www.amazon.com/dp/B085NLWTMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">16.5 Inch Toy Black Submarine</a>
 
 
-<a href="https://www.amazon.com/dp/B085NLWTMW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="16.5 Inch Toy Black Submarine with Sound Effects and Torpedo" src="https://m.media-amazon.com/images/I/51SuvLlmszL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B085NLWTMW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="16.5 Inch Toy Black Submarine with Sound Effects and Torpedo" src="https://m.media-amazon.com/images/I/51SuvLlmszL._SL500_.jpg"/></a>
 
 
 The **16.5 Inch Toy Black Submarine with Sound Effects and Torpedo** is perfect for children and toy enthusiasts who enjoy imaginative play and interactive toys. Ideal for kids aged 5 and above, this submarine provides a thrilling underwater adventure experience with its realistic sound effects and engaging torpedo feature. Parents looking for a durable and entertaining toy that sparks creativity will find this product an excellent choice.
@@ -204,10 +204,10 @@ The **16.5 Inch Toy Black Submarine** boasts a sleek and durable design that app
 
 With compact dimensions of 16.5 inches in length, 4 inches in height, and 2.75 inches in width, this toy is easy for children to handle and maneuver. The black color gives it a classic, stealthy appearance that adds to its appeal. Manufactured by **Toy Essentials**, the submarine ensures quality and safety, making it a reliable addition to any child's toy collection. Overall, this submarine combines fun, functionality, and durability, providing hours of entertainment and fostering creativity.
 
-## <a href="https://www.amazon.com/dp/B008LQXRBE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Submarine</a>
+## <a href="https://www.amazon.com/dp/B008LQXRBE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Submarine</a>
 
 
-<a href="https://www.amazon.com/dp/B008LQXRBE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Submarine in Yellow &amp; blue - BPA Free, Phthalate Free, Bath Toy with Spinning Rear Propeller. Safe Toys for Toddlers, Babies" src="https://m.media-amazon.com/images/I/31eyZ04DKWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008LQXRBE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Submarine in Yellow &amp; blue - BPA Free, Phthalate Free, Bath Toy with Spinning Rear Propeller. Safe Toys for Toddlers, Babies" src="https://m.media-amazon.com/images/I/31eyZ04DKWL._SL500_.jpg"/></a>
 
 
 The **Green Toys Submarine in Yellow & Blue** is ideal for parents and caregivers looking for a **safe, eco-friendly bath toy** for toddlers and babies. This product is perfect for those who prioritize **non-toxic, BPA-free** and **phthalate-free** toys that encourage imaginative play during bath time. If you want a durable toy that is both entertaining and safe for your little one, this submarine is an excellent choice.
@@ -231,10 +231,10 @@ The **Green Toys Submarine** stands out with its commitment to **safety and sust
 
 Additionally, the submarine’s lightweight and compact dimensions make it easy for toddlers to handle independently, fostering a sense of autonomy. The absence of harmful chemicals such as **BPA and phthalates** ensures that it remains safe even if mouthed by babies. Overall, this toy combines fun, safety, and environmental responsibility, making it a smart choice for parents seeking quality bath toys.
 
-## <a href="https://www.amazon.com/dp/B07V4CX4SZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yeibobo 6 Channels Mini Rc Submarine Toy</a>
+## <a href="https://www.amazon.com/dp/B07V4CX4SZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yeibobo 6 Channels Mini Rc Submarine Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07V4CX4SZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YEIBOBO ! 6 Channels Mini RC Submarine Toy (Blue)" src="https://m.media-amazon.com/images/I/41D1ghENlUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07V4CX4SZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YEIBOBO ! 6 Channels Mini RC Submarine Toy (Blue)" src="https://m.media-amazon.com/images/I/41D1ghENlUL._SL500_.jpg"/></a>
 
 
 The **YEIBOBO ! 6 Channels Mini RC Submarine Toy (Blue)** is ideal for hobbyists and tech enthusiasts who love underwater exploration gadgets, as well as parents seeking an engaging and educational toy for their children. Its compact size and advanced remote control features make it perfect for both beginners and experienced users interested in remote-operated aquatic devices.
@@ -257,10 +257,10 @@ The **YEIBOBO ! 6 Channels Mini RC Submarine Toy** boasts a compact and lightwei
 
 Beyond its functionality, this RC submarine is designed with durability and aesthetic appeal in mind. The vibrant **blue color** ensures it is easy to spot underwater, minimizing the risk of losing the toy during operation. Additionally, the trusted **YEIBOBO !** brand guarantees a quality product built to withstand the rigors of regular use, making it a worthwhile investment for both casual users and serious hobbyists.
 
-## <a href="https://www.amazon.com/dp/B000IDOPDC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toysmith Neato! Classic Toys Wind Up Diving Submarine</a>
+## <a href="https://www.amazon.com/dp/B000IDOPDC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toysmith Neato! Classic Toys Wind Up Diving Submarine</a>
 
 
-<a href="https://www.amazon.com/dp/B000IDOPDC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toysmith NeatO! Classic Toys Wind Up Diving Submarine" src="https://m.media-amazon.com/images/I/41570YdUM+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000IDOPDC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toysmith NeatO! Classic Toys Wind Up Diving Submarine" src="https://m.media-amazon.com/images/I/41570YdUM+L._SL500_.jpg"/></a>
 
 
 The **Toysmith NeatO! Classic Toys Wind Up Diving Submarine** is an ideal choice for parents and gift buyers looking for a fun, engaging, and educational toy for children. This item is perfect for kids who enjoy imaginative play, especially those fascinated by underwater adventures and classic mechanical toys. It is also suitable for collectors of vintage-style toys who appreciate quality craftsmanship and timeless design.

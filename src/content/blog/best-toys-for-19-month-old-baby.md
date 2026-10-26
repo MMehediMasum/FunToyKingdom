@@ -72,7 +72,7 @@ Stacking and sorting toys improve fine motor skills and problem-solving. Babies 
 
 These toys also teach shapes, sizes, and colors. They keep toddlers engaged while learning new skills.
 
-* [Stacking rings](https://www.amazon.com/s?k=toddler+stacking+rings&tag=gearcookware-20) help with hand-eye coordination
+* [Stacking rings](https://www.amazon.com/s?k=toddler+stacking+rings&tag=mofb05-20) help with hand-eye coordination
 * Shape sorters develop problem-solving skills
 * Blocks encourage grasping and building
 
@@ -118,7 +118,7 @@ Babies learn to match shapes to the correct holes. This activity helps with prob
 
 ### Puzzles For Toddlers
 
-Toddlers enjoy [simple puzzles with large pieces](https://www.amazon.com/s?k=toddler+wooden+puzzles+large+pieces&tag=gearcookware-20). These puzzles build memory and logic skills.
+Toddlers enjoy [simple puzzles with large pieces](https://www.amazon.com/s?k=toddler+wooden+puzzles+large+pieces&tag=mofb05-20). These puzzles build memory and logic skills.
 
 Puzzle play helps babies understand how parts fit into a whole. It also improves patience and hand control.
 
@@ -148,7 +148,7 @@ Choosing toys that encourage talking helps your baby learn new sounds and words 
 
 Musical toys introduce babies to sounds and rhythms. They help babies recognize different tones and practice speaking.
 
-* Simple instruments like [drums or xylophones](https://www.amazon.com/s?k=toddler+drums+and+xylophone&tag=gearcookware-20)
+* Simple instruments like [drums or xylophones](https://www.amazon.com/s?k=toddler+drums+and+xylophone&tag=mofb05-20)
 * Toys that play songs with clear words
 * Musical books with sounds and songs
 
@@ -187,7 +187,7 @@ Toys that encourage pretend play and role-playing help babies express emotions a
 
 Pretend play sets let babies copy real life. This helps them understand daily activities and emotions.
 
-* [Kitchen sets](https://www.amazon.com/s?k=toddler+play+kitchen+set&tag=gearcookware-20) teach cooperation and sharing.
+* [Kitchen sets](https://www.amazon.com/s?k=toddler+play+kitchen+set&tag=mofb05-20) teach cooperation and sharing.
 * Tool kits help with problem-solving and teamwork.
 * Animal figures encourage empathy and caring.
 
@@ -235,7 +235,7 @@ Water play sets are excellent for hot days. They help with sensory development a
 Kids can splash, pour, and explore with water. It keeps them cool and entertained.
 
 * Sprinklers for running and splashing
-* [Water tables](https://www.amazon.com/s?k=toddler+water+table&tag=gearcookware-20) for pouring and measuring
+* [Water tables](https://www.amazon.com/s?k=toddler+water+table&tag=mofb05-20) for pouring and measuring
 * Inflatable pools for safe water play
 
 ### Push Cars And Tricycles
@@ -264,7 +264,7 @@ Regular cleaning keeps germs at bay. Use mild soap and water for most toys. For 
 
 ### Storing Toys Safely
 
-Proper storage prevents damage and keeps toys organized. Use [clear bins or baskets](https://www.amazon.com/s?k=clear+toy+storage+bins&tag=gearcookware-20) for easy access. Label containers to sort toys by type.
+Proper storage prevents damage and keeps toys organized. Use [clear bins or baskets](https://www.amazon.com/s?k=clear+toy+storage+bins&tag=mofb05-20) for easy access. Label containers to sort toys by type.
 
 Consider using **child-proof latches**on storage areas to ensure safety.
 

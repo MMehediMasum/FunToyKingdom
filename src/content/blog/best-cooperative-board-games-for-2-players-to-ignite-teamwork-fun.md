@@ -23,10 +23,10 @@ Titles like Forbidden Island and Pandemic bring thrilling challenges that requir
 
 
 
-## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
+## <a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Gamewright - Forbidden Island</a>
 
 
-<a href="https://www.amazon.com/dp/B003D7F4YY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B003D7F4YY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Gamewright - Forbidden Island - Cooperative Strategy Survival Board Game, 2-4 Players" src="https://m.media-amazon.com/images/I/616v4zrplVL._SL500_.jpg"/></a>
 
 
 The **Gamewright - Forbidden Island** board game is ideal for players who enjoy **cooperative strategy** and survival challenges. Designed for **2-4 players**, it is perfect for families, friends, or gaming groups seeking a collaborative and engaging experience that emphasizes teamwork over competition. If you appreciate games that require planning, communication, and quick thinking, this game is a great choice.
@@ -49,10 +49,10 @@ The **Forbidden Island** game features a dynamic board that changes as players w
 
 Additionally, the game's compact size and lightweight nature make it easy to carry and set up anywhere. Whether at home or on the go, the **Gamewright - Forbidden Island** offers a rich gaming experience without requiring extensive space or time. Its colorful and engaging components add to the visual appeal, making it a delightful game for players of all ages.
 
-## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
+## <a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scorpion Masqué Sky Team</a>
 
 
-<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CHD8RCSJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Scorpion Masqué Sky Team | Voted Game of The Year 2024 | Best 2 Player Game | Work Together to Land The Plane | Ages 14+ | 20 Minutes" src="https://m.media-amazon.com/images/I/51bb2P8YMVL._SL500_.jpg"/></a>
 
 
 The **Scorpion Masqué Sky Team** is an ideal choice for gamers aged **14 and up** who enjoy collaborative challenges and fast-paced gameplay. Perfect for friends, couples, or family members looking to engage in a highly interactive **2 player game** that tests teamwork and strategic thinking within a compact **20-minute** playtime. If you appreciate games that demand cooperation to achieve a common goal, this award-winning title is tailored for you.
@@ -75,10 +75,10 @@ The **Scorpion Masqué Sky Team**, manufactured by **Hachette Boardgames USA**, 
 
 Beyond its engaging gameplay, the game’s recognition as **Game of The Year 2024** highlights its innovation and appeal within the board game community. The short, intense gameplay sessions make it perfect for quick entertainment without sacrificing depth or strategy. Whether you are looking to strengthen your teamwork skills or enjoy a stimulating and award-winning challenge, the **Scorpion Masqué Sky Team** delivers an exciting and memorable experience tailored for two players.
 
-## <a href="https://www.amazon.com/dp/B099X86WZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mantis Falls Board Game</a>
+## <a href="https://www.amazon.com/dp/B099X86WZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mantis Falls Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B099X86WZJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mantis Falls Board Game | Hidden Traitor Strategy Card Game for 2-3 Players | Sometimes Cooperative Adventure Game for Adults and Teens | Ages 14+ | Playtime 60-90 Minutes | by Distant Rabbit Games" src="https://m.media-amazon.com/images/I/51AlX6PwkYL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099X86WZJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mantis Falls Board Game | Hidden Traitor Strategy Card Game for 2-3 Players | Sometimes Cooperative Adventure Game for Adults and Teens | Ages 14+ | Playtime 60-90 Minutes | by Distant Rabbit Games" src="https://m.media-amazon.com/images/I/51AlX6PwkYL._SL500_.jpg"/></a>
 
 
 The **Mantis Falls Board Game** by **Distant Rabbit Games** is ideal for players who enjoy a blend of strategy, suspense, and cooperative gameplay. Perfect for **2-3 players**, this game is designed for **adults and teens aged 14+** who appreciate a hidden traitor mechanic and immersive adventure experiences lasting **60-90 minutes**. If you love engaging in thoughtful strategy sessions with friends or family, this game is a great choice.
@@ -101,10 +101,10 @@ The **Mantis Falls Board Game** features a unique blend of strategy and hidden t
 
 Crafted by **Distant Rabbit Games**, the physical components are thoughtfully sized for convenience without sacrificing quality. The game’s complexity is perfectly balanced to challenge both teens and adults, providing an engaging experience that encourages critical thinking and social interaction. Overall, it offers a rich, immersive experience for those who enjoy strategic card games with a twist.
 
-## <a href="https://www.amazon.com/dp/B0CF361DKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sail Board Game</a>
+## <a href="https://www.amazon.com/dp/B0CF361DKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sail Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CF361DKF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sail Board Game - Co-op Trick Taking Game - 2 Players - 20 Minute Play Time (Sail Base Game)" src="https://m.media-amazon.com/images/I/418g05+2m8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CF361DKF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Sail Board Game - Co-op Trick Taking Game - 2 Players - 20 Minute Play Time (Sail Base Game)" src="https://m.media-amazon.com/images/I/418g05+2m8L._SL500_.jpg"/></a>
 
 
 The **Sail Board Game - Co-op Trick Taking Game** is perfect for couples, friends, or family members who enjoy strategic, cooperative gameplay. Designed specifically for **2 players**, this game suits those looking for a quick yet engaging experience that can be completed in about **20 minutes**. If you appreciate tactical card games and seek a fun way to collaborate rather than compete, this game is an ideal choice.
@@ -127,10 +127,10 @@ The **Sail Board Game** features a unique trick-taking mechanic that requires pl
 
 With a playtime of around **20 minutes**, it fits seamlessly into busy schedules, allowing for multiple rounds in one sitting. The game is manufactured by **Allplay**, a brand known for quality and thoughtful design, ensuring that players receive a well-crafted product. Whether you are a casual gamer or a strategy enthusiast, this base edition offers a satisfying blend of challenge and fun.
 
-## <a href="https://www.amazon.com/dp/B08ZSK752P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Night Cage</a>
+## <a href="https://www.amazon.com/dp/B08ZSK752P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Night Cage</a>
 
 
-<a href="https://www.amazon.com/dp/B08ZSK752P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Night Cage by Smirk and Dagger, a Spooky Cooperative Strategy Game, 1-5 Players Lost in a Dark Maze with only a Candle, Fun Horror Themed Tile Laying and Perfect for Game Night, Adults, Teens 14+" src="https://m.media-amazon.com/images/I/41nx2FdeS5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08ZSK752P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Night Cage by Smirk and Dagger, a Spooky Cooperative Strategy Game, 1-5 Players Lost in a Dark Maze with only a Candle, Fun Horror Themed Tile Laying and Perfect for Game Night, Adults, Teens 14+" src="https://m.media-amazon.com/images/I/41nx2FdeS5L._SL500_.jpg"/></a>
 
 
 **The Night Cage by Smirk and Dagger** is an ideal game for those who love immersive, cooperative experiences with a spooky twist. Perfect for **adults and teens aged 14+**, this game is designed for groups of 1 to 5 players who enjoy strategy, teamwork, and atmospheric horror themes. If you’re looking for a unique addition to your **game night** that challenges your wits while delivering an eerie adventure, this is the perfect choice.
@@ -153,10 +153,10 @@ The Night Cage combines a unique blend of strategic **tile laying** and cooperat
 
 Beyond its spine-chilling atmosphere, the game’s mechanics promote critical thinking and collaboration, as players must work together to overcome the maze’s challenges. Its adaptability to different group sizes, including solo play, makes it versatile for any game night. The compact size and moderate weight make it easy to bring along for gatherings, ensuring that the fun and fear can be shared anywhere. Overall, The Night Cage offers a perfect balance of horror and strategy for enthusiasts seeking an unforgettable gaming experience.
 
-## <a href="https://www.amazon.com/dp/B09HX3CLFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Clue Board Game Treachery At Tudor Mansion </a>
+## <a href="https://www.amazon.com/dp/B09HX3CLFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Clue Board Game Treachery At Tudor Mansion </a>
 
 
-<a href="https://www.amazon.com/dp/B09HX3CLFV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game Treachery at Tudor Mansion, Escape Room Game, Cooperative Family Murder Mystery Games, Ages 10 and up, 1-6 Players" src="https://m.media-amazon.com/images/I/51zUel5YrBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09HX3CLFV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game Treachery at Tudor Mansion, Escape Room Game, Cooperative Family Murder Mystery Games, Ages 10 and up, 1-6 Players" src="https://m.media-amazon.com/images/I/51zUel5YrBL._SL500_.jpg"/></a>
 
 
 The **Clue Board Game Treachery at Tudor Mansion** is ideal for families and friends who enjoy immersive, cooperative gameplay. Perfect for players aged 10 and up, this game suits groups of 1 to 6 players looking for a thrilling **murder mystery** experience that combines elements of an **escape room** with classic board game strategy. If you love solving puzzles and working together to uncover secrets, this game is a perfect addition to your collection.
@@ -179,10 +179,10 @@ The **Clue Board Game Treachery at Tudor Mansion** offers a rich and immersive g
 
 Featuring a multi-color design and a compact build, this game is easy to store and carry, making it convenient for family gatherings or travel. The **classic edition** by **Hasbro** ensures that players receive a well-crafted and thoughtfully designed product. With its engaging storyline and interactive gameplay, this game not only entertains but also sharpens problem-solving skills and teamwork among players of all ages.
 
-## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
+## <a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Mysterium Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B013TJ5P80?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B013TJ5P80?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Mysterium Board Game - Enigmatic Cooperative Mystery Game with Ghostly Intrigue, Family Fun for Kids &amp; Adults, Ages 10+, 2-7 Players, 42 Minute Playtime" src="https://m.media-amazon.com/images/I/51NVjM164KL._SL500_.jpg"/></a>
 
 
 The **Asmodee Mysterium Board Game** is ideal for families, friends, and board game enthusiasts who enjoy cooperative mystery-solving experiences. Designed for players aged **10+** and accommodating **2-7 players**, it is perfect for those seeking an engaging, interactive game night that blends strategy, intuition, and communication in a ghostly, atmospheric setting.
@@ -205,10 +205,10 @@ The **Asmodee Mysterium Board Game** features a unique blend of cooperative myst
 
 Its design caters to both beginners and seasoned gamers, with clear rules and an engaging flow that balances complexity and accessibility. The game's flexible player count and relatively short playtime of **42 minutes** make it an excellent choice for casual play sessions or family gatherings. Additionally, the **Family Edition** and **Kids Edition** ensure the game is tailored to different age groups, broadening its appeal and usability.
 
-## <a href="https://www.amazon.com/dp/B00A2HD40E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Pandemic Board Game</a>
+## <a href="https://www.amazon.com/dp/B00A2HD40E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Pandemic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00A2HD40E?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Pandemic Board Game (Base Game) - A Cooperative Battle to Save Humanity, Strategy Game for Kids and Adults, Ages 8+, 2-4 Players, 45 Minute Playtime" src="https://m.media-amazon.com/images/I/41RYUd9wRLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00A2HD40E?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Pandemic Board Game (Base Game) - A Cooperative Battle to Save Humanity, Strategy Game for Kids and Adults, Ages 8+, 2-4 Players, 45 Minute Playtime" src="https://m.media-amazon.com/images/I/41RYUd9wRLL._SL500_.jpg"/></a>
 
 
 The **Asmodee Pandemic Board Game (Base Game)** is ideal for families, friends, and board game enthusiasts who enjoy **cooperative strategy games**. Suitable for players aged **8 and above**, this game is perfect for those looking to engage in a thrilling battle to save humanity while fostering teamwork and critical thinking. It supports **2 to 4 players** and offers a manageable playtime of about **45 minutes**, making it great for both casual and dedicated gaming sessions.
@@ -231,10 +231,10 @@ The **Asmodee Pandemic Board Game** features a multi-colored game board and comp
 
 By combining accessible rules with deep cooperative mechanics, this game offers both entertainment and educational value. Players develop problem-solving skills and learn the importance of collaboration under pressure. The **updated edition** ensures smoother gameplay and improved balance, making it a standout choice for anyone interested in strategy and teamwork-based games.
 
-## <a href="https://www.amazon.com/dp/B08KPRLNFY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Paleo Board Game</a>
+## <a href="https://www.amazon.com/dp/B08KPRLNFY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Paleo Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B08KPRLNFY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Paleo Board Game - A Cooperative Paleolithic Adventure for Strategy Enthusiasts, Cooperative Family Fun for Kids &amp; Adults, Ages 10+, 2-4 Players, 45-60 Minute Playtime" src="https://m.media-amazon.com/images/I/41YbOA+ny1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08KPRLNFY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Paleo Board Game - A Cooperative Paleolithic Adventure for Strategy Enthusiasts, Cooperative Family Fun for Kids &amp; Adults, Ages 10+, 2-4 Players, 45-60 Minute Playtime" src="https://m.media-amazon.com/images/I/41YbOA+ny1L._SL500_.jpg"/></a>
 
 
 The **Asmodee Paleo Board Game** is ideal for **strategy enthusiasts** and families seeking **cooperative fun**. Perfect for **kids and adults aged 10+**, this game encourages teamwork and critical thinking, making it a great choice for groups of **2-4 players** who enjoy immersive, interactive gameplay sessions lasting about **45-60 minutes**.
@@ -257,10 +257,10 @@ The **Asmodee Paleo Board Game** features a rich **Paleolithic adventure** where
 
 Designed with both aesthetics and functionality in mind, the game’s components are durable and visually appealing, enhancing immersion in the ancient world. The **standard edition** offers balanced gameplay for beginners and seasoned players alike, while its manageable size and weight make it convenient to carry and set up anywhere. Overall, the game combines educational elements with exciting gameplay, making it a worthwhile addition to any board game collection.
 
-## <a href="https://www.amazon.com/dp/B07NDKPSB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pandasaurus Cooperative Strategy Card Game</a>
+## <a href="https://www.amazon.com/dp/B07NDKPSB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pandasaurus Cooperative Strategy Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07NDKPSB4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pandasaurus Cooperative Strategy Card Game - Fun Interactive Family Game for Ages 8+, 1-5 Players, 20 Minute Playtime" src="https://m.media-amazon.com/images/I/41OP-QRl28L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07NDKPSB4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pandasaurus Cooperative Strategy Card Game - Fun Interactive Family Game for Ages 8+, 1-5 Players, 20 Minute Playtime" src="https://m.media-amazon.com/images/I/41OP-QRl28L._SL500_.jpg"/></a>
 
 
 The **Pandasaurus Cooperative Strategy Card Game** is ideal for families and groups of friends looking for a fun and engaging way to spend time together. Designed for players aged **8+**, it suits both younger players and adults who enjoy **interactive** and **collaborative gameplay**. With support for **1-5 players**, this game is perfect for small gatherings or solo play, making it a versatile addition to any game collection.

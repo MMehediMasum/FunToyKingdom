@@ -23,10 +23,10 @@ Collectors appreciate its authenticity and quality. Displaying this model adds a
 
 
 
-## <a href="https://www.amazon.com/dp/B0B558B345?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight Hot Pursuit 2008 Ford Crown Victoria Police Interceptor Michigan State Police</a>
+## <a href="https://www.amazon.com/dp/B0B558B345?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Greenlight Hot Pursuit 2008 Ford Crown Victoria Police Interceptor Michigan State Police</a>
 
 
-<a href="https://www.amazon.com/dp/B0B558B345?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Collectibles Greenlight 85553 Hot Pursuit - 2008 Ford Crown Victoria Police Interceptor - Michigan State Police 1:24 Scale" src="https://m.media-amazon.com/images/I/312XYZyYncL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B558B345?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Collectibles Greenlight 85553 Hot Pursuit - 2008 Ford Crown Victoria Police Interceptor - Michigan State Police 1:24 Scale" src="https://m.media-amazon.com/images/I/312XYZyYncL._SL500_.jpg"/></a>
 
 
 The **Collectibles Greenlight 85553 Hot Pursuit - 2008 Ford Crown Victoria Police Interceptor - Michigan State Police 1:24 Scale** is ideal for **die-cast model collectors**, law enforcement enthusiasts, and anyone who appreciates detailed replicas of classic police vehicles. This item is perfect for those looking to add a highly detailed and authentic piece representing the Michigan State Police to their collection or display.
@@ -49,7 +49,7 @@ This collectible model features a precise and intricate design that mirrors the 
 
 Built by the trusted brand Greenlight, this model combines both aesthetic appeal and durability. Its die-cast metal body ensures it stands the test of time, allowing collectors to enjoy the piece for years to come. Whether you are a seasoned collector or a fan of police vehicles, this model offers a tangible connection to the legacy of law enforcement vehicles, enriching your collection with a high-quality representation of a classic police interceptor.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0B558B345?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0B558B345?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

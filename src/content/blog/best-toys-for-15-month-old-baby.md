@@ -33,7 +33,7 @@ Toys help babies improve their movement and hand-eye coordination. At 15 months,
 
 Playing with blocks, push toys, or balls helps babies practice these skills. These activities build strength and control.
 
-* [Stacking blocks](https://www.amazon.com/s?k=stacking+blocks+for+toddlers+1-3&tag=gearcookware-20) improves hand control
+* [Stacking blocks](https://www.amazon.com/s?k=stacking+blocks+for+toddlers+1-3&tag=mofb05-20) improves hand control
 * Push toys support walking balance
 * Grasping balls boosts finger strength
 
@@ -127,7 +127,7 @@ Cognitive toys support memory, attention, and understanding. They make learning 
 
 ### Shape Sorters
 
-[Shape sorters](https://www.amazon.com/s?k=shape+sorter+toy+for+toddlers&tag=gearcookware-20) teach babies how to match shapes and fit pieces into holes. This improves hand-eye coordination.
+[Shape sorters](https://www.amazon.com/s?k=shape+sorter+toy+for+toddlers&tag=mofb05-20) teach babies how to match shapes and fit pieces into holes. This improves hand-eye coordination.
 
 Babies learn to recognize shapes and colors. They also practice problem-solving by trying different pieces.
 
@@ -137,7 +137,7 @@ Babies learn to recognize shapes and colors. They also practice problem-solving 
 
 ### Interactive Books
 
-[Interactive books](https://www.amazon.com/s?k=interactive+books+for+1+year+old&tag=gearcookware-20) have textures, flaps, or sounds that engage babies. They support language and sensory skills.
+[Interactive books](https://www.amazon.com/s?k=interactive+books+for+1+year+old&tag=mofb05-20) have textures, flaps, or sounds that engage babies. They support language and sensory skills.
 
 Babies learn new words and concepts by touching and listening. These books keep toddlers interested and curious.
 
@@ -171,7 +171,7 @@ Musical instruments let babies experiment with sounds. They learn to listen and 
 
 * Small drums encourage rhythm and movement
 * Maracas help babies practice shaking and making noise
-* [Xylophones](https://www.amazon.com/s?k=toddler+xylophone&tag=gearcookware-20) introduce different tones and notes
+* [Xylophones](https://www.amazon.com/s?k=toddler+xylophone&tag=mofb05-20) introduce different tones and notes
 * Toy pianos promote finger coordination and sound recognition
 
 ### Pretend Play Sets
@@ -204,7 +204,7 @@ Active play improves motor skills and offers fun experiences. Here are some grea
 
 ### Sandbox And Water Tables
 
-Sandboxes let children dig and build with their hands. [Water tables](https://www.amazon.com/s?k=toddler+water+table&tag=gearcookware-20) offer splashy fun and introduce basic science concepts.
+Sandboxes let children dig and build with their hands. [Water tables](https://www.amazon.com/s?k=toddler+water+table&tag=mofb05-20) offer splashy fun and introduce basic science concepts.
 
 * Builds creativity and imagination
 * Enhances sensory experiences
@@ -240,7 +240,7 @@ A safe play area allows your child to explore without constant worry. Make sure 
 
 Use soft mats and ensure that furniture is stable. Keep small objects and sharp items out of reach.
 
-* Use [safety gates](https://www.amazon.com/s?k=baby+safety+gate&tag=gearcookware-20) to block stairs
+* Use [safety gates](https://www.amazon.com/s?k=baby+safety+gate&tag=mofb05-20) to block stairs
 * Cover electrical outlets
 * Secure heavy furniture to walls
 

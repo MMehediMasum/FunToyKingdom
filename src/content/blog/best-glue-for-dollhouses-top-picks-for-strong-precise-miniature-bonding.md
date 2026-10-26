@@ -23,10 +23,10 @@ Cartoon Cat’s resin charms need glue that works with resin and small decoratio
 
 
 
-## <a href="https://www.amazon.com/dp/B0006O1IHO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jet Glue Super Jet</a>
+## <a href="https://www.amazon.com/dp/B0006O1IHO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jet Glue Super Jet</a>
 
 
-<a href="https://www.amazon.com/dp/B0006O1IHO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Jet Glue Super Jet - Medium Thickness Industrial Strength CA Glue - Forms Strong Bonds with Just Anything - Ideal for All Instant Bond Situations" src="https://m.media-amazon.com/images/I/31fTLStdKkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0006O1IHO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Jet Glue Super Jet - Medium Thickness Industrial Strength CA Glue - Forms Strong Bonds with Just Anything - Ideal for All Instant Bond Situations" src="https://m.media-amazon.com/images/I/31fTLStdKkL._SL500_.jpg"/></a>
 
 
 The **Jet Glue Super Jet** is perfect for professionals and DIY enthusiasts who need a reliable adhesive that provides **industrial strength** bonding. Ideal for anyone working on projects requiring quick, durable fixes, this medium thickness **CA glue** is suitable for various materials, making it a must-have for instant bonding situations.
@@ -48,10 +48,10 @@ The **Jet Glue Super Jet** features a medium thickness that strikes a balance be
 
 Thanks to its **industrial strength** formula, this glue provides quick yet durable bonds, saving users time without compromising on quality. Whether you are repairing household items, assembling models, or working on professional projects, the **Jet Glue Super Jet** delivers consistent performance. The trusted **JET GLUE** manufacturing ensures reliability, making it a smart investment for anyone requiring instant and strong adhesive solutions.
 
-## <a href="https://www.amazon.com/dp/B006YRSMKS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Greenleaf Dollhouses Miniature Fishscale Shingle Strips</a>
+## <a href="https://www.amazon.com/dp/B006YRSMKS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Greenleaf Dollhouses Miniature Fishscale Shingle Strips</a>
 
 
-<a href="https://www.amazon.com/dp/B006YRSMKS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Greenleaf Dollhouses 1/2" fishscale="" half="" miniature="" scale="" scale"="" shingle="" src="https://m.media-amazon.com/images/I/51FGVfAMWPL._SL500_.jpg" strips=""/></a>
+<a href="https://www.amazon.com/dp/B006YRSMKS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Greenleaf Dollhouses 1/2" fishscale="" half="" miniature="" scale="" scale"="" shingle="" src="https://m.media-amazon.com/images/I/51FGVfAMWPL._SL500_.jpg" strips=""/></a>
 
 
 The **Greenleaf Dollhouses 1/2" Scale Miniature Fishscale Shingle Strips Half Scale** are perfect for hobbyists and miniature enthusiasts who are looking to add authentic roofing details to their half-scale dollhouses or miniature models. Ideal for those who value precision and craftsmanship, this product is suited for model builders who want to enhance the realism of their projects with high-quality materials.
@@ -72,10 +72,10 @@ These **Fishscale Shingle Strips** are designed to replicate the classic fishsca
 
 Additionally, the quality craftsmanship by **Greenleaf Dollhouses** guarantees durability and a smooth finish, making installation easier and the final appearance more polished. Whether you are building a custom dollhouse or enhancing a model, these shingle strips add both texture and authenticity, elevating the overall visual impact of your miniature project.
 
-## <a href="https://www.amazon.com/dp/B0FD7FLRKL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kisangel Miniature Straw Hats For Dolls</a>
+## <a href="https://www.amazon.com/dp/B0FD7FLRKL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Kisangel Miniature Straw Hats For Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0FD7FLRKL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kisangel 2pcs Miniature Straw Hats for Dolls DIY Crafting Decor Easy to Paint Glue for Dollhouse Accessories Creative Mini Hat Decor for All Skill Levels" src="https://m.media-amazon.com/images/I/41skp2m0GNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FD7FLRKL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Kisangel 2pcs Miniature Straw Hats for Dolls DIY Crafting Decor Easy to Paint Glue for Dollhouse Accessories Creative Mini Hat Decor for All Skill Levels" src="https://m.media-amazon.com/images/I/41skp2m0GNL._SL500_.jpg"/></a>
 
 
 The **Kisangel 2pcs Miniature Straw Hats** are perfect for **doll enthusiasts**, **DIY crafters**, and anyone looking to add a **creative touch** to their **dollhouse accessories**. Ideal for both beginners and experienced hobbyists, these **mini hats** offer an easy-to-paint and customize option to enhance your miniature collections and craft projects.
@@ -98,10 +98,10 @@ The **Kisangel Miniature Straw Hats** are thoughtfully designed to bring a charm
 
 Additionally, the lightweight and compact design ensures that these miniature hats can be effortlessly attached using glue, making them highly versatile for various DIY crafts. Whether you are decorating a doll, creating a themed display, or enhancing a miniature scene, these hats provide both functionality and aesthetic appeal. With their user-friendly nature, they cater to all skill levels, making crafting enjoyable and accessible.
 
-## <a href="https://www.amazon.com/dp/B0F318MJZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cartoon Cat Miniature Resin Charms</a>
+## <a href="https://www.amazon.com/dp/B0F318MJZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Cartoon Cat Miniature Resin Charms</a>
 
 
-<a href="https://www.amazon.com/dp/B0F318MJZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cartoon Cat Miniature Resin Charms - 18pcs Realistic Designs Cream Glue &amp; Resin Craft Set for Miniature Landscapes, Dollhouse, Fairy Gardens, Aquariums &amp; Home Decor Handmade Ornaments" src="https://m.media-amazon.com/images/I/41VToUINjBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F318MJZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="Cartoon Cat Miniature Resin Charms - 18pcs Realistic Designs Cream Glue &amp; Resin Craft Set for Miniature Landscapes, Dollhouse, Fairy Gardens, Aquariums &amp; Home Decor Handmade Ornaments" src="https://m.media-amazon.com/images/I/41VToUINjBL._SL500_.jpg"/></a>
 
 
 The **Cartoon Cat Miniature Resin Charms - 18pcs** set is perfect for craft enthusiasts and hobbyists who enjoy creating detailed and whimsical **miniature landscapes**, **dollhouses**, **fairy gardens**, and **home decor** accents. Ideal for those who appreciate **handmade ornaments** and want to add a touch of playful charm to their projects, this set is also suitable for aquarium decoration lovers looking for unique, non-toxic embellishments.
@@ -124,10 +124,10 @@ The **Cartoon Cat Miniature Resin Charms** offer a delightful blend of creativit
 
 These charms are particularly beneficial for crafters who seek to personalize their work with unique and eye-catching elements. Whether decorating a fairy garden or adding character to a dollhouse, the charms provide a whimsical touch that can elevate the visual appeal. Additionally, their versatility extends to aquarium enthusiasts, who can use them safely to create charming underwater scenes. Overall, this set is a valuable addition for anyone passionate about miniature art and decorative crafts.
 
-## <a href="https://www.amazon.com/dp/B0FCZMD5W3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jumplawn Tiny Straw Doll Hats</a>
+## <a href="https://www.amazon.com/dp/B0FCZMD5W3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank">Jumplawn Tiny Straw Doll Hats</a>
 
 
-<a href="https://www.amazon.com/dp/B0FCZMD5W3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JUMPLAWN 2pcs Tiny Straw Doll Hats for Decoration Dollhouse Accessories and Creative Projects Easy to with Paint and Glue" src="https://m.media-amazon.com/images/I/41SarQng1wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FCZMD5W3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" rel="nofollow" target="_blank"><img alt="JUMPLAWN 2pcs Tiny Straw Doll Hats for Decoration Dollhouse Accessories and Creative Projects Easy to with Paint and Glue" src="https://m.media-amazon.com/images/I/41SarQng1wL._SL500_.jpg"/></a>
 
 
 The **JUMPLAWN 2pcs Tiny Straw Doll Hats** are perfect for hobbyists and craft enthusiasts who enjoy adding unique touches to their **dollhouses** and **creative projects**. If you are looking to enhance miniature scenes or personalize your crafts with charming, hand-decorated accessories, these **khaki-colored** straw hats are an ideal choice. They are especially suitable for those who appreciate easy-to-use items that can be customized with paint and glue.

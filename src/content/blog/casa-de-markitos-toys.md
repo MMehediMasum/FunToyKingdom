@@ -23,10 +23,10 @@ It encourages imaginative play, helping children understand themselves and other
 
 
 
-## <a href="https://www.amazon.com/dp/B081PDQQJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Learning Resources All About Me Sorting Houses</a>
+## <a href="https://www.amazon.com/dp/B081PDQQJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Learning Resources All About Me Sorting Houses</a>
 
 
-<a href="https://www.amazon.com/dp/B081PDQQJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Learning Resources All About Me Sorting Houses,12 Pieces, Ages 3+, Fine Motor &amp; Sorting Skills, Montessori Toys, Special Education Actives, Imaginative Play" src="https://m.media-amazon.com/images/I/51KLA3Hvf8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B081PDQQJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Learning Resources All About Me Sorting Houses,12 Pieces, Ages 3+, Fine Motor &amp; Sorting Skills, Montessori Toys, Special Education Actives, Imaginative Play" src="https://m.media-amazon.com/images/I/51KLA3Hvf8L._SL500_.jpg"/></a>
 
 
 The **Learning Resources All About Me Sorting Houses** is ideal for parents, educators, and caregivers looking for an engaging educational toy for children aged **3+**. This product is perfect for those who want to develop their child's **fine motor** and **sorting skills** through interactive play. It is especially suitable for children involved in **Montessori** learning environments, **special education activities**, or imaginative play sessions.
@@ -50,7 +50,7 @@ The **Learning Resources All About Me Sorting Houses** set is designed to stimul
 
 With its focus on **fine motor skills**, the toy helps children improve their dexterity and hand strength as they manipulate the sorting pieces. This is particularly beneficial for preschoolers and children with special educational needs, as it supports their coordination in a fun, interactive way. The compact and durable design ensures that the toy can be used repeatedly in various learning settings, making it a versatile addition to any educational toolkit.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B081PDQQJY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B081PDQQJY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

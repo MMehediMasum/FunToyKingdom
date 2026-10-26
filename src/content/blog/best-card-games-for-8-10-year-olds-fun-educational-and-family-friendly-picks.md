@@ -24,10 +24,10 @@ More interactive games, such as "What Would You Do? " Or "Kids Against Maturity,
 
 
 
-## <a href="https://www.amazon.com/dp/B08XLRHTGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quokka Board Game</a>
+## <a href="https://www.amazon.com/dp/B08XLRHTGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Quokka Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B08XLRHTGH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUOKKA Board Game for 8-12 Year Olds - Original Edition - Family Card Game for Kids Ages 5-8 - What Would You Choose | Do Kids Rather? | Pick Your Answer | Get to Know You - Fun Game Night for Kid" src="https://m.media-amazon.com/images/I/51c8YCtV7+L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08XLRHTGH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="QUOKKA Board Game for 8-12 Year Olds - Original Edition - Family Card Game for Kids Ages 5-8 - What Would You Choose | Do Kids Rather? | Pick Your Answer | Get to Know You - Fun Game Night for Kid" src="https://m.media-amazon.com/images/I/51c8YCtV7+L._SL500_.jpg"/></a>
 
 
 The **QUOKKA Board Game for 8-12 Year Olds - Original Edition** is ideal for families looking to engage children aged **5-8 years** in a fun, interactive, and thought-provoking activity. This game is perfect for parents who want to encourage communication, critical thinking, and social skills in their kids through an entertaining format. If you are searching for a family-friendly card game that sparks conversation and helps children get to know each other better, this product is an excellent choice.
@@ -50,10 +50,10 @@ The **QUOKKA Board Game** features a well-designed set of cards with thought-pro
 
 Manufactured by **Adducate Ukraine LLC**, the game boasts high-quality materials and a colorful **family edition** design that appeals to children visually. The gameplay promotes bonding moments among family members, helping players learn more about each other's preferences and personalities in a relaxed and enjoyable setting. Overall, this game combines fun with educational value, making it a must-have for families with young children.
 
-## <a href="https://www.amazon.com/dp/B07JQ5W878?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Regal Games Card Games For Kids</a>
+## <a href="https://www.amazon.com/dp/B07JQ5W878?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Regal Games Card Games For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B07JQ5W878?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Regal Games Card Games for Kids - Go Fish, Crazy 8's, Old Maid, Slap Jack, Garbage Monster, War - Simple &amp; Fun Classic Family Table Games - Games May Vary (6 Set)" src="https://m.media-amazon.com/images/I/51LRUD93kgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JQ5W878?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Regal Games Card Games for Kids - Go Fish, Crazy 8's, Old Maid, Slap Jack, Garbage Monster, War - Simple &amp; Fun Classic Family Table Games - Games May Vary (6 Set)" src="https://m.media-amazon.com/images/I/51LRUD93kgL._SL500_.jpg"/></a>
 
 
 The **Regal Games Card Games for Kids** set is perfect for families and children who enjoy engaging, interactive, and easy-to-learn games. Ideal for parents looking to introduce their kids to classic card games or educators seeking fun ways to develop social and cognitive skills, this collection offers simple yet entertaining options for all ages. If you want a versatile and compact game set that brings family and friends together, this is an excellent choice.
@@ -76,10 +76,10 @@ This **Regal Games card set** offers a wonderful way to introduce children to tr
 
 The selection of games like **Go Fish** and **Crazy 8’s** provides a mix of luck and strategy that keeps kids engaged and eager to play again. Additionally, the **durable cards** ensure long-lasting use even with enthusiastic young players. Overall, this set is a practical and enjoyable addition to any family game collection, encouraging quality time and fun learning experiences.
 
-## <a href="https://www.amazon.com/dp/B0CJLT4R9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sussed Wacky ‘what Would You Do’ Card Game</a>
+## <a href="https://www.amazon.com/dp/B0CJLT4R9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sussed Wacky ‘what Would You Do’ Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJLT4R9G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUSSED Wacky ‘What Would You Do’ Card Game - Fun &amp; Easy Travel Game for Girls, Boys &amp; Tweens - Builds Kids’ Social Skills &amp; Confidence - Purple Pack: Dragons, Space &amp; Magic" src="https://m.media-amazon.com/images/I/51Br5WyQDsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJLT4R9G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SUSSED Wacky ‘What Would You Do’ Card Game - Fun &amp; Easy Travel Game for Girls, Boys &amp; Tweens - Builds Kids’ Social Skills &amp; Confidence - Purple Pack: Dragons, Space &amp; Magic" src="https://m.media-amazon.com/images/I/51Br5WyQDsL._SL500_.jpg"/></a>
 
 
 The **SUSSED Wacky ‘What Would You Do’ Card Game** is perfect for parents, teachers, and caregivers looking to engage **girls, boys, and tweens** in a fun and interactive way. Ideal for those who want to build **kids’ social skills and confidence** through playful scenarios, this travel-friendly game is suited for children who enjoy imaginative themes like **dragons, space, and magic**.
@@ -101,10 +101,10 @@ The **SUSSED Wacky ‘What Would You Do’ Card Game** offers a unique blend of 
 
 Beyond just fun, this game is thoughtfully designed to promote **social skills and confidence** in kids. By prompting players to consider various “what would you do” situations, it helps them practice empathy, communication, and problem-solving. The **Amazing Purple edition** from **Games to Get Ltd** combines vibrant visuals with meaningful content, making it a valuable addition to any child's game collection.
 
-## <a href="https://www.amazon.com/dp/B0CZNNCG8V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Race To Lace</a>
+## <a href="https://www.amazon.com/dp/B0CZNNCG8V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Race To Lace</a>
 
 
-<a href="https://www.amazon.com/dp/B0CZNNCG8V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Race to Lace - Perfect Home or Travel Game for Kids and Adults - Ideal for 8-12 Years Old - Solo or 2+ Players for for 4+ Years &amp; Up for Car, Airplanes, Road Trips - Family &amp; Kids" src="https://m.media-amazon.com/images/I/51OWiBzvAZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CZNNCG8V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Race to Lace - Perfect Home or Travel Game for Kids and Adults - Ideal for 8-12 Years Old - Solo or 2+ Players for for 4+ Years &amp; Up for Car, Airplanes, Road Trips - Family &amp; Kids" src="https://m.media-amazon.com/images/I/51OWiBzvAZL._SL500_.jpg"/></a>
 
 
 The **Race to Lace** game is perfect for families and individuals looking for an engaging and educational activity that can be enjoyed both at home and on the go. Ideal for children aged **8-12 years** and suitable for players aged **4 years and up**, this game is great for solo play or for groups of two or more. Whether you're planning a road trip, a flight, or simply a fun family night, this multicolored game from **Little Jupiter** offers a versatile and entertaining experience.
@@ -127,10 +127,10 @@ The **Race to Lace** game features a streamlined and portable design, making it 
 
 Beyond its portability, the game fosters valuable skills such as fine motor development and strategic thinking, especially beneficial for children in the target age range. The option for solo or multiplayer gameplay adds versatility, allowing for individual focus or social interaction. Manufactured by **Little Jupiter**, the game promises quality and durability, making it a reliable companion for families seeking fun and educational activities.
 
-## <a href="https://www.amazon.com/dp/B0D3C7TTBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Kids Card Games Pack</a>
+## <a href="https://www.amazon.com/dp/B0D3C7TTBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Upgraded Kids Card Games Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0D3C7TTBC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Upgraded Kids Card Games Pack, 6 Decks, Go Fish, Old Maid, Crazy Eights, Memory Match, Slap Jack, War, Playing Cards, Easter Basket Stuffers, Stocking Stuffers" src="https://m.media-amazon.com/images/I/51WCy6BndaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D3C7TTBC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Upgraded Kids Card Games Pack, 6 Decks, Go Fish, Old Maid, Crazy Eights, Memory Match, Slap Jack, War, Playing Cards, Easter Basket Stuffers, Stocking Stuffers" src="https://m.media-amazon.com/images/I/51WCy6BndaL._SL500_.jpg"/></a>
 
 
 The **Upgraded Kids Card Games Pack** is perfect for families and educators looking to engage children in fun, interactive, and educational activities. Ideal for kids who enjoy classic card games like **Go Fish** and **Old Maid**, this pack is also great for parents seeking screen-free entertainment that promotes cognitive skills and social interaction. If you're looking for a versatile set of games that can be used for playdates, classroom activities, or holiday gifts such as **Easter Basket Stuffers** and **Stocking Stuffers**, this product is a great choice.
@@ -152,10 +152,10 @@ This **Kids Card Games Pack** by **rokt&razo** offers a comprehensive set of six
 
 Additionally, the compact and lightweight design makes it easy to bring along on family trips or to use as a quick activity during downtime. Being a product manufactured by **Rokt&Razo**, it promises quality and durability, ensuring that the cards withstand frequent handling. The pack also serves as an excellent gift idea for holidays and special occasions, combining fun with developmental benefits for children.
 
-## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
+## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
 
 
-<a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
 
 
 Ideal for families, friends, and party enthusiasts looking for a **quick**, **engaging**, and **easy-to-learn** card game, the **Taco Cat Goat Cheese Pizza** game is perfect for players of all ages. Whether you are hosting a casual game night or a lively gathering, this game accommodates **2 to 8 players** and ensures everyone stays entertained with its fast-paced rounds.
@@ -178,10 +178,10 @@ The **Taco Cat Goat Cheese Pizza** card game by **Dolphin Hat Games** features a
 
 With rounds lasting only 10 to 15 minutes, this game fits perfectly into busy schedules while still delivering plenty of laughs and competition. The easy-to-learn rules allow players of all ages and skill levels to join in immediately, making it a standout choice for group activities and family bonding. Overall, this game offers a lively and inclusive experience that keeps everyone involved and eager for the next round.
 
-## <a href="https://www.amazon.com/dp/B076PRWVFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Against Maturity</a>
+## <a href="https://www.amazon.com/dp/B076PRWVFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kids Against Maturity</a>
 
 
-<a href="https://www.amazon.com/dp/B076PRWVFG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Against Maturity: Card Game for Kids and Families, Super Fun Hilarious for Family Party Game Night" src="https://m.media-amazon.com/images/I/41dcBapOayL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B076PRWVFG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Against Maturity: Card Game for Kids and Families, Super Fun Hilarious for Family Party Game Night" src="https://m.media-amazon.com/images/I/41dcBapOayL._SL500_.jpg"/></a>
 
 
 The **Kids Against Maturity: Card Game for Kids and Families** is ideal for parents and families looking to add a **super fun** and **hilarious** activity to their **family party game night**. Perfect for children and adults alike, this game encourages laughter, creativity, and bonding among players of various ages. If you want a game that is easy to learn, inclusive, and guarantees hours of entertainment, this is the perfect choice.
@@ -203,10 +203,10 @@ The **Kids Against Maturity** card game features a thoughtfully designed set by 
 
 This game promotes creativity as players come up with funny and imaginative answers, making it a great tool for social interaction and laughter. Its design fosters inclusivity, allowing both kids and adults to participate comfortably, which enhances family bonding. Overall, the **Kids Against Maturity** card game offers a delightful way to bring families together with easy-to-learn gameplay and endless fun.
 
-## <a href="https://www.amazon.com/dp/B00R32E74S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fletter Word Games For Kids</a>
+## <a href="https://www.amazon.com/dp/B00R32E74S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fletter Word Games For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B00R32E74S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fletter Word Games for Kids 8-12, Educational Card Games, Kids Birthday Party Favor, 8 Year Old Girl Birthday Gift, Fun Fast-Paced Vocabulary Challenge For Game Night, Travel Gifts Ages 8 9 10 Yrs" src="https://m.media-amazon.com/images/I/31N5gG91xAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00R32E74S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fletter Word Games for Kids 8-12, Educational Card Games, Kids Birthday Party Favor, 8 Year Old Girl Birthday Gift, Fun Fast-Paced Vocabulary Challenge For Game Night, Travel Gifts Ages 8 9 10 Yrs" src="https://m.media-amazon.com/images/I/31N5gG91xAL._SL500_.jpg"/></a>
 
 
 The **Fletter Word Games for Kids 8-12** is perfect for parents, teachers, and caregivers seeking an engaging and educational activity for children aged 8 to 12. Ideal for those who want to enhance their child's vocabulary and critical thinking skills in a fun, fast-paced way, this card game is also a great choice for birthday party favors or travel gifts. It particularly suits families and educators looking for interactive learning tools that combine entertainment with education.
@@ -229,10 +229,10 @@ The **Fletter Word Game** by BINCA is designed with dimensions of approximately 
 
 Featuring a fast-paced vocabulary challenge, this game helps children enhance their word recognition, spelling, and critical thinking skills in an interactive environment. The educational aspect is cleverly combined with entertainment, making learning feel like play. Whether used at home, in the classroom, or during travel, the **Fletter Word Games for Kids 8-12** offers a valuable tool for developing essential language skills while keeping kids happily engaged.
 
-## <a href="https://www.amazon.com/dp/B0DD39HZ68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Havenhurst Press Run! The Card Game</a>
+## <a href="https://www.amazon.com/dp/B0DD39HZ68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Havenhurst Press Run! The Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DD39HZ68?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Havenhurst Press Run! The Card Game - Hilarious Card Games for 8-12 Year Olds, Fun Family Board Games for Kids and Adults, and Easy Stocking Stuffers for 2-6 Players" src="https://m.media-amazon.com/images/I/51t5eAijbsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DD39HZ68?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Havenhurst Press Run! The Card Game - Hilarious Card Games for 8-12 Year Olds, Fun Family Board Games for Kids and Adults, and Easy Stocking Stuffers for 2-6 Players" src="https://m.media-amazon.com/images/I/51t5eAijbsL._SL500_.jpg"/></a>
 
 
 The **Havenhurst Press Run! The Card Game** is perfect for families and groups looking for a **fun and engaging activity** suitable for both **kids aged 8-12** and adults. If you want a game that encourages laughter, friendly competition, and easy-to-understand rules, this card game fits the bill. It is also an excellent choice for those seeking a compact, travel-friendly game that can be enjoyed by **2-6 players**, making it ideal for family game nights, parties, or as a thoughtful stocking stuffer.
@@ -254,10 +254,10 @@ This card game, manufactured by **Fabryka Kart**, is designed with simplicity an
 
 The gameplay encourages interaction among players, fostering a lively and enjoyable atmosphere. By catering to both kids and adults, **Havenhurst Press Run!** bridges generational gaps and creates memorable moments. Its easy-to-understand mechanics ensure that players can jump right in without a lengthy learning curve, making it an excellent addition to any family game collection.
 
-## <a href="https://www.amazon.com/dp/B091DLZ7X4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lotfancy Card Games For Kids</a>
+## <a href="https://www.amazon.com/dp/B091DLZ7X4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lotfancy Card Games For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B091DLZ7X4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LotFancy Card Games for Kids, 6 Decks, Go Fish, Old Maid, Crazy Eights, Memory Match, Slap Jack, Animal Playing Cards, Easter Basket Stuffers, Stocking Stuffers, Birthday Gifts" src="https://m.media-amazon.com/images/I/61ClQ6eKdbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B091DLZ7X4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LotFancy Card Games for Kids, 6 Decks, Go Fish, Old Maid, Crazy Eights, Memory Match, Slap Jack, Animal Playing Cards, Easter Basket Stuffers, Stocking Stuffers, Birthday Gifts" src="https://m.media-amazon.com/images/I/61ClQ6eKdbL._SL500_.jpg"/></a>
 
 
 The **LotFancy Card Games for Kids** are perfect for parents, teachers, and caregivers looking to provide engaging and educational entertainment for children. Ideal for kids who enjoy interactive play, these card games encourage social skills, memory development, and strategic thinking, making them an excellent choice for family game nights, classroom activities, or birthday gifts.

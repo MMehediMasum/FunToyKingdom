@@ -23,10 +23,10 @@ Many come with extra outfits and unique designs. Fans appreciate the mix of clas
 
 
 
-## <a href="https://www.amazon.com/dp/B00BJAOPZQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Integrity Toys Funny Face Movie Collection The Quality Woman Doll</a>
+## <a href="https://www.amazon.com/dp/B00BJAOPZQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Integrity Toys Funny Face Movie Collection The Quality Woman Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B00BJAOPZQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Integrity Toys Funny Face Movie Collection The Quality Woman 12" doll"="" src="https://m.media-amazon.com/images/I/31CsIWvPK2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00BJAOPZQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Integrity Toys Funny Face Movie Collection The Quality Woman 12" doll"="" src="https://m.media-amazon.com/images/I/31CsIWvPK2L._SL500_.jpg"/></a>
 
 
 The **Integrity Toys Funny Face Movie Collection The Quality Woman 12" Doll** is perfect for collectors and enthusiasts who appreciate high-quality, limited edition dolls. Ideal for those who value intricate craftsmanship and unique designs, this doll appeals to adult collectors seeking to enhance their collection with a standout piece that combines artistry and character.
@@ -48,10 +48,10 @@ The **Integrity Toys Funny Face Movie Collection The Quality Woman 12" Doll** sh
 
 Being a **limited edition** collectible, this doll holds significant value for enthusiasts who seek exclusivity and rarity in their collections. The trusted brand behind this creation, **Integrity Toys**, is known for producing high-quality dolls that meet the expectations of discerning collectors. Overall, this doll combines artistry, quality, and exclusivity, providing both visual pleasure and investment potential for its owners.
 
-## <a href="https://www.amazon.com/dp/B0DPLKK2LS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Universal Wicked Deluxe Glinda Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0DPLKK2LS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Universal Wicked Deluxe Glinda Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPLKK2LS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Universal Wicked Deluxe Glinda Fashion Doll &amp; Accessories Including Crown &amp; Scepter, Movie-Inspired Look with Posability" src="https://m.media-amazon.com/images/I/41CYnqfVDgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPLKK2LS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Universal Wicked Deluxe Glinda Fashion Doll &amp; Accessories Including Crown &amp; Scepter, Movie-Inspired Look with Posability" src="https://m.media-amazon.com/images/I/41CYnqfVDgL._SL500_.jpg"/></a>
 
 
 The **Mattel Universal Wicked Deluxe Glinda Fashion Doll & Accessories** is perfect for collectors and fans of the iconic Wicked movie, as well as children who enjoy imaginative play with detailed, posable dolls. This item is ideal for those seeking a high-quality, movie-inspired toy that combines both aesthetics and functionality.
@@ -74,10 +74,10 @@ The **Mattel Universal Wicked Deluxe Glinda Fashion Doll** boasts a beautifully 
 
 Measuring just over 11 inches tall, this doll is perfectly sized for display or travel without sacrificing detail. The vibrant **multicolor palette** captures the magical essence of Glinda’s character, making it a visually appealing addition for collectors and children alike. Manufactured by **Mattel**, the doll promises a balance of durability and intricate craftsmanship, ensuring long-lasting enjoyment.
 
-## <a href="https://www.amazon.com/dp/B0B2BCTR2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diy Ooak Doll Bodies For Replacement 12 Inch Fashion Doll Body</a>
+## <a href="https://www.amazon.com/dp/B0B2BCTR2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diy Ooak Doll Bodies For Replacement 12 Inch Fashion Doll Body</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2BCTR2M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DIY OOAK Doll Bodies for Replacement 12 inch Fashion Doll Body Supermodel Collector Doll Body Articulated Jointed Posable Doll Making Repair (#1 White)" src="https://m.media-amazon.com/images/I/31aKRZDKF9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2BCTR2M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DIY OOAK Doll Bodies for Replacement 12 inch Fashion Doll Body Supermodel Collector Doll Body Articulated Jointed Posable Doll Making Repair (#1 White)" src="https://m.media-amazon.com/images/I/31aKRZDKF9L._SL500_.jpg"/></a>
 
 
 The **DIY OOAK Doll Bodies for Replacement 12 inch Fashion Doll Body** is perfect for hobbyists, collectors, and artists who want to customize or repair their 12-inch fashion dolls. Ideal for those who appreciate detailed craftsmanship and seek a versatile, articulated jointed doll body for creative projects or replacement purposes.
@@ -100,10 +100,10 @@ This **12 inch fashion doll body** stands out due to its articulated joints, whi
 
 Additionally, the doll body’s durable construction from **Eledoll** ensures long-lasting performance, while the lightweight design makes it easy to handle during repair or customization. Whether you are an advanced doll maker or a passionate collector looking to refresh your dolls, this replacement body offers a practical and versatile solution that enhances your creative projects and collection value.
 
-## <a href="https://www.amazon.com/dp/B0CNJ2GPQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royale High Fire Fairy Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0CNJ2GPQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Royale High Fire Fairy Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNJ2GPQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royale High 3” Fire Fairy Fashion Doll - 1 Figure with 9 Fashion Accessories - Virtual Item Code Included - Series 1 - Ages 5+" src="https://m.media-amazon.com/images/I/51XbsHompFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNJ2GPQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Royale High 3” Fire Fairy Fashion Doll - 1 Figure with 9 Fashion Accessories - Virtual Item Code Included - Series 1 - Ages 5+" src="https://m.media-amazon.com/images/I/51XbsHompFL._SL500_.jpg"/></a>
 
 
 The **Royale High 3” Fire Fairy Fashion Doll** is perfect for young collectors and fans of the **Royale High** universe, especially children aged **5+** who enjoy imaginative play and fashion styling. This doll is ideal for those who love combining physical play with virtual gaming, as it includes a **virtual item code** to enhance the in-game experience. If you are looking for a beautifully detailed figure that brings the magic of the **Fire Fairy** character to life, this doll is a great choice.
@@ -126,10 +126,10 @@ The **Royale High 3” Fire Fairy Fashion Doll** boasts a compact yet detailed d
 
 Beyond physical play, the doll enhances the digital experience by including a **virtual item code**, which unlocks exclusive content in the **Royale High** game. This integration of tangible and virtual play provides added value and excitement for young fans, bridging the gap between traditional toys and modern gaming. Manufactured by **Jazwares LLC**, this **Series 1** edition ensures quality and authenticity for collectors and players alike.
 
-## <a href="https://www.amazon.com/dp/B0B2B5NGGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Princess Merida Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0B2B5NGGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Princess Merida Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0B2B5NGGY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Princess Toys, Merida Fashion Doll, Sparkling Look with Red Hair, Blue Eyes &amp; Hair Accessory, Inspired by The Movie Brave" src="https://m.media-amazon.com/images/I/51sseOM2ZUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B2B5NGGY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Princess Toys, Merida Fashion Doll, Sparkling Look with Red Hair, Blue Eyes &amp; Hair Accessory, Inspired by The Movie Brave" src="https://m.media-amazon.com/images/I/51sseOM2ZUL._SL500_.jpg"/></a>
 
 
 The **Mattel Disney Princess Toys, Merida Fashion Doll** is ideal for young children and collectors who admire the strong and adventurous character from the movie **Brave**. This doll is perfect for kids who enjoy imaginative play with their favorite **Disney Princesses** and for fans of Merida who appreciate her unique style and story.
@@ -152,10 +152,10 @@ The **Merida Fashion Doll** by Mattel showcases the character's iconic fiery red
 
 Beyond its aesthetic appeal, this doll is designed with quality in mind. Mattel’s expertise ensures the doll is durable enough to withstand regular play while maintaining its detailed appearance. The doll’s manageable size makes it easy for children to carry and interact with, supporting storytelling and character-driven games. Overall, the **Mattel Disney Princess Merida Fashion Doll** offers a delightful blend of style, quality, and playability for fans of all ages.
 
-## <a href="https://www.amazon.com/dp/B0BKLQ27HZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Just Play Style Bae Kiki 10-inch Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0BKLQ27HZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Just Play Style Bae Kiki 10-inch Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0BKLQ27HZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Just Play Style Bae Kiki 10-Inch Fashion Doll and Accessories, 28-Pieces, Kids Toys for Ages 4 Up" src="https://m.media-amazon.com/images/I/51BcVwY0waL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BKLQ27HZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Just Play Style Bae Kiki 10-Inch Fashion Doll and Accessories, 28-Pieces, Kids Toys for Ages 4 Up" src="https://m.media-amazon.com/images/I/51BcVwY0waL._SL500_.jpg"/></a>
 
 
 The **Just Play Style Bae Kiki 10-Inch Fashion Doll and Accessories** is an ideal choice for children aged **4 and up** who love imaginative play and fashion. This set is perfect for young kids who enjoy dressing up dolls and exploring creative storytelling through accessories and style. Parents looking for a colorful, engaging toy that encourages fine motor skills and creativity will find this product appealing.
@@ -177,10 +177,10 @@ The **Just Play Style Bae Kiki** doll stands out with its compact yet detailed d
 
 Beyond just a toy, this fashion doll promotes important developmental skills. Handling the 28-piece accessory set improves **fine motor skills** and hand-eye coordination as kids manipulate small items like shoes, jewelry, and clothing. Additionally, the open-ended nature of the doll’s design encourages **creative thinking** and storytelling, making it a valuable addition to any child’s toy collection for both fun and learning.
 
-## <a href="https://www.amazon.com/dp/B0824SH5SR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Princess Style Series 08 Belle</a>
+## <a href="https://www.amazon.com/dp/B0824SH5SR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disney Princess Style Series 08 Belle</a>
 
 
-<a href="https://www.amazon.com/dp/B0824SH5SR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Princess Style Series 08 Belle, Contemporary Style Fashion Doll with Accessories, Collectable Toy for Girls 6 Years and Up" src="https://m.media-amazon.com/images/I/41PBf2tGorL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0824SH5SR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disney Princess Style Series 08 Belle, Contemporary Style Fashion Doll with Accessories, Collectable Toy for Girls 6 Years and Up" src="https://m.media-amazon.com/images/I/41PBf2tGorL._SL500_.jpg"/></a>
 
 
 The **Disney Princess Style Series 08 Belle** doll is ideal for young girls aged 6 years and up who love imaginative play and collecting beautiful, contemporary fashion dolls. Perfect for fans of the beloved Disney Princess Belle, this stylish doll combines classic charm with modern fashion, making it a great choice for children who enjoy storytelling, role-playing, and adding to their treasured toy collections.
@@ -203,10 +203,10 @@ This **Disney Princess Style Series 08 Belle** doll showcases a contemporary fas
 
 The doll’s size and weight are thoughtfully designed to suit children aged 6 and above, allowing for easy handling during playtime. The included accessories complement the doll’s fashionable look, sparking creativity and role-playing opportunities. Whether for display or active play, this collectable toy enriches a child’s experience by blending beloved Disney magic with modern style elements.
 
-## <a href="https://www.amazon.com/dp/B0BN1223GJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Wish Queen Amaya Of Rosas Posable Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0BN1223GJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Disney Wish Queen Amaya Of Rosas Posable Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0BN1223GJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Wish Toys, Queen Amaya of Rosas, Posable Fashion Doll with Removable Signature Outfit, Shoes &amp; Accessories, Inspired by the Movie" src="https://m.media-amazon.com/images/I/51ECoghVUVL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BN1223GJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Disney Wish Toys, Queen Amaya of Rosas, Posable Fashion Doll with Removable Signature Outfit, Shoes &amp; Accessories, Inspired by the Movie" src="https://m.media-amazon.com/images/I/51ECoghVUVL._SL500_.jpg"/></a>
 
 
 The **Mattel Disney Wish Toys, Queen Amaya of Rosas** is ideal for children and collectors who love **Disney-inspired fashion dolls** with detailed craftsmanship. This doll is perfect for fans of the movie who want a posable figure featuring a **removable signature outfit** and accessories, allowing for creative play and display. It suits those looking for a high-quality, multicolor doll that combines both style and versatility in one collectible item.
@@ -229,10 +229,10 @@ The **Queen Amaya of Rosas doll** from Mattel brings the magic of the Disney Wis
 
 In addition to its play features, the doll’s high-quality construction ensures durability, making it a valuable collectible for Disney fans of all ages. The multicolor design reflects the character’s unique style from the movie, adding authenticity and charm. Overall, this doll is a wonderful gift choice for anyone who appreciates fashion dolls with a Disney flair and enjoys engaging play or display options.
 
-## <a href="https://www.amazon.com/dp/B0CM9VK7VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kelia Fashion Doll</a>
+## <a href="https://www.amazon.com/dp/B0CM9VK7VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kelia Fashion Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CM9VK7VP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Hits Be Fashion Academy – Kelia Fashion Doll with Outfit, Accessories, Skateboard &amp; Designer Set – Creative Play for Girls Age 5+" src="https://m.media-amazon.com/images/I/51aNsZAMSwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CM9VK7VP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kids Hits Be Fashion Academy – Kelia Fashion Doll with Outfit, Accessories, Skateboard &amp; Designer Set – Creative Play for Girls Age 5+" src="https://m.media-amazon.com/images/I/51aNsZAMSwL._SL500_.jpg"/></a>
 
 
 The **Kids Hits Be Fashion Academy – Kelia Fashion Doll** is perfect for young girls aged 5 and above who love to engage in imaginative and creative play. This set is ideal for children who enjoy fashion, design, and hands-on activities, making it a great choice for parents looking to encourage creativity and storytelling in their kids.
@@ -254,10 +254,10 @@ This **fashion doll set** is thoughtfully designed to offer a rich and engaging 
 
 Furthermore, the **compact and lightweight design** ensures that the doll is easy to handle, encouraging independent play. The vibrant multicoloured theme adds visual appeal, keeping kids interested for longer periods. Overall, the Kids Hits Be Fashion Academy – Kelia Fashion Doll is a wonderful gift choice for parents seeking to nurture creativity and imaginative play in their children.
 
-## <a href="https://www.amazon.com/dp/B0B7HB3TT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mon Ami Doll Prince Jean Luc</a>
+## <a href="https://www.amazon.com/dp/B0B7HB3TT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mon Ami Doll Prince Jean Luc</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7HB3TT6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MON AMI Doll Prince Jean Luc – 15” Soft &amp; Elegant Stuffed Plush Fashion Doll for Kids of All Ages, Use as Toy or Room Décor" src="https://m.media-amazon.com/images/I/314GRMxVKdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7HB3TT6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="MON AMI Doll Prince Jean Luc – 15” Soft &amp; Elegant Stuffed Plush Fashion Doll for Kids of All Ages, Use as Toy or Room Décor" src="https://m.media-amazon.com/images/I/314GRMxVKdL._SL500_.jpg"/></a>
 
 
 The **MON AMI Doll Prince Jean Luc** is perfect for children of all ages who love soft, elegant stuffed toys or anyone looking for a charming piece to enhance their room décor. This plush fashion doll appeals to kids who enjoy imaginative play as well as collectors or parents seeking a versatile, decorative item that also serves as a comforting companion.

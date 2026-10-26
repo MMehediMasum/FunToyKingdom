@@ -23,10 +23,10 @@ These miniatures also help people understand how real trucks work. They make gre
 
 
 
-## <a href="https://www.amazon.com/dp/B0CGFZVT34?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Peterbilt 579 Ultraloft Tandem Tractor With Lowboy Trailer &amp; Caterpillar D5m Dozer</a>
+## <a href="https://www.amazon.com/dp/B0CGFZVT34?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diecast Masters Peterbilt 579 Ultraloft Tandem Tractor With Lowboy Trailer &amp; Caterpillar D5m Dozer</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGFZVT34?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/87 Peterbilt 579 UltraLoft Tandem Tractor with Lowboy Trailer &amp; Caterpillar D5M Dozer 84419" src="https://m.media-amazon.com/images/I/31KkmvEF-KL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGFZVT34?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diecast Masters 1/87 Peterbilt 579 UltraLoft Tandem Tractor with Lowboy Trailer &amp; Caterpillar D5M Dozer 84419" src="https://m.media-amazon.com/images/I/31KkmvEF-KL._SL500_.jpg"/></a>
 
 
 The **Diecast Masters 1/87 Peterbilt 579 UltraLoft Tandem Tractor with Lowboy Trailer & Caterpillar D5M Dozer 84419** is ideal for collectors and hobbyists who appreciate highly detailed scale models of heavy-duty vehicles. If you are passionate about construction equipment, trucks, or diorama building, this meticulously crafted model offers an excellent addition to your collection. It also suits educators or professionals looking for realistic miniature representations for demonstrations or displays.
@@ -49,10 +49,10 @@ This **Diecast Masters** model stands out for its exceptional attention to detai
 
 Additionally, the inclusion of the **Lowboy Trailer** adds functional context, demonstrating how the tractor transports heavy equipment like the dozer. The compact size and lightweight design make it easy to handle and place within existing collections or dioramas, while the robust diecast metal build ensures durability. Overall, this model offers both visual enjoyment and practical value for enthusiasts and professionals alike.
 
-## <a href="https://www.amazon.com/dp/B0B7S2YZLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homseek Kid's Farm Tractor Toys With Trailers</a>
+## <a href="https://www.amazon.com/dp/B0B7S2YZLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Homseek Kid's Farm Tractor Toys With Trailers</a>
 
 
-<a href="https://www.amazon.com/dp/B0B7S2YZLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMSEEK Kid's Farm Tractor Toys with Trailers,Alloy and ABS Cake Decorating Car Truck Funny Tractor Vehicle Value Play Set Toy,(Set of 4)" src="https://m.media-amazon.com/images/I/61RMnpdKQaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B7S2YZLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HOMSEEK Kid's Farm Tractor Toys with Trailers,Alloy and ABS Cake Decorating Car Truck Funny Tractor Vehicle Value Play Set Toy,(Set of 4)" src="https://m.media-amazon.com/images/I/61RMnpdKQaL._SL500_.jpg"/></a>
 
 
 The **HOMSEEK Kid's Farm Tractor Toys with Trailers** are perfect for young children who love imaginative play and farm-themed activities. Ideal for kids who enjoy hands-on interaction with durable toy vehicles, this set is designed to stimulate creativity and motor skills in toddlers and preschoolers. Parents looking for safe, high-quality toys that combine fun with educational value will find this set an excellent choice.
@@ -75,10 +75,10 @@ The **HOMSEEK Kid's Farm Tractor Toys with Trailers** combine robust constructio
 
 Beyond fun, this play set supports important developmental milestones by enhancing fine motor skills and encouraging imaginative storytelling. The variety of pieces included allows children to experiment with different configurations, fostering creativity and problem-solving abilities. Parents can feel confident choosing this set, knowing it is built with child safety and educational value in mind.
 
-## <a href="https://www.amazon.com/dp/B007TX9C64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Walthers Scenemaster International 4300 1-axle Tractor</a>
+## <a href="https://www.amazon.com/dp/B007TX9C64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Walthers Scenemaster International 4300 1-axle Tractor</a>
 
 
-<a href="https://www.amazon.com/dp/B007TX9C64?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Walthers SceneMaster International 4300 1-Axle Tractor, Red HO Scale Model" src="https://m.media-amazon.com/images/I/414-p4nXycL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B007TX9C64?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Walthers SceneMaster International 4300 1-Axle Tractor, Red HO Scale Model" src="https://m.media-amazon.com/images/I/414-p4nXycL._SL500_.jpg"/></a>
 
 
 The **Walthers SceneMaster International 4300 1-Axle Tractor** in vibrant **Red** is ideal for **HO scale model railroad enthusiasts** who seek a detailed and realistic addition to their layouts. Whether you're a beginner looking to enhance your collection or an experienced hobbyist aiming to add authenticity, this model is designed to fit seamlessly into a variety of train scenes and dioramas.
@@ -101,10 +101,10 @@ The **Walthers SceneMaster International 4300 1-Axle Tractor** stands out with i
 
 Manufactured by **Walthers - Life Like**, this model promises excellent durability and craftsmanship. The tractor’s detailed features provide users with an immersive experience, whether used in freight yard scenes or rural settings. This makes it a valuable addition for those who appreciate quality and scale fidelity in their modeling projects.
 
-## <a href="https://www.amazon.com/dp/B0D262W4RZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Risopen Semi Truck Toy</a>
+## <a href="https://www.amazon.com/dp/B0D262W4RZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Risopen Semi Truck Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0D262W4RZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Risopen Semi Truck Toy, 1/64 Scale Alloy Metal Diecast Heavy Semi Truck Trailer Head Toy Model, International Lonestar Diecast Tow Traktor Gift for Boy Adult Model Car Collector -Red" src="https://m.media-amazon.com/images/I/419w1XqN2wL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D262W4RZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Risopen Semi Truck Toy, 1/64 Scale Alloy Metal Diecast Heavy Semi Truck Trailer Head Toy Model, International Lonestar Diecast Tow Traktor Gift for Boy Adult Model Car Collector -Red" src="https://m.media-amazon.com/images/I/419w1XqN2wL._SL500_.jpg"/></a>
 
 
 The **Risopen Semi Truck Toy** is perfect for both **boy** and **adult model car collectors** who appreciate detailed and high-quality miniature vehicles. Ideal for enthusiasts of **heavy semi truck trailers** and fans of the **International Lonestar** design, this 1/64 scale diecast model offers a realistic and durable addition to any collection or play set.
@@ -126,10 +126,10 @@ The **Risopen Semi Truck Toy** features precise craftsmanship, capturing the dis
 
 With its compact size and detailed design, this semi truck model offers both aesthetic value and convenience. Collectors can appreciate the authenticity and quality from the trusted **MAISTO** manufacturer, while younger fans can enjoy a realistic toy that encourages imaginative play. Overall, the **Risopen Semi Truck Toy** combines style, durability, and accurate detailing to satisfy a wide range of truck enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B07BJN16YW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">New Ray Kubota Kx040 Excavator With White Chevy Pickup &amp; Trailer Model Toy</a>
+## <a href="https://www.amazon.com/dp/B07BJN16YW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">New Ray Kubota Kx040 Excavator With White Chevy Pickup &amp; Trailer Model Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07BJN16YW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" (orange,="" -="" alt="New Ray New 10" black)="" chevy="" collection="" excavator="" kubota="" kx040="" model="" newray="" pickup="" src="https://m.media-amazon.com/images/I/31oKsiKGNKL._SL500_.jpg" toy"="" trailer="" white="" with=""/></a>
+<a href="https://www.amazon.com/dp/B07BJN16YW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img &="" (orange,="" -="" alt="New Ray New 10" black)="" chevy="" collection="" excavator="" kubota="" kx040="" model="" newray="" pickup="" src="https://m.media-amazon.com/images/I/31oKsiKGNKL._SL500_.jpg" toy"="" trailer="" white="" with=""/></a>
 
 
 The **New Ray New 10" NEWRAY KUBOTA Collection - Kubota KX040 Excavator with White Chevy Pickup & Trailer** is ideal for collectors and enthusiasts of detailed construction and vehicle models. This **model toy** appeals to both children who enjoy imaginative play and adults who appreciate finely crafted replicas of heavy machinery combined with classic vehicle designs. If you are looking for a realistic and durable miniature set to add to your collection or gift to a young builder, this item is a perfect choice.
@@ -152,10 +152,10 @@ This **New Ray Kubota KX040 Excavator model** stands out due to its realistic de
 
 The durable materials and precise craftsmanship by **New Ray Toys Inc** ensure that this model will hold up well over time, whether displayed or gently played with. Its visual appeal, highlighted by the vibrant orange and black colors of the excavator combined with the clean white pickup, adds an attractive element to any toy or model setup. Overall, this model toy offers both aesthetic value and functional playability, making it a worthwhile addition to any enthusiast’s collection.
 
-## <a href="https://www.amazon.com/dp/B01GQU7KQO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newray Kubota Farm Playset</a>
+## <a href="https://www.amazon.com/dp/B01GQU7KQO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newray Kubota Farm Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B01GQU7KQO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NewRay Kubota Farm Playset with M5 Tractor Truck Trailer Bales and Crates 1/43 Scale Model Vehicles" src="https://m.media-amazon.com/images/I/41UwVIwkLZL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01GQU7KQO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NewRay Kubota Farm Playset with M5 Tractor Truck Trailer Bales and Crates 1/43 Scale Model Vehicles" src="https://m.media-amazon.com/images/I/41UwVIwkLZL._SL500_.jpg"/></a>
 
 
 The **NewRay Kubota Farm Playset with M5 Tractor Truck Trailer Bales and Crates 1/43 Scale Model Vehicles** is ideal for collectors, farm enthusiasts, and children who enjoy realistic agricultural toys. This detailed playset is perfect for those who appreciate miniature replicas of farming equipment or want to encourage imaginative play related to farm life.
@@ -177,10 +177,10 @@ The **NewRay Kubota Farm Playset** stands out with its precise craftsmanship and
 
 With its sturdy build and manageable size, this playset is convenient for both collectors who want to showcase their passion and kids who enjoy interactive play. The realistic features promote imaginative storytelling and can help develop fine motor skills and an understanding of farm operations. Overall, it is a versatile and engaging addition for anyone interested in farming models or agricultural playsets.
 
-## <a href="https://www.amazon.com/dp/B0035LMGQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Ups Die Cast Tractor With 2 Trailers</a>
+## <a href="https://www.amazon.com/dp/B0035LMGQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Daron Ups Die Cast Tractor With 2 Trailers</a>
 
 
-<a href="https://www.amazon.com/dp/B0035LMGQC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron UPS Die Cast Tractor with 2 Trailers" src="https://m.media-amazon.com/images/I/4158pZxn8rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0035LMGQC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Daron UPS Die Cast Tractor with 2 Trailers" src="https://m.media-amazon.com/images/I/4158pZxn8rL._SL500_.jpg"/></a>
 
 
 The **Daron UPS Die Cast Tractor with 2 Trailers** is ideal for collectors, children who love playing with realistic miniature vehicles, and fans of logistics and transportation models. If you appreciate finely crafted die-cast replicas or are looking for a detailed toy that captures the essence of UPS delivery trucks, this item is perfect for you. Its compact size and authentic design make it suitable for both display and interactive play.
@@ -203,10 +203,10 @@ The **Daron UPS Die Cast Tractor with 2 Trailers** stands out due to its meticul
 
 This model’s compact dimensions make it convenient to showcase in limited spaces, such as shelves or display cases, without overwhelming the area. The lightweight nature makes it easy to handle, while the realistic UPS branding adds a layer of authenticity that can appeal to brand enthusiasts and those interested in logistics-themed collectibles. Whether for play or display, this item combines quality craftsmanship with practical design benefits, making it a valuable addition to any miniature vehicle collection.
 
-## <a href="https://www.amazon.com/dp/B08WGGT9W3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amt Great Dane 40' Reefer Trailer</a>
+## <a href="https://www.amazon.com/dp/B08WGGT9W3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Amt Great Dane 40' Reefer Trailer</a>
 
 
-<a href="https://www.amazon.com/dp/B08WGGT9W3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMT Great Dane 40' Reefer Trailer 1:25 Scale Model Kit" src="https://m.media-amazon.com/images/I/31YPWgS78FL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08WGGT9W3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="AMT Great Dane 40' Reefer Trailer 1:25 Scale Model Kit" src="https://m.media-amazon.com/images/I/31YPWgS78FL._SL500_.jpg"/></a>
 
 
 The **AMT Great Dane 40' Reefer Trailer 1:25 Scale Model Kit** is ideal for hobbyists and collectors who have a passion for detailed model building and transportation memorabilia. This kit is perfect for those who appreciate precision craftsmanship and want to add a realistic representation of a refrigerated trailer to their collection. Whether you are an experienced model builder or a dedicated enthusiast looking to expand your display, this model offers an engaging and rewarding project.
@@ -229,10 +229,10 @@ The **AMT Great Dane 40' Reefer Trailer 1:25 Scale Model Kit** features an impre
 
 Beyond aesthetics, this model kit offers the benefit of a hands-on experience that can improve fine motor skills and patience. The high-quality materials ensure durability, so once assembled, the model serves as a lasting display piece. Its neutral white color also provides a versatile base for custom painting or detailing, allowing builders to personalize their model to reflect specific companies or designs. Overall, this kit combines craftsmanship, realism, and user engagement, making it a valuable addition for any model vehicle collection.
 
-## <a href="https://www.amazon.com/dp/B06ZZYL9S6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newray Kubota Pickup Truck With Trailer &amp; Lawn Tractor Model Toys</a>
+## <a href="https://www.amazon.com/dp/B06ZZYL9S6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newray Kubota Pickup Truck With Trailer &amp; Lawn Tractor Model Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B06ZZYL9S6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New Ray New 1:20 NEWRAY KUBOTA Collection - KUBOTA Pickup Truck with Trailer &amp; Lawn Tractor Model Toys" src="https://m.media-amazon.com/images/I/41MMb5wa+VL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B06ZZYL9S6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New Ray New 1:20 NEWRAY KUBOTA Collection - KUBOTA Pickup Truck with Trailer &amp; Lawn Tractor Model Toys" src="https://m.media-amazon.com/images/I/41MMb5wa+VL._SL500_.jpg"/></a>
 
 
 Ideal for collectors and enthusiasts of detailed scale models, the **New Ray New 1:20 NEWRAY KUBOTA Collection** featuring the **KUBOTA Pickup Truck with Trailer & Lawn Tractor Model Toys** is perfect for those who appreciate high-quality replicas of agricultural and utility vehicles. This set appeals to both adults who enjoy displaying intricate models and children interested in realistic toy trucks and tractors.
@@ -253,10 +253,10 @@ The **KUBOTA Pickup Truck with Trailer & Lawn Tractor Model Toys** showcases met
 
 Beyond aesthetics, these models offer educational benefits by familiarizing users with the appearance and function of agricultural vehicles. Collectors will appreciate the brand’s commitment to quality and scale accuracy, while children can enjoy imaginative play that encourages an interest in farming machinery. Overall, this set combines detailed design with practical enjoyment, making it a valuable addition for Kubota fans and model enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B00K55QAJA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">New-ray Volvo Tractor And Trailer Vn-780 Model Semi Truck</a>
+## <a href="https://www.amazon.com/dp/B00K55QAJA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">New-ray Volvo Tractor And Trailer Vn-780 Model Semi Truck</a>
 
 
-<a href="https://www.amazon.com/dp/B00K55QAJA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New-Ray Volvo Tractor and Trailer VN-780 1/32 Scale Pre-Built Model Semi Truck White" src="https://m.media-amazon.com/images/I/41w141TskBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00K55QAJA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="New-Ray Volvo Tractor and Trailer VN-780 1/32 Scale Pre-Built Model Semi Truck White" src="https://m.media-amazon.com/images/I/41w141TskBL._SL500_.jpg"/></a>
 
 
 The **New-Ray Volvo Tractor and Trailer VN-780 1/32 Scale Pre-Built Model Semi Truck White** is ideal for collectors, model enthusiasts, and fans of detailed vehicle replicas. If you appreciate high-quality, realistic miniature trucks or are looking for a great gift for someone passionate about trucks, this model is a perfect choice. Its pre-built design makes it accessible even for those who are new to model collecting.

@@ -23,10 +23,10 @@ For all-terrain use, the DEERC 9309E provides 4WD and waterproof design, ideal f
 
 
 
-## <a href="https://www.amazon.com/dp/B0F2N14FLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hobbypark Waterproof Rc Servo</a>
+## <a href="https://www.amazon.com/dp/B0F2N14FLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hobbypark Waterproof Rc Servo</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2N14FLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HobbyPark Waterproof RC Servo High Torque Coreless Motor Metal Gear Digital Servo for 1/8 1/10 RC Crawler SCX10 TRX4 RC Truck Short Course RC Car Buggy RC Basher Bashing (35kg Torque)" src="https://m.media-amazon.com/images/I/41nzzJ9LxaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2N14FLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HobbyPark Waterproof RC Servo High Torque Coreless Motor Metal Gear Digital Servo for 1/8 1/10 RC Crawler SCX10 TRX4 RC Truck Short Course RC Car Buggy RC Basher Bashing (35kg Torque)" src="https://m.media-amazon.com/images/I/41nzzJ9LxaL._SL500_.jpg"/></a>
 
 
 The **HobbyPark Waterproof RC Servo High Torque Coreless Motor Metal Gear Digital Servo** is ideal for RC enthusiasts who demand precision and durability in their 1/8 and 1/10 scale vehicles. Whether you own an RC crawler like the SCX10 or TRX4, a short course RC truck, or a buggy designed for bashing, this servo is perfect for users seeking high torque performance and reliable waterproof features.
@@ -48,10 +48,10 @@ The **HobbyPark Waterproof RC Servo** stands out with its robust **35kg torque r
 
 Additionally, the servo's **waterproof capability** expands its usability to a variety of terrains and weather conditions, giving users confidence in performance regardless of mud, rain, or splashes. Its compact size makes it compatible with popular RC models like the SCX10 and TRX4, making it a versatile upgrade for hobbyists seeking a combination of power, durability, and reliability in one package.
 
-## <a href="https://www.amazon.com/dp/B0F389GLG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hyper Go 14210 H14bm V3 1/14 Brushless Rc Car</a>
+## <a href="https://www.amazon.com/dp/B0F389GLG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hyper Go 14210 H14bm V3 1/14 Brushless Rc Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0F389GLG2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HYPER GO 14210 H14BM V3 1/14 Brushless RC Cars for Adults Fast 50 mph, RC Trucks 4X4 Offroad Waterproof, Electric Powered High Speed RC Car, Fast Extreme RC Truggy with 3S Battery for Snow Sand" src="https://m.media-amazon.com/images/I/51nTLLuZf8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F389GLG2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HYPER GO 14210 H14BM V3 1/14 Brushless RC Cars for Adults Fast 50 mph, RC Trucks 4X4 Offroad Waterproof, Electric Powered High Speed RC Car, Fast Extreme RC Truggy with 3S Battery for Snow Sand" src="https://m.media-amazon.com/images/I/51nTLLuZf8L._SL500_.jpg"/></a>
 
 
 The **HYPER GO 14210 H14BM V3** is ideal for adults and RC enthusiasts who seek a powerful, high-speed offroad vehicle. If you enjoy thrilling outdoor adventures and want a durable, fast, and versatile RC car capable of handling diverse terrains like snow and sand, this **brushless electric powered RC truggy** is perfect for you. It caters to those looking for an extreme, waterproof 4X4 RC truck with a top speed of 50 mph and the convenience of a 3S battery for extended playtime.
@@ -76,10 +76,10 @@ The **HYPER GO 14210 H14BM V3** stands out with its robust brushless motor and w
 
 Additionally, the inclusion of a high-capacity 3S battery means longer run times and quicker charging cycles, enhancing overall usability for extended outdoor fun. This RC truck’s compact dimensions make it portable and easy to transport, making it a convenient choice for hobbyists who want a high-performance vehicle that can be taken anywhere. Overall, the **HYPER GO 14210 H14BM V3** is a top-tier option for those seeking a fast, durable, and versatile RC car capable of handling extreme environments with confidence.
 
-## <a href="https://www.amazon.com/dp/B0F21LY3KT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deerc 9309e 1/16 All Terrain Fast Rc Car</a>
+## <a href="https://www.amazon.com/dp/B0F21LY3KT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Deerc 9309e 1/16 All Terrain Fast Rc Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0F21LY3KT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEERC 9309E 1/16 All Terrain Fast RC Cars for Adults 40KPH,4WD Electric Off-Road Remote Control Monster Truck,2.4Ghz High Speed Car,Waterproof Monster Truck with 2 Batteries for Boys &amp; Kids" src="https://m.media-amazon.com/images/I/51CP0kTw9-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F21LY3KT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DEERC 9309E 1/16 All Terrain Fast RC Cars for Adults 40KPH,4WD Electric Off-Road Remote Control Monster Truck,2.4Ghz High Speed Car,Waterproof Monster Truck with 2 Batteries for Boys &amp; Kids" src="https://m.media-amazon.com/images/I/51CP0kTw9-L._SL500_.jpg"/></a>
 
 
 The **DEERC 9309E 1/16 All Terrain Fast RC Car** is ideal for both adults and kids who love high-speed off-road adventures. Whether you're a hobbyist looking for a durable remote control monster truck or a parent searching for an exciting and reliable toy for your child, this **4WD electric off-road vehicle** offers thrilling performance and rugged design suitable for various terrains.
@@ -103,10 +103,10 @@ The **DEERC 9309E** showcases impressive features like its **1/16 scale** size, 
 
 Equipped with a **waterproof chassis**, this monster truck can withstand splashes and puddles, expanding the range of environments where it can be driven confidently. Additionally, the inclusion of **2 batteries** means less downtime and more continuous fun. The **2.4Ghz remote control** enhances user experience by offering precise handling and interference-free operation, making the DEERC 9309E a reliable choice for both casual play and competitive racing.
 
-## <a href="https://www.amazon.com/dp/B0DQVH8NW3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1:14 Scale Rc Cars For Adults</a>
+## <a href="https://www.amazon.com/dp/B0DQVH8NW3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1:14 Scale Rc Cars For Adults</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQVH8NW3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1:14 Scale RC Cars for Adults, 60 KPH High Speed RC Truggy, 4X4 Off-Road Remote Control Truck, Waterproof Electric Car with 2S Battery, All Terrain RC Vehicle for Snow, Sand, Beach &amp; Rocky Surfaces" src="https://m.media-amazon.com/images/I/51I-IHQfaWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQVH8NW3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1:14 Scale RC Cars for Adults, 60 KPH High Speed RC Truggy, 4X4 Off-Road Remote Control Truck, Waterproof Electric Car with 2S Battery, All Terrain RC Vehicle for Snow, Sand, Beach &amp; Rocky Surfaces" src="https://m.media-amazon.com/images/I/51I-IHQfaWL._SL500_.jpg"/></a>
 
 
 The **1:14 Scale RC Cars for Adults** by TENSSENX is perfect for hobbyists and enthusiasts looking for a high-performance, durable remote control vehicle. Ideal for those who enjoy outdoor adventures and want a versatile **4X4 off-road RC truggy** capable of tackling diverse terrains like snow, sand, and rocky surfaces, this model offers both excitement and reliability.
@@ -128,10 +128,10 @@ The **TENSSENX 1:14 Scale RC Truggy** stands out with its impressive **60 KPH to
 
 Additionally, the **waterproof electric design** ensures that the RC car performs reliably in wet or muddy conditions, expanding the range of environments where it can be used. Powered by a **2S battery**, the car delivers strong torque and longer run times, minimizing interruptions during play. Its durable build and robust features make it an excellent investment for adult RC car fans seeking both performance and versatility.
 
-## <a href="https://www.amazon.com/dp/B0FB8ZMV31?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1/14 Brushless Rc Cars For Adults Fast 50+ Mph</a>
+## <a href="https://www.amazon.com/dp/B0FB8ZMV31?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">1/14 Brushless Rc Cars For Adults Fast 50+ Mph</a>
 
 
-<a href="https://www.amazon.com/dp/B0FB8ZMV31?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1/14 Brushless RC Cars for Adults Fast 50+ mph, RC Trucks 4x4 Offroad Waterproof, Electric Powered High Speed Remote Control Car, Fast Extreme All Terrain RC Truggy with 3S Battery for Snow Sand" src="https://m.media-amazon.com/images/I/51BL69zGF2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FB8ZMV31?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="1/14 Brushless RC Cars for Adults Fast 50+ mph, RC Trucks 4x4 Offroad Waterproof, Electric Powered High Speed Remote Control Car, Fast Extreme All Terrain RC Truggy with 3S Battery for Snow Sand" src="https://m.media-amazon.com/images/I/51BL69zGF2L._SL500_.jpg"/></a>
 
 
 The **1/14 Brushless RC Cars for Adults** is ideal for hobbyists and enthusiasts who seek a powerful, high-speed remote control car with excellent off-road capabilities. If you enjoy challenging terrains like snow, sand, or rough trails and want an electric-powered vehicle that delivers both speed and durability, this RC truggy is tailored for you. It’s perfect for adults looking to combine excitement with advanced RC technology.
@@ -154,10 +154,10 @@ Equipped with a robust **brushless motor**, this RC car reaches exhilarating spe
 
 The **electric-powered system** paired with a **3S battery** ensures consistent power delivery and extended run times, which means longer play sessions without frequent recharging. Additionally, the ergonomic remote control provides precise handling and improved maneuverability, allowing users to enjoy a smooth and responsive driving experience. Overall, this RC truck is a perfect blend of speed, durability, and functionality for adult enthusiasts looking for extreme all-terrain fun.
 
-## <a href="https://www.amazon.com/dp/B09K72PB6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bluejay Remote Control Car</a>
+## <a href="https://www.amazon.com/dp/B09K72PB6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bluejay Remote Control Car</a>
 
 
-<a href="https://www.amazon.com/dp/B09K72PB6C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLUEJAY Remote Control Car, 2.4GHz High Speed 33KM/H RC Cars Toys, 1:12 Monster RC Truck Off Road with LED Headlight and Rechargeable Battery Gifts for Adults Boys 8-12" src="https://m.media-amazon.com/images/I/516f7TzzbfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09K72PB6C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BLUEJAY Remote Control Car, 2.4GHz High Speed 33KM/H RC Cars Toys, 1:12 Monster RC Truck Off Road with LED Headlight and Rechargeable Battery Gifts for Adults Boys 8-12" src="https://m.media-amazon.com/images/I/516f7TzzbfL._SL500_.jpg"/></a>
 
 
 The **BLUEJAY Remote Control Car** is ideal for both **children aged 8-12** and **adult hobbyists** who enjoy high-speed, off-road RC vehicles. If you are looking for a durable, fast, and visually appealing remote control car that offers exciting outdoor play or a fun collection piece, this **1:12 scale monster RC truck** is perfect for you. Its features make it suitable for beginners and experienced users who appreciate robust performance and easy handling.
@@ -181,10 +181,10 @@ The **BLUEJAY Remote Control Car** boasts a powerful **2.4GHz control system** t
 
 Designed with both performance and practicality in mind, this RC car features a **rechargeable battery** that reduces the need for constant replacements, making it an eco-friendly and cost-effective choice. Its robust build and sizeable dimensions offer stability and durability, while the aggressive tire design allows it to conquer diverse terrains with ease. Overall, the **BLUEJAY Remote Control Car** offers a perfect blend of speed, control, and ruggedness, making it a fantastic gift for kids and a thrilling addition for adult RC enthusiasts alike.
 
-## <a href="https://www.amazon.com/dp/B073PVRSDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haiboxing 1:18 Scale All Terrain Rc Car 18859</a>
+## <a href="https://www.amazon.com/dp/B073PVRSDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Haiboxing 1:18 Scale All Terrain Rc Car 18859</a>
 
 
-<a href="https://www.amazon.com/dp/B073PVRSDL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAIBOXING 1:18 Scale All Terrain RC Car 18859, 36 KPH High Speed 4WD Electric Vehicle with 2.4 GHz Remote Control, 4X4 Waterproof Off-Road Truck with Two Rechargeable Batteries" src="https://m.media-amazon.com/images/I/51qeSzBSxTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B073PVRSDL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="HAIBOXING 1:18 Scale All Terrain RC Car 18859, 36 KPH High Speed 4WD Electric Vehicle with 2.4 GHz Remote Control, 4X4 Waterproof Off-Road Truck with Two Rechargeable Batteries" src="https://m.media-amazon.com/images/I/51qeSzBSxTL._SL500_.jpg"/></a>
 
 
 The **HAIBOXING 1:18 Scale All Terrain RC Car 18859** is perfect for hobbyists and enthusiasts looking for a high-performance, durable, and versatile remote-controlled vehicle. Ideal for both beginners and experienced users who enjoy off-road adventures, this **4WD electric truck** offers exciting speeds and excellent control, making it a great choice for outdoor fun and competitive racing.
@@ -208,10 +208,10 @@ The **HAIBOXING 1:18 Scale All Terrain RC Car** boasts a robust **4WD system** t
 
 Equipped with **two rechargeable batteries**, this RC car promises extended playtime, minimizing downtime between races or exploration sessions. Its compact size and lightweight build make it highly maneuverable and easy to transport. Whether racing at high speeds up to **36 KPH** or navigating challenging off-road courses, users can enjoy a thrilling and immersive driving experience backed by reliable performance and durability.
 
-## <a href="https://www.amazon.com/dp/B0CH66X25G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Large Rc Ramp For Jumping</a>
+## <a href="https://www.amazon.com/dp/B0CH66X25G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Large Rc Ramp For Jumping</a>
 
 
-<a href="https://www.amazon.com/dp/B0CH66X25G?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Large RC Ramp for Jumping - 21 inches high! - Ultimate Stunt &amp; Bashing Ramp for 1/12 &amp; 1/16 Scale Remote Control Cars and Trucks - RC Car Ramps for Jumping High, Flips &amp; Tricks" src="https://m.media-amazon.com/images/I/318h+SQ7p7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CH66X25G?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Large RC Ramp for Jumping - 21 inches high! - Ultimate Stunt &amp; Bashing Ramp for 1/12 &amp; 1/16 Scale Remote Control Cars and Trucks - RC Car Ramps for Jumping High, Flips &amp; Tricks" src="https://m.media-amazon.com/images/I/318h+SQ7p7L._SL500_.jpg"/></a>
 
 
 The **Large RC Ramp for Jumping** is perfect for remote control car enthusiasts who own **1/12** or **1/16 scale RC cars and trucks** and are looking to perform high jumps, flips, and tricks. Ideal for hobbyists and stunt lovers aiming to enhance their driving experience with a durable and well-designed ramp that supports advanced maneuvers.
@@ -233,10 +233,10 @@ The **Mint Habitat Large RC Ramp** is engineered to deliver the ultimate stunt e
 
 Crafted with lightweight yet durable materials, this ramp is easy to transport and set up at different locations, whether at home or in outdoor areas. The striking green color not only adds style but also improves visibility, helping drivers align their vehicles properly for takeoff. Overall, this ramp enhances the thrill and excitement of RC car stunting while offering excellent functionality tailored to specific RC car scales.
 
-## <a href="https://www.amazon.com/dp/B0D2NNHKSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Orrente Remote Control Car</a>
+## <a href="https://www.amazon.com/dp/B0D2NNHKSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Orrente Remote Control Car</a>
 
 
-<a href="https://www.amazon.com/dp/B0D2NNHKSQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ORRENTE Remote Control Car, RC Cars Toys 2.4GHz 4WD Fast RC Car Kids Toys, Double Sided 360° Rotating Monster Truck Toys for Girls RC Truck Toy Cars for Boys" src="https://m.media-amazon.com/images/I/512XIq6dDAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D2NNHKSQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ORRENTE Remote Control Car, RC Cars Toys 2.4GHz 4WD Fast RC Car Kids Toys, Double Sided 360° Rotating Monster Truck Toys for Girls RC Truck Toy Cars for Boys" src="https://m.media-amazon.com/images/I/512XIq6dDAL._SL500_.jpg"/></a>
 
 
 The **ORRENTE Remote Control Car** is ideal for children who love exciting, fast-paced outdoor play. Perfect for kids who enjoy interactive toys, this **4WD Fast RC Car** offers both boys and girls an engaging experience with its double-sided 360° rotating feature, making it a great choice for young RC enthusiasts looking for durability and fun.
@@ -259,10 +259,10 @@ The **ORRENTE Remote Control Car** features a powerful **2.4GHz remote system** 
 
 Constructed by **GUANGDONG CREATIVE DOUBLE STAR TECHNOLOGY CO., LTD**, this model boasts a durable build while maintaining a lightweight profile at just **1.0 pound**. The bright red color not only makes it visually appealing but also easy to spot during play. Overall, this RC car balances performance, fun, and ease of use, making it a perfect gift for young remote control car enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0F66GW8VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lvcdzr 1:18 Rc Cars</a>
+## <a href="https://www.amazon.com/dp/B0F66GW8VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lvcdzr 1:18 Rc Cars</a>
 
 
-<a href="https://www.amazon.com/dp/B0F66GW8VT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lvcdzr 1:18 RC Cars, 2.4GHz 4WD High Speed 40 KM/H Remote Control car with Drift Wheel, All Terrain Off Road Monster Truck RC Drift Car with Gyro for Adults Boys 8-12" src="https://m.media-amazon.com/images/I/51N3ZuY82EL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F66GW8VT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Lvcdzr 1:18 RC Cars, 2.4GHz 4WD High Speed 40 KM/H Remote Control car with Drift Wheel, All Terrain Off Road Monster Truck RC Drift Car with Gyro for Adults Boys 8-12" src="https://m.media-amazon.com/images/I/51N3ZuY82EL._SL500_.jpg"/></a>
 
 
 The **Lvcdzr 1:18 RC Car** is perfect for enthusiasts and hobbyists looking for a high-performance, durable remote control vehicle. Ideal for **adults and boys aged 8-12**, this **off-road monster truck** offers an exciting blend of speed, control, and versatility, making it suitable for both beginners and experienced RC car users who enjoy **drifting** and all-terrain adventures.

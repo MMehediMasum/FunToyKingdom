@@ -23,10 +23,10 @@ Strategy games let you plan moves and enjoy relaxing themes, like bird watching 
 
 
 
-## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
+## <a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">I Should Have Known That! - A Trivia Game About Things You Oughta Know</a>
 
 
-<a href="https://www.amazon.com/dp/B0778TY7XP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0778TY7XP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="I should have known that! - A Trivia Game About Things You Oughta Know" src="https://m.media-amazon.com/images/I/41a4lQbT2aL._SL500_.jpg"/></a>
 
 
 The **"I should have known that! - A Trivia Game About Things You Oughta Know"** is perfect for **trivia enthusiasts**, families, and social groups looking to challenge their knowledge in a fun and engaging way. Ideal for those who enjoy **learning new facts** while spending quality time with friends or family, this game is suitable for players of various ages who appreciate a lighthearted yet educational pastime.
@@ -47,10 +47,10 @@ This trivia game stands out with its thoughtful design and user-friendly size, m
 
 Beyond its physical attributes, the game’s core feature lies in its content, which challenges players' general knowledge on a variety of everyday topics. This not only makes it an entertaining activity but also a subtle educational tool that broadens players' horizons. The balance of fun and learning makes it a great choice for mixed-age groups, fostering interaction and shared experiences.
 
-## <a href="https://www.amazon.com/dp/B000FGECAI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Educational Insights Kanoodle 3d Brain Teaser Puzzle Game</a>
+## <a href="https://www.amazon.com/dp/B000FGECAI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Educational Insights Kanoodle 3d Brain Teaser Puzzle Game</a>
 
 
-<a href="https://www.amazon.com/dp/B000FGECAI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Educational Insights Kanoodle 3D Brain Teaser Puzzle Game, Featuring 200 Challenges, Easter Basket Stuffers for Kids, Gift for Ages 7+" src="https://m.media-amazon.com/images/I/41o+miqQGmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000FGECAI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Educational Insights Kanoodle 3D Brain Teaser Puzzle Game, Featuring 200 Challenges, Easter Basket Stuffers for Kids, Gift for Ages 7+" src="https://m.media-amazon.com/images/I/41o+miqQGmL._SL500_.jpg"/></a>
 
 
 The **Educational Insights Kanoodle 3D Brain Teaser Puzzle Game** is perfect for children aged 7 and above who enjoy challenging their minds and developing critical thinking skills. This game is an excellent choice for parents, educators, and gift-givers looking for a fun and educational activity that encourages problem-solving and spatial reasoning.
@@ -73,10 +73,10 @@ The **Kanoodle 3D Brain Teaser Puzzle Game** offers a diverse range of brain cha
 
 Beyond entertainment, this puzzle game significantly benefits cognitive development by promoting **logical thinking, problem-solving abilities, and spatial reasoning**. It encourages patience and perseverance as kids work through each challenge. Overall, the Educational Insights Kanoodle is an engaging, educational tool that combines fun with learning, making it a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0DBYMXMQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Offelec Wooden Solitaire Board Game</a>
+## <a href="https://www.amazon.com/dp/B0DBYMXMQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Offelec Wooden Solitaire Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DBYMXMQF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Offelec Wooden Solitaire Board Game with 33 Piece Black Glass Marbles Classic One Player Gameplay Strategy Puzzle Board Games Kids &amp; Adults Fun Family Tabletop Toys, Birthday Gift,Table Games" src="https://m.media-amazon.com/images/I/41bxh40FoJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DBYMXMQF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Offelec Wooden Solitaire Board Game with 33 Piece Black Glass Marbles Classic One Player Gameplay Strategy Puzzle Board Games Kids &amp; Adults Fun Family Tabletop Toys, Birthday Gift,Table Games" src="https://m.media-amazon.com/images/I/41bxh40FoJL._SL500_.jpg"/></a>
 
 
 The **Offelec Wooden Solitaire Board Game** is ideal for individuals who enjoy classic strategy and puzzle games, particularly those looking for a challenging yet engaging single-player experience. It is perfect for both **kids and adults** seeking a fun and stimulating pastime that can be played solo or as a relaxing family activity. This game also makes an excellent **birthday gift** or addition to any **table games** collection.
@@ -99,10 +99,10 @@ The **Offelec Wooden Solitaire Board Game** features a beautifully crafted woode
 
 Designed for both entertainment and mental exercise, this classic **strategy puzzle board game** suits a wide age range, making it an excellent choice for family fun or solo relaxation. Its elegant black finish adds a sophisticated look to any game collection, while the durable materials ensure long-lasting use. Whether for a casual play session or a thoughtful gift, the Offelec Solitaire Board Game offers a timeless challenge that continues to captivate players of all ages.
 
-## <a href="https://www.amazon.com/dp/B07YQ641NQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wingspan</a>
+## <a href="https://www.amazon.com/dp/B07YQ641NQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wingspan</a>
 
 
-<a href="https://www.amazon.com/dp/B07YQ641NQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Stonemaier Games: Wingspan (Base Game) by Elizabeth Hargrave | A Relaxing, Award-Winning Strategy Board Game About Birds for Adults and Family | 1-5 Players, 70 Mins, Ages 14+" src="https://m.media-amazon.com/images/I/41+vpBhpyaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07YQ641NQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Stonemaier Games: Wingspan (Base Game) by Elizabeth Hargrave | A Relaxing, Award-Winning Strategy Board Game About Birds for Adults and Family | 1-5 Players, 70 Mins, Ages 14+" src="https://m.media-amazon.com/images/I/41+vpBhpyaL._SL500_.jpg"/></a>
 
 
 **Wingspan** by **Stonemaier Games** is ideal for board game enthusiasts who enjoy a relaxing yet strategic experience that can be shared with family or friends. Perfect for adults and players aged 14 and above, this award-winning game is suited for those who appreciate nature-themed gameplay and want to explore the fascinating world of birds through thoughtful decision-making. Whether you're a casual gamer or a seasoned strategist, Wingspan offers a captivating solo or group play experience for 1 to 5 players.
@@ -125,10 +125,10 @@ Designed for both entertainment and mental exercise, this classic **strategy puz
 
 With its balanced gameplay for 1 to 5 players, Wingspan encourages thoughtful planning and resource management while fostering an appreciation for ornithology. The game's mixed colours and compact design make it visually appealing and convenient to store. Overall, Wingspan is a rewarding experience for those seeking a strategic board game that combines education, beauty, and engaging play.
 
-## <a href="https://www.amazon.com/dp/B07CN6XBKJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Choose Your Own Adventure: House Of Danger Board Game</a>
+## <a href="https://www.amazon.com/dp/B07CN6XBKJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Choose Your Own Adventure: House Of Danger Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07CN6XBKJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Choose Your Own Adventure: House of Danger Board Game - Embark on a Perilous Journey in this Cooperative Narrative Adventure, Ages 10+, 1+ Players, 1+ Hour Playtime" src="https://m.media-amazon.com/images/I/51LQG30UIPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07CN6XBKJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Choose Your Own Adventure: House of Danger Board Game - Embark on a Perilous Journey in this Cooperative Narrative Adventure, Ages 10+, 1+ Players, 1+ Hour Playtime" src="https://m.media-amazon.com/images/I/51LQG30UIPL._SL500_.jpg"/></a>
 
 
 The **Asmodee Choose Your Own Adventure: House of Danger Board Game** is perfect for fans of immersive storytelling and cooperative gameplay. Ideal for players aged 10 and above who enjoy narrative-driven experiences, this game suits families, friends, and solo players looking for an engaging adventure that can be played in about an hour. If you love making choices that influence the story and enjoy working together to overcome challenges, this game is a great fit.
@@ -151,10 +151,10 @@ This board game from **Z-Man Games** and **Asmodee** offers a unique blend of st
 
 The game's mechanics encourage players to immerse themselves in the story, promoting critical thinking and teamwork. Whether playing solo or with others, the **Choose Your Own Adventure** format ensures that no two playthroughs are exactly the same, providing plenty of excitement and suspense. While the playtime extends beyond an hour, the rich narrative and dynamic gameplay make it well worth the investment for anyone looking to dive into a perilous and captivating adventure.
 
-## <a href="https://www.amazon.com/dp/B0DSJF4PWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lartoys Rope Untangling Puzzle Game</a>
+## <a href="https://www.amazon.com/dp/B0DSJF4PWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lartoys Rope Untangling Puzzle Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSJF4PWB?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="lartoys Rope Untangling Puzzle Game, Educational Strategy Board Game for Kids &amp; Adults, Family Travel Party Games with Multi-Level Challenges, Gifts for All Ages(Large)" src="https://m.media-amazon.com/images/I/51FxME-pC7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSJF4PWB?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="lartoys Rope Untangling Puzzle Game, Educational Strategy Board Game for Kids &amp; Adults, Family Travel Party Games with Multi-Level Challenges, Gifts for All Ages(Large)" src="https://m.media-amazon.com/images/I/51FxME-pC7L._SL500_.jpg"/></a>
 
 
 The **Lartoys Rope Untangling Puzzle Game** is ideal for both **kids and adults** who enjoy challenging their minds with **educational strategy board games**. Perfect for family gatherings, travel, or parties, this game is designed for those looking to enhance their problem-solving skills while having fun. It is especially suitable for anyone interested in multi-level challenges that stimulate critical thinking and patience.
@@ -177,10 +177,10 @@ This **educational strategy board game** features a compact design measuring 7.6
 
 Beyond entertainment, the game offers significant benefits such as improving hand-eye coordination and boosting mental agility. The **Lartoys Rope Untangling Puzzle Game** serves as a perfect gift for individuals of all ages who love brain teasers, making it a versatile addition to any game collection. Its lightweight and portable nature make it an excellent companion for travel, ensuring that fun and learning continue wherever you go.
 
-## <a href="https://www.amazon.com/dp/B0CGCC7C8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Botany Board Game</a>
+## <a href="https://www.amazon.com/dp/B0CGCC7C8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Botany Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CGCC7C8C?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Botany Board Game | Family Strategy Game for Young Botanists and Adults | Ages 8+ | for 1-5 Players | Average Playtime 45-90 mins | Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51gBj7ua6LL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CGCC7C8C?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Botany Board Game | Family Strategy Game for Young Botanists and Adults | Ages 8+ | for 1-5 Players | Average Playtime 45-90 mins | Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51gBj7ua6LL._SL500_.jpg"/></a>
 
 
 The **Botany Board Game** is ideal for families and individuals who enjoy strategic gameplay combined with a love for nature. Perfect for both **young botanists** aged 8 and above and adults, this game offers an engaging experience for 1 to 5 players. If you’re looking for a fun and educational activity that sparks curiosity about plants while encouraging critical thinking, this game is a great choice for your **family game night**.
@@ -204,10 +204,10 @@ The **Botany Board Game** combines educational elements with strategic challenge
 
 Manufactured by **Dux Somnium**, the game boasts quality construction and a vibrant **multicolor** design that appeals to all ages. Its dimensions make it easy to set up and store, so you can bring it out for spontaneous gaming sessions or planned family nights. Overall, this game offers a balanced mix of education, strategy, and fun, making it a valuable choice for anyone interested in plants and interactive gameplay.
 
-## <a href="https://www.amazon.com/dp/B0CLPLPPLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dreams</a>
+## <a href="https://www.amazon.com/dp/B0CLPLPPLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dreams</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLPLPPLX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="in Dreams - a Slightly Surreal Storytelling Game for one Player (14+)" src="https://m.media-amazon.com/images/I/41nrVrreVHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLPLPPLX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="in Dreams - a Slightly Surreal Storytelling Game for one Player (14+)" src="https://m.media-amazon.com/images/I/41nrVrreVHL._SL500_.jpg"/></a>
 
 
 **In Dreams - a Slightly Surreal Storytelling Game for one Player (14+)** is ideal for creative individuals who enjoy immersive solo gameplay and appreciate unique narrative experiences. This game is perfect for those who love to explore imaginative worlds through storytelling and prefer a thoughtful, introspective gaming session. If you are someone who values artistic expression and surreal themes in your games, this title from **Giga Mech Games** is an excellent choice.
@@ -230,10 +230,10 @@ The **In Dreams** game offers a distinctive approach by blending storytelling wi
 
 With its focus on solo play, the game ensures that every session is a personal journey, allowing players to dive deep into their own thoughts and creativity. The combination of a surreal theme and a straightforward format makes it an excellent tool for those who want to explore new ways of engaging with stories. This game stands out as a thoughtful, artistic experience from **Giga Mech Games** that invites players to dream a little differently.
 
-## <a href="https://www.amazon.com/dp/B0BSJ1XGN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Brain Game To Go</a>
+## <a href="https://www.amazon.com/dp/B0BSJ1XGN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Brain Game To Go</a>
 
 
-<a href="https://www.amazon.com/dp/B0BSJ1XGN3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimension: The Brain Game to Go | Brainteasers |Puzzles| Solo Games | 1 Player | Dimension | Stacking Game | Kosmos Game" src="https://m.media-amazon.com/images/I/51S6N9+SBnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BSJ1XGN3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dimension: The Brain Game to Go | Brainteasers |Puzzles| Solo Games | 1 Player | Dimension | Stacking Game | Kosmos Game" src="https://m.media-amazon.com/images/I/51S6N9+SBnL._SL500_.jpg"/></a>
 
 
 The **Dimension: The Brain Game to Go** by **Thames & Kosmos** is ideal for puzzle enthusiasts and solo players seeking a compact, challenging, and engaging brainteaser. Perfect for individuals who enjoy **stacking games** and want to sharpen their problem-solving skills on the go, this game is suited for those who appreciate mental stimulation in a convenient, portable format.
@@ -255,10 +255,10 @@ The **Dimension: The Brain Game to Go** features a thoughtfully designed stackin
 
 Additionally, the game's dark blue color and sturdy build quality from **Thames & Kosmos** ensure durability and aesthetic appeal. Its solo gameplay aspect lets users focus deeply on solving puzzles without distractions, making it an excellent choice for those looking to improve concentration and problem-solving abilities. Overall, this game combines portability, challenge, and educational value in a sleek package.
 
-## <a href="https://www.amazon.com/dp/B01NBIJZAN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmadi Games One Deck Dungeon</a>
+## <a href="https://www.amazon.com/dp/B01NBIJZAN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmadi Games One Deck Dungeon</a>
 
 
-<a href="https://www.amazon.com/dp/B01NBIJZAN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmadi Games One Deck Dungeon, For 168 months to 9600 months" src="https://m.media-amazon.com/images/I/51r8neS2p6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01NBIJZAN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmadi Games One Deck Dungeon, For 168 months to 9600 months" src="https://m.media-amazon.com/images/I/51r8neS2p6L._SL500_.jpg"/></a>
 
 
 The **Asmadi Games One Deck Dungeon** is ideal for board game enthusiasts aged between **168 months to 9600 months** who enjoy fast-paced, strategic dungeon crawling experiences. Perfect for both casual players and seasoned gamers, this game offers a compact yet immersive adventure that fits easily into any game collection.

@@ -23,10 +23,10 @@ Phase 10 brings strategy and fun for all ages. Oh Crud and Tapped offer laughter
 
 
 
-## <a href="https://www.amazon.com/dp/B00000IV35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playmonster Five Crowns</a>
+## <a href="https://www.amazon.com/dp/B00000IV35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Playmonster Five Crowns</a>
 
 
-<a href="https://www.amazon.com/dp/B00000IV35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PlayMonster Five Crowns — The Game Isn't Over Until the Kings Go Wild! — 5 Suited Rummy-Style Card Game — For Ages 8+" src="https://m.media-amazon.com/images/I/51LOnrPPuoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00000IV35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="PlayMonster Five Crowns — The Game Isn't Over Until the Kings Go Wild! — 5 Suited Rummy-Style Card Game — For Ages 8+" src="https://m.media-amazon.com/images/I/51LOnrPPuoL._SL500_.jpg"/></a>
 
 
 The **PlayMonster Five Crowns** card game is ideal for families and friends looking for a fun, engaging activity that challenges the mind and brings everyone together. Suitable for players aged **8 and up**, this game is perfect for those who enjoy **rummy-style card games** with a twist, offering excitement for both beginners and experienced players alike. If you want a colorful, strategic, and easy-to-learn game to add to your collection, this is the perfect choice.
@@ -49,10 +49,10 @@ The **PlayMonster Five Crowns** game stands out with its unique five-suit deck, 
 
 Additionally, the game’s compact size and lightweight design make it a convenient choice for family game nights, road trips, or casual gatherings. The **Family Edition** ensures that the game fosters bonding and fun across different age groups, making it a versatile addition to any game collection. Overall, PlayMonster has created a well-balanced game that combines simplicity, strategy, and social engagement seamlessly.
 
-## <a href="https://www.amazon.com/dp/B000BBU0KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dutch Blitz</a>
+## <a href="https://www.amazon.com/dp/B000BBU0KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dutch Blitz</a>
 
 
-<a href="https://www.amazon.com/dp/B000BBU0KS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dutch Blitz - Fast Paced Card Game for 2-4 Players Ages 8+, 160 Cards, Easy to Learn" src="https://m.media-amazon.com/images/I/514BJDHRjuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000BBU0KS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dutch Blitz - Fast Paced Card Game for 2-4 Players Ages 8+, 160 Cards, Easy to Learn" src="https://m.media-amazon.com/images/I/514BJDHRjuL._SL500_.jpg"/></a>
 
 
 The **Dutch Blitz - Fast Paced Card Game** is ideal for families and friends looking for an exciting and engaging way to spend time together. Designed for **2-4 players ages 8+**, this game is perfect for children, teens, and adults who enjoy quick thinking and fast reflexes. If you want a game that is easy to learn but challenging to master, Dutch Blitz is a fantastic choice.
@@ -75,10 +75,10 @@ The **Dutch Blitz card game** features vibrant, easy-to-read cards that contribu
 
 With its lightweight design and compact dimensions, this game is highly portable, allowing you to bring the excitement wherever you go. Whether at home, on a road trip, or during a picnic, Dutch Blitz offers endless entertainment. The combination of fast-paced action and easy-to-learn mechanics ensures that every game session is thrilling and keeps players coming back for more.
 
-## <a href="https://www.amazon.com/dp/B00NQQTZCO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Deal Card Game</a>
+## <a href="https://www.amazon.com/dp/B00NQQTZCO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Deal Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00NQQTZCO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Deal Card Game, Quick-Playing Family Game, 2-5 Players, Fun Summer Activities, Vacation Travel Essentials, Ages 8+" src="https://m.media-amazon.com/images/I/51seJyD0-UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NQQTZCO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Deal Card Game, Quick-Playing Family Game, 2-5 Players, Fun Summer Activities, Vacation Travel Essentials, Ages 8+" src="https://m.media-amazon.com/images/I/51seJyD0-UL._SL500_.jpg"/></a>
 
 
 The **Monopoly Deal Card Game** is ideal for families and friends looking for a **quick, engaging game** that can be played anywhere. Designed for **2-5 players** aged **8+**, it’s perfect for those who enjoy classic **Monopoly** but want a faster-paced alternative. This game is also great for **summer activities** and **vacation travel essentials**, making it a versatile choice for on-the-go fun.
@@ -101,10 +101,10 @@ The **Monopoly Deal Card Game** features a compact design with dimensions of 5.6
 
 One of the standout features of this game is its **quick-playing format**, which allows players to experience the excitement of **property trading and rent collection** without the lengthy commitment of the traditional board game. This promotes fast decision-making and keeps all players actively involved, ensuring the game remains fun and dynamic. The easy-to-understand rules and engaging mechanics make it an excellent choice for both children and adults alike.
 
-## <a href="https://www.amazon.com/dp/B07Y98T14Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Phase 10 Card Game</a>
+## <a href="https://www.amazon.com/dp/B07Y98T14Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Phase 10 Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07Y98T14Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games Phase 10 Card Game with 108 Cards, Makes a Great Gift for Kids, Family or Adult Game Night, Ages 7 Years and Older" src="https://m.media-amazon.com/images/I/41maEsADmCL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07Y98T14Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games Phase 10 Card Game with 108 Cards, Makes a Great Gift for Kids, Family or Adult Game Night, Ages 7 Years and Older" src="https://m.media-amazon.com/images/I/41maEsADmCL._SL500_.jpg"/></a>
 
 
 The **Mattel Games Phase 10 Card Game** is ideal for families, kids aged 7 years and older, and groups of friends looking for a fun and engaging game night. This game is perfect for those who enjoy strategy-based card games that challenge players to complete phases and score points. Whether you are seeking a gift for children, a family-friendly activity, or a lively adult game night, this card game fits the bill perfectly.
@@ -126,10 +126,10 @@ The **Mattel Games Phase 10 Card Game** features 108 multicolor cards designed t
 
 Additionally, the game's compact size and lightweight design make it highly portable, perfect for family trips or social gatherings. The diverse age range compatibility fosters inclusive fun, allowing family members and friends of different generations to bond over a shared activity. Overall, this card game offers a perfect blend of challenge, entertainment, and convenience for game enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B07GQVP4YJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oh Crud Card And Dice Game</a>
+## <a href="https://www.amazon.com/dp/B07GQVP4YJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Oh Crud Card And Dice Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07GQVP4YJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oh Crud Card and Dice Game, Family Game for 2-6 Players, Adults, Teens, Kids, Easy-to-Learn, Strategy, Great for Friends and Families - Ghetti Games" src="https://m.media-amazon.com/images/I/51mv0U4cuFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07GQVP4YJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Oh Crud Card and Dice Game, Family Game for 2-6 Players, Adults, Teens, Kids, Easy-to-Learn, Strategy, Great for Friends and Families - Ghetti Games" src="https://m.media-amazon.com/images/I/51mv0U4cuFL._SL500_.jpg"/></a>
 
 
 The **Oh Crud Card and Dice Game** by **Ghetti Games** is perfect for **families**, **friends**, and anyone looking for an **easy-to-learn** yet **strategic** game. Ideal for **2-6 players** including **adults**, **teens**, and **kids**, this game offers engaging entertainment that brings people together for fun and friendly competition. If you enjoy **interactive games** that combine chance and strategy, this game is a great addition to your collection.
@@ -153,10 +153,10 @@ The **Oh Crud Card and Dice Game** features a vibrant **multicolor design** that
 
 Designed by **Ghetti Games**, this game balances simplicity with strategic gameplay, making it accessible for younger players while still appealing to adults looking for a quick, entertaining challenge. Its ability to accommodate **2-6 players** makes it versatile for various group sizes, ensuring that everyone can join in. The game's easy-to-understand rules ensure that setup and playtime are smooth, encouraging repeated play and social interaction among friends and family.
 
-## <a href="https://www.amazon.com/dp/B08BX8RW1Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tapped Four Card Game</a>
+## <a href="https://www.amazon.com/dp/B08BX8RW1Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tapped Four Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B08BX8RW1Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tapped Four Card Game, 2 to 8 Players - Strategy, Luck, Laughter, Nonstop Fun for Family and Friends" src="https://m.media-amazon.com/images/I/41EJ8ZKjUhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08BX8RW1Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tapped Four Card Game, 2 to 8 Players - Strategy, Luck, Laughter, Nonstop Fun for Family and Friends" src="https://m.media-amazon.com/images/I/41EJ8ZKjUhL._SL500_.jpg"/></a>
 
 
 The **Tapped Four Card Game** is ideal for families and groups of friends looking for an engaging and entertaining way to spend time together. Designed for **2 to 8 players**, this game perfectly suits those who enjoy a blend of **strategy, luck, and laughter** in a social setting. Whether you are hosting a game night or seeking a fun activity for gatherings, this game offers nonstop fun for players of all ages.
@@ -179,10 +179,10 @@ The **Tapped Four Card Game** by **GameNite** stands out with its combination of
 
 Beyond just fun, the game promotes critical thinking and social interaction, encouraging players to plan their moves while also enjoying moments of spontaneous laughter. The balance between strategy and luck makes it accessible to a wide range of players, from casual gamers to those who enjoy a tactical challenge. Overall, the **Tapped Four Card Game** delivers a well-rounded and enjoyable experience that fosters connection and friendly competition among family and friends.
 
-## <a href="https://www.amazon.com/dp/B0BFP3YBPR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slapburger Card Game</a>
+## <a href="https://www.amazon.com/dp/B0BFP3YBPR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Slapburger Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0BFP3YBPR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slapburger Card Game - Fast-Paced Kids and Family Games for Ages 4 and Up - Fun Card Game for Birthdays, Classroom, Camping, Game Night &amp; Friends - Easy to Play, 2 to 6 Players, 15 Minutes Playtime" src="https://m.media-amazon.com/images/I/51u2JKKMviL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BFP3YBPR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Slapburger Card Game - Fast-Paced Kids and Family Games for Ages 4 and Up - Fun Card Game for Birthdays, Classroom, Camping, Game Night &amp; Friends - Easy to Play, 2 to 6 Players, 15 Minutes Playtime" src="https://m.media-amazon.com/images/I/51u2JKKMviL._SL500_.jpg"/></a>
 
 
 The **Slapburger Card Game** is perfect for families, young children aged 4 and up, and groups of friends looking for a fast-paced and engaging activity. Ideal for birthday parties, classrooms, camping trips, or game nights, this game appeals to those who want a simple yet exciting card game that can accommodate 2 to 6 players and be played in just 15 minutes. If you're seeking an easy-to-learn game that encourages quick thinking and lots of laughs, this is an excellent choice.
@@ -206,10 +206,10 @@ The **Slapburger Card Game** stands out due to its combination of simplicity and
 
 Furthermore, the game's compact dimensions and lightweight construction from the manufacturer **Donut & Lola** mean it can easily fit into backpacks or purses, making it ideal for travel, camping, or classroom activities. Whether you're looking to teach young kids about quick decision-making or just want a lively game night filler, the **Slapburger Card Game** offers a perfect blend of fun, speed, and convenience.
 
-## <a href="https://www.amazon.com/dp/B015HQYDJU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disturbed Friends Party Game</a>
+## <a href="https://www.amazon.com/dp/B015HQYDJU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Disturbed Friends Party Game</a>
 
 
-<a href="https://www.amazon.com/dp/B015HQYDJU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disturbed Friends Party Game - Find Out Who Your Friends are! Hilarious Card Game for Adults, Friends, Family, College Students, Fun Parties and Board Games Night with Your Group" src="https://m.media-amazon.com/images/I/41QqH-2iQ4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015HQYDJU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Disturbed Friends Party Game - Find Out Who Your Friends are! Hilarious Card Game for Adults, Friends, Family, College Students, Fun Parties and Board Games Night with Your Group" src="https://m.media-amazon.com/images/I/41QqH-2iQ4L._SL500_.jpg"/></a>
 
 
 The **Disturbed Friends Party Game** is perfect for adults, friends, family members, and college students who enjoy lively gatherings and want to add a humorous twist to their game nights. If you love engaging, interactive games that reveal fun and surprising sides of your friends, this card game is an excellent choice to break the ice and create memorable moments. Ideal for **fun parties**, **board game nights**, and casual hangouts, it encourages laughter and connection among participants.
@@ -232,10 +232,10 @@ The **Disturbed Friends Party Game** features a set of colorful cards designed t
 
 Each round challenges players to answer questions or complete prompts that uncover the true nature of their friendships in a playful way. This not only fosters deeper connections but also guarantees a night filled with jokes, teasing, and shared stories. The game's versatility and ease of setup mean it can quickly become a staple at your **board games night** or social events, enhancing group dynamics and ensuring no dull moments.
 
-## <a href="https://www.amazon.com/dp/B0077Q0NP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grandpa Beck's Games Cover Your Assets Card Game</a>
+## <a href="https://www.amazon.com/dp/B0077Q0NP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Grandpa Beck's Games Cover Your Assets Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0077Q0NP2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Grandpa Beck's Games Cover Your Assets Card Game | from The Creators of Skull King | Easy to Learn and Outrageously Fun for Kids, Teens, &amp; Adults | 2-6 Players Ages 7+" src="https://m.media-amazon.com/images/I/51QWgE52o6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0077Q0NP2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Grandpa Beck's Games Cover Your Assets Card Game | from The Creators of Skull King | Easy to Learn and Outrageously Fun for Kids, Teens, &amp; Adults | 2-6 Players Ages 7+" src="https://m.media-amazon.com/images/I/51QWgE52o6L._SL500_.jpg"/></a>
 
 
 Ideal for families and groups of friends looking for a lively and engaging card game, the **Grandpa Beck's Games Cover Your Assets Card Game** is perfect for players aged 7 and up. Whether you're a kid, teen, or adult, this game offers an easy-to-learn yet highly entertaining experience for 2-6 players, making it a fantastic choice for game nights and social gatherings.
@@ -257,10 +257,10 @@ The **Cover Your Assets Card Game** features a vibrant multicolor design and com
 
 With its easy-to-understand gameplay, this card game provides a perfect balance of challenge and amusement. The game's design promotes social interaction, laughter, and friendly competition, making it a memorable experience for players of varying skill levels. Whether you're introducing younger players to the world of card games or looking for an entertaining pastime with friends, **Grandpa Beck's Games Cover Your Assets** delivers hours of outrageously fun entertainment.
 
-## <a href="https://www.amazon.com/dp/B0BRT572WH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dumb Ways To Die</a>
+## <a href="https://www.amazon.com/dp/B0BRT572WH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dumb Ways To Die</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRT572WH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, Dumb Ways to Die, The Viral Meme Card Game from YouTube and TikTok, Survival Strategy Fun, 2-5 Players, for Ages 12 &amp; Up" src="https://m.media-amazon.com/images/I/515-RU42IpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRT572WH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, Dumb Ways to Die, The Viral Meme Card Game from YouTube and TikTok, Survival Strategy Fun, 2-5 Players, for Ages 12 &amp; Up" src="https://m.media-amazon.com/images/I/515-RU42IpL._SL500_.jpg"/></a>
 
 
 The **Spin Master Games, Dumb Ways to Die** card game is ideal for fans of the viral meme who enjoy lighthearted yet strategic gameplay. Perfect for groups of 2-5 players aged 12 and up, this game suits families, friends, and meme enthusiasts looking for a fun, survival strategy challenge inspired by popular content from **YouTube** and **TikTok**.

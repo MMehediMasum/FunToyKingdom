@@ -46,7 +46,7 @@ Avoid thin or soft cardboard. Corrugated cardboard with a wavy middle layer work
 
 Besides cardboard, you need some tools and extra items. These supplies help you cut, stick, and decorate your bridge.
 
-* Scissors or a [craft knife](https://www.amazon.com/s?k=craft+knife&tag=gearcookware-20) for cutting cardboard
+* Scissors or a [craft knife](https://www.amazon.com/s?k=craft+knife&tag=mofb05-20) for cutting cardboard
 * Glue or tape to join pieces together
 * Ruler and pencil for measuring and marking
 * Paint or markers to add color and designs
@@ -97,7 +97,7 @@ Always cut on a flat, stable surface to stay safe. Use a sharp craft knife for c
 
 Keep your fingers away from the blade. Cut slowly and follow your lines carefully to avoid slips.
 
-* Use a [cutting mat](https://www.amazon.com/s?k=cutting+mat&tag=gearcookware-20) or thick cardboard underneath
+* Use a [cutting mat](https://www.amazon.com/s?k=cutting+mat&tag=mofb05-20) or thick cardboard underneath
 * Hold the blade firmly and cut in one smooth motion
 * Wear safety gloves if needed to protect your hands
 * Keep your work area well-lit and tidy
@@ -123,7 +123,7 @@ Follow simple steps to put the pieces together. Use the right tools for better r
 
 ### Gluing And Taping Tips
 
-Use [strong glue](https://www.amazon.com/s?k=strong+craft+glue&tag=gearcookware-20) to join cardboard parts firmly. Apply glue evenly for a better bond.
+Use [strong glue](https://www.amazon.com/s?k=strong+craft+glue&tag=mofb05-20) to join cardboard parts firmly. Apply glue evenly for a better bond.
 
 Reinforce edges with tape to stop pieces from moving. Clear tape works well for neatness.
 
@@ -157,7 +157,7 @@ Creative decoration also helps the bridge look realistic and unique. Let’s exp
 
 Painting your cardboard bridge gives it a strong and lively look. Use bright colors or natural tones to fit your style.
 
-[Water-based paints](https://www.amazon.com/s?k=water-based+acrylic+paints&tag=gearcookware-20) work well on cardboard and dry quickly. You can also use markers or colored pencils for smaller parts.
+[Water-based paints](https://www.amazon.com/s?k=water-based+acrylic+paints&tag=mofb05-20) work well on cardboard and dry quickly. You can also use markers or colored pencils for smaller parts.
 
 * Apply a base coat for better paint coverage
 * Use tape to create clean lines and shapes
@@ -188,7 +188,7 @@ Children can learn and have fun at the same time. This bridge project makes imag
 Not all toy cars will fit on your bridge. It's important to check which cars work best. This ensures smooth play and prevents frustration.
 
 * Check the width of the bridge
-* Match the size of [toy cars](https://www.amazon.com/s?k=diecast+toy+cars&tag=gearcookware-20)
+* Match the size of [toy cars](https://www.amazon.com/s?k=diecast+toy+cars&tag=mofb05-20)
 * Use lightweight cars for stability
 
 ### Creative Play Suggestions

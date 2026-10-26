@@ -23,10 +23,10 @@ These captivating toys capture the essence of iconic superheroes. The Marvel Ave
 
 
 
-## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
+## <a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Ultimate Protectors Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BS4GVV4D?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Ultimate Protectors Pack, 6-Inch-Scale, 8 Action Figures with Accessories, Super Hero Toys, Toys for Boys and Girls Ages 4 and Up" src="https://m.media-amazon.com/images/I/5188kyED1rL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Ultimate Protectors Pack** is perfect for young fans aged 4 and up who love superhero adventures. Whether your child is a devoted **Marvel** enthusiast or just beginning to explore the superhero world, this set offers an exciting way to engage in imaginative play. It's ideal for both boys and girls who enjoy collecting action figures and creating their own epic battles and stories.
@@ -49,10 +49,10 @@ The **Marvel Avengers Ultimate Protectors Pack** features eight intricately desi
 
 Designed with attention to detail, the figures capture the essence of beloved Avengers characters in a sleek black color scheme, which adds a cool and modern aesthetic. The pack’s dimensions—12.52 inches in height, 13.504 inches in width, and 2.008 inches in length—make it compact enough for storage while offering a substantial collection to spark creativity. This set not only provides fun but also helps develop fine motor skills and imaginative thinking in young users.
 
-## <a href="https://www.amazon.com/dp/B011MIV3EU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Playskool Heroes Super Hero Adventures Ultimate Set</a>
+## <a href="https://www.amazon.com/dp/B011MIV3EU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Playskool Heroes Super Hero Adventures Ultimate Set</a>
 
 
-<a href="https://www.amazon.com/dp/B011MIV3EU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Playskool Heroes Super Hero Adventures Ultimate Set, 10 Collectible 2.5-Inch Action Figures, Toys for Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51JGVPXHFNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B011MIV3EU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Playskool Heroes Super Hero Adventures Ultimate Set, 10 Collectible 2.5-Inch Action Figures, Toys for Kids Ages 3 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51JGVPXHFNL._SL500_.jpg"/></a>
 
 
 The **Marvel Playskool Heroes Super Hero Adventures Ultimate Set** is perfect for young fans of **Marvel superheroes** aged 3 and up who love engaging in imaginative play. This set is ideal for parents and gift-givers looking for a fun, durable, and collectible toy that encourages creativity and storytelling in children. If your child enjoys superhero adventures and action figures, this Amazon Exclusive set offers a fantastic way to expand their collection with popular characters.
@@ -74,10 +74,10 @@ This **Ultimate Set** features ten highly detailed and colorful figures, each st
 
 Beyond just fun, these action figures help develop fine motor skills and encourage creative storytelling. The variety of characters included offers opportunities for social play when shared with siblings or friends. Being an Amazon Exclusive, this set is a unique addition to any Marvel collection, making it a thoughtful gift for birthdays or holidays. Overall, the Marvel Playskool Heroes Super Hero Adventures Ultimate Set combines quality, entertainment, and educational value in one appealing package.
 
-## <a href="https://www.amazon.com/dp/B0CQCXT239?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Mighty-verse Collection Series 1 Multipack</a>
+## <a href="https://www.amazon.com/dp/B0CQCXT239?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Mighty-verse Collection Series 1 Multipack</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQCXT239?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Mighty-Verse Collection Series 1 Multipack, Collectible 2.5-Inch-Scale (6 cm) Action Figure Set, Super Hero Toys, Kids Ages 4 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41og1YgvzdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQCXT239?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Mighty-Verse Collection Series 1 Multipack, Collectible 2.5-Inch-Scale (6 cm) Action Figure Set, Super Hero Toys, Kids Ages 4 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/41og1YgvzdL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Mighty-Verse Collection Series 1 Multipack** is perfect for **young Marvel fans** and **collectors** alike, especially children aged 4 and up who love engaging with their favorite superheroes. This **Amazon Exclusive** set offers a fantastic way for kids to immerse themselves in the Marvel universe while also appealing to collectors looking to expand their **action figure** collection with authentic, detailed pieces from **Hasbro**.
@@ -99,10 +99,10 @@ The **Marvel Avengers Mighty-Verse Collection Series 1 Multipack** stands out fo
 
 Thanks to the multipack format, users receive a diverse set of characters in one purchase, encouraging imaginative play and storytelling. The figures’ durable build means they can withstand active play sessions, which is ideal for younger children. Overall, this collection is a thoughtfully crafted product from **Hasbro** that blends fun, quality, and collectibility, making it a smart choice for anyone looking to bring the excitement of the Marvel Avengers into their home.
 
-## <a href="https://www.amazon.com/dp/B0BK9T18DJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Articulated Action Figures Set</a>
+## <a href="https://www.amazon.com/dp/B0BK9T18DJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Articulated Action Figures Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0BK9T18DJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Articulated Action Figures - 3.75 Inch 9.5cm Hulk, Thor, Iron Man &amp; Captain America Set of All 4 Figures" src="https://m.media-amazon.com/images/I/51EElvH5KNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BK9T18DJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Articulated Action Figures - 3.75 Inch 9.5cm Hulk, Thor, Iron Man &amp; Captain America Set of All 4 Figures" src="https://m.media-amazon.com/images/I/51EElvH5KNL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Articulated Action Figures** set is perfect for **Marvel fans**, collectors, and children who love superhero play. Ideal for those who want to bring the excitement of their favorite characters—**Hulk, Thor, Iron Man, and Captain America**—to life, this set offers both display appeal and interactive fun. If you are looking for a compact, detailed collection that fits easily on shelves or in playrooms, this set is an excellent choice.
@@ -124,10 +124,10 @@ Each figure in this set stands at approximately **3.75 inches (9.5 cm)** tall, m
 
 Crafted by **Toptoys2u Bargain Bundles**, these figures combine durability with flexibility. Whether you're a collector aiming to complete your Marvel universe shelf or a parent looking for engaging toys, the compact dimensions (height: 1.0 inch, width: 5.0 inches, length: 5.0 inches) ensure they fit easily into any space. This makes them ideal for both personal enjoyment and as gifts for Marvel enthusiasts of various ages.
 
-## <a href="https://www.amazon.com/dp/B011MIVMSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Playskool Heroes Captain America Toy Action Figure</a>
+## <a href="https://www.amazon.com/dp/B011MIVMSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Playskool Heroes Captain America Toy Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B011MIVMSC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Playskool Heroes Super Hero Adventures Captain America Super Jungle Squad Toy Action Figure" src="https://m.media-amazon.com/images/I/51PEnD+1lnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B011MIVMSC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Playskool Heroes Super Hero Adventures Captain America Super Jungle Squad Toy Action Figure" src="https://m.media-amazon.com/images/I/51PEnD+1lnL._SL500_.jpg"/></a>
 
 
 The **Marvel Playskool Heroes Super Hero Adventures Captain America Super Jungle Squad Toy Action Figure** is perfect for young fans of the Marvel universe who enjoy imaginative play. This toy is ideal for children who love superheroes, especially those who admire **Captain America** and want to recreate exciting adventures. Parents looking for a durable and engaging action figure to inspire creativity and role-playing will find this a great choice.
@@ -150,10 +150,10 @@ This **Captain America action figure** features a robust build and a compact des
 
 Crafted by **Hasbro** under the **Playskool Heroes** brand, this toy guarantees quality and safety. The figure’s presence in the **Super Jungle Squad** series adds an extra layer of excitement for fans who want to collect and combine characters. Overall, this action figure is a fantastic way to introduce young children to the adventures of **Captain America** while promoting imaginative play.
 
-## <a href="https://www.amazon.com/dp/B0FGX4ZCFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dlocvn Mini Superhero Toys</a>
+## <a href="https://www.amazon.com/dp/B0FGX4ZCFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dlocvn Mini Superhero Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0FGX4ZCFQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DLOCVN Mini Superhero Toys, 26PCS Minifigures Small Action Figures Superhero Party Birthday Decorations for Kids’ Christmas Stocking, Easter Eggs Cake Toppers Collectibles" src="https://m.media-amazon.com/images/I/51mKK+adpWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FGX4ZCFQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="DLOCVN Mini Superhero Toys, 26PCS Minifigures Small Action Figures Superhero Party Birthday Decorations for Kids’ Christmas Stocking, Easter Eggs Cake Toppers Collectibles" src="https://m.media-amazon.com/images/I/51mKK+adpWL._SL500_.jpg"/></a>
 
 
 The **DLOCVN Mini Superhero Toys** are perfect for parents and gift-givers looking to delight young children who love superheroes. Ideal for kids’ birthday parties, Christmas stockings, Easter egg fillers, or as collectible cake toppers, these small action figures are designed for imaginative play and themed celebrations. If you want to add a colorful and exciting touch to your child’s special occasion, this set is a great choice.
@@ -174,10 +174,10 @@ The **DLOCVN Mini Superhero Toys** set features 26 meticulously crafted minifigu
 
 Beyond aesthetics, these small action figures encourage imaginative play and social interaction among children. They can be used as collectibles, encouraging kids to start their own superhero collection, or as fun props during playtime. With a trusted manufacturer like **DLOCVN** behind them, the toys are made with quality materials that withstand regular handling, making them a valuable addition to any child’s toy assortment or party supplies.
 
-## <a href="https://www.amazon.com/dp/B07TP9HR35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Action Figures</a>
+## <a href="https://www.amazon.com/dp/B07TP9HR35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Marvel Avengers Action Figures</a>
 
 
-<a href="https://www.amazon.com/dp/B07TP9HR35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Action Figures - Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine &amp; Falcon! (8)" src="https://m.media-amazon.com/images/I/51p3eKZ3adL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TP9HR35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Marvel Avengers Action Figures - Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine &amp; Falcon! (8)" src="https://m.media-amazon.com/images/I/51p3eKZ3adL._SL500_.jpg"/></a>
 
 
 The **Marvel Avengers Action Figures** set is ideal for collectors, young fans, and enthusiasts of the Marvel Universe who want to bring their favorite superheroes to life. This collection, featuring iconic characters like **Iron Man, Hulk, Black Panther, Captain America, Spider Man, Ant Man, War Machine,** and **Falcon**, is perfect for imaginative play, display, or as a gift for Marvel lovers of all ages.
@@ -200,10 +200,10 @@ This **Marvel Avengers Action Figures** set offers a comprehensive collection of
 
 Beyond playability, these action figures serve as excellent collectibles for Marvel enthusiasts. The collaboration between **Hasbro** and **Transformers** guarantees that each figure meets high standards for durability and craftsmanship. Whether you are adding to an existing collection or starting fresh, this set provides a valuable and exciting way to celebrate some of the most beloved superheroes in pop culture.
 
-## <a href="https://www.amazon.com/dp/B0FFLK7VN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Action Figure Party Favors Set</a>
+## <a href="https://www.amazon.com/dp/B0FFLK7VN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Action Figure Party Favors Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0FFLK7VN2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avengers Action Figure Party Favors Set - Bundle with 8 Superhero Action Figures Iron Man, Spiderman, Captain America, Hulk More Plus Stickers | Avengers Mini Figurines Party Favors for Girls, Boys" src="https://m.media-amazon.com/images/I/51RvcFsu6RL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FFLK7VN2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Avengers Action Figure Party Favors Set - Bundle with 8 Superhero Action Figures Iron Man, Spiderman, Captain America, Hulk More Plus Stickers | Avengers Mini Figurines Party Favors for Girls, Boys" src="https://m.media-amazon.com/images/I/51RvcFsu6RL._SL500_.jpg"/></a>
 
 
 The **Avengers Action Figure Party Favors Set** is perfect for parents, party planners, and Marvel fans looking to add excitement and fun to children’s birthday parties or themed events. Ideal for both girls and boys who love superheroes, this set offers an engaging way to encourage imaginative play and create memorable experiences with their favorite **Avengers characters**.
@@ -225,10 +225,10 @@ Each **Avengers mini figurine** in this party favors set is crafted with attenti
 
 Beyond just party favors, these **Avengers mini action figures** serve as collectible items that children can enjoy long after the celebration ends. The inclusion of themed stickers adds extra fun and allows for customization of goodie bags or party decorations. Being an **officially licensed Marvel** product guarantees quality and authenticity, making this bundle a reliable choice for those seeking durable and visually appealing superhero toys.
 
-## <a href="https://www.amazon.com/dp/B07H9RM686?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Captain America Action Figure Toy</a>
+## <a href="https://www.amazon.com/dp/B07H9RM686?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Avengers Marvel Captain America Action Figure Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B07H9RM686?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -scale="" action="" alt="Avengers Marvel Captain America 6" figure="" hero="" marvel="" src="https://m.media-amazon.com/images/I/41YUu+DsUoL._SL500_.jpg" super="" toy"=""/></a>
+<a href="https://www.amazon.com/dp/B07H9RM686?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -scale="" action="" alt="Avengers Marvel Captain America 6" figure="" hero="" marvel="" src="https://m.media-amazon.com/images/I/41YUu+DsUoL._SL500_.jpg" super="" toy"=""/></a>
 
 
 The **Avengers Marvel Captain America 6"-Scale Marvel Super Hero Action Figure Toy** is ideal for **Marvel enthusiasts, collectors,** and **young fans** who want to bring the excitement of their favorite superhero to life. Perfect for those who appreciate detailed craftsmanship and authentic representation of iconic characters, this figure is a great addition to any collection or a fun toy for imaginative play.
@@ -251,10 +251,10 @@ This **Captain America action figure** stands out with its precise detailing and
 
 Beyond aesthetics, this figure encourages imaginative play and serves as a tangible connection to the Marvel universe. Its scale and design enable fans to recreate iconic scenes or invent new adventures, enhancing entertainment value. While it may lack some articulation features found in larger figures, its overall build quality and authentic branding provide a satisfying experience for users who value both display and playability.
 
-## <a href="https://www.amazon.com/dp/B09PYKMD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poiuyt Super Hero Series Exclusive Figure Set</a>
+## <a href="https://www.amazon.com/dp/B09PYKMD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Poiuyt Super Hero Series Exclusive Figure Set</a>
 
 
-<a href="https://www.amazon.com/dp/B09PYKMD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POIUYT Super Hero Series Exclusive Figure Set, 10 Collectible 6.7-Inch Action Figures" src="https://m.media-amazon.com/images/I/51XppJbefQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09PYKMD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POIUYT Super Hero Series Exclusive Figure Set, 10 Collectible 6.7-Inch Action Figures" src="https://m.media-amazon.com/images/I/51XppJbefQL._SL500_.jpg"/></a>
 
 
 The **POIUYT Super Hero Series Exclusive Figure Set** is perfect for **collectors**, **superhero enthusiasts**, and anyone looking to add a vibrant touch to their action figure collection. Ideal for those who appreciate detailed craftsmanship and want a diverse set of figures, this set offers a great way to showcase your fandom or start a new hobby.

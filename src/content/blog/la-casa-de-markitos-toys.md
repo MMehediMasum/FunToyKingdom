@@ -23,10 +23,10 @@ Its sturdy design ensures long-lasting fun. Parents appreciate the easy-to-assem
 
 
 
-## <a href="https://www.amazon.com/dp/B00N7GZMMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidkraft Pirate's Cove Wooden Ship Play Set</a>
+## <a href="https://www.amazon.com/dp/B00N7GZMMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kidkraft Pirate's Cove Wooden Ship Play Set</a>
 
 
-<a href="https://www.amazon.com/dp/B00N7GZMMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KidKraft Pirate's Cove Wooden Ship Play Set with Lights and Sounds, Pirates and 17-Piece Accessories, Gift for Ages 3+" src="https://m.media-amazon.com/images/I/51jGRNXOSjS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00N7GZMMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="KidKraft Pirate's Cove Wooden Ship Play Set with Lights and Sounds, Pirates and 17-Piece Accessories, Gift for Ages 3+" src="https://m.media-amazon.com/images/I/51jGRNXOSjS._SL500_.jpg"/></a>
 
 
 The **KidKraft Pirate's Cove Wooden Ship Play Set with Lights and Sounds** is an ideal choice for parents and gift-givers looking to inspire imaginative play in children aged 3 and up. This play set is perfect for young pirates who love adventure, storytelling, and interactive toys that engage multiple senses. It suits families seeking a durable, visually appealing, and feature-rich playset that encourages creativity and role-playing.
@@ -49,7 +49,7 @@ The **KidKraft Pirate's Cove Wooden Ship Play Set** features a vibrant and detai
 
 Beyond its entertaining features, the set's **wooden construction** offers a sturdy and safe environment for kids to explore their creativity. The spacious design provides enough room for multiple children to play together, fostering cooperative play and communication. Overall, this play set combines imaginative fun with quality craftsmanship, making it an excellent addition to any child's toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00N7GZMMK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00N7GZMMK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

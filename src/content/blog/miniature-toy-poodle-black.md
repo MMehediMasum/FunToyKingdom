@@ -20,10 +20,10 @@ Despite their small size, they have a big heart and a playful spirit. Their adap
 
 
 
-## <a href="https://www.amazon.com/dp/B07P6ZT359?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mammoth Pet Products Tirebiter Natural Rubber Dog Toys</a>
+## <a href="https://www.amazon.com/dp/B07P6ZT359?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mammoth Pet Products Tirebiter Natural Rubber Dog Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B07P6ZT359?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mammoth Pet Products TireBiter w/Cotton-Poly Rope – Natural Rubber Dog Toys for Extreme Chewers – Dog Toys for Extra Long Interactive Play – Aggressive Chewer Toys for Small Dogs - Small 3.75”, Black" src="https://m.media-amazon.com/images/I/31A6VzEZGoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P6ZT359?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mammoth Pet Products TireBiter w/Cotton-Poly Rope – Natural Rubber Dog Toys for Extreme Chewers – Dog Toys for Extra Long Interactive Play – Aggressive Chewer Toys for Small Dogs - Small 3.75”, Black" src="https://m.media-amazon.com/images/I/31A6VzEZGoL._SL500_.jpg"/></a>
 
 
 The **Mammoth Pet Products TireBiter w/Cotton-Poly Rope** is ideal for owners of **small dogs** who are **aggressive chewers** and need a durable toy to keep their pets engaged for extended periods. If you want a toy that combines toughness with interactive play, this product is designed to withstand intense chewing while promoting healthy activity.
@@ -46,10 +46,10 @@ The **TireBiter w/Cotton-Poly Rope** combines the resilience of **natural rubber
 
 Additionally, its sturdy construction supports **extra long interactive play**, which helps reduce destructive behaviors caused by boredom or anxiety. The black color is practical, concealing dirt and wear, so the toy looks good even after multiple uses. Overall, this product offers a balanced mix of durability, functionality, and engagement perfect for small aggressive chewers.
 
-## <a href="https://www.amazon.com/dp/B0CR4RF6PR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Metal Rescue Black Powder Coated Metal Poodle Dog Silhouette Yard Stake</a>
+## <a href="https://www.amazon.com/dp/B0CR4RF6PR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Metal Rescue Black Powder Coated Metal Poodle Dog Silhouette Yard Stake</a>
 
 
-<a href="https://www.amazon.com/dp/B0CR4RF6PR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="My Metal Rescue Black Powder Coated Metal Poodle Dog Silhouette Yard Stake (Small)" src="https://m.media-amazon.com/images/I/31iq3BoJDqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CR4RF6PR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="My Metal Rescue Black Powder Coated Metal Poodle Dog Silhouette Yard Stake (Small)" src="https://m.media-amazon.com/images/I/31iq3BoJDqL._SL500_.jpg"/></a>
 
 
 The **My Metal Rescue Black Powder Coated Metal Poodle Dog Silhouette Yard Stake (Small)** is ideal for pet lovers, garden enthusiasts, and homeowners looking to add a charming and durable decorative touch to their outdoor spaces. If you appreciate unique, handcrafted metal art that also serves as a subtle nod to your love for poodles or dogs in general, this yard stake is perfect for you. Its compact size makes it suitable for small gardens, flower beds, or patios.
@@ -72,10 +72,10 @@ The **My Metal Rescue Poodle Yard Stake** features a sleek black powder coating 
 
 Beyond its visual appeal, this yard stake is easy to maintain and install. The powder coated finish not only enhances durability but also keeps the piece looking fresh and new over time. For dog lovers, especially those fond of poodles, it offers a subtle yet meaningful way to express personal style and affection for pets. Overall, it is a practical and decorative addition that elevates any outdoor space with minimal effort.
 
-## <a href="https://www.amazon.com/dp/B00DEXVM98?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luxury Black Genuine Leather Blue Print Dog Harness For Toy Breeds</a>
+## <a href="https://www.amazon.com/dp/B00DEXVM98?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luxury Black Genuine Leather Blue Print Dog Harness For Toy Breeds</a>
 
 
-<a href="https://www.amazon.com/dp/B00DEXVM98?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -14"="" alt="Luxury Black Genuine Leather Blue Print Dog Harness for Toy Breeds with Stud Small. Fits for 12" chest="" miniature="" poodle,="" puppies"="" size="" src="https://m.media-amazon.com/images/I/41TFD3M0slL._SL500_.jpg" terrier,="" yorkshire=""/></a>
+<a href="https://www.amazon.com/dp/B00DEXVM98?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -14"="" alt="Luxury Black Genuine Leather Blue Print Dog Harness for Toy Breeds with Stud Small. Fits for 12" chest="" miniature="" poodle,="" puppies"="" size="" src="https://m.media-amazon.com/images/I/41TFD3M0slL._SL500_.jpg" terrier,="" yorkshire=""/></a>
 
 
 The **Luxury Black Genuine Leather Blue Print Dog Harness** is perfect for owners of **toy breeds** such as **Miniature Poodles**, **Yorkshire Terriers**, and **puppies** with chest sizes between **12"-14"**. If you are looking for a stylish yet comfortable harness that fits smaller dogs securely while offering durability, this product is an excellent choice.
@@ -98,10 +98,10 @@ The **Luxury Black Genuine Leather Blue Print Dog Harness** combines both style 
 
 Additionally, the harness’s lightweight construction and adjustable fit make it highly practical for everyday use. The dimensions of **Height: 1.2 inches, Width: 2.5 inches, and Length: 4.0 inches** are tailored to fit miniature dogs perfectly, preventing chafing and discomfort. Overall, this harness delivers a blend of durability, comfort, and style that toy breed owners will appreciate for their furry companions.
 
-## <a href="https://www.amazon.com/dp/B00DEY10T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luxury Black Genuine Leather Blue Print Dog Harness For Toy Breeds</a>
+## <a href="https://www.amazon.com/dp/B00DEY10T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Luxury Black Genuine Leather Blue Print Dog Harness For Toy Breeds</a>
 
 
-<a href="https://www.amazon.com/dp/B00DEY10T4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -14"="" alt="Luxury Black Genuine Leather Blue Print Dog Harness for Toy Breeds with Stud Small. Fits for 11" chest="" chihuahua"="" miniature="" poodle,="" size="" src="https://m.media-amazon.com/images/I/51PVfwD4FSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00DEY10T4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -14"="" alt="Luxury Black Genuine Leather Blue Print Dog Harness for Toy Breeds with Stud Small. Fits for 11" chest="" chihuahua"="" miniature="" poodle,="" size="" src="https://m.media-amazon.com/images/I/51PVfwD4FSL._SL500_.jpg"/></a>
 
 
 The **Luxury Black Genuine Leather Blue Print Dog Harness** is ideal for owners of **toy breeds** such as **Miniature Poodles** and **Chihuahuas** with a chest size between **11"-14"**. If you are seeking a stylish yet comfortable and durable harness for your small dog, this product perfectly combines quality craftsmanship with a secure fit, making it an excellent choice for pet lovers who prioritize both aesthetics and functionality.
@@ -124,10 +124,10 @@ Crafted by **Dogs My Love**, this harness combines premium materials with precis
 
 Beyond aesthetics, the harness is designed to distribute pressure evenly across your dog's chest, reducing strain on the neck and enhancing safety during walks. Its lightweight build means your pet will hardly notice it's wearing the harness, encouraging more natural movement and increased comfort. The tailored fit for toy breeds ensures that the harness stays securely in place, preventing escape while allowing freedom of movement.
 
-## <a href="https://www.amazon.com/dp/B08VD77CNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tonbo Soft Plush Small Cute And Cozy Sushi Dog Cat Bed</a>
+## <a href="https://www.amazon.com/dp/B08VD77CNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tonbo Soft Plush Small Cute And Cozy Sushi Dog Cat Bed</a>
 
 
-<a href="https://www.amazon.com/dp/B08VD77CNF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TONBO Soft Plush Small Cute and Cozy Sushi Dog Cat Bed with Two Sushi Crinkle Toys, Washer and Dryer Friendly, (Black)" src="https://m.media-amazon.com/images/I/41udhdl23sL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08VD77CNF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TONBO Soft Plush Small Cute and Cozy Sushi Dog Cat Bed with Two Sushi Crinkle Toys, Washer and Dryer Friendly, (Black)" src="https://m.media-amazon.com/images/I/41udhdl23sL._SL500_.jpg"/></a>
 
 
 The **TONBO Soft Plush Small Cute and Cozy Sushi Dog Cat Bed** is perfect for pet owners looking to provide their small dogs or cats with a comfortable and playful resting spot. Ideal for those who value both style and functionality, this bed suits pets who enjoy a cozy space paired with engaging toys. If you want a durable, easy-to-clean bed that adds a touch of fun to your pet's lounging area, this product is an excellent choice.
@@ -149,10 +149,10 @@ The **TONBO Soft Plush Sushi Bed** is crafted with high-quality plush fabric tha
 
 This bed’s compact size and stylish sushi design make it a charming addition to any pet corner without overwhelming space. Moreover, the fact that it is **washer and dryer friendly** means maintaining cleanliness is hassle-free, ensuring your pet always has a fresh place to relax. Overall, it combines comfort, convenience, and fun in one delightful package.
 
-## <a href="https://www.amazon.com/dp/B07FRGJ92B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Older Dog Supplement For Poodle</a>
+## <a href="https://www.amazon.com/dp/B07FRGJ92B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Older Dog Supplement For Poodle</a>
 
 
-<a href="https://www.amazon.com/dp/B07FRGJ92B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Older Dog Supplement for Poodle, Black - OVER 200 BREEDS - Veterinarian Formulated Daily Dietary Chewable Tablet - 60 Chews" src="https://m.media-amazon.com/images/I/41N5fBjQ5SL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07FRGJ92B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Older Dog Supplement for Poodle, Black - OVER 200 BREEDS - Veterinarian Formulated Daily Dietary Chewable Tablet - 60 Chews" src="https://m.media-amazon.com/images/I/41N5fBjQ5SL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Older Dog Supplement for Poodle, Black** is ideal for pet owners who want to support the health and vitality of their aging poodles. This supplement is specifically formulated for over 200 breeds, making it a perfect choice for those seeking a veterinarian-approved daily dietary chewable tablet to enhance their older dog's well-being.
@@ -175,10 +175,10 @@ The **Healthy Breeds Older Dog Supplement** is designed with a comprehensive app
 
 With its veterinarian formulation, this supplement provides peace of mind regarding quality and safety. The tailored formula addresses the common aging concerns of over 200 breeds, ensuring that your poodle receives targeted support for a healthier, happier life. The compact size and weight make it easy to store and carry, perfect for on-the-go pet care.
 
-## <a href="https://www.amazon.com/dp/B09C8YPFVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Ear Cleaning Wipes</a>
+## <a href="https://www.amazon.com/dp/B09C8YPFVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Healthy Breeds Poodle Ear Cleaning Wipes</a>
 
 
-<a href="https://www.amazon.com/dp/B09C8YPFVC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle, Black, Ear Cleaning Wipes with Aloe &amp; Eucalyptus for Dogs 100 Count" src="https://m.media-amazon.com/images/I/514dPvGqDFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09C8YPFVC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Healthy Breeds Poodle, Black, Ear Cleaning Wipes with Aloe &amp; Eucalyptus for Dogs 100 Count" src="https://m.media-amazon.com/images/I/514dPvGqDFL._SL500_.jpg"/></a>
 
 
 The **Healthy Breeds Poodle, Black, Ear Cleaning Wipes with Aloe & Eucalyptus for Dogs 100 Count** is ideal for dog owners who prioritize their pet's ear hygiene and want a gentle, effective solution. These wipes are perfect for those with poodles or other breeds prone to ear infections and buildup, and for anyone seeking a convenient, soothing way to maintain their dog’s ear health.

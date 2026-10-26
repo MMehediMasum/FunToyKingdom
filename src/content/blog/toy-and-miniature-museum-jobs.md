@@ -20,10 +20,10 @@ Staff members play a key role in preserving and sharing cultural heritage. Roles
 
 
 
-## <a href="https://www.amazon.com/dp/B07B7QVV12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Space Crafts</a>
+## <a href="https://www.amazon.com/dp/B07B7QVV12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Space Crafts</a>
 
 
-<a href="https://www.amazon.com/dp/B07B7QVV12?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Space Crafts" src="https://m.media-amazon.com/images/I/41D11tqSfJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07B7QVV12?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Space Crafts" src="https://m.media-amazon.com/images/I/41D11tqSfJL._SL500_.jpg"/></a>
 
 
 The ideal customer for **Space Crafts** is anyone passionate about **space exploration**, **model building**, or **educational tools** that inspire creativity and learning. Whether you are a hobbyist, a student, or a parent looking to engage your child with fascinating **space-themed activities**, **Space Crafts** offer an enjoyable and immersive experience.

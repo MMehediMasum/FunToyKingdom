@@ -23,10 +23,10 @@ Each piece allows kids to craft unique characters, fostering both fun and learni
 
 
 
-## <a href="https://www.amazon.com/dp/B0CP41C4QN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Create Your Family Set</a>
+## <a href="https://www.amazon.com/dp/B0CP41C4QN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Create Your Family Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP41C4QN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POTATO HEAD Create Your Family Set with 44 Parts and Pieces, Creative Toddler and Preschool Toys for 2 Year Old Girls and Boys and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/415eJ7m5LkL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP41C4QN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POTATO HEAD Create Your Family Set with 44 Parts and Pieces, Creative Toddler and Preschool Toys for 2 Year Old Girls and Boys and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/415eJ7m5LkL._SL500_.jpg"/></a>
 
 
 The **POTATO HEAD Create Your Family Set with 44 Parts and Pieces** is perfect for toddlers and preschoolers aged 2 years and up who love imaginative play and creative expression. This **Amazon Exclusive** toy is ideal for parents looking to encourage their young children’s fine motor skills, creativity, and storytelling abilities through hands-on fun.
@@ -48,12 +48,12 @@ The **POTATO HEAD Create Your Family Set** offers a versatile and engaging play 
 
 Additionally, the set’s focus on family-themed characters promotes social and emotional development, encouraging children to explore relationships and storytelling. Being an **Amazon Exclusive**, it offers a unique addition to any toy collection, backed by the quality assurance of **Hasbro**. Overall, this set provides a fun, educational, and creative outlet for young children, making it a worthwhile investment for parents and caregivers.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CP41C4QN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CP41C4QN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CP42LHNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Potato Head Set</a>
+## <a href="https://www.amazon.com/dp/B0CP42LHNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Potato Head Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CP42LHNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Potato Head Mr. Potato Head Set with 13 Parts and Pieces, Toddler and Preschool Toys for 2 Year Old Boys and Girls and Up" src="https://m.media-amazon.com/images/I/41oZMoS+92L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CP42LHNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Potato Head Mr. Potato Head Set with 13 Parts and Pieces, Toddler and Preschool Toys for 2 Year Old Boys and Girls and Up" src="https://m.media-amazon.com/images/I/41oZMoS+92L._SL500_.jpg"/></a>
 
 
 The **Mr. Potato Head Set with 13 Parts and Pieces** is perfect for **toddlers and preschoolers aged 2 years and up** who are developing their creativity and fine motor skills. This toy is ideal for parents and caregivers looking for an engaging, educational, and fun activity that encourages imaginative play and hand-eye coordination.
@@ -75,12 +75,12 @@ The **Mr. Potato Head Set** offers a delightful combination of fun and learning 
 
 Additionally, the toy fosters creativity and imaginative play, encouraging children to invent stories and roles for their customized potato head. Manufactured by **Hasbro**, this set guarantees quality and safety, providing parents peace of mind. Overall, the **Mr. Potato Head Set with 13 Parts and Pieces** is a valuable educational toy that combines entertainment with developmental benefits for toddlers and preschoolers alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CP42LHNQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CP42LHNQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B015Z9D3QI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head</a>
+## <a href="https://www.amazon.com/dp/B015Z9D3QI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head</a>
 
 
-<a href="https://www.amazon.com/dp/B015Z9D3QI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Playskool - Classic Mr Potato Head - 13 Accessories Included - Toy Story" src="https://m.media-amazon.com/images/I/41owoi81QlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B015Z9D3QI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Playskool - Classic Mr Potato Head - 13 Accessories Included - Toy Story" src="https://m.media-amazon.com/images/I/41owoi81QlL._SL500_.jpg"/></a>
 
 
 The **Hasbro Playskool Classic Mr Potato Head** with 13 accessories included is an ideal toy for young children, especially those who enjoy imaginative play and hands-on creativity. Perfect for toddlers and preschoolers, this toy encourages fine motor skills development and offers a fun way to explore facial expressions and storytelling. Parents looking for a safe, engaging, and educational toy will find this product a great addition to their child's playroom.
@@ -103,12 +103,12 @@ The **Hasbro Playskool Classic Mr Potato Head** features a variety of facial par
 
 Additionally, the toy’s robust construction ensures it can withstand active play. Being part of the **Toy Story** collection adds an extra layer of excitement for kids who love the franchise, connecting playtime with their favorite characters. Overall, this classic toy is a wonderful educational tool that combines fun with developmental benefits.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B015Z9D3QI?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B015Z9D3QI?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0866P3PBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head Mr &amp; Mrs Potato Head</a>
+## <a href="https://www.amazon.com/dp/B0866P3PBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head Mr &amp; Mrs Potato Head</a>
 
 
-<a href="https://www.amazon.com/dp/B0866P3PBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr Potato Head Mr &amp; Mrs Potato Head-Set of 2" src="https://m.media-amazon.com/images/I/51V7xxR8nwL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0866P3PBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr Potato Head Mr &amp; Mrs Potato Head-Set of 2" src="https://m.media-amazon.com/images/I/51V7xxR8nwL._SL500_.jpg"/></a>
 
 
 The **Mr Potato Head Mr & Mrs Potato Head-Set of 2** is ideal for **children** who enjoy imaginative play and parents looking for engaging, creative toys. This set is perfect for kids aged 2 and up who love assembling and customizing their own characters, fostering fine motor skills and creativity in a fun way. It’s also a great choice for collectors of classic toys and fans of the **Mr. Potato Head** brand.
@@ -131,12 +131,12 @@ The **Mr Potato Head Mr & Mrs Potato Head-Set of 2** offers a delightful combina
 
 Additionally, this set supports the development of fine motor skills as children grasp, attach, and detach the different pieces. The bright, multi-color palette keeps kids visually engaged, while the familiar brand **Hasbro** ensures the product is made with safe, durable materials. Whether used for solo play or group activities, this set encourages imaginative scenarios and social interaction, making it a valuable addition to any toy collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0866P3PBV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0866P3PBV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BWXVYJSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head Action Figure Toys</a>
+## <a href="https://www.amazon.com/dp/B0BWXVYJSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head Action Figure Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0BWXVYJSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr Potato Head Action Figure Toys for Kis 2+, 13 Parts and Pieces for Assemble" src="https://m.media-amazon.com/images/I/51trw5pq29L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BWXVYJSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr Potato Head Action Figure Toys for Kis 2+, 13 Parts and Pieces for Assemble" src="https://m.media-amazon.com/images/I/51trw5pq29L._SL500_.jpg"/></a>
 
 
 The **Mr Potato Head Action Figure Toys for Kids 2+** is ideal for young children who are beginning to explore their creativity and motor skills. Perfect for toddlers and preschoolers, this toy encourages imaginative play and helps develop hand-eye coordination. Parents looking for a safe, engaging, and educational toy for their little ones will find this product highly suitable.
@@ -159,12 +159,12 @@ The **Mr Potato Head Action Figure** features 13 detachable and interchangeable 
 
 Manufactured by **HASBROSERIES**, this action figure meets high standards of safety and durability. Its vibrant colors and iconic design appeal to young children, making playtime both fun and educational. The assembly process supports cognitive development by encouraging problem-solving and concentration, while the playful nature of the toy promotes social interaction when shared with friends or family.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BWXVYJSH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BWXVYJSH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08X1CWDQQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Potato Head Mrs. Potato Head Classic Toy</a>
+## <a href="https://www.amazon.com/dp/B08X1CWDQQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr. Potato Head Mrs. Potato Head Classic Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B08X1CWDQQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Potato Head Mrs. Potato Head Classic Toy For Kids Ages 2 and Up, Includes 12 Parts and Pieces to Create Funny Faces" src="https://m.media-amazon.com/images/I/41E6+8HUPjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08X1CWDQQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr. Potato Head Mrs. Potato Head Classic Toy For Kids Ages 2 and Up, Includes 12 Parts and Pieces to Create Funny Faces" src="https://m.media-amazon.com/images/I/41E6+8HUPjL._SL500_.jpg"/></a>
 
 
 Ideal for **young children aged 2 and up**, the **Mr. Potato Head Mrs. Potato Head Classic Toy** is perfect for little ones who love creative play and developing fine motor skills. Parents and caregivers looking for a fun, educational toy that encourages imagination and hand-eye coordination will find this classic toy an excellent choice.
@@ -186,12 +186,12 @@ The **Mr. Potato Head Mrs. Potato Head Classic Toy** offers a charming and timel
 
 Additionally, the set’s 12 pieces are designed to be safe and easy to attach, helping young children develop their **fine motor skills** as they practice gripping and assembling the parts. Being a product from **Hasbro**, parents can trust that the toy meets safety standards, giving peace of mind during play. Overall, this classic toy remains a beloved choice for introducing children to imaginative play and early developmental skills.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08X1CWDQQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08X1CWDQQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DK7QPXNT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Pet-tato Tots</a>
+## <a href="https://www.amazon.com/dp/B0DK7QPXNT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Pet-tato Tots</a>
 
 
-<a href="https://www.amazon.com/dp/B0DK7QPXNT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POTATO HEAD Pet-Tato Tots, Pet-Themed Set with 31 Parts and Pieces Plus Rolling Carry Case, Toddler and Preschool Toys for Girls and Boys 2 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51FOD0pbn4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DK7QPXNT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="POTATO HEAD Pet-Tato Tots, Pet-Themed Set with 31 Parts and Pieces Plus Rolling Carry Case, Toddler and Preschool Toys for Girls and Boys 2 and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51FOD0pbn4L._SL500_.jpg"/></a>
 
 
 The **POTATO HEAD Pet-Tato Tots, Pet-Themed Set** is ideal for **toddlers and preschoolers aged 2 and up** who enjoy imaginative play and creative expression. This **Amazon Exclusive toy set** is perfect for parents looking to encourage their children's fine motor skills, storytelling abilities, and hand-eye coordination through a fun and interactive playtime experience. It suits both **girls and boys** who love pets and customizable toys.
@@ -214,12 +214,12 @@ The **POTATO HEAD Pet-Tato Tots** set features a versatile assortment of **31 pa
 
 Additionally, the included **rolling carry case** makes it convenient to store and transport the toy set, encouraging children to take their playtime on the go. This feature is especially beneficial for busy families who want to keep their kids entertained during travel or visits. Overall, this toy set combines fun, creativity, and practicality, making it a valuable addition to any toddler or preschooler's collection.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DK7QPXNT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DK7QPXNT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0050QJT6U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Mrs. Potato Head Silly Suitcase Parts And Pieces Toddler Toy For Kids</a>
+## <a href="https://www.amazon.com/dp/B0050QJT6U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Mrs. Potato Head Silly Suitcase Parts And Pieces Toddler Toy For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B0050QJT6U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Potato Head Mrs.Potato Head Silly Suitcase Parts And Pieces Toddler Toy For Kids (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51et2qcJnfL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0050QJT6U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Potato Head Mrs.Potato Head Silly Suitcase Parts And Pieces Toddler Toy For Kids (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51et2qcJnfL._SL500_.jpg"/></a>
 
 
 The **Potato Head Mrs. Potato Head Silly Suitcase Parts And Pieces Toddler Toy** is an ideal choice for young children who are developing their creativity and fine motor skills. Designed especially for toddlers, this **Amazon Exclusive** toy encourages imaginative play and helps little ones explore different facial expressions and body parts in a fun, interactive way. Parents looking for an engaging, educational toy that sparks creativity will find this product a perfect fit.
@@ -242,12 +242,12 @@ The **Mrs. Potato Head Silly Suitcase** comes with a variety of fun, detachable 
 
 Crafted by **Hasbro**, a reputable manufacturer known for quality, this toy meets safety standards suitable for toddlers. The lightweight and manageable dimensions ensure that even the smallest hands can easily grasp and manipulate the pieces. While it encourages imaginative play and learning, parents should be mindful of the small parts and keep an eye on younger children to avoid any safety risks. Overall, this toy provides a balanced blend of fun, education, and convenience for families.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0050QJT6U?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0050QJT6U?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CQKQBB8R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Express Yourspud Playset</a>
+## <a href="https://www.amazon.com/dp/B0CQKQBB8R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Potato Head Express Yourspud Playset</a>
 
 
-<a href="https://www.amazon.com/dp/B0CQKQBB8R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Potato Head Express Yourspud Playset with 1 Potato Body and 32 Accessories, Creative Toddler and Preschool Toys for Boys and Girls 2 Years and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51Jt0pIo2yL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQKQBB8R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Potato Head Express Yourspud Playset with 1 Potato Body and 32 Accessories, Creative Toddler and Preschool Toys for Boys and Girls 2 Years and Up (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51Jt0pIo2yL._SL500_.jpg"/></a>
 
 
 The **Potato Head Express Yourspud Playset** is ideal for **toddlers and preschoolers aged 2 years and up** who are eager to explore their creativity and develop fine motor skills. Perfect for both **boys and girls**, this **Amazon Exclusive** toy offers a fun, hands-on experience that encourages imaginative play and self-expression.
@@ -269,12 +269,12 @@ The **Potato Head Express Yourspud Playset** offers a versatile and engaging pla
 
 Additionally, being an **Amazon Exclusive** item from the reputable **Mr. Potato Head brand**, the playset guarantees quality and durability. Parents can feel confident in providing a safe, educational toy that promotes imaginative play while enhancing early developmental skills. Overall, this playset is a fantastic addition to any toddler's toy collection, combining fun and learning in a charming, interactive format.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CQKQBB8R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CQKQBB8R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B005KJE9L2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head Playskool</a>
+## <a href="https://www.amazon.com/dp/B005KJE9L2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mr Potato Head Playskool</a>
 
 
-<a href="https://www.amazon.com/dp/B005KJE9L2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr Potato Head Playskool , multi-colored, standard (27657)" src="https://m.media-amazon.com/images/I/415uReHDXjL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B005KJE9L2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mr Potato Head Playskool , multi-colored, standard (27657)" src="https://m.media-amazon.com/images/I/415uReHDXjL._SL500_.jpg"/></a>
 
 
 The **Mr Potato Head Playskool** is an excellent choice for young children and toddlers who are just beginning to explore imaginative play. Ideal for parents seeking a fun, interactive toy that encourages creativity and fine motor skill development, this multi-colored figure offers endless hours of entertainment while helping little ones learn about facial features and expressions.
@@ -296,7 +296,7 @@ The **Mr Potato Head Playskool** boasts a simple yet versatile design that promo
 
 Additionally, this toy’s compact and lightweight design allows for easy portability, making it an excellent travel companion. Manufactured by **Hasbro**, it meets high safety standards, giving parents peace of mind. Overall, the **Mr Potato Head Playskool** is a valuable addition to any child’s toy collection, offering both entertainment and developmental benefits.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B005KJE9L2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B005KJE9L2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

@@ -23,10 +23,10 @@ Options range from soft teething balls to sporty sets with launchers and soccer 
 
 
 
-## <a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Activity Ball</a>
+## <a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fidget Toys Sensory Activity Ball</a>
 
 
-<a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Activity Ball Sensory Toys for Kids with Autism Sensory Activity Board Autism Sensory Products for Anxiety, ADHD &amp; Autism | Kids 3+ &amp; Adults | Includes 16 rods" src="https://m.media-amazon.com/images/I/41GiKk20mQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DSC6C5JJ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fidget Toys Sensory Activity Ball Sensory Toys for Kids with Autism Sensory Activity Board Autism Sensory Products for Anxiety, ADHD &amp; Autism | Kids 3+ &amp; Adults | Includes 16 rods" src="https://m.media-amazon.com/images/I/41GiKk20mQL._SL500_.jpg"/></a>
 
 
 The **Fidget Toys Sensory Activity Ball** is ideal for children aged 3 and above, as well as adults who experience sensory processing challenges such as **autism**, **ADHD**, or anxiety. This product is designed to provide a calming and engaging sensory experience, making it perfect for individuals who benefit from tactile stimulation and focused activities to enhance concentration and reduce stress.
@@ -49,10 +49,10 @@ The **Fidget Toys Sensory Activity Ball** offers a thoughtfully designed sensory
 
 Crafted by **Keegud**, a reputable manufacturer known for quality sensory products, this activity ball is built to withstand regular use. It supports anxiety relief and improved concentration by engaging the user’s sense of touch, which can be especially beneficial during stressful situations or times when focus is required. Overall, this sensory activity ball is a versatile and effective tool for enhancing sensory regulation and promoting relaxation in both children and adults.
 
-## <a href="https://www.amazon.com/dp/B0F2Q6CFD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ja-ru Light Up Gripper Ball</a>
+## <a href="https://www.amazon.com/dp/B0F2Q6CFD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ja-ru Light Up Gripper Ball</a>
 
 
-<a href="https://www.amazon.com/dp/B0F2Q6CFD5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JA-RU Light Up Gripper Ball (3 Balls Assorted) Bouncy Ball Bright Colors Glowing Blinking Light. Fun Fidget Toy for Boys &amp; Girls. Stress Relief Party Favor for Kids Indoors &amp; Outdoors Play. 1930-3" src="https://m.media-amazon.com/images/I/512ohvC0pgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F2Q6CFD5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JA-RU Light Up Gripper Ball (3 Balls Assorted) Bouncy Ball Bright Colors Glowing Blinking Light. Fun Fidget Toy for Boys &amp; Girls. Stress Relief Party Favor for Kids Indoors &amp; Outdoors Play. 1930-3" src="https://m.media-amazon.com/images/I/512ohvC0pgL._SL500_.jpg"/></a>
 
 
 The **JA-RU Light Up Gripper Ball (3 Balls Assorted)** is perfect for children who love vibrant, interactive toys that encourage active play and sensory engagement. Ideal for boys and girls looking for a fun way to relieve stress, improve hand coordination, or simply enjoy indoor and outdoor activities, these bright, glowing balls offer endless entertainment and excitement.
@@ -75,10 +75,10 @@ The **JA-RU Light Up Gripper Ball** features a captivating design that combines 
 
 Beyond just entertainment, these light-up balls serve as excellent stress relief tools, providing a satisfying grip and visual stimulation that can help children focus and calm down. Their versatility as both a fidget toy and a party favor makes them a great choice for parents and caregivers seeking toys that combine fun with developmental benefits. Overall, the JA-RU Light Up Gripper Ball is a bright, engaging, and practical addition to any child’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0D8PSJ9SM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Ball Teething Toy</a>
+## <a href="https://www.amazon.com/dp/B0D8PSJ9SM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Baby Ball Teething Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0D8PSJ9SM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Ball Teething Toy, Kids Educational Toys, Toddler Sensory Toys (Muti)" src="https://m.media-amazon.com/images/I/41UXhRnAEhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D8PSJ9SM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Baby Ball Teething Toy, Kids Educational Toys, Toddler Sensory Toys (Muti)" src="https://m.media-amazon.com/images/I/41UXhRnAEhL._SL500_.jpg"/></a>
 
 
 The **Baby Ball Teething Toy** by **Caterbee** is perfect for parents seeking a safe and engaging toy for their toddlers. This **educational sensory toy** is designed for babies who are in the teething phase and require both comfort and stimulation. Ideal for infants and toddlers, it helps soothe sore gums while encouraging sensory development and motor skills.
@@ -101,10 +101,10 @@ This **Baby Ball Teething Toy** by **Caterbee** is thoughtfully designed to supp
 
 Parents will appreciate the high-quality, safe materials used in crafting this toy, ensuring that it is free from harmful chemicals. Its ergonomic shape fits comfortably in small hands, encouraging the development of fine motor skills as babies learn to grasp, hold, and manipulate the toy. Overall, this teething toy combines functionality with educational benefits, making it a valuable addition to any toddler’s playtime essentials.
 
-## <a href="https://www.amazon.com/dp/B0CG9KRZTV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bennol T Ball Set Toys For Kids Boys</a>
+## <a href="https://www.amazon.com/dp/B0CG9KRZTV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bennol T Ball Set Toys For Kids Boys</a>
 
 
-<a href="https://www.amazon.com/dp/B0CG9KRZTV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bennol T Ball Set Toys for Kids Boys 3-5 5-8, Kids Baseball Tee Toys Includes 10 Balls, Auto Ball Launcher, Outdoor Outside Sport Play Set Birthday Gifts for 3 4 5 6 Year Old Boys" src="https://m.media-amazon.com/images/I/41rplgMnNtL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CG9KRZTV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bennol T Ball Set Toys for Kids Boys 3-5 5-8, Kids Baseball Tee Toys Includes 10 Balls, Auto Ball Launcher, Outdoor Outside Sport Play Set Birthday Gifts for 3 4 5 6 Year Old Boys" src="https://m.media-amazon.com/images/I/41rplgMnNtL._SL500_.jpg"/></a>
 
 
 The **Bennol T Ball Set Toys for Kids Boys 3-5 5-8** is ideal for young children who are just starting to explore the world of baseball. Perfect for boys aged 3 to 8, this set is designed to help develop hand-eye coordination, motor skills, and an early love for outdoor sports. Parents looking for an engaging and active playset for birthday gifts or everyday fun will find this product highly suitable.
@@ -126,10 +126,10 @@ The **Bennol T Ball Set** offers a comprehensive play experience with its inclus
 
 Beyond just being a toy, this baseball tee set promotes outdoor physical activity, which is essential for healthy childhood development. It provides a structured yet fun environment where children can develop essential motor skills, teamwork, and sportsmanship. Its portability and ease of setup make it a convenient choice for family outings, ensuring children can enjoy the benefits of active play anytime, anywhere.
 
-## <a href="https://www.amazon.com/dp/B0791KHL3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ja-ru Super Bounce Pinky Ball</a>
+## <a href="https://www.amazon.com/dp/B0791KHL3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ja-ru Super Bounce Pinky Ball</a>
 
 
-<a href="https://www.amazon.com/dp/B0791KHL3Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JA-RU Super Bounce Pinky Ball (4 Bouncy Balls) Outdoor Games &amp; Indoor Playground Kids Toys. Massage Therapy Stress Balls. Sports Party Favors &amp; Carnival Prizes in Bulk. 976-4A" src="https://m.media-amazon.com/images/I/41iRHJPV5NL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0791KHL3Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="JA-RU Super Bounce Pinky Ball (4 Bouncy Balls) Outdoor Games &amp; Indoor Playground Kids Toys. Massage Therapy Stress Balls. Sports Party Favors &amp; Carnival Prizes in Bulk. 976-4A" src="https://m.media-amazon.com/images/I/41iRHJPV5NL._SL500_.jpg"/></a>
 
 
 The **JA-RU Super Bounce Pinky Ball (4 Bouncy Balls)** is ideal for children who love active play, parents looking for engaging indoor or outdoor toys, and event organizers seeking fun party favors or carnival prizes. These vibrant, pink balls are perfect for kids who enjoy bouncing and tossing games, as well as individuals needing a simple yet effective stress relief tool through massage therapy.
@@ -153,10 +153,10 @@ The **JA-RU Super Bounce Pinky Balls** feature a perfect balance of size and wei
 
 Beyond entertainment, these balls serve a dual purpose as effective **massage therapy stress balls**. Their firm yet pliable texture helps users relieve tension and improve hand strength, making them suitable for all ages. Whether used at a sports party, as carnival prizes, or simply for everyday play, the JA-RU Super Bounce Pinky Balls combine fun, functionality, and versatility in one compact package.
 
-## <a href="https://www.amazon.com/dp/B0DXQ2BP6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zoojoy Hopper Ball 2 Pack</a>
+## <a href="https://www.amazon.com/dp/B0DXQ2BP6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zoojoy Hopper Ball 2 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0DXQ2BP6Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZOOJOY Hopper Ball 2 Pack, 18 in Hopping Toys fir Kids, Clouds Bouncy Ball with Handle for Boys &amp; Girls Indoor Outdoor Play, Inflatable Bounce Hippity Hop Toys with Pump" src="https://m.media-amazon.com/images/I/41Gy9bypDEL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DXQ2BP6Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ZOOJOY Hopper Ball 2 Pack, 18 in Hopping Toys fir Kids, Clouds Bouncy Ball with Handle for Boys &amp; Girls Indoor Outdoor Play, Inflatable Bounce Hippity Hop Toys with Pump" src="https://m.media-amazon.com/images/I/41Gy9bypDEL._SL500_.jpg"/></a>
 
 
 The **ZOOJOY Hopper Ball 2 Pack** is ideal for active **kids** who love to play both indoors and outdoors. Perfect for boys and girls, these **18-inch bouncing toys** with handles offer a fun way to engage children in physical activity, improve balance, and develop coordination. Parents looking for safe, entertaining, and durable hopping balls will find this set an excellent choice.
@@ -179,10 +179,10 @@ The **ZOOJOY Hopper Ball 2 Pack** features vibrant **purple clouds** that appeal
 
 With sturdy **handles** for better grip and control, these bouncing balls offer a safer experience, reducing the risk of falls. They are versatile for use in various environments, whether bouncing around the living room or outside on the grass. The **ZOOJOY brand’s** commitment to quality means these hopper balls are built to withstand energetic play, making them a valuable addition to any child’s toy collection.
 
-## <a href="https://www.amazon.com/dp/B0D946Q8W9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watudou Hover Soccer Ball Toys For Kids Boys</a>
+## <a href="https://www.amazon.com/dp/B0D946Q8W9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Watudou Hover Soccer Ball Toys For Kids Boys</a>
 
 
-<a href="https://www.amazon.com/dp/B0D946Q8W9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATUDOU Hover Soccer Ball Toys for Kids Boys, Indoor Outdoor Outside Soccer Ball Game for Kids Ages 3-5 4-8, Toys Gifts for 3 4 5 Year Old Boys, 3 4 5 6 Year Old Boys Toys Birthday Gifts" src="https://m.media-amazon.com/images/I/51MkcHkL6rL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D946Q8W9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WATUDOU Hover Soccer Ball Toys for Kids Boys, Indoor Outdoor Outside Soccer Ball Game for Kids Ages 3-5 4-8, Toys Gifts for 3 4 5 Year Old Boys, 3 4 5 6 Year Old Boys Toys Birthday Gifts" src="https://m.media-amazon.com/images/I/51MkcHkL6rL._SL500_.jpg"/></a>
 
 
 The **WATUDOU Hover Soccer Ball Toy** is an excellent choice for parents looking to engage their **young children aged 3 to 8 years** in fun and active play. Ideal for both indoor and outdoor use, this toy is perfect for kids who love sports and physical activities but need a safe, low-impact alternative to a traditional soccer ball. It’s especially suitable for **boys aged 3 to 6** who are developing their coordination and motor skills through playful exercise.
@@ -205,10 +205,10 @@ The **WATUDOU Hover Soccer Ball** features a unique hover technology that allows
 
 Additionally, the toy’s durable build and compact size make it highly portable and resilient against the rough play habits of young kids. Whether used in the living room or outside on a smooth patio, this hover soccer ball provides hours of engaging fun. It also serves as a thoughtful birthday gift, encouraging children to enjoy active play while bonding with family and friends.
 
-## <a href="https://www.amazon.com/dp/B0D12MW3Q7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christoy Baby Sensory Toys</a>
+## <a href="https://www.amazon.com/dp/B0D12MW3Q7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Christoy Baby Sensory Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0D12MW3Q7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christoy Baby Sensory Toys 8 in 1 for Toddlers 18-36 Months Travel Activities Busy Ball Baby Gifts for Over 18 Months for Toddlers Educational Montessori Toys" src="https://m.media-amazon.com/images/I/41MgqwdTDnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D12MW3Q7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Christoy Baby Sensory Toys 8 in 1 for Toddlers 18-36 Months Travel Activities Busy Ball Baby Gifts for Over 18 Months for Toddlers Educational Montessori Toys" src="https://m.media-amazon.com/images/I/41MgqwdTDnL._SL500_.jpg"/></a>
 
 
 The **Christoy Baby Sensory Toys 8 in 1** are perfect for parents seeking an engaging and educational playtime solution for toddlers aged **18-36 months**. Ideal for busy little hands, these toys are designed to stimulate sensory development and keep young children entertained, making them a great choice for families who want to encourage early learning and motor skills in a fun and interactive way.
@@ -231,10 +231,10 @@ The **Christoy Baby Sensory Toys 8 in 1** feature a compact and travel-friendly 
 
 Beyond entertainment, these **Montessori educational toys** foster early learning by introducing concepts such as cause and effect, hand-eye coordination, and problem-solving. The sturdy construction ensures safety and durability, giving parents peace of mind while their little ones enjoy hours of meaningful play. Overall, the Christoy sensory toy set is a versatile and valuable addition to any toddler’s play collection.
 
-## <a href="https://www.amazon.com/dp/B0F5VNVPLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glitter Dinosaur Sugar Ball Squeeze Set</a>
+## <a href="https://www.amazon.com/dp/B0F5VNVPLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Glitter Dinosaur Sugar Ball Squeeze Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5VNVPLM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glitter Dinosaur Sugar Ball Squeeze Set- Party Favors for Kids Birthday Parties Goodie Bags Reward Box Treasure Chest Carnival Prizes - Squeeze Ball, Stress Relief, Fidget Toy, Sensory Toy - 6 Piece" src="https://m.media-amazon.com/images/I/41EQYi3uYaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5VNVPLM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Glitter Dinosaur Sugar Ball Squeeze Set- Party Favors for Kids Birthday Parties Goodie Bags Reward Box Treasure Chest Carnival Prizes - Squeeze Ball, Stress Relief, Fidget Toy, Sensory Toy - 6 Piece" src="https://m.media-amazon.com/images/I/41EQYi3uYaL._SL500_.jpg"/></a>
 
 
 The **Glitter Dinosaur Sugar Ball Squeeze Set** is perfect for parents, party planners, and educators looking to add a fun and engaging element to kids' birthday parties or classroom activities. Ideal for children who enjoy tactile play, these colorful and glittery squeeze balls serve as excellent **party favors**, **reward box** items, or **carnival prizes**. If you're seeking a playful yet practical toy that doubles as a **stress relief** and **sensory tool**, this set is an excellent choice.
@@ -256,10 +256,10 @@ The **Glitter Dinosaur Sugar Ball Squeeze Set** features six squeezable balls th
 
 Beyond entertainment, these squeeze balls serve as practical tools for parents and teachers aiming to encourage focus and calmness in children. Whether used as **goodie bag** fillers, **reward box** surprises, or **carnival prizes**, this set brings joy and functionality together. Manufactured by **Toyco** and branded by **Nikki's Knick Knacks**, users can trust the quality and safety standards of these delightful toys, adding value to any kid's party or classroom environment.
 
-## <a href="https://www.amazon.com/dp/B0CFFCK1TX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smartwo Curve Soccer Ball For Kids Size 4</a>
+## <a href="https://www.amazon.com/dp/B0CFFCK1TX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Smartwo Curve Soccer Ball For Kids Size 4</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFFCK1TX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Smartwo Curve Soccer Ball for Kids Size 4, Swerve Soft Soccer Ball for Boys and Girls, Indoor and Outdoor Activities Games, Safe Kick Play in Inside House, Backyard and Lawn, Comes with Pump" src="https://m.media-amazon.com/images/I/41EtHrEMl1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFFCK1TX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Smartwo Curve Soccer Ball for Kids Size 4, Swerve Soft Soccer Ball for Boys and Girls, Indoor and Outdoor Activities Games, Safe Kick Play in Inside House, Backyard and Lawn, Comes with Pump" src="https://m.media-amazon.com/images/I/41EtHrEMl1L._SL500_.jpg"/></a>
 
 
 The **Smartwo Curve Soccer Ball for Kids Size 4** is ideal for young boys and girls who are just beginning to explore the fun of soccer. Perfect for children who need a safe and lightweight ball to practice their skills both indoors and outdoors, this ball suits families looking for a versatile and durable option for play inside the house, in the backyard, or on the lawn. It is especially beneficial for parents wanting to encourage active play without worrying about damage or injury.

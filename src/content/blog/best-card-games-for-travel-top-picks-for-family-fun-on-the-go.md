@@ -22,10 +22,10 @@ They suit different group sizes and age ranges, making them ideal for kids and a
 
 
 
-## <a href="https://www.amazon.com/dp/B00NQQTZCO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Deal Card Game</a>
+## <a href="https://www.amazon.com/dp/B00NQQTZCO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Monopoly Deal Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00NQQTZCO?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Deal Card Game, Quick-Playing Family Game, 2-5 Players, Fun Summer Activities, Vacation Travel Essentials, Ages 8+" src="https://m.media-amazon.com/images/I/51seJyD0-UL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00NQQTZCO?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Monopoly Deal Card Game, Quick-Playing Family Game, 2-5 Players, Fun Summer Activities, Vacation Travel Essentials, Ages 8+" src="https://m.media-amazon.com/images/I/51seJyD0-UL._SL500_.jpg"/></a>
 
 
 The **Monopoly Deal Card Game** is ideal for families and friends looking for a **quick-playing** and engaging game that can be enjoyed by **2-5 players**. Perfect for those who want a fun and interactive activity during **summer vacations** or while traveling, this game is suitable for players aged **8 and above**. If you enjoy strategic card games that require quick thinking and offer a fresh twist on the classic Monopoly experience, this game is a great choice.
@@ -48,10 +48,10 @@ The **Monopoly Deal Card Game** offers a unique blend of strategy and speed, mak
 
 Beyond portability, the game encourages quick decision-making and strategic planning, appealing to both younger and older players. Since it accommodates 2 to 5 players, it is versatile enough for intimate family game nights or small group gatherings. The fact that it is manufactured by **Hasbro**, a well-known and trusted brand, assures buyers of its quality and durability, making it a worthwhile addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B07P6MZPK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Card Game</a>
+## <a href="https://www.amazon.com/dp/B07P6MZPK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07P6MZPK3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Card Game in a Collectible Storage Tin for Kids, Adults, Families, Parties &amp; Travel, 2 to 10 Players (Amazon Exclusive) (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51+cH30VCOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07P6MZPK3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Card Game in a Collectible Storage Tin for Kids, Adults, Families, Parties &amp; Travel, 2 to 10 Players (Amazon Exclusive) (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51+cH30VCOL._SL500_.jpg"/></a>
 
 
 The **Mattel Games UNO Card Game in a Collectible Storage Tin** is perfect for those seeking a fun and engaging card game that suits a wide range of players, from **kids** and **families** to **adults** and party enthusiasts. If you want a versatile game that can be played anywhere, including travel, and accommodates **2 to 10 players**, this Amazon Exclusive set is an ideal choice.
@@ -75,10 +75,10 @@ This **UNO Card Game** set stands out due to its convenient and attractive **sto
 
 The gameplay itself retains the classic, easy-to-understand rules that have made **UNO** a beloved card game worldwide. This familiarity means players of all ages can quickly join in on the fun without a steep learning curve. Additionally, being an **Amazon Exclusive** product adds a level of exclusivity and assurance of quality from **Mattel Games**, a trusted name in the industry. Overall, this game is a fantastic investment for anyone looking to bring people together through a timeless and enjoyable card game experience.
 
-## <a href="https://www.amazon.com/dp/B09L5F93P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uno Go! Pocket-sized Cards</a>
+## <a href="https://www.amazon.com/dp/B09L5F93P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Uno Go! Pocket-sized Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B09L5F93P8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNO GO! Pocket-Sized Cards for On The Go Play Mini Sized Playing Cards for Travel Stocking Stuffer Birthday Party Kids, Adults Family Game Night Color Matching Fun" src="https://m.media-amazon.com/images/I/41sQJvzB0mL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09L5F93P8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNO GO! Pocket-Sized Cards for On The Go Play Mini Sized Playing Cards for Travel Stocking Stuffer Birthday Party Kids, Adults Family Game Night Color Matching Fun" src="https://m.media-amazon.com/images/I/41sQJvzB0mL._SL500_.jpg"/></a>
 
 
 The **UNO GO! Pocket-Sized Cards** are perfect for anyone who loves classic card games but needs a compact, travel-friendly option. Ideal for **kids, adults, and families** who enjoy game nights or want a fun, portable activity during trips, this mini-sized deck offers easy storage and convenience without sacrificing the fun of traditional UNO gameplay. If you’re looking for a **colorful, engaging card game** that fits in your pocket or bag, this product is an excellent choice.
@@ -101,10 +101,10 @@ The **UNO GO! Pocket-Sized Cards** boast a miniature design that retains the cla
 
 Beyond its size and vibrant colors, the deck is backed by **Mattel Games**, a trusted manufacturer known for quality and durability. This ensures that despite its small stature, the cards maintain excellent print quality and sturdiness to withstand repeated shuffling and gameplay. Whether you’re packing it for a road trip, slipping it into a stocking, or using it to liven up a birthday party, the **UNO GO! Pocket-Sized Cards** deliver a fun, convenient, and family-friendly gaming experience wherever you go.
 
-## <a href="https://www.amazon.com/dp/B000J3Z7TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hoyle Waterproof Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B000J3Z7TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hoyle Waterproof Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B000J3Z7TC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hoyle Waterproof Playing Cards, Clear, 1 Deck" src="https://m.media-amazon.com/images/I/419FJBuzJFL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000J3Z7TC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hoyle Waterproof Playing Cards, Clear, 1 Deck" src="https://m.media-amazon.com/images/I/419FJBuzJFL._SL500_.jpg"/></a>
 
 
 The **Hoyle Waterproof Playing Cards** in clear blue are perfect for anyone who enjoys card games in various environments, including outdoor settings where moisture or spills are a concern. Ideal for campers, poolside players, or anyone seeking durable, long-lasting playing cards, this deck ensures uninterrupted fun regardless of weather conditions. If you value resilience and clarity in your playing cards, this product is designed for you.
@@ -127,10 +127,10 @@ The **Hoyle Waterproof Playing Cards** feature a sturdy plastic construction tha
 
 With compact dimensions and a lightweight design, these cards are highly portable, fitting easily into pockets, bags, or card cases. The smooth surface allows for easy shuffling and dealing, providing a seamless gaming experience whether you’re playing poker, bridge, or casual card games. Manufactured by the reputable **United States Playing Card Co.**, users can trust the quality and reliability of this deck, making it a smart investment for both casual and serious card players alike.
 
-## <a href="https://www.amazon.com/dp/B07MWJ699K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Guess Who? Card Game</a>
+## <a href="https://www.amazon.com/dp/B07MWJ699K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Guess Who? Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07MWJ699K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Guess Who? Card Game for Kids, 2 Player Guessing Game, Fun Summer Activities, Vacation Travel Essentials, Ages 5+" src="https://m.media-amazon.com/images/I/511Jvhp7b1L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MWJ699K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Guess Who? Card Game for Kids, 2 Player Guessing Game, Fun Summer Activities, Vacation Travel Essentials, Ages 5+" src="https://m.media-amazon.com/images/I/511Jvhp7b1L._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Guess Who? Card Game** is perfect for young children aged 5 and up who enjoy interactive and engaging guessing games. Ideal for families looking for a fun way to bond, this game is also a great choice for parents seeking entertaining travel essentials or summer activities that keep kids mentally stimulated and socially engaged. It is designed for two players, making it a fantastic option for siblings, friends, or parent-child playtime.
@@ -153,10 +153,10 @@ The **Hasbro Gaming Guess Who? Card Game** boasts a compact design with dimensio
 
 Featuring an engaging format where players ask yes or no questions to guess the opponent’s card, this game sharpens observation and memory skills. Its simple yet strategic gameplay ensures that kids remain entertained while developing cognitive abilities. As a product from **Hasbro Gaming**, it maintains high quality and safety standards, making it a trustworthy choice for parents. The game’s design promotes face-to-face interaction, encouraging kids to communicate and think critically in a fun and friendly environment.
 
-## <a href="https://www.amazon.com/dp/B07JQ5W878?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Regal Games Card Games For Kids</a>
+## <a href="https://www.amazon.com/dp/B07JQ5W878?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Regal Games Card Games For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B07JQ5W878?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Regal Games Card Games for Kids - Go Fish, Crazy 8's, Old Maid, Slap Jack, Garbage Monster, War - Simple &amp; Fun Classic Family Table Games - Games May Vary (6 Set)" src="https://m.media-amazon.com/images/I/51LRUD93kgL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07JQ5W878?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Regal Games Card Games for Kids - Go Fish, Crazy 8's, Old Maid, Slap Jack, Garbage Monster, War - Simple &amp; Fun Classic Family Table Games - Games May Vary (6 Set)" src="https://m.media-amazon.com/images/I/51LRUD93kgL._SL500_.jpg"/></a>
 
 
 The **Regal Games Card Games for Kids** set is ideal for families and young children who enjoy classic, easy-to-learn card games. Perfect for parents looking to engage their kids in fun, educational activities or for teachers wanting to introduce interactive games in the classroom, this collection offers a variety of simple and entertaining options that help develop social skills and critical thinking.
@@ -179,10 +179,10 @@ The **Regal Games Card Games for Kids** collection offers a diverse set of timel
 
 These classic games not only provide entertainment but also promote important skills such as memory, strategy, and social interaction. Whether it’s a rainy day or family game night, the variety offered by this set keeps children engaged and encourages friendly competition. While the games included are simple, they are effective in fostering communication and cognitive development, making the **Regal Games Card Games for Kids** an excellent choice for parents and educators alike.
 
-## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
+## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
 
 
-<a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
 
 
 Ideal for families and groups looking for a **fun, fast-paced card game**, the **Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game** is perfect for players of all ages, including **kids, teens, and adults**. If you want an **easy-to-learn game** that brings laughter and excitement to **family game nights or group gatherings**, this game is a great choice for **2-8 players** who enjoy interactive and energetic gameplay.
@@ -205,10 +205,10 @@ The **Taco Cat Goat Cheese Pizza card game** features a unique and entertaining 
 
 Beyond its entertainment value, the game encourages **social interaction, focus, and reflex improvement**. The short 10-15 minute rounds allow for multiple games in one sitting, keeping players engaged without long wait times. Whether you're organizing a family night or a casual get-together with friends, this card game offers a lively and enjoyable experience that is both accessible and memorable.
 
-## <a href="https://www.amazon.com/dp/B0CBT2N7N1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Show ‘em No Mercy Card Game</a>
+## <a href="https://www.amazon.com/dp/B0CBT2N7N1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Mattel Games Uno Show ‘em No Mercy Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0CBT2N7N1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Show ‘em No Mercy Card Game in Storage &amp; Travel Tin for Kids, Adults &amp; Family Night with Extra Cards, Special Rules &amp; Tougher Penalties (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51bMqWJKUXL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CBT2N7N1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Mattel Games UNO Show ‘em No Mercy Card Game in Storage &amp; Travel Tin for Kids, Adults &amp; Family Night with Extra Cards, Special Rules &amp; Tougher Penalties (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51bMqWJKUXL._SL500_.jpg"/></a>
 
 
 The **Mattel Games UNO Show ‘em No Mercy Card Game** is perfect for anyone looking to spice up their family game night or casual gatherings. Ideal for **kids, adults, and families** who enjoy fast-paced, competitive card games with a twist, this edition offers extra cards, special rules, and tougher penalties, making it a thrilling experience for both beginners and seasoned UNO players. Its compact design in a **storage & travel tin** makes it especially suitable for those who want to enjoy the game on the go.
@@ -231,10 +231,10 @@ The **UNO Show ‘em No Mercy Card Game** by **Mattel Games** elevates the tradi
 
 Packaged in a sturdy and lightweight **storage & travel tin**, this version ensures convenience and durability, making it easy to carry to any social event or vacation. The design caters to a wide age range, promoting social interaction and bonding among players. Overall, the game’s innovative twists and practical packaging make it a valuable addition to any game collection.
 
-## <a href="https://www.amazon.com/dp/B0DKNXDNZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Five Crowns Travel Case Bundle</a>
+## <a href="https://www.amazon.com/dp/B0DKNXDNZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Five Crowns Travel Case Bundle</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKNXDNZ6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Five Crowns Travel Case Bundle, Cards, Scorecard Included – Card Game for Kids and Adults, Family Game Night, The Game isn’t Over Until the Kings Go Wild!, 5 Suited Rummy Style Card Game, Ages 8+" src="https://m.media-amazon.com/images/I/417qaAIBQTL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKNXDNZ6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Five Crowns Travel Case Bundle, Cards, Scorecard Included – Card Game for Kids and Adults, Family Game Night, The Game isn’t Over Until the Kings Go Wild!, 5 Suited Rummy Style Card Game, Ages 8+" src="https://m.media-amazon.com/images/I/417qaAIBQTL._SL500_.jpg"/></a>
 
 
 The **Five Crowns Travel Case Bundle** is perfect for families and individuals who enjoy engaging, strategic card games that can be played on the go. Ideal for both **kids aged 8 and up** and adults, this game is a fantastic choice for those looking to enhance family game nights or gatherings with friends. If you appreciate a fun, rummy-style card game that challenges your mind while providing hours of entertainment, this set is an excellent buy.
@@ -256,10 +256,10 @@ The **Five Crowns Travel Case Bundle** features a multi-colored design that adds
 
 Additionally, this game’s versatility shines through its suitability for family game nights and casual gatherings alike. The **PlayMonster** brand ensures quality manufacturing, and the durable travel case protects the cards during transport. Whether you are teaching kids how to play card games or looking for an entertaining way to connect with friends, the Five Crowns set offers a balance of fun, challenge, and convenience that makes it a standout choice in the family game category.
 
-## <a href="https://www.amazon.com/dp/B07MWQ63JL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Clue Card Game</a>
+## <a href="https://www.amazon.com/dp/B07MWQ63JL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hasbro Gaming Clue Card Game</a>
 
 
-<a href="https://www.amazon.com/dp/B07MWQ63JL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Clue Card Game, 3-4 Player Strategy Game, Fun Summer Activities, Vacation Travel Essentials, Ages 8+" src="https://m.media-amazon.com/images/I/41uqXAjxobL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07MWQ63JL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Hasbro Gaming Clue Card Game, 3-4 Player Strategy Game, Fun Summer Activities, Vacation Travel Essentials, Ages 8+" src="https://m.media-amazon.com/images/I/41uqXAjxobL._SL500_.jpg"/></a>
 
 
 The **Hasbro Gaming Clue Card Game** is ideal for families, friends, and strategy game enthusiasts looking for a compact and engaging game to enjoy during summer activities or while traveling. Perfect for players aged 8 and up, this game suits those who appreciate classic mystery-solving challenges but prefer a portable version that can be played anywhere with 3-4 players.

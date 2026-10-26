@@ -23,10 +23,10 @@ Some cards have special coatings that help them slide smoothly, reducing the cha
 
 
 
-## <a href="https://www.amazon.com/dp/B09SDKSXLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Rider Back Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B09SDKSXLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Rider Back Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B09SDKSXLZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Rider Back Playing Cards, Standard Index, Poker Cards, Premium Playing Cards, Red &amp; Blue, 2 Count (Pack of 1)" src="https://m.media-amazon.com/images/I/51aD4TGDMxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SDKSXLZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Rider Back Playing Cards, Standard Index, Poker Cards, Premium Playing Cards, Red &amp; Blue, 2 Count (Pack of 1)" src="https://m.media-amazon.com/images/I/51aD4TGDMxL._SL500_.jpg"/></a>
 
 
 These **Bicycle Rider Back Playing Cards** are ideal for card game enthusiasts, magicians, and casual players looking for a reliable and visually appealing deck. Whether you are hosting a poker night, practicing card tricks, or simply enjoying a game with friends and family, these **premium playing cards** offer excellent quality and durability for various uses.
@@ -48,10 +48,10 @@ The **Bicycle Rider Back Playing Cards** feature a standard poker size with dime
 
 Additionally, the vibrant red and blue color options not only help players easily distinguish between decks but also add a visually appealing contrast that enhances the gaming experience. Manufactured by the reputable United States Playing Card Co., these cards meet high standards of quality, making them a dependable choice for both casual and professional use. The 2 count pack ensures you have a backup deck or the option to play multiple games simultaneously without interruption.
 
-## <a href="https://www.amazon.com/dp/B07LBNDHPH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bierdorf Diamond Waterproof Black Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B07LBNDHPH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bierdorf Diamond Waterproof Black Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B07LBNDHPH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BIERDORF Diamond Waterproof Black Playing Cards, Poker Cards, HD, Deck of Cards (Black)" src="https://m.media-amazon.com/images/I/51lOaOByKUL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07LBNDHPH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BIERDORF Diamond Waterproof Black Playing Cards, Poker Cards, HD, Deck of Cards (Black)" src="https://m.media-amazon.com/images/I/51lOaOByKUL._SL500_.jpg"/></a>
 
 
 The **BIERDORF Diamond Waterproof Black Playing Cards** are perfect for poker enthusiasts, magicians, and card game lovers who seek durability and style in their decks. Ideal for those who play frequently or in environments where moisture or wear can be an issue, these cards offer a premium feel combined with practical features that enhance gameplay.
@@ -73,10 +73,10 @@ Crafted by **BIERDORF**, these playing cards combine functionality with style. T
 
 Beyond aesthetics, the **HD printing technology** ensures that every card is crisp and easy to read, reducing misplays and enhancing the overall user experience. The compact and ergonomic dimensions allow for comfortable shuffling and dealing, making these cards suitable for both casual players and professionals. Overall, the BIERDORF Diamond Waterproof Black Playing Cards deliver a blend of durability, design, and usability that caters to serious card players and entertainers alike.
 
-## <a href="https://www.amazon.com/dp/B08QM8DPZZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wjpc Easy Shuffling Plastic Waterproof Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B08QM8DPZZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wjpc Easy Shuffling Plastic Waterproof Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B08QM8DPZZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WJPC Easy Shuffling Plastic Waterproof Playing Cards,Cool Black Dragon Poker Cards for Game and Party, Deck of Cards（Dragon" src="https://m.media-amazon.com/images/I/51W2b8Kb+aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08QM8DPZZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="WJPC Easy Shuffling Plastic Waterproof Playing Cards,Cool Black Dragon Poker Cards for Game and Party, Deck of Cards（Dragon" src="https://m.media-amazon.com/images/I/51W2b8Kb+aL._SL500_.jpg"/></a>
 
 
 The **WJPC Easy Shuffling Plastic Waterproof Playing Cards** are perfect for avid card players, game enthusiasts, and party hosts who value durability and ease of use. If you want a deck that can withstand spills and frequent handling without damage, these **cool black dragon poker cards** offer a stylish and practical choice. Ideal for both casual and competitive play, they suit anyone looking for a reliable and visually striking set of cards.
@@ -98,10 +98,10 @@ The **WJPC Easy Shuffling Plastic Waterproof Playing Cards** are crafted from du
 
 Additionally, the deck’s lightweight and compact dimensions make it highly portable, perfect for taking to game nights, picnics, or travel. Being produced by the reputable **WJPC** brand guarantees a certain standard of manufacturing quality, ensuring that users receive a reliable product. Overall, these cards combine functionality with a striking design, making them a great investment for anyone who enjoys card games in a variety of settings.
 
-## <a href="https://www.amazon.com/dp/B08DJ7BM11?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Standard Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B08DJ7BM11?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Standard Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B08DJ7BM11?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Standard Playing Cards, Poker Size, 12 Pack" src="https://m.media-amazon.com/images/I/51WkSW360kL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DJ7BM11?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Standard Playing Cards, Poker Size, 12 Pack" src="https://m.media-amazon.com/images/I/51WkSW360kL._SL500_.jpg"/></a>
 
 
 The **Bicycle Standard Playing Cards, Poker Size, 12 Pack** is ideal for card enthusiasts, magicians, and game night lovers who require a reliable and high-quality deck. Whether you're hosting a poker tournament, practicing card tricks, or simply enjoying a casual game with friends and family, these cards provide excellent value and durability. Perfect for both beginners and experienced players, this pack ensures you always have enough decks on hand for any occasion.
@@ -123,10 +123,10 @@ The **Bicycle Standard Playing Cards** offer a classic design that has been trus
 
 Additionally, the 12 pack format is highly beneficial for tournament organizers or households that frequently host card games. Having multiple decks on hand reduces the need for frequent repurchases and allows for quick game setup. The **red and blue** color variety also helps in organizing and managing multiple decks during games. Overall, these playing cards combine value, quality, and functionality, making them a smart purchase for anyone looking to enhance their card game experience.
 
-## <a href="https://www.amazon.com/dp/B071G7Y3XL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lotfancy Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B071G7Y3XL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Lotfancy Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B071G7Y3XL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LotFancy Playing Cards, 12 Pack, Decks of Cards Bulk, Poker Size, Standard Index, for Blackjack, Euchre, Canasta Card Game, 6 Blue and 6 Red, Casino Grade Poker Cards" src="https://m.media-amazon.com/images/I/51NQ05Od61L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B071G7Y3XL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LotFancy Playing Cards, 12 Pack, Decks of Cards Bulk, Poker Size, Standard Index, for Blackjack, Euchre, Canasta Card Game, 6 Blue and 6 Red, Casino Grade Poker Cards" src="https://m.media-amazon.com/images/I/51NQ05Od61L._SL500_.jpg"/></a>
 
 
 The **LotFancy Playing Cards, 12 Pack** are perfect for card game enthusiasts who regularly host game nights or run gaming events requiring multiple decks. Ideal for players of **Blackjack, Euchre, Canasta**, and other card games, these **casino grade poker cards** offer durability and style. Whether you're a casual player or a professional dealer, this bulk pack ensures you always have fresh, high-quality cards ready for use.
@@ -148,10 +148,10 @@ The **LotFancy Playing Cards** stand out with their vibrant color options—6 bl
 
 Additionally, the set's bulk packaging is a significant advantage for game hosts or dealers who need multiple decks on hand simultaneously. These cards are designed with both aesthetics and functionality in mind, providing a professional feel that elevates the gaming experience. Whether for home use or professional settings, the **LotFancy Playing Cards** deliver consistent performance and reliability, making them a smart investment for serious card players.
 
-## <a href="https://www.amazon.com/dp/B08MLJK6QY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Sea King Playing Cards Blue</a>
+## <a href="https://www.amazon.com/dp/B08MLJK6QY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Sea King Playing Cards Blue</a>
 
 
-<a href="https://www.amazon.com/dp/B08MLJK6QY?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Sea King Playing Cards Blue" src="https://m.media-amazon.com/images/I/51ioI4WN+oL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08MLJK6QY?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Sea King Playing Cards Blue" src="https://m.media-amazon.com/images/I/51ioI4WN+oL._SL500_.jpg"/></a>
 
 
 The **Bicycle Sea King Playing Cards Blue** are perfect for card game enthusiasts, magicians, and collectors who appreciate high-quality, durable, and visually appealing playing cards. Ideal for those who want a reliable deck for casual games, professional magic tricks, or simply to add a splash of color to their collection.
@@ -172,10 +172,10 @@ The **Bicycle Sea King Playing Cards Blue** feature vibrant colors and a unique 
 
 Additionally, the compact and lightweight nature of these cards makes them highly portable, perfect for on-the-go gaming or performances. The multicolor scheme not only adds aesthetic value but also helps players easily distinguish these cards from others, enhancing the overall gaming experience. Whether for casual play or professional use, this deck delivers both style and function.
 
-## <a href="https://www.amazon.com/dp/B07G9C4GPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eay Gold Waterproof Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B07G9C4GPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eay Gold Waterproof Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B07G9C4GPZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EAY Gold Waterproof Playing Cards - Poker Deck for Parties and Games" src="https://m.media-amazon.com/images/I/51QjxnPuJAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G9C4GPZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EAY Gold Waterproof Playing Cards - Poker Deck for Parties and Games" src="https://m.media-amazon.com/images/I/51QjxnPuJAL._SL500_.jpg"/></a>
 
 
 The **EAY Gold Waterproof Playing Cards** are perfect for card enthusiasts who enjoy hosting parties or engaging in outdoor games. Ideal for players who value durability and style, these cards are designed for those who want a reliable deck that can withstand spills and rough handling without losing their charm. Whether you're a casual gamer, a professional poker player, or someone looking to add a touch of elegance to your game nights, this poker deck is an excellent choice.
@@ -198,10 +198,10 @@ Crafted by **EAY**, this poker deck features a unique **gold waterproof design**
 
 Beyond durability, the sleek **gold color** enhances the visual appeal, impressing guests and adding a premium feel to your game sessions. The compact size is thoughtfully designed to fit comfortably in your hand and easily slip into pockets or game bags. Whether you're hosting a poker night, a casual game with friends, or a festive party, the **EAY Gold Waterproof Playing Cards** combine functionality with style to elevate your gaming experience.
 
-## <a href="https://www.amazon.com/dp/B0C7CZXML5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Disney Limited Edition 100 Year Anniversary Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B0C7CZXML5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Disney Limited Edition 100 Year Anniversary Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B0C7CZXML5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Disney Limited Edition 100 Year Anniversary Playing Cards - Holographic Foil - Features 20+ Iconic Disney Characters" src="https://m.media-amazon.com/images/I/41lPVlanLLL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C7CZXML5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Disney Limited Edition 100 Year Anniversary Playing Cards - Holographic Foil - Features 20+ Iconic Disney Characters" src="https://m.media-amazon.com/images/I/41lPVlanLLL._SL500_.jpg"/></a>
 
 
 The **Bicycle Disney Limited Edition 100 Year Anniversary Playing Cards** are perfect for both **Disney enthusiasts** and **card game collectors** who appreciate unique and visually stunning decks. If you are someone who loves celebrating iconic pop culture moments or enjoys playing card games with a touch of nostalgia, this deck is designed for you. It also makes a great gift for fans of classic Disney characters and high-quality collectible items.
@@ -224,10 +224,10 @@ This limited edition deck celebrates **100 years of Disney** by bringing togethe
 
 Additionally, the deck’s sturdy construction and smooth finish provide a comfortable handling experience, ideal for both casual gameplay and serious card magic enthusiasts. The clean white background highlights the colorful Disney artwork, making each character pop with vibrancy. Whether you are a Disney fan looking to add a special piece to your collection or someone seeking a unique deck for game nights, this Bicycle Disney Limited Edition deck offers both aesthetic appeal and reliable performance.
 
-## <a href="https://www.amazon.com/dp/B0DGWS541W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Prestige Waterproof Plastic Playing Cards</a>
+## <a href="https://www.amazon.com/dp/B0DGWS541W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bicycle Prestige Waterproof Plastic Playing Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B0DGWS541W?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Prestige Waterproof Plastic Playing Cards, Black Playing Cards, 100% Plastic, 1 Deck" src="https://m.media-amazon.com/images/I/517WS3SsAyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DGWS541W?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bicycle Prestige Waterproof Plastic Playing Cards, Black Playing Cards, 100% Plastic, 1 Deck" src="https://m.media-amazon.com/images/I/517WS3SsAyL._SL500_.jpg"/></a>
 
 
 The **Bicycle Prestige Waterproof Plastic Playing Cards** are ideal for card enthusiasts, magicians, and casual players who seek durability and style. If you value playing cards that withstand spills, bending, and frequent use without compromising on smooth handling, this deck is perfect for you. Its sleek **black color** and 100% plastic material make it suitable for both professional and recreational settings.
@@ -249,10 +249,10 @@ The **Bicycle Prestige Waterproof Plastic Playing Cards** feature premium 100% p
 
 Beyond durability, the cards boast a smooth finish that facilitates effortless shuffling and dealing, which is crucial for both casual play and professional card tricks. The distinctive **black color** not only adds a touch of sophistication but also improves card visibility under various lighting conditions, making gameplay more enjoyable. Designed and manufactured by **Bicycle** and **The United States Playing Card Company**, this deck combines quality craftsmanship with innovative materials for an unbeatable playing experience.
 
-## <a href="https://www.amazon.com/dp/B07DK73N46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Merytes 2 Deck Of Waterproof Poker Cards</a>
+## <a href="https://www.amazon.com/dp/B07DK73N46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Merytes 2 Deck Of Waterproof Poker Cards</a>
 
 
-<a href="https://www.amazon.com/dp/B07DK73N46?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Merytes 2 Deck of Waterproof Poker Cards and Playing Cards with Flexible Plastic PVC and Classic Trick Cards" src="https://m.media-amazon.com/images/I/51nezD8XxnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07DK73N46?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Merytes 2 Deck of Waterproof Poker Cards and Playing Cards with Flexible Plastic PVC and Classic Trick Cards" src="https://m.media-amazon.com/images/I/51nezD8XxnL._SL500_.jpg"/></a>
 
 
 The **Merytes 2 Deck of Waterproof Poker Cards and Playing Cards** is ideal for card game enthusiasts who value durability and versatility. Whether you enjoy poker nights, outdoor games, or traveling, these cards are perfect for anyone seeking reliable, long-lasting playing cards that can withstand spills and rough handling.

@@ -23,10 +23,10 @@ Sets such as the Dream Collection Baby Starter Set include accessories that enha
 
 
 
-## <a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaydora Lifelike Reborn Black Girl Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Kaydora Lifelike Reborn Black Girl Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaydora Lifelike Reborn Black Girl, 20 Inch Realistic Newborn Baby Dolls That Look Real, Vinyl African American Reborn Baby Doll with Soft Body Best Gift for Kids Age 3+" src="https://m.media-amazon.com/images/I/414ETd-ewpL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CFVCWXZS?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Kaydora Lifelike Reborn Black Girl, 20 Inch Realistic Newborn Baby Dolls That Look Real, Vinyl African American Reborn Baby Doll with Soft Body Best Gift for Kids Age 3+" src="https://m.media-amazon.com/images/I/414ETd-ewpL._SL500_.jpg"/></a>
 
 
 The **Kaydora Lifelike Reborn Black Girl** doll is perfect for parents, collectors, and gift-givers looking for a **realistic newborn baby doll** that offers an authentic and heartwarming experience. Ideal for children aged **3 and above**, this doll appeals especially to those who appreciate detailed craftsmanship and lifelike features in a vinyl African American reborn baby doll.
@@ -49,10 +49,10 @@ The **Kaydora Lifelike Reborn Black Girl** doll stands out for its extraordinary
 
 With its thoughtful design and quality craftsmanship, this doll serves not only as a beloved toy but also as a comforting companion. Its lightweight structure allows for easy handling by young children, encouraging nurturing behavior and social skills. Whether as a gift or a collector’s piece, the Kaydora doll offers a unique blend of realism and child-friendly features that make it a standout choice among reborn baby dolls.
 
-## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection Baby Starter Set</a>
+## <a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Dream Collection Baby Starter Set</a>
 
 
-<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07L9Q26ZN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Dream Collection, Baby Starter Set - Lifelike Baby Doll and Accessories for Realistic Pretend Play, Soft Posable - 12”" src="https://m.media-amazon.com/images/I/411QrYAy2QL._SL500_.jpg"/></a>
 
 
 The **Dream Collection, Baby Starter Set** is perfect for children who love engaging in imaginative and nurturing play. Ideal for kids who enjoy realistic pretend play, this set offers a lifelike baby doll along with accessories that encourage empathy, creativity, and social skills development. Parents looking for a high-quality, soft, and posable doll to inspire their child's imagination will find this starter set an excellent choice.
@@ -75,10 +75,10 @@ The **Dream Collection, Baby Starter Set** features a soft, posable baby doll me
 
 Additionally, the high-quality materials used by **Dream Collection** ensure the doll remains durable through active play. The softness of the doll encourages tactile interaction, making it comforting to hold and cuddle. While the starter set provides essential accessories, it also invites children to expand their pretend play by adding other items, fostering creativity and ongoing engagement. This combination of realism and playability makes the set a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Adfo Lifelike Reborn Baby Dolls 20 Inches Girl </a>
+## <a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Adfo Lifelike Reborn Baby Dolls 20 Inches Girl </a>
 
 
-<a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ADFO Lifelike Reborn Baby Dolls 20 Inches Girl Realistic Baby Doll with Soft Cloth Body Sleeping Lifelike Baby Doll with Feeding Accessories Gift for Kids Ages 3 4 5 6 7+" src="https://m.media-amazon.com/images/I/41hXKLWSq7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DKX9Y44X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="ADFO Lifelike Reborn Baby Dolls 20 Inches Girl Realistic Baby Doll with Soft Cloth Body Sleeping Lifelike Baby Doll with Feeding Accessories Gift for Kids Ages 3 4 5 6 7+" src="https://m.media-amazon.com/images/I/41hXKLWSq7L._SL500_.jpg"/></a>
 
 
 The **ADFO Lifelike Reborn Baby Doll** is perfect for children aged 3 and up who have a nurturing spirit and enjoy imaginative play. Ideal for kids who love dolls that look and feel realistic, this **20-inch girl baby doll** with a soft cloth body offers a comforting and engaging experience. It’s also a great gift for parents and collectors seeking a high-quality, lifelike doll.
@@ -101,10 +101,10 @@ The **ADFO Lifelike Reborn Baby Doll** features a meticulously crafted face and 
 
 Additionally, the doll’s size and weight are thoughtfully designed to be manageable for kids while providing a realistic feel. Manufactured by **ADFO**, this doll maintains high standards of quality and safety, ensuring it lasts through years of play. Overall, this lifelike baby doll is not only a delightful toy but also a tool that supports nurturing behavior and imaginative storytelling for young children.
 
-## <a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newtotlove Miniature Silicone Reborn Baby Doll</a>
+## <a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Newtotlove Miniature Silicone Reborn Baby Doll</a>
 
 
-<a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Newtotlove 4.5" babies="" baby="" black="" doll="" eyes="" girl"="" look="" miniature="" newborn="" open="" real="" realistic="" reborn="" silicone="" src="https://m.media-amazon.com/images/I/41w+dmbxviL._SL500_.jpg" the=""/></a>
+<a href="https://www.amazon.com/dp/B0DKBXCKWC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Newtotlove 4.5" babies="" baby="" black="" doll="" eyes="" girl"="" look="" miniature="" newborn="" open="" real="" realistic="" reborn="" silicone="" src="https://m.media-amazon.com/images/I/41w+dmbxviL._SL500_.jpg" the=""/></a>
 
 
 The **Newtotlove 4.5" Miniature Silicone Reborn Baby** is perfect for collectors, doll enthusiasts, and anyone who appreciates the artistry of **realistic newborn baby dolls**. Ideal for those seeking a lifelike **baby girl doll** with intricate details, this item suits hobbyists who want to add a delicate and authentic piece to their collection or parents looking for a gentle, safe play companion for their children.
@@ -127,10 +127,10 @@ The **Newtotlove Miniature Silicone Reborn Baby** stands out with its meticulous
 
 Beyond aesthetics, this doll provides emotional comfort and joy to its owners. The lightweight and manageable size make it accessible for children and adults alike, while the quality silicone construction allows for easy cleaning and maintenance. Whether used as a display item or a thoughtful gift, the **Newtotlove Reborn Baby** offers a blend of beauty and functionality that appeals to a wide range of doll lovers.
 
-## <a href="https://www.amazon.com/dp/B0CLP15FZ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Minaky Full Silicone Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0CLP15FZ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Minaky Full Silicone Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CLP15FZ1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Minaky Full Silicone Reborn Baby Dolls,17.70 inch Realistic Full Body Silicone,Not Vinyl Dolls,Lifelike Newborn Boy for Kids and Toddlers Gifts" src="https://m.media-amazon.com/images/I/319WO2Q9d8L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CLP15FZ1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Minaky Full Silicone Reborn Baby Dolls,17.70 inch Realistic Full Body Silicone,Not Vinyl Dolls,Lifelike Newborn Boy for Kids and Toddlers Gifts" src="https://m.media-amazon.com/images/I/319WO2Q9d8L._SL500_.jpg"/></a>
 
 
 The **Minaky Full Silicone Reborn Baby Dolls** are ideal for collectors, parents, and gift buyers looking for a highly realistic and safe doll option. Perfect for **kids and toddlers** who enjoy nurturing play, these **lifelike newborn boy dolls** offer an authentic experience that goes beyond typical vinyl dolls. If you want a doll that feels like holding a real baby, this **17.70 inch full body silicone doll** is a great choice.
@@ -154,10 +154,10 @@ The **Minaky Full Silicone Reborn Baby Doll** stands out with its meticulous cra
 
 Additionally, the doll's dimensions — measuring approximately **17.7 inches long** — make it a perfect size for toddlers to handle comfortably. The detailed painting and lifelike facial expressions further enrich the doll's authenticity, making it an excellent educational tool for teaching empathy and care. Parents will appreciate the doll’s **non-toxic materials**, ensuring safety during playtime, while gift buyers will find it a unique and thoughtful present for young children who cherish realistic baby dolls.
 
-## <a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vacosheart Lifelike Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Vacosheart Lifelike Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VacosHeart Lifelike Reborn Baby Dolls- 20 inch Handmade Realistic Newborn Girl w/Long Hair &amp; Poseable Vinyl Limbs &amp; Soft Cloth Body &amp; Feeding Kit Toy Birth Certificate Accessories Gift for Kid Age 3+" src="https://m.media-amazon.com/images/I/41iu6l++F9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DPKRSQ7X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="VacosHeart Lifelike Reborn Baby Dolls- 20 inch Handmade Realistic Newborn Girl w/Long Hair &amp; Poseable Vinyl Limbs &amp; Soft Cloth Body &amp; Feeding Kit Toy Birth Certificate Accessories Gift for Kid Age 3+" src="https://m.media-amazon.com/images/I/41iu6l++F9L._SL500_.jpg"/></a>
 
 
 The **VacosHeart Lifelike Reborn Baby Dolls** are perfect for collectors, children aged 3 and above, and anyone who appreciates the artistry of realistic dolls. This **20 inch handmade doll** with **poseable vinyl limbs** and a **soft cloth body** offers a highly authentic experience, making it an ideal gift for kids who enjoy nurturing play or adults who cherish lifelike collectibles.
@@ -181,10 +181,10 @@ The **VacosHeart Lifelike Reborn Baby Doll** stands out for its exceptional craf
 
 Beyond its physical features, this doll comes with a comprehensive **feeding kit** and **birth certificate accessories**, adding authenticity and encouraging role-playing scenarios that foster empathy and responsibility in young users. The manageable size and weight make it easy to carry and handle, making it a wonderful companion for children or a prized collectible for doll enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside 4pcs Doll Bedding For 17–22 Inch Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside 4pcs Doll Bedding For 17–22 Inch Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE 4Pcs Doll Bedding for 17–22 Inch Reborn Baby Dolls,Baby Dolls Accessories with Rainbow Floral Pattern Padded Mattress, Quilt and 2 Pillow for Realistic Babies Dolls" src="https://m.media-amazon.com/images/I/41K0Obp3CqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DRVJLQF6?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE 4Pcs Doll Bedding for 17–22 Inch Reborn Baby Dolls,Baby Dolls Accessories with Rainbow Floral Pattern Padded Mattress, Quilt and 2 Pillow for Realistic Babies Dolls" src="https://m.media-amazon.com/images/I/41K0Obp3CqL._SL500_.jpg"/></a>
 
 
 The **BABESIDE 4Pcs Doll Bedding** set is perfect for collectors and children who own **17–22 inch Reborn Baby Dolls** and want to enhance their doll’s nursery setup. Ideal for those seeking a realistic and cozy bedding accessory, this set adds charm and comfort to any baby doll’s environment, making it a great choice for imaginative play or display.
@@ -206,10 +206,10 @@ The **BABESIDE Doll Bedding set** stands out with its thoughtful design focused 
 
 Crafted in charming **pink and white colors** with a lively rainbow floral pattern, the bedding set brings a cheerful and inviting atmosphere to your doll’s nursery. The dimensions are carefully tailored to fit popular reborn baby doll sizes, ensuring the bedding looks natural and well-fitted. Whether used for display or play, this accessory set elevates the overall doll experience with its quality and design.
 
-## <a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Lifelike Baby Doll Mia</a>
+## <a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Babeside Lifelike Baby Doll Mia</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Lifelike Baby Doll Mia -17 inch Cute Soft Body Realistic Baby Dolls Girl Real Life Baby Doll with Unicorn Clothes &amp; Accessories for Kids 3+ Girls Gift,Collection" src="https://m.media-amazon.com/images/I/515laTpZ7YL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1MWV7G8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="BABESIDE Lifelike Baby Doll Mia -17 inch Cute Soft Body Realistic Baby Dolls Girl Real Life Baby Doll with Unicorn Clothes &amp; Accessories for Kids 3+ Girls Gift,Collection" src="https://m.media-amazon.com/images/I/515laTpZ7YL._SL500_.jpg"/></a>
 
 
 The **BABESIDE Lifelike Baby Doll Mia** is an ideal choice for parents looking to gift their children a realistic and soft baby doll that encourages imaginative play. This doll is perfect for kids aged 3 and above, especially girls who enjoy nurturing and role-playing activities. Collectors of lifelike dolls may also appreciate its detailed design and included accessories.
@@ -231,10 +231,10 @@ The **BABESIDE Lifelike Baby Doll Mia** features a soft body and realistic facia
 
 Beyond its appearance, this doll provides emotional benefits as it helps children develop nurturing skills and empathy. The durable construction from a reputable brand ensures that the doll withstands regular play, making it a lasting gift or collectible. Overall, the BABESIDE Mia doll is a wonderful companion for kids who love caring for lifelike dolls in a safe and engaging way.
 
-## <a href="https://www.amazon.com/dp/B0FH6NFSQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anano Lifelike Reborn Baby Dolls</a>
+## <a href="https://www.amazon.com/dp/B0FH6NFSQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Anano Lifelike Reborn Baby Dolls</a>
 
 
-<a href="https://www.amazon.com/dp/B0FH6NFSQK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anano Lifelike Reborn Baby Dolls Silicone Full Body Girls 20 Inch Squishy Silicone Babies That Looks Like Real Newborn Reborn Toddler Dolls Anatomically Correct Realistic Infant for Kids 3+" src="https://m.media-amazon.com/images/I/41WfuFXYiHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0FH6NFSQK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Anano Lifelike Reborn Baby Dolls Silicone Full Body Girls 20 Inch Squishy Silicone Babies That Looks Like Real Newborn Reborn Toddler Dolls Anatomically Correct Realistic Infant for Kids 3+" src="https://m.media-amazon.com/images/I/41WfuFXYiHL._SL500_.jpg"/></a>
 
 
 The **Anano Lifelike Reborn Baby Dolls Silicone Full Body Girls 20 Inch** is perfect for parents, collectors, and children aged 3 and above who seek a highly realistic and anatomically correct infant doll. This item is ideal for those who want a lifelike experience with a squishy, soft silicone baby doll that mimics the appearance and feel of a real newborn. Whether for nurturing play, therapy, or display, this doll suits anyone looking for an authentic and detailed toddler replica.
@@ -257,10 +257,10 @@ The **Anano Lifelike Reborn Baby Doll** features a full silicone body measuring 
 
 Beyond aesthetics, this doll is crafted by **Nanjing Tianzeng Gifts Co.,Ltd**, a reputable manufacturer known for quality and attention to detail. Its anatomical correctness supports educational and therapeutic uses, helping children develop nurturing skills and providing comfort in various settings. The durable silicone material ensures longevity, while the lifelike design makes it a treasured keepsake or play companion for years to come.
 
-## <a href="https://www.amazon.com/dp/B0D5CRQB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rxdoll Realistic Newborn Baby Dolls Boy</a>
+## <a href="https://www.amazon.com/dp/B0D5CRQB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rxdoll Realistic Newborn Baby Dolls Boy</a>
 
 
-<a href="https://www.amazon.com/dp/B0D5CRQB5K?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RXDOLL Realistic Newborn Baby Dolls Boy 17In 46cm Soft Vinyl Full Body Silicone Reborn Baby Dolls That Look Real Anatomically Correct Baby Boy Doll with Rooted Hair" src="https://m.media-amazon.com/images/I/41spcePWW4L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D5CRQB5K?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="RXDOLL Realistic Newborn Baby Dolls Boy 17In 46cm Soft Vinyl Full Body Silicone Reborn Baby Dolls That Look Real Anatomically Correct Baby Boy Doll with Rooted Hair" src="https://m.media-amazon.com/images/I/41spcePWW4L._SL500_.jpg"/></a>
 
 
 The **RXDOLL Realistic Newborn Baby Dolls Boy** is perfect for collectors, parents, and children who appreciate lifelike, high-quality dolls. Ideal for those seeking a **soft vinyl** and **full body silicone reborn baby doll** that looks incredibly real, this anatomically correct baby boy doll with **rooted hair** offers a comforting and authentic experience for nurturing play or display.

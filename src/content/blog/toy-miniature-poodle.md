@@ -23,10 +23,10 @@ These toys also make thoughtful gifts for birthdays and holidays. Their small si
 
 
 
-## <a href="https://www.amazon.com/dp/B08HSDRD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Poodle Toy Figurine</a>
+## <a href="https://www.amazon.com/dp/B08HSDRD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Schleich Farm World Poodle Toy Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B08HSDRD23?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World, Realisitc Dog Toys for Boys and Girls Ages 3 and Above, Poodle Toy Figurine" src="https://m.media-amazon.com/images/I/314blK+QGsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08HSDRD23?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Schleich Farm World, Realisitc Dog Toys for Boys and Girls Ages 3 and Above, Poodle Toy Figurine" src="https://m.media-amazon.com/images/I/314blK+QGsL._SL500_.jpg"/></a>
 
 
 The **Schleich Farm World Realistic Dog Toys** are perfect for **boys and girls aged 3 and above** who love animals and imaginative play. Ideal for young children who enjoy collecting detailed figurines or incorporating them into farm-themed playsets, this **Poodle Toy Figurine** encourages creativity and learning about animals in a fun and engaging way.
@@ -48,10 +48,10 @@ The **Schleich Poodle Toy Figurine** boasts an impressive level of craftsmanship
 
 Beyond just being a cute figurine, this toy enhances imaginative play by allowing children to create stories and farm scenarios, fostering creativity and cognitive development. The **multi-colored design** captures attention and helps kids identify different dog breeds, contributing to their learning experience. Overall, the Schleich Farm World Poodle Figurine offers both educational and entertainment value for young animal lovers.
 
-## <a href="https://www.amazon.com/dp/B0CT5NDQTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rileryan Miniature Dogs House Figurines</a>
+## <a href="https://www.amazon.com/dp/B0CT5NDQTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rileryan Miniature Dogs House Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0CT5NDQTQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rileryan 8PCS Miniature Dogs House Figurines Tiny Puppy Dog Sets Animal Figures Home Desk Fairy Garden Decor Cake Toppers Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/41Pe7YsSY0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT5NDQTQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rileryan 8PCS Miniature Dogs House Figurines Tiny Puppy Dog Sets Animal Figures Home Desk Fairy Garden Decor Cake Toppers Christmas Birthday Gift" src="https://m.media-amazon.com/images/I/41Pe7YsSY0L._SL500_.jpg"/></a>
 
 
 The **Rileryan 8PCS Miniature Dogs House Figurines** are perfect for collectors, crafters, and anyone looking to add a charming touch to their home decor or fairy garden. Ideal for those who appreciate detailed, tiny animal figures, these **miniature puppy dog sets** make excellent gifts for dog lovers and are great as unique **Christmas or birthday gifts**. If you enjoy decorating desks, cakes, or creating small-scale scenes, this set is designed for you.
@@ -74,10 +74,10 @@ The **Rileryan 8PCS Miniature Dogs House Figurines** are crafted with attention 
 
 These tiny puppies not only serve as delightful decor but also inspire creativity. Whether used as **cake toppers** for special occasions or as part of a fairy garden setup, they bring a playful and heartwarming element to any environment. Their lightweight design enhances portability, allowing you to change displays effortlessly or gift them conveniently. Overall, these figurines are a charming addition for anyone who loves dogs and miniature collectibles.
 
-## <a href="https://www.amazon.com/dp/B0767H9134?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Poodle Figurine</a>
+## <a href="https://www.amazon.com/dp/B0767H9134?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Safari Ltd. Poodle Figurine</a>
 
 
-<a href="https://www.amazon.com/dp/B0767H9134?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Poodle Figurine - 3.5" and="" boys,="" dog="" educational="" figure="" for="" girls,="" kids="" model="" src="https://m.media-amazon.com/images/I/41scg1+RL3L._SL500_.jpg" toy=""/></a>
+<a href="https://www.amazon.com/dp/B0767H9134?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" 3+"="" ages="" alt="Safari Ltd. Poodle Figurine - 3.5" and="" boys,="" dog="" educational="" figure="" for="" girls,="" kids="" model="" src="https://m.media-amazon.com/images/I/41scg1+RL3L._SL500_.jpg" toy=""/></a>
 
 
 The **Safari Ltd. Poodle Figurine** is perfect for parents, educators, and collectors looking for a high-quality, **educational toy** for children aged 3 and above. This item is ideal for young kids who love animals and enjoy imaginative play, as well as for teachers aiming to introduce children to different dog breeds in an engaging way. It’s also a great addition for anyone who appreciates detailed, realistic **animal models**.
@@ -99,10 +99,10 @@ The **Safari Ltd. Poodle Figurine** stands out with its finely detailed design a
 
 Additionally, this figurine serves as an excellent educational tool. It encourages kids to learn about different dog breeds, fostering an early interest in animals and nature. The sturdy build and child-safe materials provide peace of mind to parents and educators. Overall, this model offers a blend of fun, education, and collectability that makes it a valuable addition to any child's toy collection or classroom.
 
-## <a href="https://www.amazon.com/dp/B07BVS75FD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibwell Mini Bobbing-head Dog For Car Dash Board Decor</a>
+## <a href="https://www.amazon.com/dp/B07BVS75FD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ibwell Mini Bobbing-head Dog For Car Dash Board Decor</a>
 
 
-<a href="https://www.amazon.com/dp/B07BVS75FD?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IBWell Mini Bobbing-Head Dog for Car Dash Board Decor,Dashboard Doggy Puppy Teddy Toy with Adhesive Tab（Poodle） (Brownish Red)" src="https://m.media-amazon.com/images/I/51WkDtAc2jL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07BVS75FD?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="IBWell Mini Bobbing-Head Dog for Car Dash Board Decor,Dashboard Doggy Puppy Teddy Toy with Adhesive Tab（Poodle） (Brownish Red)" src="https://m.media-amazon.com/images/I/51WkDtAc2jL._SL500_.jpg"/></a>
 
 
 The **IBWell Mini Bobbing-Head Dog** is perfect for car owners who love adding a touch of personality and charm to their vehicle interiors. If you are looking for a cute and entertaining dashboard accessory that also brings a playful vibe, this **dashboard doggy puppy teddy toy** in **brownish red** is an ideal choice. It’s especially suited for dog lovers and those who appreciate fun, subtle decorations while driving.
@@ -125,10 +125,10 @@ The **IBWell Mini Bobbing-Head Dog** features a charming **poodle design** that 
 
 In addition to its playful appeal, the compact size and lightweight build make it a practical accessory for any vehicle without compromising dashboard space. The choice of **brownish red** adds a cozy, inviting feel that complements most car interiors. This item is a delightful gift for dog lovers and anyone who appreciates quirky, joyful car decorations that enhance the driving experience.
 
-## <a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyscota Dog Figurines</a>
+## <a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Eyscota Dog Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Dog Figurines, Realistic Plastic Puppy Figurines, Hand Painted Emulational Tiny Dogs Animals Toy, Dog Cake Topper Easter Egg Birthday Gift for Kids and Toddlers" src="https://m.media-amazon.com/images/I/51ejvg3itML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C6T7MYPT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="EYSCOTA 12PCS Dog Figurines, Realistic Plastic Puppy Figurines, Hand Painted Emulational Tiny Dogs Animals Toy, Dog Cake Topper Easter Egg Birthday Gift for Kids and Toddlers" src="https://m.media-amazon.com/images/I/51ejvg3itML._SL500_.jpg"/></a>
 
 
 Ideal for children, toddlers, and dog lovers, the **EYSCOTA 12PCS Dog Figurines** make an excellent choice for those seeking realistic, hand-painted, and colorful miniature dog toys. These **plastic puppy figurines** are perfect for educational play, cake toppers, Easter egg gifts, or as collectibles for anyone who appreciates detailed animal models.
@@ -151,10 +151,10 @@ The **EYSCOTA 12PCS Dog Figurines** stand out due to their meticulous hand-paint
 
 Crafted from durable plastic, these figurines are built to withstand frequent handling by toddlers and kids, making them perfect for both playtime and display. The set's versatility extends beyond toys, as they can also be used in educational settings or as collectibles for dog enthusiasts. Overall, the EYSCOTA dog figurines blend artistic craftsmanship with practical fun, making them a valuable addition to any child's toy collection or a thoughtful gift for young animal lovers.
 
-## <a href="https://www.amazon.com/dp/B0CQTTM67M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Paysley Poodle Stuffed Animal </a>
+## <a href="https://www.amazon.com/dp/B0CQTTM67M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"> Aurora Adorable Mini Flopsie Paysley Poodle Stuffed Animal </a>
 
 
-<a href="https://www.amazon.com/dp/B0CQTTM67M?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Paysley Poodle Stuffed Animal - Playful Ease - Timeless Companions - Brown 8 Inches" src="https://m.media-amazon.com/images/I/41J3VU2fJQL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CQTTM67M?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Aurora® Adorable Mini Flopsie™ Paysley Poodle Stuffed Animal - Playful Ease - Timeless Companions - Brown 8 Inches" src="https://m.media-amazon.com/images/I/41J3VU2fJQL._SL500_.jpg"/></a>
 
 
 The **Aurora® Adorable Mini Flopsie™ Paysley Poodle Stuffed Animal** is an ideal choice for children, collectors, and anyone seeking a cute, comforting companion. Perfect for young kids who love cuddly toys or adults who appreciate finely crafted plush animals, this **8-inch brown poodle** offers a delightful blend of playfulness and timeless charm. Those looking for a compact, easy-to-handle stuffed animal to brighten up a room or gift to a loved one will find this item especially appealing.
@@ -176,10 +176,10 @@ The **Aurora® Adorable Mini Flopsie™ Paysley Poodle** stands out due to its m
 
 Beyond its physical attributes, this stuffed poodle fosters imaginative play and emotional support, making it a timeless companion for all ages. The playful ease of the Mini Flopsie™ design allows kids to engage with the toy effortlessly, while collectors will appreciate the attention to detail and the renowned quality of the **Aurora** brand. Whether as a gift or a personal keepsake, this plush poodle brings joy, comfort, and a touch of whimsy to everyday life.
 
-## <a href="https://www.amazon.com/dp/B0B8NGGPQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sienon 12 Mini Dog Figurines</a>
+## <a href="https://www.amazon.com/dp/B0B8NGGPQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Sienon 12 Mini Dog Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0B8NGGPQ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SIENON 12 Mini Dog Figurines, Realistic Puppy Figures, Cake Topper, Easter Eggs &amp; Birthday Toy Set" src="https://m.media-amazon.com/images/I/51kJwnYiYWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B8NGGPQ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SIENON 12 Mini Dog Figurines, Realistic Puppy Figures, Cake Topper, Easter Eggs &amp; Birthday Toy Set" src="https://m.media-amazon.com/images/I/51kJwnYiYWL._SL500_.jpg"/></a>
 
 
 The **SIENON 12 Mini Dog Figurines** set is ideal for pet lovers, collectors, and parents looking for charming, realistic toys to engage children. These miniature **puppy figures** also make excellent **cake toppers** for birthdays or delightful additions to **Easter eggs**, appealing to those who appreciate detailed, versatile decorative items. If you want to combine playfulness with decoration, this set is perfect for you.
@@ -201,10 +201,10 @@ The **SIENON 12 Mini Dog Figurines** set features 12 intricately crafted puppy f
 
 These figurines are lightweight and easy to handle, which enhances their appeal as toys for children, encouraging imaginative play and learning about different dog breeds. Additionally, their durable construction ensures they can withstand regular use, whether on display or in play. Overall, this set combines aesthetic appeal with practical functionality, making it a delightful addition for both decorative and recreational purposes.
 
-## <a href="https://www.amazon.com/dp/B08ZMT3YFK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weigedu Adorable Labradoodle Plush Toy</a>
+## <a href="https://www.amazon.com/dp/B08ZMT3YFK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Weigedu Adorable Labradoodle Plush Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B08ZMT3YFK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" alt="WEIGEDU Adorable Labradoodle Plush Toy Fluffy Red Poodle Stuffed Animal Dog Puppy, 12.6" babies,="" birthday,="" for="" kids,="" nursery"="" perfect="" src="https://m.media-amazon.com/images/I/41svzL1fkOL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08ZMT3YFK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img -="" alt="WEIGEDU Adorable Labradoodle Plush Toy Fluffy Red Poodle Stuffed Animal Dog Puppy, 12.6" babies,="" birthday,="" for="" kids,="" nursery"="" perfect="" src="https://m.media-amazon.com/images/I/41svzL1fkOL._SL500_.jpg"/></a>
 
 
 The **WEIGEDU Adorable Labradoodle Plush Toy** is ideal for **kids**, **babies**, and anyone looking to add a charming and cuddly companion to a **nursery** or playroom. This **fluffy red poodle stuffed animal** is perfect for birthdays and makes a thoughtful gift for young children who love soft, huggable toys. Its manageable size and lightweight design make it easy for little hands to carry and cuddle.
@@ -226,10 +226,10 @@ The **WEIGEDU Labradoodle Plush Toy** stands out with its soft and fluffy fabric
 
 Beyond just being a cute stuffed animal, this plush toy encourages imaginative play and can become a child's favorite bedtime companion, helping to soothe and calm them. The **red poodle design** adds a pop of color and charm, making it a delightful decorative piece for nurseries and bedrooms as well. Manufactured by **WEIGEDU VOGTOY**, it promises quality and durability, ensuring it withstands the energetic play habits of children.
 
-## <a href="https://www.amazon.com/dp/B071CVCZ8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Gigi Black Poodle Dog Plush</a>
+## <a href="https://www.amazon.com/dp/B071CVCZ8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Douglas Gigi Black Poodle Dog Plush</a>
 
 
-<a href="https://www.amazon.com/dp/B071CVCZ8P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Gigi Black Poodle Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/411VWyvlZAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B071CVCZ8P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Douglas Gigi Black Poodle Dog Plush Stuffed Animal" src="https://m.media-amazon.com/images/I/411VWyvlZAL._SL500_.jpg"/></a>
 
 
 The **Douglas Gigi Black Poodle Dog Plush Stuffed Animal** is perfect for **dog lovers**, children, and collectors who appreciate high-quality, realistic plush toys. Ideal for those seeking a **soft, cuddly companion** or a charming decorative piece, this item suits anyone wanting to add a touch of warmth and cuteness to their space. It also makes a thoughtful gift for birthdays, holidays, or special occasions.
@@ -251,10 +251,10 @@ The **Douglas Gigi Black Poodle** plush stands out with its detailed design and 
 
 Beyond its appealing appearance, this stuffed animal offers tactile comfort with its soft fur, inviting hugs and snuggles. The durable materials used by **Douglas Co., Inc.** ensure that the plush maintains its shape and softness even with frequent handling. This makes it an excellent choice for gifting or for anyone looking to enjoy the companionship of a lifelike, high-quality stuffed pet.
 
-## <a href="https://www.amazon.com/dp/B094Q7YBNC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearington White Dog Stuffed Animal 6.5 In</a>
+## <a href="https://www.amazon.com/dp/B094Q7YBNC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bearington White Dog Stuffed Animal 6.5 In</a>
 
 
-<a href="https://www.amazon.com/dp/B094Q7YBNC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearington White Dog Stuffed Animal 6.5 in - Puppy Stuffed Animals - Plush Dog Toys for Kids Poodle Labradoodle Plushies That Look Real" src="https://m.media-amazon.com/images/I/31J-mOTFG6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B094Q7YBNC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Bearington White Dog Stuffed Animal 6.5 in - Puppy Stuffed Animals - Plush Dog Toys for Kids Poodle Labradoodle Plushies That Look Real" src="https://m.media-amazon.com/images/I/31J-mOTFG6L._SL500_.jpg"/></a>
 
 
 The **Bearington White Dog Stuffed Animal 6.5 in** is perfect for children and collectors who appreciate lifelike plush toys. Ideal for kids who love **puppy stuffed animals** or those who want a soft, cuddly companion resembling breeds like **Poodle** or **Labradoodle**. This plush dog is also great for gift-givers seeking a charming and realistic toy that brings comfort and imaginative play to young ones.

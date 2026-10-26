@@ -31,7 +31,7 @@ With the right supplies, children can explore their creativity. Crafting also he
 
 Start with basic supplies that are easy to use. These materials work for many craft projects. You can find them at home or stores.
 
-* [Colored paper and cardstock](https://www.amazon.com/s?k=colored+cardstock+paper+for+crafts&tag=gearcookware-20)
+* [Colored paper and cardstock](https://www.amazon.com/s?k=colored+cardstock+paper+for+crafts&tag=mofb05-20)
 * Glue sticks and white glue
 * Safety scissors
 * Crayons, markers, and colored pencils
@@ -74,7 +74,7 @@ Origami is the art of folding paper to make shapes. It uses no glue or scissors.
 
 Start with easy models like paper boats or cranes. Follow simple folds step by step.
 
-* Use [square paper](https://www.amazon.com/s?k=origami+paper+square&tag=gearcookware-20) for best results
+* Use [square paper](https://www.amazon.com/s?k=origami+paper+square&tag=mofb05-20) for best results
 * Make sharp folds for neat shapes
 * Try animals, flowers, or stars
 
@@ -112,7 +112,7 @@ Try these fun painting ideas that bring out the artist in every child. Each proj
 
 Finger painting lets kids use their hands to create art. They can mix colors and make shapes without brushes. This helps develop fine motor skills and imagination.
 
-* Use [washable paints](https://www.amazon.com/s?k=kids+washable+finger+paint+set&tag=gearcookware-20) for easy cleanup
+* Use [washable paints](https://www.amazon.com/s?k=kids+washable+finger+paint+set&tag=mofb05-20) for easy cleanup
 * Try swirling colors together on paper
 * Make patterns by tapping fingers gently
 * Create handprint animals or flowers
@@ -165,7 +165,7 @@ Friendship bracelets are easy to make and share. Kids use colorful threads to cr
 |  |  |
 | --- | --- |
 | Materials | Purpose |
-| [Embroidery floss](https://www.amazon.com/s?k=embroidery+floss+friendship+bracelets+kit&tag=gearcookware-20) | Colors for the bracelet |
+| [Embroidery floss](https://www.amazon.com/s?k=embroidery+floss+friendship+bracelets+kit&tag=mofb05-20) | Colors for the bracelet |
 | Scissors | Cut the threads |
 | Tape or clipboard | Hold threads in place |
 | Ruler | Measure thread length |
@@ -269,7 +269,7 @@ Create a special area for crafts with easy access to supplies. A tidy and organi
 
 Use containers and shelves to keep materials neat. Include a table and comfortable chair sized for the child.
 
-* Store scissors, glue, and paper in [labeled bins](https://www.amazon.com/s?k=kids+craft+storage+bins+and+organizers&tag=gearcookware-20)
+* Store scissors, glue, and paper in [labeled bins](https://www.amazon.com/s?k=kids+craft+storage+bins+and+organizers&tag=mofb05-20)
 * Have a spot for drying paintings or projects
 * Use washable covers to protect surfaces
 * Keep cleaning supplies nearby for quick cleanup

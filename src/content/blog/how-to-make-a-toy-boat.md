@@ -32,11 +32,11 @@ Making a toy boat is fun and simple. The materials you need are easy to find. Pr
 ### Basic Supplies
 
 * Thin wood or sturdy cardboard for the boat body
-* Scissors or a [craft knife](https://www.amazon.com/s?k=craft+knife&tag=gearcookware-20) for cutting
+* Scissors or a [craft knife](https://www.amazon.com/s?k=craft+knife&tag=mofb05-20) for cutting
 * Glue or tape to hold parts together
 * A ruler to measure pieces accurately
 * Pencil for marking cuts and designs
-* Plastic or [paper straws](https://www.amazon.com/s?k=paper+straws+for+crafts&tag=gearcookware-20) for the mast
+* Plastic or [paper straws](https://www.amazon.com/s?k=paper+straws+for+crafts&tag=mofb05-20) for the mast
 * Paper or fabric for the sail
 
 ### Optional Decorations
@@ -93,7 +93,7 @@ Painting and decorating your toy boat makes it unique and fun. This step lets yo
 
 ### Safe Paint Options
 
-Use non-toxic, water-based paints for safety. These paints are easy to clean and dry fast. Avoid spray paints or harsh chemicals. [Acrylic paints](https://www.amazon.com/s?k=non-toxic+acrylic+paint+set+for+kids&tag=gearcookware-20) also work well and are safe for kids. Always test a small spot first to check for reactions.
+Use non-toxic, water-based paints for safety. These paints are easy to clean and dry fast. Avoid spray paints or harsh chemicals. [Acrylic paints](https://www.amazon.com/s?k=non-toxic+acrylic+paint+set+for+kids&tag=mofb05-20) also work well and are safe for kids. Always test a small spot first to check for reactions.
 
 ### Fun Decoration Tips
 
@@ -129,7 +129,7 @@ A toy boat must be balanced to float well. If it tips to one side, check the wei
 
 ### Improving Buoyancy
 
-Buoyancy keeps the boat afloat. If the boat sinks, it may hold too much water. Seal any holes with [waterproof glue](https://www.amazon.com/s?k=waterproof+craft+glue&tag=gearcookware-20) or tape. Use lightweight materials like foam or cork for the base. Avoid heavy objects inside the boat. Make sure the boat’s bottom is flat and wide to hold water better.
+Buoyancy keeps the boat afloat. If the boat sinks, it may hold too much water. Seal any holes with [waterproof glue](https://www.amazon.com/s?k=waterproof+craft+glue&tag=mofb05-20) or tape. Use lightweight materials like foam or cork for the base. Avoid heavy objects inside the boat. Make sure the boat’s bottom is flat and wide to hold water better.
 
 ## Expanding Your Boat Skills
 
@@ -149,7 +149,7 @@ Study real boats for ideas. Simple sailboats or fishing boats work well. Copy th
 
 ### Incorporating Electronics
 
-Add [small motors](https://www.amazon.com/s?k=small+hobby+motor+kit+for+kids&tag=gearcookware-20) to make your boat move by itself. Use batteries and switches to control it. This adds excitement and learning about basic electronics. You can also add LED lights for night play.
+Add [small motors](https://www.amazon.com/s?k=small+hobby+motor+kit+for+kids&tag=mofb05-20) to make your boat move by itself. Use batteries and switches to control it. This adds excitement and learning about basic electronics. You can also add LED lights for night play.
 
 Try remote controls for more fun. This teaches how to use simple circuits and controls. Use waterproof parts to keep your boat safe. Electronics bring a new level of enjoyment to toy boats.
 

@@ -23,10 +23,10 @@ Available in various themes like floral, unicorn, and polka dots, these sets cat
 
 
 
-## <a href="https://www.amazon.com/dp/B0045PK3GC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rhode Island Novelty Ceramic Tea Set</a>
+## <a href="https://www.amazon.com/dp/B0045PK3GC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Rhode Island Novelty Ceramic Tea Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0045PK3GC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rhode Island Novelty 13 PC Ceramic Tea Set" src="https://m.media-amazon.com/images/I/51OB0uKe6-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0045PK3GC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Rhode Island Novelty 13 PC Ceramic Tea Set" src="https://m.media-amazon.com/images/I/51OB0uKe6-L._SL500_.jpg"/></a>
 
 
 The **Rhode Island Novelty 13 PC Ceramic Tea Set** is ideal for tea enthusiasts and collectors who appreciate classic style and functional design. Perfect for those who enjoy hosting tea parties or adding a charming touch to their kitchen decor, this tea set caters to individuals seeking a compact yet elegant ceramic set. Its original color and traditional dimensions make it suitable for both everyday use and special occasions.
@@ -49,12 +49,12 @@ The **Rhode Island Novelty 13 PC Ceramic Tea Set** features a thoughtfully desig
 
 Additionally, the tea set’s elegant original color adds a timeless aesthetic that enhances any setting. This makes it a perfect gift option for tea lovers or a stylish addition to one’s personal collection. The manageable size and complete assortment of pieces make it both practical and visually appealing, balancing functionality with decorative charm.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0045PK3GC?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0045PK3GC?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CMJ9B6F4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Porcelain Tea Set For Girls</a>
+## <a href="https://www.amazon.com/dp/B0CMJ9B6F4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Porcelain Tea Set For Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0CMJ9B6F4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Porcelain Tea Set for Girls - White &amp; Floral Tea Party Set for Kids I Complete Children Tea Sets with Carry Case, Teapot, Cups and More, Birthday Gift for Little Girls &amp; Toddlers" src="https://m.media-amazon.com/images/I/41XLQrscQuL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CMJ9B6F4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Porcelain Tea Set for Girls - White &amp; Floral Tea Party Set for Kids I Complete Children Tea Sets with Carry Case, Teapot, Cups and More, Birthday Gift for Little Girls &amp; Toddlers" src="https://m.media-amazon.com/images/I/41XLQrscQuL._SL500_.jpg"/></a>
 
 
 The **Porcelain Tea Set for Girls** is an ideal choice for parents and gift-givers looking to encourage imaginative play and social skills in young children, especially **little girls and toddlers** who enjoy pretend tea parties. This beautifully designed **white and floral tea party set** offers a complete collection that includes a **teapot, cups, and a carry case**, making it perfect for birthday presents or special occasions.
@@ -77,12 +77,12 @@ This **porcelain tea set** is thoughtfully crafted to provide an authentic tea p
 
 The inclusion of a **carry case** makes this set convenient for travel or storage, ensuring that children can enjoy their tea parties anywhere. The complete set fosters opportunities for role-playing, which is crucial for developing social skills and language abilities. Overall, this tea set by **Giggle & Honey** combines functionality with an enchanting design, making it a cherished gift that promotes learning through play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CMJ9B6F4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CMJ9B6F4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08DDFNT57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Porcelain Tea Set For Girls</a>
+## <a href="https://www.amazon.com/dp/B08DDFNT57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Porcelain Tea Set For Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B08DDFNT57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Porcelain Tea Set for Girls - Pink Ceramic Tea Cups with Pink Box - Glass Toy for Kids Party - Ideal Gift for Toddlers and Children's Ages 3 Years Old - Floral Design, 13 Pieces" src="https://m.media-amazon.com/images/I/41EvrAkgKaL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DDFNT57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Porcelain Tea Set for Girls - Pink Ceramic Tea Cups with Pink Box - Glass Toy for Kids Party - Ideal Gift for Toddlers and Children's Ages 3 Years Old - Floral Design, 13 Pieces" src="https://m.media-amazon.com/images/I/41EvrAkgKaL._SL500_.jpg"/></a>
 
 
 The **Porcelain Tea Set for Girls** is perfect for parents looking to gift their **toddlers and young children aged 3 years and above** a charming and interactive play experience. Ideal for kids who love role-playing and hosting tea parties, this set encourages imaginative play and social skills development in a safe and delightful way.
@@ -105,12 +105,12 @@ The **Jewelkeeper Porcelain Tea Set** boasts a delightful **pink ceramic** desig
 
 In addition to its aesthetic appeal, this tea set is designed for practicality and convenience. The included **pink storage box** keeps all pieces organized and portable, making it a great companion for kids’ parties and family gatherings. While the porcelain material gives the set an elegant and authentic feel, it also means that parents should be mindful of its fragility and supervise younger children during use. Overall, this tea set offers a charming and educational gift option that encourages imaginative play and joyful interaction among children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08DDFNT57?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08DDFNT57?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B08DDHMKGX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jewelkeeper Tea Set For Little Girls</a>
+## <a href="https://www.amazon.com/dp/B08DDHMKGX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jewelkeeper Tea Set For Little Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B08DDHMKGX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jewelkeeper Tea Set for Little Girls - 14-Piece Porcelain Tea Party Set for Children Includes Teapot, Cups, Saucers, Creamer, and Sugar Bowl - Pink Polka Dot Design" src="https://m.media-amazon.com/images/I/41PyLUwpXHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08DDHMKGX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jewelkeeper Tea Set for Little Girls - 14-Piece Porcelain Tea Party Set for Children Includes Teapot, Cups, Saucers, Creamer, and Sugar Bowl - Pink Polka Dot Design" src="https://m.media-amazon.com/images/I/41PyLUwpXHL._SL500_.jpg"/></a>
 
 
 The **Jewelkeeper Tea Set for Little Girls** is perfect for young children who love imaginative play and hosting their own tea parties. Ideal for girls who enjoy role-playing and social activities, this **14-piece porcelain tea party set** offers a charming and safe way to encourage creativity and social skills in a fun, engaging manner.
@@ -133,12 +133,12 @@ The **Jewelkeeper Tea Set** combines both elegance and functionality in a child-
 
 Beyond its visual appeal, this tea set fosters social interaction and fine motor skills development as children practice pouring, serving, and sharing tea with friends or family. Its lightweight and compact design make it easy for little hands to manage, while the complete 14-piece set ensures every tea party is complete and enjoyable. Overall, the **Jewelkeeper Tea Set** offers a delightful blend of style, durability, and educational value for young children.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B08DDHMKGX?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B08DDHMKGX?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B00P2WEWPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">17 Pieces Floral Miniature Porcelain Ceramic Tea Set</a>
+## <a href="https://www.amazon.com/dp/B00P2WEWPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">17 Pieces Floral Miniature Porcelain Ceramic Tea Set</a>
 
 
-<a href="https://www.amazon.com/dp/B00P2WEWPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="17 Pieces Floral Miniature Porcelain Ceramic Tea Set - Pretend Play Kids Toy Mini Kitchen Playset, Fun Doll Dramatic Play for Little Girls, Kids" src="https://m.media-amazon.com/images/I/41ar3vHgr5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00P2WEWPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="17 Pieces Floral Miniature Porcelain Ceramic Tea Set - Pretend Play Kids Toy Mini Kitchen Playset, Fun Doll Dramatic Play for Little Girls, Kids" src="https://m.media-amazon.com/images/I/41ar3vHgr5L._SL500_.jpg"/></a>
 
 
 The **17 Pieces Floral Miniature Porcelain Ceramic Tea Set** is perfect for parents looking to encourage imaginative play in their little girls. This **mini kitchen playset** is ideal for kids who enjoy pretend play and dramatic role-playing activities, helping them develop creativity and social skills through fun tea parties and interactive playtime.
@@ -161,12 +161,12 @@ The **Liberty Imports** branded tea set boasts exquisite craftsmanship, combinin
 
 Beyond just being a toy, this **miniature tea set** encourages fine motor skill development as children learn to handle small cups and utensils. The realistic look and feel of the porcelain ceramic add a touch of elegance, making the playset not only fun but also visually appealing. Overall, this tea set is a wonderful addition to any child's playtime collection, promoting creativity and joyful social moments.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B00P2WEWPK?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B00P2WEWPK?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0F4QY9HJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fairy Toona Floral Tea Party Set</a>
+## <a href="https://www.amazon.com/dp/B0F4QY9HJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fairy Toona Floral Tea Party Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4QY9HJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fairy Toona Floral Tea Party Set for Little Girls Ages 3-6, 15-Piece Pretend Play Kitchen Toys with Teapot, Cups, Plates &amp; Storage Case, Princess Gift Set (Pink)" src="https://m.media-amazon.com/images/I/515X-am2+fL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4QY9HJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fairy Toona Floral Tea Party Set for Little Girls Ages 3-6, 15-Piece Pretend Play Kitchen Toys with Teapot, Cups, Plates &amp; Storage Case, Princess Gift Set (Pink)" src="https://m.media-amazon.com/images/I/515X-am2+fL._SL500_.jpg"/></a>
 
 
 The **Fairy Toona Floral Tea Party Set** is perfect for little girls aged **3-6** who love engaging in imaginative play. This **15-piece pretend play kitchen toy set** is ideal for children who enjoy hosting tea parties and role-playing as princesses. Parents looking to encourage creativity and social skills in their young daughters will find this set a delightful choice.
@@ -189,12 +189,12 @@ This **Fairy Toona Floral Tea Party Set** offers an engaging and delightful expe
 
 The design and size of the set are thoughtfully crafted for little hands, making it easy for children to handle each piece comfortably. The enchanting **pink floral pattern** and princess theme stimulate creativity and encourage social skills as children role-play with friends or family. Overall, this set is a wonderful way to inspire imaginative play and joyful moments for young girls.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0F4QY9HJW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0F4QY9HJW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B09BYQQCNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Porcelain Tea Set For Girls</a>
+## <a href="https://www.amazon.com/dp/B09BYQQCNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Porcelain Tea Set For Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B09BYQQCNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Porcelain Tea Set for Girls - Pink Ceramic Tea Cups with Pink Box - Tea Glass Toy for Kids and Girls Tea Party - Ideal Gift for Toddlers and Children's Ages 3 Years Old - Unicorn Design, 13 Pieces" src="https://m.media-amazon.com/images/I/41FTMOZA5vL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09BYQQCNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Porcelain Tea Set for Girls - Pink Ceramic Tea Cups with Pink Box - Tea Glass Toy for Kids and Girls Tea Party - Ideal Gift for Toddlers and Children's Ages 3 Years Old - Unicorn Design, 13 Pieces" src="https://m.media-amazon.com/images/I/41FTMOZA5vL._SL500_.jpg"/></a>
 
 
 The **Porcelain Tea Set for Girls** is perfect for young children, especially toddlers and girls aged 3 years and older, who enjoy imaginative play and hosting **tea parties**. This set is an ideal gift for parents looking to encourage creativity and social skills in their little ones while providing a safe and charming toy.
@@ -216,12 +216,12 @@ The **Porcelain Tea Set for Girls** by Jewelkeeper offers a beautifully crafted 
 
 Beyond its enchanting appearance, this tea set promotes essential developmental skills such as creativity, communication, and role-playing. The sturdy yet delicate porcelain material provides a realistic feel, enhancing the overall play experience. Packaged in a convenient **pink box**, it is also easy to store and transport, making it a practical gift choice for birthdays and special occasions.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B09BYQQCNG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B09BYQQCNG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0DFBQ91CW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tuzt Porcelain Tea Party Set For Little Girls</a>
+## <a href="https://www.amazon.com/dp/B0DFBQ91CW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tuzt Porcelain Tea Party Set For Little Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0DFBQ91CW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TUZT Porcelain Tea Party Set for Little Girls, Kids, Toddlers - 13Pcs Pink Heart Ceramic Set with Pot, Cups, Saucers &amp; Carrying Case - Pretend Play Kitchen Toys - Christmas Birthday Gift for Girls" src="https://m.media-amazon.com/images/I/41JEAoMam6L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DFBQ91CW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="TUZT Porcelain Tea Party Set for Little Girls, Kids, Toddlers - 13Pcs Pink Heart Ceramic Set with Pot, Cups, Saucers &amp; Carrying Case - Pretend Play Kitchen Toys - Christmas Birthday Gift for Girls" src="https://m.media-amazon.com/images/I/41JEAoMam6L._SL500_.jpg"/></a>
 
 
 The **TUZT Porcelain Tea Party Set for Little Girls** is ideal for parents and gift-givers looking to spark imaginative play in toddlers and young children, especially those who enjoy pretend kitchen activities. This charming **13-piece pink heart ceramic set** is perfect for little girls who love hosting tea parties and engaging in creative role-playing scenarios. It’s also a thoughtful **Christmas or birthday gift** that combines fun with a touch of elegance.
@@ -243,12 +243,12 @@ The **TUZT Porcelain Tea Party Set** is thoughtfully crafted to provide a deligh
 
 With its **charming pink heart design** and appropriately sized pieces, this set enhances fine motor skills and encourages social play among peers. It serves as a wonderful tool for parents and caregivers to engage children in role-playing scenarios that boost creativity, communication, and emotional expression. Overall, this tea party set stands out as a beautiful and practical gift choice for toddlers and kids who enjoy imaginative play.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DFBQ91CW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DFBQ91CW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BBG6BMDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pink Tea Set For Little Girls</a>
+## <a href="https://www.amazon.com/dp/B0BBG6BMDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Pink Tea Set For Little Girls</a>
 
 
-<a href="https://www.amazon.com/dp/B0BBG6BMDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pink Tea Set for Little Girls,Flower Design Tea Party Set,Princess Tea Time Toys Teapot Dishes Kitchen Pretend Play Tin Tea Party Set for Girls" src="https://m.media-amazon.com/images/I/51Mjv-xzNoL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BBG6BMDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Pink Tea Set for Little Girls,Flower Design Tea Party Set,Princess Tea Time Toys Teapot Dishes Kitchen Pretend Play Tin Tea Party Set for Girls" src="https://m.media-amazon.com/images/I/51Mjv-xzNoL._SL500_.jpg"/></a>
 
 
 The **Pink Tea Set for Little Girls** is perfect for young children who love imaginative play and enjoy hosting pretend tea parties. This set is ideal for parents seeking a charming and engaging toy that encourages creativity and social interaction in their little girls. It’s especially suited for children who adore princess-themed accessories and floral designs, making playtime both fun and visually delightful.
@@ -270,12 +270,12 @@ The **Pink Tea Set for Little Girls** brings a delightful combination of style a
 
 Crafted by **Xlong**, the set guarantees a balance of quality and safety, allowing parents to feel confident in their purchase. The assortment of dishes, teapot, and kitchen accessories provides a comprehensive tea party experience, encouraging children to develop their fine motor skills and learn about sharing and cooperation in a playful setting.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BBG6BMDM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BBG6BMDM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CNXSXHB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Buyger Kids Kitchen Accessories And Tea Set</a>
+## <a href="https://www.amazon.com/dp/B0CNXSXHB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Buyger Kids Kitchen Accessories And Tea Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CNXSXHB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Buyger Kids Kitchen Accessories and Tea Set for Kids, Toddler Play Kitchen Toy Dish Plates Utensils Dinnerware Set Pretend Role Play Gifts for Ages 3-5 3 4 5 Years Olds Kids Children Boys Girls" src="https://m.media-amazon.com/images/I/511nLLB5cPL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CNXSXHB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Buyger Kids Kitchen Accessories and Tea Set for Kids, Toddler Play Kitchen Toy Dish Plates Utensils Dinnerware Set Pretend Role Play Gifts for Ages 3-5 3 4 5 Years Olds Kids Children Boys Girls" src="https://m.media-amazon.com/images/I/511nLLB5cPL._SL500_.jpg"/></a>
 
 
 The **Buyger Kids Kitchen Accessories and Tea Set** is ideal for young children aged **3 to 5 years old** who love to engage in imaginative play. This set is perfect for toddlers and preschoolers who enjoy role-playing as chefs or host tea parties, helping to develop their creativity and social skills. Parents looking for a safe, colorful, and interactive **pretend play kitchen toy** will find this set an excellent choice.
@@ -297,7 +297,7 @@ The **Buyger Kids Kitchen Accessories and Tea Set** features a well-rounded coll
 
 In addition to fostering creativity, this toy encourages social interaction and role-playing, which are crucial for early childhood development. The high-quality materials used by **BUYGER** ensure that the set withstands active play, providing long-lasting entertainment. Parents can feel confident that their children are playing with a safe, engaging, and educational toy that promotes imaginative growth and practical skills.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CNXSXHB8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CNXSXHB8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

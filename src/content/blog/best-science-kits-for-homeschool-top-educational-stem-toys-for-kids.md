@@ -23,10 +23,10 @@ Some kits include costumes and tools to encourage role play and creativity. Thes
 
 
 
-## <a href="https://www.amazon.com/dp/B002JCOU9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4m Clean Water Science</a>
+## <a href="https://www.amazon.com/dp/B002JCOU9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4m Clean Water Science</a>
 
 
-<a href="https://www.amazon.com/dp/B002JCOU9Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4M Clean Water Science - Climate Change, Global Warming, Lab - STEM Toys Educational Gift for Kids &amp; Teens, Girls &amp; Boys" src="https://m.media-amazon.com/images/I/516Kjly0tdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B002JCOU9Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4M Clean Water Science - Climate Change, Global Warming, Lab - STEM Toys Educational Gift for Kids &amp; Teens, Girls &amp; Boys" src="https://m.media-amazon.com/images/I/516Kjly0tdL._SL500_.jpg"/></a>
 
 
 The **4M Clean Water Science - Climate Change, Global Warming, Lab** is ideal for **kids and teens** who have a curiosity for **science, environmental issues**, and **STEM learning**. This **educational toy** is perfect for both **girls and boys** interested in understanding **global warming** and the importance of clean water, making it a valuable gift that combines fun with meaningful education.
@@ -48,10 +48,10 @@ This **4M Clean Water Science kit** offers a unique opportunity for young learne
 
 Beyond just teaching scientific concepts, this **STEM toy** fosters critical thinking and problem-solving skills by encouraging kids to experiment and observe real-world applications. The kit’s design by **4M** and **Toysmith** ensures a safe and educational experience, making it an excellent gift choice for parents and educators aiming to inspire the next generation of environmental stewards.
 
-## <a href="https://www.amazon.com/dp/B0C248WX35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doctor Jupiter Ultimate Science Kit</a>
+## <a href="https://www.amazon.com/dp/B0C248WX35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Doctor Jupiter Ultimate Science Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0C248WX35?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doctor Jupiter Ultimate Science Kit, Chemistry Set for Kids Ages 8-10-12-14 | Birthday Gift Ideas for Boys &amp; Girls 8,9,10+ Years Old| STEM Toy with 135+ Experiments| Learning &amp; Educational Projects" src="https://m.media-amazon.com/images/I/51ABWbCoG-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C248WX35?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Doctor Jupiter Ultimate Science Kit, Chemistry Set for Kids Ages 8-10-12-14 | Birthday Gift Ideas for Boys &amp; Girls 8,9,10+ Years Old| STEM Toy with 135+ Experiments| Learning &amp; Educational Projects" src="https://m.media-amazon.com/images/I/51ABWbCoG-L._SL500_.jpg"/></a>
 
 
 The **Doctor Jupiter Ultimate Science Kit** is ideal for young explorers aged **8 to 14 years** who have a keen interest in **science and chemistry**. This educational set is perfect for parents and educators looking to inspire **curiosity and hands-on learning** through engaging and safe experiments. If you want to encourage critical thinking and STEM skills in boys and girls, this chemistry set offers a comprehensive and fun introduction to scientific concepts.
@@ -73,10 +73,10 @@ The **Doctor Jupiter Ultimate Science Kit** offers a rich collection of chemistr
 
 Beyond the experiments, the kit supports the development of critical thinking and analytical skills by encouraging kids to hypothesize, test, and observe outcomes. Its compact size and well-organized components make it convenient for both home and classroom use. Overall, this chemistry set is an excellent choice for parents seeking a meaningful birthday gift that combines learning with play, fostering a lifelong passion for science.
 
-## <a href="https://www.amazon.com/dp/B09XB4QGM3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Science Kit For Kids</a>
+## <a href="https://www.amazon.com/dp/B09XB4QGM3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Science Kit For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B09XB4QGM3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Science Kit for Kids,80 Science Lab Experiments,Scientist Costume Role Play STEM Educational Learning Scientific Tools,Birthday Gifts and Toys for 6 7 8 9 Years Old Boys Girls Kids" src="https://m.media-amazon.com/images/I/51JKfddVN3L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09XB4QGM3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Science Kit for Kids,80 Science Lab Experiments,Scientist Costume Role Play STEM Educational Learning Scientific Tools,Birthday Gifts and Toys for 6 7 8 9 Years Old Boys Girls Kids" src="https://m.media-amazon.com/images/I/51JKfddVN3L._SL500_.jpg"/></a>
 
 
 The **Science Kit for Kids** with **80 Science Lab Experiments** is perfect for young, curious minds aged 6 to 9 years old who love exploring and learning about science. Ideal for both boys and girls, this kit encourages hands-on STEM education through fun and interactive activities. It’s an excellent choice for parents, teachers, or gift-givers looking to inspire a passion for science and creativity in children.
@@ -99,10 +99,10 @@ This **Science Kit for Kids** by **Kuovei** offers a comprehensive and engaging 
 
 Designed with colorful and compact components, the kit is suitable for young learners, making science both approachable and exciting. Its lightweight nature makes it easy to carry and store, so kids can enjoy experiments anywhere. By promoting STEM skills from an early age, this kit helps develop critical thinking, problem-solving, and creativity, providing a strong foundation for future scientific exploration and education.
 
-## <a href="https://www.amazon.com/dp/B000URSHEE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Learning Resources Magnetic Wands</a>
+## <a href="https://www.amazon.com/dp/B000URSHEE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Learning Resources Magnetic Wands</a>
 
 
-<a href="https://www.amazon.com/dp/B000URSHEE?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Learning Resources Magnetic Wands - 6 Pieces, Ages 3+, Educational Learning Kits, Science Experiment Tools, Preschool Learning Toys, Homeschool Supplies,Back to School Supplies,Teacher Supplies" src="https://m.media-amazon.com/images/I/41O8pTkkzRL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B000URSHEE?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Learning Resources Magnetic Wands - 6 Pieces, Ages 3+, Educational Learning Kits, Science Experiment Tools, Preschool Learning Toys, Homeschool Supplies,Back to School Supplies,Teacher Supplies" src="https://m.media-amazon.com/images/I/41O8pTkkzRL._SL500_.jpg"/></a>
 
 
 The **Learning Resources Magnetic Wands** set is ideal for parents, teachers, and homeschoolers looking to introduce young children aged 3 and up to the exciting world of **science experiments** and **hands-on learning**. This educational kit is perfect for preschoolers who are curious about magnets and want to explore magnetic forces in a fun and interactive way. It also serves as an excellent resource for back-to-school supplies and classroom activities.
@@ -125,10 +125,10 @@ The **Learning Resources Magnetic Wands** come in a vibrant multi-color design t
 
 Beyond the basic functionality, these magnetic wands foster creativity and problem-solving as children discover how different materials interact with magnets. They are excellent tools for teachers to integrate into lesson plans or for parents to use during homeschool sessions. By using these wands, kids develop fine motor skills and gain confidence in conducting simple scientific experiments, making learning both enjoyable and effective. Overall, this set offers an engaging introduction to magnetism that supports early childhood education standards.
 
-## <a href="https://www.amazon.com/dp/B082ZLM39R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Earth Science Kit</a>
+## <a href="https://www.amazon.com/dp/B082ZLM39R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Earth Science Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B082ZLM39R?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Earth Science Kit – 100+ Science Experiments &amp; Activities for Kids, Crystal Growing, Volcano Science Kit, Rock Collection, STEM Project Toy for Boys &amp; Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51m7Y5kyMnL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B082ZLM39R?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Earth Science Kit – 100+ Science Experiments &amp; Activities for Kids, Crystal Growing, Volcano Science Kit, Rock Collection, STEM Project Toy for Boys &amp; Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51m7Y5kyMnL._SL500_.jpg"/></a>
 
 
 The **NATIONAL GEOGRAPHIC Earth Science Kit** is perfect for curious kids who love exploring the wonders of nature and science. Ideal for boys and girls interested in hands-on learning, this kit is designed for young scientists eager to dive into **STEM** projects, crystal growing, and volcano experiments. Parents and educators looking for an engaging educational toy that promotes scientific thinking will find this kit an excellent choice.
@@ -151,10 +151,10 @@ The **NATIONAL GEOGRAPHIC Earth Science Kit** stands out with its comprehensive 
 
 Additionally, the kit’s design supports **STEM education** by encouraging critical thinking, observation, and experimentation. Kids can conduct volcano eruptions and other dynamic experiments that not only educate but also entertain. This blend of learning and play helps foster a lifelong interest in science and exploration.
 
-## <a href="https://www.amazon.com/dp/B09SYN24NT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unglinga 70 Lab Experiments Science Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B09SYN24NT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Unglinga 70 Lab Experiments Science Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B09SYN24NT?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNGLINGA 70 Lab Experiments Science Kits for Kids Educational Scientist Toys Birthday Gifts Idea for Girls Boys, Chemistry Set, Erupting Volcano, Fruit Circuits, S.T.E.M Activities Science Project" src="https://m.media-amazon.com/images/I/5135mp7lipL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09SYN24NT?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="UNGLINGA 70 Lab Experiments Science Kits for Kids Educational Scientist Toys Birthday Gifts Idea for Girls Boys, Chemistry Set, Erupting Volcano, Fruit Circuits, S.T.E.M Activities Science Project" src="https://m.media-amazon.com/images/I/5135mp7lipL._SL500_.jpg"/></a>
 
 
 The **UNGLINGA 70 Lab Experiments Science Kits for Kids** is ideal for curious young minds who love exploring the world of **science** through hands-on activities. Perfect for both **girls and boys**, this **educational scientist toy** is designed for children interested in **chemistry, physics, and STEM learning**. It serves as an excellent gift idea for birthdays or any occasion where you want to inspire scientific curiosity and creativity.
@@ -177,10 +177,10 @@ The **UNGLINGA 70 Lab Experiments Science Kit** offers a wide variety of **inter
 
 Beyond just experiments, this kit promotes practical understanding and encourages kids to apply scientific methods. Its colorful and organized components make it easy for children to stay engaged and motivated. With the **UNGLINGA chemistry set**, kids not only enjoy hands-on learning but also develop skills such as **critical thinking** and **problem-solving** that are essential for academic success and future STEM careers.
 
-## <a href="https://www.amazon.com/dp/B0876F6STP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Science Magic Kit</a>
+## <a href="https://www.amazon.com/dp/B0876F6STP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">National Geographic Science Magic Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0876F6STP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Science Magic Kit – Science Kit for Kids with 100+ Unique Experiments and Magic Tricks, Chemistry Set and STEM Project, A Great Gift for Boys and Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51U1LgPuu7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0876F6STP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="NATIONAL GEOGRAPHIC Science Magic Kit – Science Kit for Kids with 100+ Unique Experiments and Magic Tricks, Chemistry Set and STEM Project, A Great Gift for Boys and Girls (Amazon Exclusive)" src="https://m.media-amazon.com/images/I/51U1LgPuu7L._SL500_.jpg"/></a>
 
 
 The **NATIONAL GEOGRAPHIC Science Magic Kit** is ideal for curious children who love exploring the wonders of **science** and enjoy hands-on learning. Perfect for both **boys and girls** interested in **chemistry**, **magic tricks**, and **STEM projects**, this kit encourages creativity and experimentation, making it a great educational gift for young minds eager to discover how things work.
@@ -202,10 +202,10 @@ The **NATIONAL GEOGRAPHIC Science Magic Kit** offers a comprehensive learning ex
 
 Additionally, the kit's **STEM project focus** supports the development of essential skills like observation, hypothesis testing, and critical thinking. The inclusion of colorful, well-organized materials ensures that kids remain motivated and curious throughout their experimentation. Overall, this set is a valuable tool for fostering a lifelong passion for science and discovery in young learners.
 
-## <a href="https://www.amazon.com/dp/B07TCN587V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Magic School Bus Rides Again: Exploring Oceans</a>
+## <a href="https://www.amazon.com/dp/B07TCN587V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Magic School Bus Rides Again: Exploring Oceans</a>
 
 
-<a href="https://www.amazon.com/dp/B07TCN587V?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Magic School Bus Rides Again: Exploring Oceans by Horizon Group USA, Homeschool STEM Kits for Kids, Includes Hands-On Educational Manual, Collector Cards, Sea Shells, Game Cards, Sea Salts &amp; More" src="https://m.media-amazon.com/images/I/51jRt8AlVdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07TCN587V?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Magic School Bus Rides Again: Exploring Oceans by Horizon Group USA, Homeschool STEM Kits for Kids, Includes Hands-On Educational Manual, Collector Cards, Sea Shells, Game Cards, Sea Salts &amp; More" src="https://m.media-amazon.com/images/I/51jRt8AlVdL._SL500_.jpg"/></a>
 
 
 The **Magic School Bus Rides Again: Exploring Oceans** by **Horizon Group USA** is perfect for parents and educators looking for an engaging **homeschool STEM kit** that sparks curiosity about marine life and oceanography in children. Ideal for kids who love hands-on learning and interactive science activities, this kit combines education with fun, making it a valuable resource for young explorers eager to discover the mysteries of the ocean.
@@ -228,10 +228,10 @@ The **Magic School Bus Rides Again: Exploring Oceans** kit offers an enriching e
 
 Additionally, the kit promotes critical thinking and curiosity, key components of effective **STEM learning**. Its compact and lightweight design ensures it can be easily integrated into homeschool setups or classroom activities without requiring much space. Overall, this kit is a wonderful tool for fostering a love of science and exploration in young learners interested in the wonders of the ocean.
 
-## <a href="https://www.amazon.com/dp/B08QY6L2VZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Carson Dellosa Stem Challenge Science Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B08QY6L2VZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Carson Dellosa Stem Challenge Science Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B08QY6L2VZ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Carson Dellosa Stem Challenge Science Kits for Kids Age 5-7, Plants, Animals, Insects, and Weather 1st Grade, Kindergarten, and Preschool Learning Activities, Educational Games and Experiments" src="https://m.media-amazon.com/images/I/51Gh9ln8EBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B08QY6L2VZ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Carson Dellosa Stem Challenge Science Kits for Kids Age 5-7, Plants, Animals, Insects, and Weather 1st Grade, Kindergarten, and Preschool Learning Activities, Educational Games and Experiments" src="https://m.media-amazon.com/images/I/51Gh9ln8EBL._SL500_.jpg"/></a>
 
 
 The **Carson Dellosa Stem Challenge Science Kits** are perfect for young learners aged **5-7**, including **kindergarten, preschool, and 1st grade** students who are curious about the natural world. Ideal for parents, teachers, and educators looking to introduce children to **hands-on STEM learning activities**, these kits encourage exploration of **plants, animals, insects, and weather** through engaging experiments and educational games.
@@ -254,10 +254,10 @@ The **Carson Dellosa Stem Challenge Science Kits** stand out by providing a rich
 
 Thanks to its compact size and lightweight nature, this educational kit is easy to transport and store, making it ideal for both classroom and home use. The inclusion of varied experiments and games ensures children stay engaged, while the brand's emphasis on quality guarantees durability and educational value. Overall, these kits provide a comprehensive learning tool that supports young children's curiosity and scientific development in an enjoyable and effective way.
 
-## <a href="https://www.amazon.com/dp/B00000ISC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Insect Lore Raise And Release Butterfly Garden Kit</a>
+## <a href="https://www.amazon.com/dp/B00000ISC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Insect Lore Raise And Release Butterfly Garden Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B00000ISC5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Insect Lore Raise and Release Butterfly Garden Kit – Caterpillar Habitat with redeemable Voucher – STEM-accredited Live Butterfly Growing Kit for Kids, Classrooms, and Homeschool Learning" src="https://m.media-amazon.com/images/I/51ohHaBlhlL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00000ISC5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Insect Lore Raise and Release Butterfly Garden Kit – Caterpillar Habitat with redeemable Voucher – STEM-accredited Live Butterfly Growing Kit for Kids, Classrooms, and Homeschool Learning" src="https://m.media-amazon.com/images/I/51ohHaBlhlL._SL500_.jpg"/></a>
 
 
 The **Insect Lore Raise and Release Butterfly Garden Kit** is perfect for **kids**, **classrooms**, and **homeschool learning** environments looking to combine fun with education. This kit is ideal for parents and educators who want to introduce children to the wonders of nature and life cycles through a hands-on, interactive experience. If you are seeking a **STEM-accredited** activity that encourages curiosity and responsibility, this butterfly garden kit is a great choice.

@@ -22,10 +22,10 @@ Some pieces also include cute animal characters and blind box surprises for adde
 
 
 
-## <a href="https://www.amazon.com/dp/B0DQTTL37T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yleafun Anime Figure Kaneki Ken Action Figure</a>
+## <a href="https://www.amazon.com/dp/B0DQTTL37T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Yleafun Anime Figure Kaneki Ken Action Figure</a>
 
 
-<a href="https://www.amazon.com/dp/B0DQTTL37T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YLEAFUN Anime Figure 35cm Kaneki Ken Action Figure Replaceable Head Figurine Model Desktop Decoration Collectible Statue Ornaments" src="https://m.media-amazon.com/images/I/418rY6VB0dL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DQTTL37T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="YLEAFUN Anime Figure 35cm Kaneki Ken Action Figure Replaceable Head Figurine Model Desktop Decoration Collectible Statue Ornaments" src="https://m.media-amazon.com/images/I/418rY6VB0dL._SL500_.jpg"/></a>
 
 
 The **YLEAFUN Anime Figure 35cm Kaneki Ken Action Figure** is perfect for anime enthusiasts, collectors, and fans of the Tokyo Ghoul series who want to enhance their desktop or display with a detailed and dynamic figurine. This product is ideal for those who appreciate high-quality collectibles that showcase their favorite characters in a visually appealing way.
@@ -46,12 +46,12 @@ This **35cm Kaneki Ken action figure** by **YLEAFUN** captures the essence of th
 
 Beyond its aesthetic appeal, this collectible statue serves as a meaningful addition to any fan's collection, evoking memories and admiration for the Tokyo Ghoul series. Whether displayed at home, in an office, or as part of a larger anime figure set, it enhances the ambiance with a touch of anime culture and artistry.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0DQTTL37T?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0DQTTL37T?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0D47ZSK4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Urban Tokyo Bobble Head Decorative Figurines</a>
+## <a href="https://www.amazon.com/dp/B0D47ZSK4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Urban Tokyo Bobble Head Decorative Figurines</a>
 
 
-<a href="https://www.amazon.com/dp/B0D47ZSK4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Urban Tokyo Bobble Head Decorative Figurines Collectible Dashboard Decor Cute Animal Characters (Monkey)" src="https://m.media-amazon.com/images/I/31VlkolRGHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0D47ZSK4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Urban Tokyo Bobble Head Decorative Figurines Collectible Dashboard Decor Cute Animal Characters (Monkey)" src="https://m.media-amazon.com/images/I/31VlkolRGHL._SL500_.jpg"/></a>
 
 
 The **Urban Tokyo Bobble Head Decorative Figurines** featuring adorable **Monkey** characters are perfect for collectors and individuals looking to add a playful touch to their **dashboard decor** or living space. Ideal for fans of cute animal collectibles and those who appreciate unique, colorful accents in their surroundings, this item combines charm with a compact design, making it suitable for both car enthusiasts and home decorators.
@@ -72,12 +72,12 @@ The **Urban Tokyo Bobble Head Monkey Figurine** stands out with its vibrant **mu
 
 Crafted by **URBAN TOKYO**, this collectible figurine emphasizes quality and aesthetic appeal. Its small footprint ensures it does not clutter your space, while its cheerful design enhances the ambiance. Whether placed on a dashboard or a shelf, it offers a fun, expressive touch that reflects a love for unique and charming decor items.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0D47ZSK4J?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0D47ZSK4J?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BPN95WPF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ichibansho Figure - Tokyo Revengers - Manjiro Sano</a>
+## <a href="https://www.amazon.com/dp/B0BPN95WPF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ichibansho Figure - Tokyo Revengers - Manjiro Sano</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPN95WPF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ichibansho Figure - Tokyo Revengers - Manjiro Sano (Holy Night Decisive Battle Edition), Bandai Spirits Collectible Statue" src="https://m.media-amazon.com/images/I/31s53-7ANGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BPN95WPF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ichibansho Figure - Tokyo Revengers - Manjiro Sano (Holy Night Decisive Battle Edition), Bandai Spirits Collectible Statue" src="https://m.media-amazon.com/images/I/31s53-7ANGL._SL500_.jpg"/></a>
 
 
 The **Ichibansho Figure - Tokyo Revengers - Manjiro Sano (Holy Night Decisive Battle Edition)** is ideal for dedicated **anime collectors** and fans of the **Tokyo Revengers** series who appreciate high-quality, detailed collectibles. This item is perfect for those looking to enhance their collection with a visually striking statue that captures the essence of **Manjiro Sano**, a beloved character from the series. If you value craftsmanship and want a centerpiece that stands out in your display, this figure is a great choice.
@@ -100,12 +100,12 @@ The **Ichibansho Figure - Manjiro Sano** stands out due to its meticulous attent
 
 Beyond aesthetics, this collectible statue offers fans an emotional connection to the series, celebrating one of its most pivotal characters. Whether displayed on a shelf, desk, or in a dedicated display case, it serves as a constant reminder of the anime's thrilling storyline. The exclusivity of this edition also means it holds potential long-term value for collectors, making it not only a decorative piece but also a smart investment for enthusiasts.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BPN95WPF?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BPN95WPF?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CT4XQ75B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Beautiful Ladies Of Bikini Japanese Ai Gravure Sexy Photo Collection Book Vol1</a>
+## <a href="https://www.amazon.com/dp/B0CT4XQ75B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Beautiful Ladies Of Bikini Japanese Ai Gravure Sexy Photo Collection Book Vol1</a>
 
 
-<a href="https://www.amazon.com/dp/B0CT4XQ75B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Beautiful Ladies of Bikini Japanese AI Gravure Sexy Photo Collection Book Vol1: Sexy Photo Book for Adults Beautiful Ladies of Bikini and Beautiful Breasts (Kawaii Tokyo) (Japanese Edition)" src="https://m.media-amazon.com/images/I/51hyjr9Y4aL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CT4XQ75B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Beautiful Ladies of Bikini Japanese AI Gravure Sexy Photo Collection Book Vol1: Sexy Photo Book for Adults Beautiful Ladies of Bikini and Beautiful Breasts (Kawaii Tokyo) (Japanese Edition)" src="https://m.media-amazon.com/images/I/51hyjr9Y4aL._SL500_.jpg"/></a>
 
 
 The **Beautiful Ladies of Bikini Japanese AI Gravure Sexy Photo Collection Book Vol1** is ideal for adult collectors and enthusiasts who appreciate **Japanese gravure photography** and the artistic portrayal of **beautiful ladies in bikinis**. This photo book is perfect for those seeking a tasteful yet sensual collection that combines AI-enhanced imagery with the charm of **Kawaii Tokyo** aesthetics.
@@ -126,12 +126,12 @@ This photo collection book leverages advanced **AI technology** to enhance the v
 
 Although the number of pages is unspecified, the book’s content is curated to offer a compelling visual experience for adults interested in gravure photo collections. Its publication date in early 2024 indicates fresh and contemporary imagery. Overall, this edition is a valuable addition for collectors who appreciate the intersection of technology and traditional gravure photography.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CT4XQ75B?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CT4XQ75B?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0CJ7HDZC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qualia Tokyo Succulent Friends Blind Box Plastic Toy</a>
+## <a href="https://www.amazon.com/dp/B0CJ7HDZC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Qualia Tokyo Succulent Friends Blind Box Plastic Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0CJ7HDZC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Qualia Tokyo Succulent Friends Blind Box Plastic Toy- Blind Box Includes 1 of 5 Collectable Figurines - Fun, Versatile Decoration - Authentic Japanese Design - Made from Durable Plastic" src="https://m.media-amazon.com/images/I/41YPg+zeaSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CJ7HDZC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Qualia Tokyo Succulent Friends Blind Box Plastic Toy- Blind Box Includes 1 of 5 Collectable Figurines - Fun, Versatile Decoration - Authentic Japanese Design - Made from Durable Plastic" src="https://m.media-amazon.com/images/I/41YPg+zeaSL._SL500_.jpg"/></a>
 
 
 The **Qualia Tokyo Succulent Friends Blind Box Plastic Toy** is perfect for collectors, fans of Japanese design, and anyone looking to add a touch of cute, versatile decoration to their space. Ideal for those who enjoy surprise collectibles or want a charming, durable figurine to brighten up their desk, shelf, or workspace.
@@ -154,12 +154,12 @@ The **Qualia Tokyo Succulent Friends Blind Box** offers a delightful blend of fu
 
 Its compact dimensions make it an excellent choice for individuals with limited space who still want to enjoy quirky and visually appealing decorations. Whether placed on a desk, shelf, or included in a collection, the figurines provide a playful and versatile accent that brightens up any environment. The blind box element adds an element of surprise and excitement, making it a fun purchase for collectors and gift-givers alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0CJ7HDZC4?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0CJ7HDZC4?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0BPNBGTPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ichibansho Figure - Tokyo Revengers - Ken Ryuguji</a>
+## <a href="https://www.amazon.com/dp/B0BPNBGTPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Ichibansho Figure - Tokyo Revengers - Ken Ryuguji</a>
 
 
-<a href="https://www.amazon.com/dp/B0BPNBGTPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ichibansho Figure - Tokyo Revengers - Ken Ryuguji (Holy Night Decisive Battle Edition), Bandai Spirits Collectible Statue" src="https://m.media-amazon.com/images/I/31aY1Bx15lL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BPNBGTPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Ichibansho Figure - Tokyo Revengers - Ken Ryuguji (Holy Night Decisive Battle Edition), Bandai Spirits Collectible Statue" src="https://m.media-amazon.com/images/I/31aY1Bx15lL._SL500_.jpg"/></a>
 
 
 The **Ichibansho Figure - Tokyo Revengers - Ken Ryuguji (Holy Night Decisive Battle Edition)** by **Bandai Spirits** is perfect for dedicated **Tokyo Revengers fans** and **collectors of high-quality anime memorabilia**. If you appreciate detailed craftsmanship and want to showcase a dynamic character from the beloved series, this collectible statue is an ideal choice. It also suits those who enjoy limited edition items, adding exclusivity to their collection.
@@ -182,12 +182,12 @@ This **Ichibansho Figure** from **Bandai Spirits** stands out due to its meticul
 
 Beyond its aesthetic appeal, this collectible offers durability and a premium feel thanks to the expertise of **Bandai Spirits**. Its balanced dimensions provide an impressive presence without overwhelming display spaces. Collectors will also appreciate the exclusivity that comes with the limited edition release, making it a prized addition for enthusiasts looking to enhance their anime figure lineup.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0BPNBGTPG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0BPNBGTPG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4RP7TLW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Nimura Furuta</a>
+## <a href="https://www.amazon.com/dp/B0C4RP7TLW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Nimura Furuta</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4RP7TLW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Nimura Furuta - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans - Model Figure for Collectors and Display" src="https://m.media-amazon.com/images/I/418gAOwzXdL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4RP7TLW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Nimura Furuta - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans - Model Figure for Collectors and Display" src="https://m.media-amazon.com/images/I/418gAOwzXdL._SL500_.jpg"/></a>
 
 
 Ideal for **anime fans**, **collectors**, and anyone who appreciates detailed **vinyl figures**, the **Funko POP! Animation: Tokyo Ghoul: Re - Nimura Furuta** is perfect for both **kids and adults**. This official **merchandise** serves as a unique **gift idea** and a striking **model figure** for display, especially for those who love the **Tokyo Ghoul** series or enjoy expanding their **collectable figure** collection.
@@ -210,12 +210,12 @@ This **Funko POP! Animation: Tokyo Ghoul: Re - Nimura Furuta** figure stands out
 
 Beyond aesthetics, this **collectable vinyl figure** is lightweight and durable, ensuring longevity and ease of handling. The monochrome palette captures the character’s iconic look, enhancing its visual appeal. Whether you’re gifting it to a fellow anime enthusiast or adding to your personal display, this figure balances style, authenticity, and accessibility, making it a worthwhile purchase for dedicated fans and collectors alike.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4RP7TLW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4RP7TLW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4RZ3FDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Hinami Fueguchi</a>
+## <a href="https://www.amazon.com/dp/B0C4RZ3FDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Hinami Fueguchi</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4RZ3FDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Hinami Fueguchi - 1/6 Odds for Rare Chase Variant - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans" src="https://m.media-amazon.com/images/I/41acanj1KBL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4RZ3FDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Hinami Fueguchi - 1/6 Odds for Rare Chase Variant - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans" src="https://m.media-amazon.com/images/I/41acanj1KBL._SL500_.jpg"/></a>
 
 
 The **Funko POP! Animation: Tokyo Ghoul: Re - Hinami Fueguchi** collectible vinyl figure is perfect for **anime fans** of all ages, especially those who appreciate unique and officially licensed merchandise. Whether you are a dedicated collector, a fan of the Tokyo Ghoul series, or searching for a thoughtful gift idea for kids and adults alike, this figure offers both display appeal and rarity. Its detailed design and the chance to find a rare chase variant make it a must-have for enthusiasts.
@@ -239,12 +239,12 @@ The **Hinami Fueguchi Funko POP!** figure stands out due to its detailed craftsm
 
 This collectible vinyl figure not only serves as a decorative item but also as a tangible connection to the beloved Tokyo Ghoul anime series. It makes an excellent gift for anime fans, combining both aesthetic appeal and sentimental value. Whether displayed at home or in a collection, the figure’s design and official branding contribute to its status as a treasured piece. Overall, this Funko POP! figure enhances any anime memorabilia collection with its blend of quality, character accuracy, and collectible potential.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4RZ3FDN?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4RZ3FDN?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4RWS8BL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Seido Takizawa (owl) Takizawa</a>
+## <a href="https://www.amazon.com/dp/B0C4RWS8BL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Seido Takizawa (owl) Takizawa</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4RWS8BL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Seido Takizawa - (Owl) Takizawa - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans - Model Figure for Collectors" src="https://m.media-amazon.com/images/I/41F27L6bPqL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4RWS8BL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Seido Takizawa - (Owl) Takizawa - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans - Model Figure for Collectors" src="https://m.media-amazon.com/images/I/41F27L6bPqL._SL500_.jpg"/></a>
 
 
 The **Funko POP! Animation: Tokyo Ghoul: Re - Seido Takizawa - (Owl) Takizawa** collectible vinyl figure is ideal for **anime fans**, **collectors**, and anyone looking for a unique **gift idea**. Whether you are a **kid** fascinated by the Tokyo Ghoul series or an **adult** collector wanting to expand your collection with official merchandise, this figure is tailored to bring joy and value to your display.
@@ -266,12 +266,12 @@ This **Funko POP! vinyl figure** stands out with its detailed craftsmanship and 
 
 Beyond its visual appeal, this collectible serves as a meaningful gift idea for **anime enthusiasts** and **model figure collectors**. Its official status guarantees quality, ensuring it remains a cherished piece for years. Whether you’re starting a collection or adding to an existing one, the **Tokyo Ghoul Seido Takizawa Funko POP!** blends fandom and artistry into one compact, must-have item.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4RWS8BL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4RWS8BL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
-## <a href="https://www.amazon.com/dp/B0C4S92ZZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Kisho Arima</a>
+## <a href="https://www.amazon.com/dp/B0C4S92ZZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Funko Pop! Animation: Tokyo Ghoul: Re - Kisho Arima</a>
 
 
-<a href="https://www.amazon.com/dp/B0C4S92ZZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Kisho Arima - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans - Model Figure for Collectors and Display" src="https://m.media-amazon.com/images/I/41FpBgzJTsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C4S92ZZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Funko POP! Animation: Tokyo Ghoul: Re - Kisho Arima - Collectable Vinyl Figure - Gift Idea - Official Merchandise - for Kids &amp; Adults - Anime Fans - Model Figure for Collectors and Display" src="https://m.media-amazon.com/images/I/41FpBgzJTsL._SL500_.jpg"/></a>
 
 
 The **Funko POP! Animation: Tokyo Ghoul: Re - Kisho Arima Collectable Vinyl Figure** is ideal for **anime fans**, **collectors**, and anyone looking for a unique **gift idea**. Whether you are a **kid** or an **adult**, this **official merchandise** serves as an excellent addition to your display or collection, especially if you appreciate the **Tokyo Ghoul** series.
@@ -293,7 +293,7 @@ This **Funko POP! vinyl figure** captures the essence of **Kisho Arima** from **
 
 As an official **Funko** product, this figure assures collectors of its authenticity and quality. Its design caters to both **kids** who enjoy anime characters and **adults** who appreciate detailed collectibles. Whether you are enhancing your personal collection or seeking a thoughtful **gift** for an anime enthusiast, this model figure offers a perfect blend of aesthetics and fandom appeal.
 
-To buy this product, click <a href="https://www.amazon.com/dp/B0C4S92ZZ7?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
+To buy this product, click <a href="https://www.amazon.com/dp/B0C4S92ZZ7?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">here</a>.
 
 ## Frequently Asked Questions
 

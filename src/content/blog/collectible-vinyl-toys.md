@@ -22,10 +22,10 @@ Collectors appreciate the hand-painted colors and antique finish. These toys go 
 
 
 
-## <a href="https://www.amazon.com/dp/B00CUFZQMU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Armor Coin &amp; Emblem - Prayer Challenge Coin</a>
+## <a href="https://www.amazon.com/dp/B00CUFZQMU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Armor Coin &amp; Emblem - Prayer Challenge Coin</a>
 
 
-<a href="https://www.amazon.com/dp/B00CUFZQMU?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Armor Coin &amp; Emblem - Prayer Challenge Coin: Faithful Armor of God, Spiritual Journey Keepsake, Antique Finish, Hand-Painted Colors, Inspirational Gift for Christians, Collectible Commemorative Token" src="https://m.media-amazon.com/images/I/51NS4CZIqHL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00CUFZQMU?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Armor Coin &amp; Emblem - Prayer Challenge Coin: Faithful Armor of God, Spiritual Journey Keepsake, Antique Finish, Hand-Painted Colors, Inspirational Gift for Christians, Collectible Commemorative Token" src="https://m.media-amazon.com/images/I/51NS4CZIqHL._SL500_.jpg"/></a>
 
 
 The **Armor Coin & Emblem - Prayer Challenge Coin** is ideal for individuals seeking a meaningful and tangible reminder of their **faith** and spiritual journey. This item is perfect for **Christians** who appreciate symbolic keepsakes that reinforce their connection to the **Armor of God**, as well as collectors of inspirational and commemorative tokens. It also makes a thoughtful gift for loved ones who value their spiritual walk and want to carry a piece of encouragement with them.
@@ -48,10 +48,10 @@ The **Armor Coin & Emblem - Prayer Challenge Coin** features a beautifully craft
 
 In addition to its symbolic significance, the coin’s compact dimensions make it versatile for various uses, whether carried in a pocket, placed on a desk, or included in a collection. The **hand-painted colors** bring the emblem to life, making it a visually inspiring piece. Overall, this collectible token combines meaningful artistry with practical size, making it an excellent gift or personal reminder for anyone devoted to their Christian faith.
 
-## <a href="https://www.amazon.com/dp/B01FZ45PYQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Edgar Marcus Statehood Commemorative Quarters Specialty Coin Holder And Vinyl Sleeve Set</a>
+## <a href="https://www.amazon.com/dp/B01FZ45PYQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Edgar Marcus Statehood Commemorative Quarters Specialty Coin Holder And Vinyl Sleeve Set</a>
 
 
-<a href="https://www.amazon.com/dp/B01FZ45PYQ?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Edgar Marcus 2007 Statehood Commemorative Quarters Specialty Coin Holder and Vinyl Sleeve Set" src="https://m.media-amazon.com/images/I/31T+0JVqA9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B01FZ45PYQ?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Edgar Marcus 2007 Statehood Commemorative Quarters Specialty Coin Holder and Vinyl Sleeve Set" src="https://m.media-amazon.com/images/I/31T+0JVqA9L._SL500_.jpg"/></a>
 
 
 The **Edgar Marcus 2007 Statehood Commemorative Quarters Specialty Coin Holder and Vinyl Sleeve Set** is ideal for coin collectors, hobbyists, and history enthusiasts who want to preserve and display their collection of statehood quarters in an organized and protective manner. If you are someone who values both the aesthetic presentation and the safety of your collectible coins, this set is designed to meet your needs.

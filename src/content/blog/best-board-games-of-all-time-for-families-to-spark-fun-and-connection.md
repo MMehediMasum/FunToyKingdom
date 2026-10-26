@@ -22,10 +22,10 @@ Classic games like Battleship and Clue offer strategy and mystery that appeal to
 
 
 
-## <a href="https://www.amazon.com/dp/B07G2VHPRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blank Slate</a>
+## <a href="https://www.amazon.com/dp/B07G2VHPRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Blank Slate</a>
 
 
-<a href="https://www.amazon.com/dp/B07G2VHPRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blank Slate - The Game Where Great Minds Think Alike | Fun Family Friendly Word Association Party Game | The Best Choice for Game Night! | Great Family Board Game &amp; Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51T8zbzUu2L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07G2VHPRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Blank Slate - The Game Where Great Minds Think Alike | Fun Family Friendly Word Association Party Game | The Best Choice for Game Night! | Great Family Board Game &amp; Perfect for Family Game Night" src="https://m.media-amazon.com/images/I/51T8zbzUu2L._SL500_.jpg"/></a>
 
 
 The **Blank Slate - The Game Where Great Minds Think Alike** is ideal for families and friends who enjoy engaging, interactive, and lighthearted party games. If you are looking for a **fun family-friendly word association party game** that sparks creativity and connection, this is the perfect choice for your next **family game night** or social gathering. It suits players of all ages who want to challenge their minds while having a great time together.
@@ -48,10 +48,10 @@ The **Blank Slate** game stands out with its simple yet captivating gameplay tha
 
 Beyond its physical attributes, the game's core feature lies in fostering connection through word association challenges. Players must think alike to win, which not only boosts cognitive skills but also strengthens social bonds. Being produced by **USAopoly**, the game guarantees durability and thoughtfully crafted components that add to the overall experience. Whether it’s a casual evening or a competitive game night, **Blank Slate** offers endless fun and memorable moments for everyone involved.
 
-## <a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jenga Game</a>
+## <a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Jenga Game</a>
 
 
-<a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jenga Game" src="https://m.media-amazon.com/images/I/519Sfo0ES7L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00ABA0ZOA?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Jenga Game" src="https://m.media-amazon.com/images/I/519Sfo0ES7L._SL500_.jpg"/></a>
 
 
 The **Jenga Game** by **Hasbro Gaming** is perfect for families, friends, and game enthusiasts who enjoy a fun and challenging activity that tests their steady hands and strategic thinking. Ideal for players of all ages, this classic game offers a great way to enhance concentration and hand-eye coordination while encouraging social interaction and laughter.
@@ -74,10 +74,10 @@ The **Jenga Game** measures approximately **7.99 inches in height**, **6.26 inch
 
 Designed by the reputable **Hasbro** brand, this game boasts durability and quality craftsmanship. Each block is carefully crafted to ensure smooth stacking and balanced gameplay. The simple yet captivating mechanics encourage players to develop better hand-eye coordination and strategic planning skills while having endless fun. Whether for casual play or competitive matches, the **Jenga Classic Edition** remains a beloved staple in game collections worldwide.
 
-## <a href="https://www.amazon.com/dp/B087CBJ465?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do You Really Know Your Family?</a>
+## <a href="https://www.amazon.com/dp/B087CBJ465?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Do You Really Know Your Family?</a>
 
 
-<a href="https://www.amazon.com/dp/B087CBJ465?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do You Really Know Your Family? A Fun Family Game Filled with Conversation Starters and Challenges - Great for Kids, Teens and Adults" src="https://m.media-amazon.com/images/I/51MqHmw7rsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B087CBJ465?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Do You Really Know Your Family? A Fun Family Game Filled with Conversation Starters and Challenges - Great for Kids, Teens and Adults" src="https://m.media-amazon.com/images/I/51MqHmw7rsL._SL500_.jpg"/></a>
 
 
 Ideal for families looking to strengthen their bonds, the **Do You Really Know Your Family?** game is perfect for kids, teens, and adults who enjoy engaging in meaningful conversations and fun challenges. This game is designed for those who want to discover new things about their loved ones while creating lasting memories in a lively and interactive way.
@@ -98,10 +98,10 @@ The **Do You Really Know Your Family?** game comes in a handy size of approximat
 
 Beyond just a game, this product serves as a valuable tool for improving family relationships. The diverse range of questions and challenges encourages players to learn more about each other's interests, experiences, and perspectives. This not only fosters empathy but also creates an environment where meaningful dialogue can flourish, helping families grow closer and build stronger connections over time.
 
-## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
+## <a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">The Original Tapple</a>
 
 
-<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09QRXD9H1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="The Original TAPPLE, The Fast-Paced Family Board Game, Choose a Category &amp; Race Against the Timer to be the Last Player, Learning Word Game for Ages 8 &amp; Up, 2-8 Players, 15-20 Minute Play Time" src="https://m.media-amazon.com/images/I/51qrkLHqqxL._SL500_.jpg"/></a>
 
 
 **The Original TAPPLE** is perfect for families, friends, and anyone looking to enhance their quick-thinking and vocabulary skills. Ideal for players aged **8 and up**, this fast-paced board game suits groups of **2 to 8 players** who enjoy engaging, educational entertainment that can be played within **15-20 minutes**. If you want a lively game that combines learning with excitement, this is a great choice.
@@ -123,10 +123,10 @@ Featuring a unique timer mechanism, **The Original TAPPLE** challenges players t
 
 Each round is fast and fun, encouraging friendly competition while keeping everyone actively involved. The game’s simplicity and replayability make it an excellent tool for learning and social interaction. Plus, being manufactured by **USAOpoly**, you can trust in its quality and durability to withstand many rounds of play. Overall, this board game is a fantastic way to combine education with entertainment in any social setting.
 
-## <a href="https://www.amazon.com/dp/B077MZ2MPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Azul Board Game</a>
+## <a href="https://www.amazon.com/dp/B077MZ2MPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Asmodee Azul Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B077MZ2MPW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Azul Board Game - Award-Winning Tile-Placement Strategy Game, Beautiful Mosaic Art, Family Fun for Kids &amp; Adults, Ages 8+, 2-4 Players, 30-45 Minute Playtime" src="https://m.media-amazon.com/images/I/61N5Hys8OaS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077MZ2MPW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Asmodee Azul Board Game - Award-Winning Tile-Placement Strategy Game, Beautiful Mosaic Art, Family Fun for Kids &amp; Adults, Ages 8+, 2-4 Players, 30-45 Minute Playtime" src="https://m.media-amazon.com/images/I/61N5Hys8OaS._SL500_.jpg"/></a>
 
 
 The **Asmodee Azul Board Game** is perfect for families and friends who enjoy engaging, strategic gameplay that is both accessible and visually stunning. Ideal for players aged 8 and up, this game is suited for those looking to combine creative tile-placement tactics with a fun, social activity. Whether you're a casual gamer or a strategy enthusiast, Azul offers an entertaining challenge for 2-4 players with a reasonable playtime of 30-45 minutes.
@@ -149,10 +149,10 @@ The **Asmodee Azul Board Game** features a unique tile-placement mechanic where 
 
 Additionally, Azul’s moderate playtime of 30-45 minutes makes it an excellent choice for both casual play sessions and more focused gaming evenings. The game’s design encourages players to think ahead while remaining accessible enough for younger players to enjoy alongside adults. Overall, Azul combines aesthetic charm with compelling strategy, resulting in a board game that is as beautiful as it is engaging.
 
-## <a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hedbanz 2023 Edition</a>
+## <a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Hedbanz 2023 Edition</a>
 
 
-<a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, Hedbanz 2023 Edition with New Cards, Picture Guessing Board Game, for Family &amp; Kids, 2-6 Players, for Ages 6 &amp; Up" src="https://m.media-amazon.com/images/I/51vt6os6cyL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BRYH5FJ8?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spin Master Games, Hedbanz 2023 Edition with New Cards, Picture Guessing Board Game, for Family &amp; Kids, 2-6 Players, for Ages 6 &amp; Up" src="https://m.media-amazon.com/images/I/51vt6os6cyL._SL500_.jpg"/></a>
 
 
 The **Spin Master Games, Hedbanz 2023 Edition** is ideal for families and kids aged 6 and up who enjoy interactive and engaging party games. Perfect for groups of 2 to 6 players, this game encourages creativity, quick thinking, and social interaction, making it an excellent choice for family game nights, gatherings, or classroom activities. If you're looking for a fun and educational game that brings everyone together, this edition of Hedbanz is a great fit.
@@ -176,10 +176,10 @@ The **Spin Master Games, Hedbanz 2023 Edition** features a dynamic picture guess
 
 Additionally, the game's compact size and lightweight design make it easy to store and transport, allowing families to take it on trips or to gatherings without hassle. The game’s simplicity means that even younger children can quickly grasp the rules, promoting inclusive play for the whole family. Overall, this edition of Hedbanz offers a perfect blend of entertainment, education, and social interaction that will appeal to kids and adults alike.
 
-## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
+## <a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Taco Cat Goat Cheese Pizza</a>
 
 
-<a href="https://www.amazon.com/dp/B077Z1R28P?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B077Z1R28P?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game for Family and Group Game Night | Easy to Learn and Play with 10-15 Minute Rounds | Fun for Kids, Teens, Adults, and Families | 2-8 Players" src="https://m.media-amazon.com/images/I/31yBfuEnXhL._SL500_.jpg"/></a>
 
 
 **Taco Cat Goat Cheese Pizza Wildly Entertaining Card Game** is ideal for anyone looking to bring excitement and laughter to their **family and group game nights**. Perfect for **kids, teens, adults, and families**, this game is designed for 2-8 players who want a fast-paced, easy-to-learn activity that keeps everyone engaged. If you enjoy interactive, social games that don’t require complex rules or long playtimes, this game is a great fit.
@@ -202,10 +202,10 @@ The **Taco Cat Goat Cheese Pizza** card game stands out for its simple yet capti
 
 Designed by **Dolphin Hat Games**, this game offers a great balance of excitement and accessibility. Its ability to bring together **players of different ages** and skill levels in a shared experience is one of its strongest benefits. Whether you're aiming to break the ice or just have a lively time with friends and family, this card game delivers consistent entertainment with minimal setup and maximum laughs.
 
-## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
+## <a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Scrabble Classic</a>
 
 
-<a href="https://www.amazon.com/dp/B09D44JH4S?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D44JH4S?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="SCRABBLE CLASSIC REFRESH" src="https://m.media-amazon.com/images/I/41mvsmrjdJL._SL500_.jpg"/></a>
 
 
 The **SCRABBLE CLASSIC REFRESH** is ideal for word game enthusiasts, families, and friends looking to challenge their vocabulary and strategic thinking skills. It is perfect for players of all ages who enjoy engaging, educational, and competitive board games that encourage learning and social interaction.
@@ -228,10 +228,10 @@ The **SCRABBLE CLASSIC REFRESH** combines timeless gameplay with a fresh and col
 
 Featuring the trusted craftsmanship of **Hasbro**, this edition maintains the traditional rules and layout that fans love, promoting creativity, vocabulary building, and strategic thinking. The game's dimensions and weight make it practical for casual play and travel, while the familiar format provides endless hours of fun, educational entertainment for players of all skill levels.
 
-## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
+## <a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Battleship Classic Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09D4QRJ8Y?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Battleship Classic Board Game | Strategy Games for Kids and Adults | Ages 7+ | 2 Players | Fun Kids Games | Family Games" src="https://m.media-amazon.com/images/I/51L5z0q6aAL._SL500_.jpg"/></a>
 
 
 The **Battleship Classic Board Game** is ideal for families and friends looking for a fun and engaging **strategy game** that challenges both kids and adults. Perfect for players aged **7 and up**, this game encourages critical thinking and tactical planning, making it a great choice for anyone who enjoys competitive and interactive gameplay. Whether you're seeking a way to bond with family or enjoy a classic pastime with friends, this **two-player game** offers hours of entertainment.
@@ -253,10 +253,10 @@ The **Battleship Classic Board Game** features a sturdy and colorful design that
 
 Beyond its physical attributes, the game promotes valuable skills such as logic, deduction, and spatial awareness. Players must anticipate opponents' moves and strategically place their ships to avoid detection, which sharpens concentration and problem-solving abilities. This timeless classic, brought to you by **Hasbro**, remains a favorite for its simplicity and depth, providing both **educational benefits** and enjoyable moments for all ages.
 
-## <a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clue Board Game</a>
+## <a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Clue Board Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game for Ages 8 and Up, Reimagined Clue Game for 2-6 Players, Mystery, Detective, Family Games for Kids and Adults" src="https://m.media-amazon.com/images/I/51tjzepfk5L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0B5FLTTT5?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Clue Board Game for Ages 8 and Up, Reimagined Clue Game for 2-6 Players, Mystery, Detective, Family Games for Kids and Adults" src="https://m.media-amazon.com/images/I/51tjzepfk5L._SL500_.jpg"/></a>
 
 
 The **Clue Board Game for Ages 8 and Up** is perfect for families, friends, and anyone who loves a good mystery and detective challenge. Ideal for players aged 8 and older, this game is designed for 2-6 players, making it a great choice for both kids and adults looking to engage in a fun and interactive experience that sharpens critical thinking and deduction skills.

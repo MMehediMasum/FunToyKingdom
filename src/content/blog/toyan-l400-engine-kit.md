@@ -23,10 +23,10 @@ All these make it a comprehensive two-cylinder engine starter accessory. Ideal f
 
 
 
-## <a href="https://www.amazon.com/dp/B0BXWYJCRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Letoy Starter Kit For Semto Engine St-nf2</a>
+## <a href="https://www.amazon.com/dp/B0BXWYJCRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Letoy Starter Kit For Semto Engine St-nf2</a>
 
 
-<a href="https://www.amazon.com/dp/B0BXWYJCRW?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LETOY Starter Kit for SEMTO Engine ST-NF2 Metal Engine, Oil Tank, Oil Pipe, Voltage Regulator Module, F-Type Electric Plug Engine Two-Cylinder Engine Starter Accessory" src="https://m.media-amazon.com/images/I/31W+fywlJNL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BXWYJCRW?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="LETOY Starter Kit for SEMTO Engine ST-NF2 Metal Engine, Oil Tank, Oil Pipe, Voltage Regulator Module, F-Type Electric Plug Engine Two-Cylinder Engine Starter Accessory" src="https://m.media-amazon.com/images/I/31W+fywlJNL._SL500_.jpg"/></a>
 
 
 The **LETOY Starter Kit for SEMTO Engine ST-NF2** is ideal for hobbyists, model engineers, and DIY enthusiasts who are looking to build or enhance a small two-cylinder metal engine setup. If you are someone passionate about mechanical projects or want to explore the workings of miniature engines, this kit provides all essential components to get started with precision and reliability.

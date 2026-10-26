@@ -38,7 +38,7 @@ Rubber bands come in many sizes and thicknesses. Choose one that stretches well 
 Thin rubber bands stretch far but may snap. Thick bands last longer but need more force to wind up.
 
 * Thin bands: good for light, small planes
-* [Medium bands](https://www.amazon.com/s?k=hobby+rubber+bands+for+model+planes&tag=gearcookware-20): balance stretch and strength
+* [Medium bands](https://www.amazon.com/s?k=hobby+rubber+bands+for+model+planes&tag=mofb05-20): balance stretch and strength
 * Thick bands: best for bigger, stronger planes
 
 ### Lightweight Frame Options
@@ -47,7 +47,7 @@ The frame should be light to help the plane fly. Use materials like balsa wood, 
 
 Balsa wood is easy to shape and weighs very little. Foam is soft and safe, good for beginners. Plastic frames can be strong yet light.
 
-* [Balsa wood](https://www.amazon.com/s?k=balsa+wood+sticks+for+crafts&tag=gearcookware-20): light and easy to cut
+* [Balsa wood](https://www.amazon.com/s?k=balsa+wood+sticks+for+crafts&tag=mofb05-20): light and easy to cut
 * Foam: soft, light, and safe
 * Plastic: strong, light, and durable
 
@@ -107,7 +107,7 @@ Adjusting the tail and rudder changes flight path and stability. Small tweaks ca
 
 Building a rubber band powered plane is a fun and simple project. It teaches basic mechanics
 
-Building a [rubber band powered plane](https://www.amazon.com/s?k=rubber+band+powered+airplane+kit&tag=gearcookware-20) is a fun and simple project. It teaches basic mechanics and how energy moves.
+Building a [rubber band powered plane](https://www.amazon.com/s?k=rubber+band+powered+airplane+kit&tag=mofb05-20) is a fun and simple project. It teaches basic mechanics and how energy moves.
 
 In this guide, you will learn how to assemble the frame, attach the rubber band motor, and fine-tune the propeller.
 
@@ -233,7 +233,7 @@ Explore new ideas to make your plane unique. Here are some creative enhancements
 Decorating your plane adds personality. Use paint, stickers, or decals to stand out.
 
 * Choose bright colors for visibility
-* Use [waterproof paint](https://www.amazon.com/s?k=waterproof+model+paint+set&tag=gearcookware-20) for durability
+* Use [waterproof paint](https://www.amazon.com/s?k=waterproof+model+paint+set&tag=mofb05-20) for durability
 * Add stickers of your favorite themes
 
 ### Adding Weight For Balance
@@ -249,7 +249,7 @@ Balance is key for smooth flights. Adding weight helps achieve this.
 
 ### Experimenting With Propeller Designs
 
-The right [propeller](https://www.amazon.com/s?k=rubber+band+airplane+propellers&tag=gearcookware-20) boosts flight performance. Try different designs for better results.
+The right [propeller](https://www.amazon.com/s?k=rubber+band+airplane+propellers&tag=mofb05-20) boosts flight performance. Try different designs for better results.
 
 Consider these factors when choosing a propeller:
 

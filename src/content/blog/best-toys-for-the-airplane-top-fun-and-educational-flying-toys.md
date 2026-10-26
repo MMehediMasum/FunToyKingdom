@@ -23,10 +23,10 @@ For interactive play, remote control planes with lights and sounds keep kids eng
 
 
 
-## <a href="https://www.amazon.com/dp/B09TDP1HCV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fuwidvia 3 Pack Airplane Launcher Toys</a>
+## <a href="https://www.amazon.com/dp/B09TDP1HCV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Fuwidvia 3 Pack Airplane Launcher Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B09TDP1HCV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fuwidvia 3 Pack Airplane Launcher Toys, 13.2'' LED Foam Glider Catapult Plane Toy for Boys, 2 Flight Modes Outdoor Flying Toys Birthday Gifts for Boys Girls 4 5 6 7 8 9 10 11 12 Year Old" src="https://m.media-amazon.com/images/I/51vMKURijML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B09TDP1HCV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Fuwidvia 3 Pack Airplane Launcher Toys, 13.2'' LED Foam Glider Catapult Plane Toy for Boys, 2 Flight Modes Outdoor Flying Toys Birthday Gifts for Boys Girls 4 5 6 7 8 9 10 11 12 Year Old" src="https://m.media-amazon.com/images/I/51vMKURijML._SL500_.jpg"/></a>
 
 
 The **Fuwidvia 3 Pack Airplane Launcher Toys** are perfect for children aged 4 to 12 who love outdoor play and aviation-themed toys. These foam glider catapult planes offer an exciting and interactive experience, making them ideal for boys and girls looking to enjoy active playtime while developing hand-eye coordination and motor skills. Parents seeking engaging birthday gifts that encourage creativity and outdoor activity will find this set an excellent choice.
@@ -49,10 +49,10 @@ The **Fuwidvia Airplane Launcher Toys** stand out with their innovative design, 
 
 Furthermore, the lightweight and durable construction ensures that the gliders are safe for young users and resistant to minor crashes. Their manageable size allows children to easily grasp and launch the planes, fostering independent play as well as social interaction when used in groups. Overall, these airplane toys promote active outdoor fun, creativity, and learning, making them a valuable addition to any child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Airplane 6 Pack</a>
+## <a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Toy Airplane 6 Pack</a>
 
 
-<a href="https://www.amazon.com/dp/B0C45R6NTG?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Airplane 6 Pack, Diecast Airplane Toy for Boys Age 3 4-7 8-12, Alloy Planes Model/Glider Planes/Airlines Plane Toys for Kids Birthday Cake Toppers Airforce Party Favors" src="https://m.media-amazon.com/images/I/51UVjc5B8zL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0C45R6NTG?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Toy Airplane 6 Pack, Diecast Airplane Toy for Boys Age 3 4-7 8-12, Alloy Planes Model/Glider Planes/Airlines Plane Toys for Kids Birthday Cake Toppers Airforce Party Favors" src="https://m.media-amazon.com/images/I/51UVjc5B8zL._SL500_.jpg"/></a>
 
 
 The **Toy Airplane 6 Pack** by **Tcvents** is perfect for parents and gift-givers looking to inspire imaginative play in boys aged **3 to 12 years**. Ideal for young aviation enthusiasts or children who enjoy hands-on, creative activities, these **diecast airplane toys** offer a durable and colorful way to engage kids in role-playing and learning about different types of planes. They also make excellent **birthday cake toppers** or **party favors** for airforce-themed celebrations.
@@ -75,10 +75,10 @@ The **Toy Airplane 6 Pack** is designed with quality **diecast alloy** that prov
 
 Additionally, the vibrant and assorted colors add visual excitement, making these planes attractive collectibles or decorative items for themed parties. Their versatility as both toys and party accessories increases their value for parents looking to maximize fun and function. Overall, this set combines playfulness, education, and durability, making it a thoughtful gift choice for young aviation fans.
 
-## <a href="https://www.amazon.com/dp/B07Y1257KV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bootaa Airplane Flying Toys</a>
+## <a href="https://www.amazon.com/dp/B07Y1257KV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Bootaa Airplane Flying Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B07Y1257KV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10="" 11="" 12="" 2="" 3="" 4="" 5="" 6="" 7="" 8="" 9="" alt="BooTaa 4 Pack Airplane/Flying Toys, 17.5" birthday="" boys,outdoor="" flight="" foam="" for="" game="" gifts="" girls="" gliders,="" kids="" large="" mode,="" old="" plane="" sport="" src="https://m.media-amazon.com/images/I/51TaUwAuqwS._SL500_.jpg" throwing="" toys"="" year=""/></a>
+<a href="https://www.amazon.com/dp/B07Y1257KV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img 10="" 11="" 12="" 2="" 3="" 4="" 5="" 6="" 7="" 8="" 9="" alt="BooTaa 4 Pack Airplane/Flying Toys, 17.5" birthday="" boys,outdoor="" flight="" foam="" for="" game="" gifts="" girls="" gliders,="" kids="" large="" mode,="" old="" plane="" sport="" src="https://m.media-amazon.com/images/I/51TaUwAuqwS._SL500_.jpg" throwing="" toys"="" year=""/></a>
 
 
 The **BooTaa 4 Pack Airplane/Flying Toys** are perfect for young children aged 3 to 12 years old who love outdoor activities and enjoy imaginative play. These large, foam gliders are ideal for parents looking to encourage physical activity and hand-eye coordination in their kids, making them great birthday gifts for both boys and girls. If you want a fun and safe flying toy that can be easily thrown and enjoyed in parks or backyards, this set is an excellent choice.
@@ -100,10 +100,10 @@ The **BooTaa 4 Pack Airplane/Flying Toys** feature a large 17.5-inch design that
 
 Beyond just fun, these foam gliders promote valuable skills such as hand-eye coordination, motor skills, and spatial awareness. The durable construction means they can withstand active play, while the vibrant colors and large size help maintain children's interest. Whether used for casual backyard play or organized outdoor games, the BooTaa airplanes provide an excellent way for kids to stay active, develop physical abilities, and enjoy quality time with family and friends.
 
-## <a href="https://www.amazon.com/dp/B0BYFR7789?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zetz Brands Bump And Go Airplane Toy</a>
+## <a href="https://www.amazon.com/dp/B0BYFR7789?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Zetz Brands Bump And Go Airplane Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B0BYFR7789?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zetz Brands Bump and Go Airplane Toy – Toy Airplane with 4D Lights – Kids Airplane Toys with Reflecting Lights and Sound – Realistic Model Airplane for Boys and Girls 3-12 Years Old" src="https://m.media-amazon.com/images/I/415fsrnXnhL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BYFR7789?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Zetz Brands Bump and Go Airplane Toy – Toy Airplane with 4D Lights – Kids Airplane Toys with Reflecting Lights and Sound – Realistic Model Airplane for Boys and Girls 3-12 Years Old" src="https://m.media-amazon.com/images/I/415fsrnXnhL._SL500_.jpg"/></a>
 
 
 The **Zetz Brands Bump and Go Airplane Toy** is ideal for children aged **3 to 12 years old** who have a fascination with airplanes and enjoy interactive play. This toy is perfect for both boys and girls who love realistic model airplanes combined with exciting lights and sounds, making it an excellent choice for parents seeking an engaging and educational toy that sparks creativity and imagination.
@@ -126,10 +126,10 @@ The **Zetz Brands Bump and Go Airplane Toy** stands out with its innovative **4D
 
 With its manageable size and sturdy build, this toy is easy for children to maneuver, allowing them to explore and enjoy interactive play safely. The **bump and go** feature adds an element of excitement as the airplane changes direction upon impact, promoting active play and motor skills development. Overall, this toy offers a perfect blend of fun, learning, and creativity for young aviation enthusiasts.
 
-## <a href="https://www.amazon.com/dp/B0BCQS2BM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wesfuner 3 Pack Foam Airplane Launcher Toys</a>
+## <a href="https://www.amazon.com/dp/B0BCQS2BM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Wesfuner 3 Pack Foam Airplane Launcher Toys</a>
 
 
-<a href="https://www.amazon.com/dp/B0BCQS2BM2?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wesfuner 3 Pack Foam Airplane Launcher Toys, 2 Flight Mode Glider Plane,Kids Flying Toy,3 4 5 6 7 8 9 10 11 12 Year Old Boys Girls Gifts,Outdoor Sport Party Favor" src="https://m.media-amazon.com/images/I/519ZbatZ91L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BCQS2BM2?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Wesfuner 3 Pack Foam Airplane Launcher Toys, 2 Flight Mode Glider Plane,Kids Flying Toy,3 4 5 6 7 8 9 10 11 12 Year Old Boys Girls Gifts,Outdoor Sport Party Favor" src="https://m.media-amazon.com/images/I/519ZbatZ91L._SL500_.jpg"/></a>
 
 
 The **Wesfuner 3 Pack Foam Airplane Launcher Toys** are perfect for **kids aged 3 to 12 years old** who love outdoor play and flying toys. Ideal for both **boys and girls**, these glider planes make fantastic gifts for birthdays, parties, or simply for encouraging active play and creativity in children. Parents looking for safe, engaging, and fun outdoor toys will find these launchers an excellent choice.
@@ -152,10 +152,10 @@ The **Wesfuner Foam Airplane Launcher Toys** feature a user-friendly design that
 
 Designed with durability in mind, these glider planes offer hours of outdoor fun, encouraging kids to be active while developing coordination and spatial awareness. The bright **blue and red colors** make them easy to spot during flight, adding excitement and engagement. Overall, the Wesfuner 3 Pack is a fantastic option for parents seeking an affordable, educational, and entertaining outdoor toy for their children.
 
-## <a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">United States Air Force Toy Jet Squadron Die Cast Airplanes</a>
+## <a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">United States Air Force Toy Jet Squadron Die Cast Airplanes</a>
 
 
-<a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="United Sates Air Force 4-Pack Toy Jet Squadron Die Cast Airplanes, Pull Back Military Fighter Jets, Diecast Air Plane Models" src="https://m.media-amazon.com/images/I/41kq8HlVjSL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BNNSNXBP?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="United Sates Air Force 4-Pack Toy Jet Squadron Die Cast Airplanes, Pull Back Military Fighter Jets, Diecast Air Plane Models" src="https://m.media-amazon.com/images/I/41kq8HlVjSL._SL500_.jpg"/></a>
 
 
 Ideal for collectors, aviation enthusiasts, and children fascinated by military aircraft, the **United States Air Force 4-Pack Toy Jet Squadron Die Cast Airplanes** offer a perfect blend of realism and playability. Those looking for durable, detailed models that can also provide engaging, hands-on entertainment will find this set especially appealing.
@@ -178,10 +178,10 @@ The **United States Air Force 4-Pack Toy Jet Squadron Die Cast Airplanes** featu
 
 This set not only appeals to younger audiences who enjoy dynamic play but also to collectors who value precise replicas and durable materials. The compact design means these airplanes can be showcased on a shelf or desk without taking up much space. Additionally, being a product from **Lollipop** and Brooklyn Lollipops Import Corp adds a layer of trust and reliability in terms of build quality and longevity, making this 4-pack a worthwhile addition to any aviation enthusiast’s collection or a child's toy box.
 
-## <a href="https://www.amazon.com/dp/B0F1K9NLH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4drc V32 Foam Remote Control Airplanes</a>
+## <a href="https://www.amazon.com/dp/B0F1K9NLH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">4drc V32 Foam Remote Control Airplanes</a>
 
 
-<a href="https://www.amazon.com/dp/B0F1K9NLH1?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4DRC V32 Foam Remote Control Airplanes RC Planes for Kids Adults 8-16, RC Airplane Fighter Jet with Light, 360° Flip Fighter Jet Toys, Stunt Roll, Airplane Toy Gifts for Kids Boys" src="https://m.media-amazon.com/images/I/51n3SZhpx9L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F1K9NLH1?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="4DRC V32 Foam Remote Control Airplanes RC Planes for Kids Adults 8-16, RC Airplane Fighter Jet with Light, 360° Flip Fighter Jet Toys, Stunt Roll, Airplane Toy Gifts for Kids Boys" src="https://m.media-amazon.com/images/I/51n3SZhpx9L._SL500_.jpg"/></a>
 
 
 The **4DRC V32 Foam Remote Control Airplanes** are perfect for both **kids and adults aged 8-16** who have an interest in flying remote control planes or want to experience the thrill of piloting a stunt-capable aircraft. Whether you're a beginner looking for an easy-to-fly RC plane or an enthusiast eager to perform exciting aerial tricks, this **RC airplane fighter jet** offers an engaging and enjoyable flying experience. It also makes a fantastic gift for boys who love aviation-themed toys.
@@ -203,10 +203,10 @@ The **4DRC V32 Foam RC Airplane** stands out with its well-balanced design that 
 
 Its ability to perform **360° flips and stunt rolls** elevates the fun factor, offering users an exciting way to challenge their piloting skills. The plane's manageable size and responsive controls make it suitable for both younger users and hobbyists, fostering a rewarding learning experience in remote control aviation. Overall, this RC airplane is a fantastic blend of performance, durability, and entertainment value.
 
-## <a href="https://www.amazon.com/dp/B008LQXR9Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Airplane</a>
+## <a href="https://www.amazon.com/dp/B008LQXR9Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Green Toys Airplane</a>
 
 
-<a href="https://www.amazon.com/dp/B008LQXR9Q?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Airplane - BPA, Phthalates Free, Blue Air Transport Toy for Introducing Aeronautical Knowledge, Improving Grasping Power. Toy Vehicles" src="https://m.media-amazon.com/images/I/41epF1bpakS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B008LQXR9Q?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Green Toys Airplane - BPA, Phthalates Free, Blue Air Transport Toy for Introducing Aeronautical Knowledge, Improving Grasping Power. Toy Vehicles" src="https://m.media-amazon.com/images/I/41epF1bpakS._SL500_.jpg"/></a>
 
 
 Ideal for parents and caregivers looking for a safe and educational toy, the **Green Toys Airplane** is perfect for young children eager to explore the basics of aeronautics while enhancing their motor skills. This **blue air transport toy** is designed to introduce kids to the exciting world of flight in a safe, engaging, and eco-friendly way.
@@ -227,10 +227,10 @@ The **Green Toys Airplane** stands out as a thoughtfully crafted toy vehicle tha
 
 Moreover, this toy introduces basic **aeronautical concepts** in a fun and accessible way, sparking curiosity and imagination. Its robust build ensures durability, allowing it to withstand active play both indoors and outdoors. Overall, the Green Toys Airplane is an excellent educational tool that blends safety, sustainability, and developmental benefits for young children.
 
-## <a href="https://www.amazon.com/dp/B0833WQ2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tuko Transport Cargo Airplane Car Toy Play Set</a>
+## <a href="https://www.amazon.com/dp/B0833WQ2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Tuko Transport Cargo Airplane Car Toy Play Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0833WQ2ZL?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tuko Transport Cargo Airplane Car Toy Play Set for 3+ Years Old Boys and Girls" src="https://m.media-amazon.com/images/I/51DQONtDEWL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0833WQ2ZL?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Tuko Transport Cargo Airplane Car Toy Play Set for 3+ Years Old Boys and Girls" src="https://m.media-amazon.com/images/I/51DQONtDEWL._SL500_.jpg"/></a>
 
 
 The **Tuko Transport Cargo Airplane Car Toy Play Set** is ideal for **boys and girls aged 3 years and older** who have a keen interest in vehicles and imaginative play. This toy is perfect for parents looking to encourage creativity and motor skill development in their young children through engaging and interactive play.
@@ -252,10 +252,10 @@ The **Tuko Transport Cargo Airplane Car Toy Play Set** combines the excitement o
 
 Beyond just being fun, this play set supports the development of fine motor skills and hand-eye coordination as children manipulate the vehicle. Additionally, the bright blue color is visually stimulating and can help maintain a child's interest over extended periods. Overall, the Tuko play set offers a well-rounded experience that blends entertainment with developmental benefits, making it a valuable addition to any young child's toy collection.
 
-## <a href="https://www.amazon.com/dp/B0CKX87P6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Airplane Toy Set</a>
+## <a href="https://www.amazon.com/dp/B0CKX87P6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Airplane Toy Set</a>
 
 
-<a href="https://www.amazon.com/dp/B0CKX87P6X?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Airplane Toy Set with Trucks, Helicopter, Planes, Signs and Airport Playmat, Interactive Early Learning Toys for Boys Girls, Great Gift for Birthday" src="https://m.media-amazon.com/images/I/51FdeWSLkbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0CKX87P6X?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Airplane Toy Set with Trucks, Helicopter, Planes, Signs and Airport Playmat, Interactive Early Learning Toys for Boys Girls, Great Gift for Birthday" src="https://m.media-amazon.com/images/I/51FdeWSLkbL._SL500_.jpg"/></a>
 
 
 The **Airplane Toy Set with Trucks, Helicopter, Planes, Signs and Airport Playmat** is perfect for young children, especially boys and girls who have a keen interest in aviation and vehicles. This interactive early learning toy is ideal for parents and gift-givers looking to provide an engaging and educational experience that promotes imaginative play and motor skill development. If you want a comprehensive playset that combines fun and learning, this set is an excellent choice.

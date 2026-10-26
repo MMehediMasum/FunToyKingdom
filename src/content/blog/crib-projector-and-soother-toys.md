@@ -33,7 +33,7 @@ Using a crib projector creates a peaceful space where babies feel safe and calm.
 
 ### Soothing Visuals For Babies
 
-**[Crib projectors](https://www.amazon.com/s?k=crib+projector+for+baby&tag=gearcookware-20)** show gentle images and colors that catch a baby’s attention. These visuals help distract babies from fussing.
+**[Crib projectors](https://www.amazon.com/s?k=crib+projector+for+baby&tag=mofb05-20)** show gentle images and colors that catch a baby’s attention. These visuals help distract babies from fussing.
 
 * Soft moving lights calm the baby’s mind
 * Simple shapes help focus their eyes
@@ -80,7 +80,7 @@ Soother toys play different sounds to relax babies. Some use nature sounds, whil
 
 ### Safe And Baby-friendly Materials
 
-Materials used in **[soother toys](https://www.amazon.com/s?k=baby+soother+toys+with+sound+and+light&tag=gearcookware-20)** are safe for babies to touch and chew. They avoid harmful chemicals.
+Materials used in **[soother toys](https://www.amazon.com/s?k=baby+soother+toys+with+sound+and+light&tag=mofb05-20)** are safe for babies to touch and chew. They avoid harmful chemicals.
 
 The toys use soft fabrics, BPA-free plastics, and non-toxic paints. These keep babies safe and comfortable.
 
@@ -178,7 +178,7 @@ Long battery life means fewer interruptions during sleep time. Toys with energy-
 Some soother toys use rechargeable batteries. Others work with replaceable ones. Pick what fits your lifestyle best.
 
 * Look for toys with long-lasting batteries
-* Consider **[rechargeable models](https://www.amazon.com/s?k=rechargeable+baby+soother+machine&tag=gearcookware-20)** for convenience
+* Consider **[rechargeable models](https://www.amazon.com/s?k=rechargeable+baby+soother+machine&tag=mofb05-20)** for convenience
 * Check how easy it is to change batteries
 * Energy-saving modes help extend use
 
@@ -266,8 +266,8 @@ Many brands offer these products, each with unique features. Let's explore some 
 
 Crib projectors create a soothing environment for infants. They project stars and images onto ceilings and walls.
 
-* **[VTech Baby Lil' Critters](https://www.amazon.com/s?k=VTech+Baby+Lil+Critters+Soothe+and+Surprise+Light&tag=gearcookware-20)** Soothe and Surprise Light
-* **[Fisher-Price Precious Planet](https://www.amazon.com/s?k=Fisher-Price+Precious+Planet+2-in-1+Projection+Mobile&tag=gearcookware-20)** 2-in-1 Projection Mobile
+* **[VTech Baby Lil' Critters](https://www.amazon.com/s?k=VTech+Baby+Lil+Critters+Soothe+and+Surprise+Light&tag=mofb05-20)** Soothe and Surprise Light
+* **[Fisher-Price Precious Planet](https://www.amazon.com/s?k=Fisher-Price+Precious+Planet+2-in-1+Projection+Mobile&tag=mofb05-20)** 2-in-1 Projection Mobile
 * Skip Hop Moonlight & Melodies Nightlight Soother
 
 ### Highly Recommended Soother Toys
@@ -277,7 +277,7 @@ Soother toys calm babies with music and sounds. They often come with soft textur
 |  |  |
 | --- | --- |
 | Brand | Model |
-| Cloud b | **[Tranquil Turtle](https://www.amazon.com/s?k=Cloud+b+Tranquil+Turtle+Night+Light&tag=gearcookware-20)** |
+| Cloud b | **[Tranquil Turtle](https://www.amazon.com/s?k=Cloud+b+Tranquil+Turtle+Night+Light&tag=mofb05-20)** |
 | Fisher-Price | SmartConnect Deluxe Soother |
 | VTech | Critters Soothing Starlight Hippo |
 

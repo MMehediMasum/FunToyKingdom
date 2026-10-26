@@ -169,7 +169,7 @@ Preparing the ground helps prevent accidents and keeps the swing set steady. Cle
 | Surface Type | Advantages | Notes |
 | Grass | Soft and natural | Needs regular maintenance |
 | Mulch | Good shock absorption | Replenish often |
-| [Rubber mats](https://www.amazon.com/s?k=outdoor+rubber+playground+mats&tag=gearcookware-20) | Durable and safe | Can be costly |
+| [Rubber mats](https://www.amazon.com/s?k=outdoor+rubber+playground+mats&tag=mofb05-20) | Durable and safe | Can be costly |
 | Sand | Soft landing | May require frequent leveling |
 
 ### Assembly Basics
@@ -263,8 +263,8 @@ We divided the choices into three sections: budget-friendly options, premium qua
 
 Affordable swing sets often have simple designs but still offer good fun and safety. These sets suit families who want value without extra features.
 
-* [KidKraft Cedar Summit Swing Set](https://www.amazon.com/s?k=KidKraft+Cedar+Summit+Swing+Set&tag=gearcookware-20) - solid wood, slide, two swings
-* [Step2 Naturally Playful Lookout Treehouse](https://www.amazon.com/s?k=Step2+Naturally+Playful+Lookout+Treehouse&tag=gearcookware-20) - plastic, easy to assemble
+* [KidKraft Cedar Summit Swing Set](https://www.amazon.com/s?k=KidKraft+Cedar+Summit+Swing+Set&tag=mofb05-20) - solid wood, slide, two swings
+* [Step2 Naturally Playful Lookout Treehouse](https://www.amazon.com/s?k=Step2+Naturally+Playful+Lookout+Treehouse&tag=mofb05-20) - plastic, easy to assemble
 
 ### Premium Quality Sets
 
@@ -272,7 +272,7 @@ Premium sets use durable materials and include extra features. These last longer
 
 | Brand | Material | Features | Price Range |
 | --- | --- | --- | --- |
-| [Backyard Discovery](https://www.amazon.com/s?k=Backyard+Discovery+swing+set&tag=gearcookware-20) | Cedar Wood | Slide, swings, climbing wall | High |
+| [Backyard Discovery](https://www.amazon.com/s?k=Backyard+Discovery+swing+set&tag=mofb05-20) | Cedar Wood | Slide, swings, climbing wall | High |
 | Lifetime | High-Density Polyethylene | Slide, multiple swings, canopy | High |
 | PlayStar | Pressure-Treated Pine | Slide, swings, monkey bars | High |
 
@@ -282,7 +282,7 @@ Many buyers choose these sets for their reliability and fun features. They have 
 
 **Popular Models:**
 
-1. [Great Play Mega Swing Set](https://www.amazon.com/s?k=Great+Play+Mega+Swing+Set&tag=gearcookware-20) - includes two swings, slide, and a fort
+1. [Great Play Mega Swing Set](https://www.amazon.com/s?k=Great+Play+Mega+Swing+Set&tag=mofb05-20) - includes two swings, slide, and a fort
 2. Step2 Neat and Tidy II Playhouse - slide, swing, and playhouse combo
 3. KidKraft Adventure Summit - wooden set with slide and climbing wall
 

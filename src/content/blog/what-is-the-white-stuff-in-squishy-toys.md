@@ -34,7 +34,7 @@ These toys are made from special materials designed to be soft and stretchy. The
 
 ### Common Materials Used
 
-Most [squishy toys](https://www.amazon.com/s?k=squishy+toys&tag=gearcookware-20) use foam or gel as their base material. Polyurethane foam is common because it is soft and lightweight. Some toys use silicone or rubber for extra stretchiness. The outer layer often has a smooth, painted surface.
+Most [squishy toys](https://www.amazon.com/s?k=squishy+toys&tag=mofb05-20) use foam or gel as their base material. Polyurethane foam is common because it is soft and lightweight. Some toys use silicone or rubber for extra stretchiness. The outer layer often has a smooth, painted surface.
 
 The white stuff inside some squishy toys is often foam beads or pellets. These beads add texture and make the toy feel fuller. They also help the toy keep its shape better after use.
 
@@ -109,7 +109,7 @@ White residue on squishy toys can spoil the fun. This powdery build-up appears o
 
 ### Storage Tips
 
-Store squishy toys in a cool, dry place. Avoid direct sunlight to prevent material damage. Use [airtight containers](https://www.amazon.com/s?k=airtight+storage+containers+for+toys&tag=gearcookware-20) or sealed bags to block dust. Keep toys away from heat sources. Proper storage slows down the white powder formation.
+Store squishy toys in a cool, dry place. Avoid direct sunlight to prevent material damage. Use [airtight containers](https://www.amazon.com/s?k=airtight+storage+containers+for+toys&tag=mofb05-20) or sealed bags to block dust. Keep toys away from heat sources. Proper storage slows down the white powder formation.
 
 ### Proper Usage Practices
 
@@ -127,11 +127,11 @@ These alternatives use different materials and designs. They often avoid the sti
 
 Non-toxic squishy toys use safe materials like silicone or natural rubber. These materials do not contain harmful chemicals. They are gentle on the skin and safe if touched often. Many are free from allergens and irritants. This makes them ideal for children and adults.
 
-Some non-toxic squishies also use [water beads](https://www.amazon.com/s?k=water+beads+squishy+toy&tag=gearcookware-20) or gel inside. These fillings are less likely to leak or cause mess. They offer a similar squishy feeling without risks. These toys meet strict safety standards in many countries.
+Some non-toxic squishies also use [water beads](https://www.amazon.com/s?k=water+beads+squishy+toy&tag=mofb05-20) or gel inside. These fillings are less likely to leak or cause mess. They offer a similar squishy feeling without risks. These toys meet strict safety standards in many countries.
 
 ### Durable Materials
 
-[Durable squishy toys](https://www.amazon.com/s?k=silicone+squishy+toys&tag=gearcookware-20) use strong, flexible materials like high-grade silicone. These materials resist tearing and deformation. They keep their shape even after many squeezes. This makes them good for daily use and rough play.
+[Durable squishy toys](https://www.amazon.com/s?k=silicone+squishy+toys&tag=mofb05-20) use strong, flexible materials like high-grade silicone. These materials resist tearing and deformation. They keep their shape even after many squeezes. This makes them good for daily use and rough play.
 
 Some durable toys use foam with a dense texture. This foam bounces back quickly after being squished. It does not crumble or lose softness over time. These toys provide a lasting sensory experience.
 
@@ -155,7 +155,7 @@ The white stuff in squishy toys is usually polyurethane foam. This foam gives th
 
 
 
-White foam is used because it is lightweight and flexible. It helps toys retain their shape after squeezing. The foam also provides a satisfying tactile experience, which is why it’s popular in [stress-relief toys](https://www.amazon.com/s?k=stress-relief+toys&tag=gearcookware-20). This material is durable and maintains softness over time.
+White foam is used because it is lightweight and flexible. It helps toys retain their shape after squeezing. The foam also provides a satisfying tactile experience, which is why it’s popular in [stress-relief toys](https://www.amazon.com/s?k=stress-relief+toys&tag=mofb05-20). This material is durable and maintains softness over time.
 
 
 

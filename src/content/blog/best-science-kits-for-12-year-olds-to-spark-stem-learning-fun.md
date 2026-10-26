@@ -23,10 +23,10 @@ Young Scientist Series offers kits on flight, the heart, and digestion. Magnetic
 
 
 
-## <a href="https://www.amazon.com/dp/B099CRTQBH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Steve Spangler Science Stem Success Kit</a>
+## <a href="https://www.amazon.com/dp/B099CRTQBH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Steve Spangler Science Stem Success Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B099CRTQBH?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Steve Spangler Science STEM Success Kit: Electricity Science Kit" src="https://m.media-amazon.com/images/I/51hoMRvBQbL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099CRTQBH?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Steve Spangler Science STEM Success Kit: Electricity Science Kit" src="https://m.media-amazon.com/images/I/51hoMRvBQbL._SL500_.jpg"/></a>
 
 
 The **Steve Spangler Science STEM Success Kit: Electricity Science Kit** is ideal for young learners, educators, and parents who want to introduce children to the fascinating world of **electricity and STEM concepts**. This kit is perfect for students curious about how electrical circuits work and anyone seeking a hands-on educational tool that combines fun with learning.
@@ -49,10 +49,10 @@ The **Steve Spangler Science STEM Success Kit: Electricity Science Kit** offers 
 
 With its focus on interactive learning, this kit not only boosts knowledge but also enhances creativity and analytical thinking. The inclusion of high-quality components ensures durability and safety, making it a reliable educational resource. Overall, this kit provides a solid foundation in **STEM education** by combining practical experience with scientific principles, fostering a deeper interest in science and technology.
 
-## <a href="https://www.amazon.com/dp/B0F4D3XNQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Toys For Boys Science Kit Solar Robot Building Game</a>
+## <a href="https://www.amazon.com/dp/B0F4D3XNQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Toys For Boys Science Kit Solar Robot Building Game</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4D3XNQM?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Toys for Boys Age 8-12, Science Kit Solar Robot Christmas Birthday Easter Gifts for 8-14 Year Old Boys, Building Game Robots for Ages 9 10 11 12 13 14" src="https://m.media-amazon.com/images/I/51hNmCXphmL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4D3XNQM?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM Toys for Boys Age 8-12, Science Kit Solar Robot Christmas Birthday Easter Gifts for 8-14 Year Old Boys, Building Game Robots for Ages 9 10 11 12 13 14" src="https://m.media-amazon.com/images/I/51hNmCXphmL._SL500_.jpg"/></a>
 
 
 The **STEM Toys for Boys Age 8-12** by **ZeniMakers** is perfect for young, curious minds who love to explore **science**, **technology**, **engineering**, and **math** concepts through hands-on activities. Ideal for boys aged 8 to 14, especially those interested in **building** and **robotics**, this kit makes an excellent gift for occasions like **Christmas**, **birthdays**, or **Easter**. It is designed to inspire creativity while teaching valuable STEM skills in an engaging way.
@@ -75,10 +75,10 @@ This **science kit** features a solar robot that children can assemble themselve
 
 Designed by **ZeniMakers** and produced by **XINNENGYUAN TOYS FACTORY**, this building game ensures quality materials and safe components, giving parents peace of mind. The kit’s versatility in age suitability allows it to grow with the child, providing both beginners and more advanced young engineers with an exciting challenge. Overall, it’s a thoughtful educational gift that combines fun with learning in a meaningful way.
 
-## <a href="https://www.amazon.com/dp/B07RV6HNB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spicebox Science Experiment Kits For Kids</a>
+## <a href="https://www.amazon.com/dp/B07RV6HNB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Spicebox Science Experiment Kits For Kids</a>
 
 
-<a href="https://www.amazon.com/dp/B07RV6HNB9?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spicebox Science Experiment Kits for Kids STEM Projects Activities Learning Educational Toys, Volcano Natural Science Lab, Smart Science Age Range 8+" src="https://m.media-amazon.com/images/I/51HrCLmf3nL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B07RV6HNB9?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Spicebox Science Experiment Kits for Kids STEM Projects Activities Learning Educational Toys, Volcano Natural Science Lab, Smart Science Age Range 8+" src="https://m.media-amazon.com/images/I/51HrCLmf3nL._SL500_.jpg"/></a>
 
 
 The **Spicebox Science Experiment Kits for Kids** are perfect for young learners aged **8 and up** who are curious about **STEM projects** and hands-on educational activities. This kit is ideal for parents, teachers, and guardians looking to inspire children with engaging **science experiments** that promote natural science understanding and critical thinking skills.
@@ -101,10 +101,10 @@ The **Spicebox Science Experiment Kits** offer a comprehensive set of **educatio
 
 Designed with vibrant **multi-colored** materials and a manageable size, this kit ensures that children remain engaged and enthusiastic throughout the learning process. Its focus on **STEM projects** aligns perfectly with current educational trends, encouraging kids to develop a lifelong interest in science and technology.
 
-## <a href="https://www.amazon.com/dp/B00068O2F0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Young Scientist Series - Set 6</a>
+## <a href="https://www.amazon.com/dp/B00068O2F0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Young Scientist Series - Set 6</a>
 
 
-<a href="https://www.amazon.com/dp/B00068O2F0?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Young Scientist Series - Set 6: Flight (Kit 16) - Heart and Lungs (Kit 17) - Digestive System (Kit 18)" src="https://m.media-amazon.com/images/I/41K2vM1qR-L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B00068O2F0?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Young Scientist Series - Set 6: Flight (Kit 16) - Heart and Lungs (Kit 17) - Digestive System (Kit 18)" src="https://m.media-amazon.com/images/I/41K2vM1qR-L._SL500_.jpg"/></a>
 
 
 The **Young Scientist Series - Set 6** is an excellent choice for curious young learners and budding scientists eager to explore the fascinating worlds of **flight, human anatomy, and biology**. Ideal for children and teens with an interest in STEM subjects, this set offers engaging, hands-on experiments that make complex scientific concepts accessible and fun. Parents and educators looking to inspire critical thinking and practical knowledge in science will find this kit particularly valuable.
@@ -127,10 +127,10 @@ This set stands out with its focus on three fundamental areas of science. The **
 
 The **Digestive System kit** completes the series by exploring how the body processes food and absorbs nutrients. Together, these kits offer a well-rounded educational experience that enhances scientific literacy and appreciation. The compact dimensions and lightweight nature make this set convenient for use in classrooms, homeschooling environments, or even on-the-go learning sessions. Overall, this series is a valuable tool to foster a lifelong interest in science and discovery.
 
-## <a href="https://www.amazon.com/dp/B0BH6MRB42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magnetic Levitation Science Experiment Kit</a>
+## <a href="https://www.amazon.com/dp/B0BH6MRB42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Magnetic Levitation Science Experiment Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0BH6MRB42?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Magnetic Levitation Science Experiment Kit" src="https://m.media-amazon.com/images/I/41qSgoxqw0L._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0BH6MRB42?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Magnetic Levitation Science Experiment Kit" src="https://m.media-amazon.com/images/I/41qSgoxqw0L._SL500_.jpg"/></a>
 
 
 The **Magnetic Levitation Science Experiment Kit** is perfect for curious minds, students, and educators who want to explore the fascinating world of **magnetism** and **physics**. Ideal for those interested in hands-on learning, this kit offers a practical and engaging way to understand scientific principles through experimentation. Whether you're a science enthusiast or looking for an educational gift, this compact and innovative kit is designed to inspire creativity and critical thinking.
@@ -152,10 +152,10 @@ The **Magnetic Levitation Science Experiment Kit** is thoughtfully designed to d
 
 Beyond its core experiments, this kit fosters critical thinking and problem-solving skills as users experiment with different configurations to achieve levitation. By engaging with the kit, learners develop a deeper appreciation for physics and magnetism, making it an excellent supplement to classroom lessons or a stimulating activity for science hobbyists.
 
-## <a href="https://www.amazon.com/dp/B0F4JWDNGV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Diy Toys Hand Soldering Electronic Tesla Lightning Kit</a>
+## <a href="https://www.amazon.com/dp/B0F4JWDNGV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Diy Toys Hand Soldering Electronic Tesla Lightning Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0F4JWDNGV?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM DIY Toys Hand Soldering Electronic Tesla Lightning Kit | Science Craft Kit for Kids Ages 8-9-10-11-12-13-14-15+Years Old|Educational Gifts for Boys&amp;Girls|Video Guide(Rectangular-Transparent Grey)" src="https://m.media-amazon.com/images/I/414rP++7bGL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F4JWDNGV?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM DIY Toys Hand Soldering Electronic Tesla Lightning Kit | Science Craft Kit for Kids Ages 8-9-10-11-12-13-14-15+Years Old|Educational Gifts for Boys&amp;Girls|Video Guide(Rectangular-Transparent Grey)" src="https://m.media-amazon.com/images/I/414rP++7bGL._SL500_.jpg"/></a>
 
 
 Ideal for **young science enthusiasts** and **budding engineers** aged **8 to 15 years**, the **STEM DIY Toys Hand Soldering Electronic Tesla Lightning Kit** is perfect for kids who are curious about **electronics**, **physics**, and **hands-on learning**. This kit is especially suited for children who enjoy **building and crafting projects** that combine education with fun, making it an excellent gift for both boys and girls interested in **STEM (Science, Technology, Engineering, and Mathematics)** subjects.
@@ -178,10 +178,10 @@ The **STEM DIY Toys Hand Soldering Electronic Tesla Lightning Kit** is crafted t
 
 With its transparent grey, rectangular design, the kit is not only functional but visually appealing, allowing users to see the internal components as they build and operate the device. The included **video guide** ensures that even beginners can follow along confidently, making it an ideal tool to spark an early interest in **science and engineering** fields. Overall, this kit delivers both educational value and entertainment, encouraging kids to explore and innovate safely under supervision.
 
-## <a href="https://www.amazon.com/dp/B079J1BZZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genius Box Learning Stem Toy</a>
+## <a href="https://www.amazon.com/dp/B079J1BZZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Genius Box Learning Stem Toy</a>
 
 
-<a href="https://www.amazon.com/dp/B079J1BZZR?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Genius Box Learning STEM Toy for 5+ Year Age: Light and Sound DIY,Activity Kit, Learning Kit, Educational Kit" src="https://m.media-amazon.com/images/I/51MZmpNMaML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B079J1BZZR?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Genius Box Learning STEM Toy for 5+ Year Age: Light and Sound DIY,Activity Kit, Learning Kit, Educational Kit" src="https://m.media-amazon.com/images/I/51MZmpNMaML._SL500_.jpg"/></a>
 
 
 The **Genius Box Learning STEM Toy for 5+ Year Age** is perfect for young children who are curious about science, technology, engineering, and mathematics. This educational kit is ideal for parents, teachers, and caregivers looking to encourage hands-on learning through engaging **light and sound DIY activities**. If you want to inspire creativity and critical thinking in kids aged five and above, this kit is an excellent choice.
@@ -204,10 +204,10 @@ The **Genius Box Learning STEM Toy** features a thoughtfully designed collection
 
 Additionally, this educational kit fosters essential skills like critical thinking and creativity by encouraging children to experiment and discover independently. With the **1st edition** from **LITTLE MILLENNIUM EDUCATION PRIVATE LIMITED**, users can expect a quality product designed to make STEM education accessible and enjoyable. Overall, the Genius Box is a valuable tool for nurturing young minds and building a strong foundation in STEM subjects.
 
-## <a href="https://www.amazon.com/dp/B0DY1H8B26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diycoming Electrostatic Friction Rod Kit</a>
+## <a href="https://www.amazon.com/dp/B0DY1H8B26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Diycoming Electrostatic Friction Rod Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B0DY1H8B26?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diycoming Electrostatic Friction Rod Kit : 3 Cloths, 2 Rods,1PVC Tubes with Feather, Shredded Paper Material Package" src="https://m.media-amazon.com/images/I/51TAFkpIqML._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0DY1H8B26?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Diycoming Electrostatic Friction Rod Kit : 3 Cloths, 2 Rods,1PVC Tubes with Feather, Shredded Paper Material Package" src="https://m.media-amazon.com/images/I/51TAFkpIqML._SL500_.jpg"/></a>
 
 
 The **Diycoming Electrostatic Friction Rod Kit** is ideal for hobbyists, educators, and science enthusiasts who want to explore the fascinating world of electrostatics through hands-on experiments. This kit is perfect for anyone interested in learning about static electricity, whether for educational purposes, DIY science projects, or simply as a fun and interactive activity at home or in the classroom.
@@ -228,10 +228,10 @@ The **Diycoming Electrostatic Friction Rod Kit** features a thoughtfully curated
 
 Thanks to its compact dimensions and lightweight construction, this kit is highly portable and suitable for use in classrooms, science fairs, or at home. The sturdy materials used in the rods and cloths ensure long-lasting use, while the combination of items encourages creativity and exploration. Users benefit from a practical and visual understanding of electrostatic principles, making science learning both fun and memorable.
 
-## <a href="https://www.amazon.com/dp/B099FMX2P3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Geeek Club Robot Building Kit</a>
+## <a href="https://www.amazon.com/dp/B099FMX2P3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Geeek Club Robot Building Kit</a>
 
 
-<a href="https://www.amazon.com/dp/B099FMX2P3?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Geeek Club Robot Building Kit - W4 Scout Recon - DIY STEM Science Toys for Kids - Educational Robotics Kit - Printed Circuit Board Set - Build Your Own Robotic Spaceship Kits - Engineering Toy Gift" src="https://m.media-amazon.com/images/I/51QBVyCs4pS._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B099FMX2P3?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="Geeek Club Robot Building Kit - W4 Scout Recon - DIY STEM Science Toys for Kids - Educational Robotics Kit - Printed Circuit Board Set - Build Your Own Robotic Spaceship Kits - Engineering Toy Gift" src="https://m.media-amazon.com/images/I/51QBVyCs4pS._SL500_.jpg"/></a>
 
 
 The **Geeek Club Robot Building Kit - W4 Scout Recon** is perfect for young enthusiasts and budding engineers who are eager to explore the world of **STEM** and **robotics**. Ideal for kids who love hands-on learning and creative projects, this educational robotics kit provides an engaging way to develop critical thinking and problem-solving skills while having fun building their own robotic spaceship.
@@ -254,10 +254,10 @@ The **Geeek Club Robot Building Kit - W4 Scout Recon** features a well-designed 
 
 Additionally, this **educational robotics kit** promotes perseverance and enhances fine motor skills as kids carefully assemble each part. The comprehensive design of the kit offers an excellent balance between challenge and fun, making it a valuable gift for children interested in science and technology. With the **Geeek Club** brand's commitment to quality, this kit guarantees a reliable and rewarding experience for young engineers.
 
-## <a href="https://www.amazon.com/dp/B0F5W7D295?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Diy Toys Hand Soldering Electronic Spin The Wheel</a>
+## <a href="https://www.amazon.com/dp/B0F5W7D295?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank">Stem Diy Toys Hand Soldering Electronic Spin The Wheel</a>
 
 
-<a href="https://www.amazon.com/dp/B0F5W7D295?tag=gearcookware-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM DIY Toys Hand Soldering Electronic Spin the Wheel | Science Craft Kit for Kids Ages 8-9-10-11-12-13-14-15+ Years Old | Educational Gifts for Boys&amp;Girls | Video Guide(Fire Wheel-Fluorescent Green)" src="https://m.media-amazon.com/images/I/41V2atdrZsL._SL500_.jpg"/></a>
+<a href="https://www.amazon.com/dp/B0F5W7D295?tag=mofb05-20&amp;linkCode=ogi&amp;th=1&amp;psc=1" target="_blank"><img alt="STEM DIY Toys Hand Soldering Electronic Spin the Wheel | Science Craft Kit for Kids Ages 8-9-10-11-12-13-14-15+ Years Old | Educational Gifts for Boys&amp;Girls | Video Guide(Fire Wheel-Fluorescent Green)" src="https://m.media-amazon.com/images/I/41V2atdrZsL._SL500_.jpg"/></a>
 
 
 The **STEM DIY Toys Hand Soldering Electronic Spin the Wheel** is perfect for curious kids aged 8 to 15+ who have an interest in science, electronics, and hands-on learning. This kit is ideal for parents and educators looking to provide an engaging educational gift that encourages problem-solving, creativity, and technical skills in both boys and girls. If your child enjoys building projects and exploring how things work, this **science craft kit** will be a great addition to their learning tools.

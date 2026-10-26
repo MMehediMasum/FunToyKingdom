@@ -31,11 +31,11 @@ Squishy toys are soft, fun, and satisfying to squeeze. Their unique feel comes f
 
 ### Types of Foam Used
 
-Foam is the main material in many squishy toys. Polyurethane foam is popular because it is soft and lightweight. [Memory foam](https://www.amazon.com/s?k=memory+foam+squishy+toys&tag=gearcookware-20) is also used for a slower bounce back. This foam absorbs pressure and slowly returns to shape, giving a calming effect. Different densities of foam create various textures and firmness levels.
+Foam is the main material in many squishy toys. Polyurethane foam is popular because it is soft and lightweight. [Memory foam](https://www.amazon.com/s?k=memory+foam+squishy+toys&tag=mofb05-20) is also used for a slower bounce back. This foam absorbs pressure and slowly returns to shape, giving a calming effect. Different densities of foam create various textures and firmness levels.
 
 ### Silicone And Rubber Components
 
-[Silicone and rubber](https://www.amazon.com/s?k=silicone+squishy+toys&tag=gearcookware-20) add stretch and durability to some squishies. Silicone is smooth, flexible, and safe for skin contact. Rubber parts increase elasticity and help the toy bounce back quickly. These materials resist tearing and keep the toy soft even after many squeezes. They are often combined with foam for better feel.
+[Silicone and rubber](https://www.amazon.com/s?k=silicone+squishy+toys&tag=mofb05-20) add stretch and durability to some squishies. Silicone is smooth, flexible, and safe for skin contact. Rubber parts increase elasticity and help the toy bounce back quickly. These materials resist tearing and keep the toy soft even after many squeezes. They are often combined with foam for better feel.
 
 ### Plastics And Polymers
 
@@ -55,7 +55,7 @@ Gel and liquid fillings make squishy toys soft and smooth. The gel inside feels 
 
 ### Beads And Microbeads
 
-[Beads and microbeads](https://www.amazon.com/s?k=water+bead+squishy+toys&tag=gearcookware-20) are tiny balls inside the toy. They make the toy feel bumpy and fun to touch. These beads shift when you squeeze the toy. This creates a unique texture and sound. They add weight to the toy, making it more satisfying to hold.
+[Beads and microbeads](https://www.amazon.com/s?k=water+bead+squishy+toys&tag=mofb05-20) are tiny balls inside the toy. They make the toy feel bumpy and fun to touch. These beads shift when you squeeze the toy. This creates a unique texture and sound. They add weight to the toy, making it more satisfying to hold.
 
 ### Memory Foam Variants
 
@@ -93,7 +93,7 @@ Many squishy toys now use natural materials. Plant-based foams replace harmful c
 
 ### Smart And Responsive Materials
 
-Some squishies react to touch or temperature. These smart materials [change color](https://www.amazon.com/s?k=color+changing+squishy+toys&tag=gearcookware-20) or shape. They add a new layer of fun and surprise. This technology improves sensory play for kids. It also supports stress relief for adults. The responsive nature makes the toys feel alive.
+Some squishies react to touch or temperature. These smart materials [change color](https://www.amazon.com/s?k=color+changing+squishy+toys&tag=mofb05-20) or shape. They add a new layer of fun and surprise. This technology improves sensory play for kids. It also supports stress relief for adults. The responsive nature makes the toys feel alive.
 
 ### Customizable Components
 
@@ -117,7 +117,7 @@ Use a soft cloth or sponge with mild soap and water. Avoid harsh chemicals and b
 
 ### Storage To Prevent Damage
 
-Store squishy toys in a cool, dry place away from sunlight. Heat and sun can make them sticky or fade their colors. Keep them away from sharp objects that can cause cuts or tears. Use a [box or drawer](https://www.amazon.com/s?k=toy+storage+box+organizer&tag=gearcookware-20) to protect them from dust.
+Store squishy toys in a cool, dry place away from sunlight. Heat and sun can make them sticky or fade their colors. Keep them away from sharp objects that can cause cuts or tears. Use a [box or drawer](https://www.amazon.com/s?k=toy+storage+box+organizer&tag=mofb05-20) to protect them from dust.
 
 ### Handling To Extend Lifespan
 

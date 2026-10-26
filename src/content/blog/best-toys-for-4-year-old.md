@@ -31,7 +31,7 @@ For 4-year-olds, toys that teach science, reading, and puzzles are perfect choic
 
 STEM kits focus on science, technology, engineering, and math. They help kids explore how things work.
 
-* Build simple machines with [blocks and gears](https://www.amazon.com/s?k=kids+building+blocks+and+gears+stem+kit&tag=gearcookware-20)
+* Build simple machines with [blocks and gears](https://www.amazon.com/s?k=kids+building+blocks+and+gears+stem+kit&tag=mofb05-20)
 * Explore magnets and forces with fun experiments
 * Learn about colors and shapes through hands-on activities
 
@@ -82,14 +82,14 @@ Building blocks teach children how to stack and balance. They help kids learn sh
 | **Type** | **Material** | **Benefits** |
 | Wooden Blocks | Wood | Durable and natural feel |
 | Plastic Blocks | Plastic | Bright colors and easy to clean |
-| [Magnetic Blocks](https://www.amazon.com/s?k=magnetic+blocks+for+4+year+old&tag=gearcookware-20) | Plastic with magnets | Stick together easily for creative shapes |
+| [Magnetic Blocks](https://www.amazon.com/s?k=magnetic+blocks+for+4+year+old&tag=mofb05-20) | Plastic with magnets | Stick together easily for creative shapes |
 
 ### Role Play Sets
 
 Role play sets let children act out real-life roles. This type of play builds social skills and language development.
 
 * Kitchen sets to pretend cooking and serving meals
-* [Doctor kits](https://www.amazon.com/s?k=kids+doctor+kit&tag=gearcookware-20) to explore caring and empathy
+* [Doctor kits](https://www.amazon.com/s?k=kids+doctor+kit&tag=mofb05-20) to explore caring and empathy
 * Dress-up costumes for imaginative stories
 
 ## Outdoor Toys
@@ -107,7 +107,7 @@ Choosing the right outdoor toy keeps 4-year-olds active and entertained for hour
 Ride-on vehicles improve balance and coordination. They let kids explore the yard or park on their own.
 
 * Tricycles with wide wheels for stability
-* [Balance bikes](https://www.amazon.com/s?k=balance+bike+for+4+year+old&tag=gearcookware-20) to build confidence before biking
+* [Balance bikes](https://www.amazon.com/s?k=balance+bike+for+4+year+old&tag=mofb05-20) to build confidence before biking
 * Electric ride-ons with simple controls
 * Push cars for indoor and outdoor use
 
@@ -130,7 +130,7 @@ Water toys keep kids cool and active on hot days. They encourage sensory play an
 Top water play gear options:
 
 * Inflatable pools for splashing fun
-* [Water tables](https://www.amazon.com/s?k=kids+water+table&tag=gearcookware-20) with cups and funnels
+* [Water tables](https://www.amazon.com/s?k=kids+water+table&tag=mofb05-20) with cups and funnels
 * Squirt toys for aiming practice
 * Slip-and-slide mats for running and sliding
 
@@ -149,7 +149,7 @@ Fine motor toys help children use small muscles in their hands and fingers. Thes
 * Building blocks for stacking and sorting
 * Puzzle pieces that fit together
 * Bead threading sets
-* [Play dough](https://www.amazon.com/s?k=play+dough+set+for+kids&tag=gearcookware-20) for shaping and molding
+* [Play dough](https://www.amazon.com/s?k=play+dough+set+for+kids&tag=mofb05-20) for shaping and molding
 * Crayons and markers for drawing
 
 ### Balance And Coordination
